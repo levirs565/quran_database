@@ -14,29 +14,42 @@ function writePlain(data, name) {
   );
 }
 
-program.requiredOption("-i, --input <directory>").parse();
+program
+  .requiredOption("-i, --input <directory>")
+  .requiredOption("-v, --version <version>")
+  .parse();
 
 const options = program.opts();
+
+const baseDataOpts = {
+  version: options.version,
+};
 
 function importLajnah() {
   const db = new sqlite3.Database(join(options.input, "kemenag.lajnah"));
 
   const verseTextData = {
+    ...baseDataOpts,
     nama: "Quran Hafs oleh Kemenag",
     font: "LPMQ Isep Misbah",
     verse: [],
   };
   const verseGundulData = {
+    ...baseDataOpts,
     nama: "Quran Gundul oleh Kemenag",
     font: "LPMQ Isep Misbah",
     verse: [],
   };
   const verseIsyaratData = {
+    ...baseDataOpts,
     nama: "Quran Isyarat oleh Kemenag",
     font: "LPMQ MSI ISYARAT",
     verse: [],
   };
-  const surahData = { surah: [] };
+  const surahData = {
+    ...baseDataOpts,
+    surah: [],
+  };
 
   db.serialize(() => {
     db.each(
@@ -136,6 +149,7 @@ function importData() {
     const db = new sqlite3.Database(join(dataDir, name));
 
     const data = {
+      ...baseDataOpts,
       nama: "",
       verse: [],
       footnote: [],
@@ -242,6 +256,7 @@ function importData() {
 
       if (isIndonesia2019) {
         const data = {
+          ...baseDataOpts,
           theme: [],
         };
         db.each(
