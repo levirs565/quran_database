@@ -1,8 +1,6 @@
 import fs from "fs";
-import { currentDir, dbDir } from "./util.js";
+import { dbDir, idFile } from "./util.js";
 import path from "path";
-
-const idFile = path.join(currentDir, "ids.json");
 
 const dbList = fs.readdirSync(dbDir);
 const idMap = fs.existsSync(idFile)

@@ -28,19 +28,19 @@ function importLajnah() {
 
   const verseTextData = {
     ...baseDataOpts,
-    nama: "Quran Hafs oleh Kemenag",
+    name: "Quran Hafs oleh Kemenag",
     font: "LPMQ Isep Misbah",
     verse: [],
   };
   const verseGundulData = {
     ...baseDataOpts,
-    nama: "Quran Gundul oleh Kemenag",
+    name: "Quran Gundul oleh Kemenag",
     font: "LPMQ Isep Misbah",
     verse: [],
   };
   const verseIsyaratData = {
     ...baseDataOpts,
-    nama: "Quran Isyarat oleh Kemenag",
+    name: "Quran Isyarat oleh Kemenag",
     font: "LPMQ MSI ISYARAT",
     verse: [],
   };
@@ -148,7 +148,7 @@ function importData() {
 
     const data = {
       ...baseDataOpts,
-      nama: "",
+      name: "",
       verse: [],
       footnote: [],
     };
@@ -163,7 +163,7 @@ function importData() {
 
     db.serialize(() => {
       db.get("SELECT trans_name FROM trans", (err, row) => {
-        data.nama = row.trans_name;
+        data.name = row.trans_name;
       });
       let suraColumn = "sura";
       let verseColumn = "aya";
