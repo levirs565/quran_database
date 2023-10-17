@@ -1,0 +1,8 @@
+{
+  "type": "module",
+  "dependencies": {
+    "commander": "^11.1.0",
+    "glob": "^10.3.10",
+    "sqlite3": "^5.1.6"
+  }
+}
