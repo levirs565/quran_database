@@ -1,11 +1,9 @@
 import { program } from "commander";
 import sqlite3 from "sqlite3";
 import { writeFileSync } from "fs";
-import { basename, join } from "path";
-import { fileURLToPath } from "url";
+import { join } from "path";
+import { dbDir } from "./util.js";
 import { globSync } from "glob";
-
-const dbDir = fileURLToPath(new URL("./database", import.meta.url));
 
 function writePlain(data, name) {
   writeFileSync(
