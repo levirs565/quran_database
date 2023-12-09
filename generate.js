@@ -56,7 +56,7 @@ function importLajnah() {
         // console.log(row);
         const pos = {
           sura: parseInt(row.surah),
-          verse: parseInt(row.verse),
+          verse: parseInt(row.ayat),
         };
         verseTextData.verse.push({
           ...pos,
