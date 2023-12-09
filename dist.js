@@ -22,7 +22,7 @@ for (const id in idMap) {
   const db = JSON.parse(fs.readFileSync(path.join(dbDir, name + ".json")));
   const [, type] = name.split(".");
   const dbSummary = {
-    id,
+    id: Number(id),
     name: name,
     title: db.name,
     type,
