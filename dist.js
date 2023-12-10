@@ -1,5 +1,5 @@
 import fs from "fs";
-import { dbDir, distDir, idFile } from "./util.js";
+import { dbDir, distDir, idFile, readDatabase } from "./util.js";
 import path from "path";
 import { glob, globSync } from "glob";
 
@@ -19,7 +19,7 @@ const idMap = JSON.parse(fs.readFileSync(idFile));
 
 for (const id in idMap) {
   const name = idMap[id];
-  const db = JSON.parse(fs.readFileSync(path.join(dbDir, name + ".json")));
+  const db = readDatabase(name);
   const [, type] = name.split(".");
   const dbSummary = {
     id: Number(id),

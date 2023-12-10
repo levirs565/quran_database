@@ -1,16 +1,8 @@
 import { program } from "commander";
 import sqlite3 from "sqlite3";
-import { writeFileSync } from "fs";
 import { join } from "path";
-import { dbDir } from "./util.js";
+import { writeDatabase } from "./util.js";
 import { globSync } from "glob";
-
-function writePlain(data, name) {
-  writeFileSync(
-    join(dbDir, name + ".json"),
-    JSON.stringify(data, undefined, 2)
-  );
-}
 
 program
   .requiredOption("-i, --input <directory>")
@@ -72,9 +64,9 @@ function importLajnah() {
         });
       },
       () => {
-        writePlain(verseTextData, "kemenag.text.hafs");
-        writePlain(verseGundulData, "kemenag.text.gundul");
-        writePlain(verseIsyaratData, "kemenag.text.isyarat");
+        writeDatabase(verseTextData, "kemenag.text.hafs");
+        writeDatabase(verseGundulData, "kemenag.text.gundul");
+        writeDatabase(verseIsyaratData, "kemenag.text.isyarat");
       }
     );
 
@@ -92,7 +84,7 @@ function importLajnah() {
         });
       },
       () => {
-        writePlain(surahData, "kemenag.extra.surah");
+        writeDatabase(surahData, "kemenag.extra.surah");
       }
     );
   });
@@ -248,7 +240,7 @@ function importData() {
           });
         },
         () => {
-          writePlain(data, `kemenag.${type}.${baseName.toLowerCase()}`);
+          writeDatabase(data, `kemenag.${type}.${baseName.toLowerCase()}`);
         }
       );
 
@@ -268,7 +260,7 @@ function importData() {
             });
           },
           () => {
-            writePlain(data, `kemenag.extra.theme`);
+            writeDatabase(data, `kemenag.extra.theme`);
           }
         );
       }
