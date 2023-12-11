@@ -50,5 +50,5 @@ Promise.all(
 
     console.log("Writing database...");
     database.verse = list;
-    writeDatabase(database, "kemenag.text.latin");
+    writeDatabase(database, "kemenag.latin.latin");
   });
