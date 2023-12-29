@@ -17,3 +17,5 @@ export function writeDatabase(data, name) {
 export function readDatabase(name) {
   return JSON.parse(readFileSync(path.join(dbDir, name + ".json")));
 }
+
+export const suraCount = 114;

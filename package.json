@@ -2,6 +2,7 @@
   "type": "module",
   "dependencies": {
     "canvas": "^2.11.2",
+    "cheerio": "^1.0.0-rc.12",
     "commander": "^11.1.0",
     "glob": "^10.3.10",
     "node-fetch": "^3.3.2",
