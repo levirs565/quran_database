@@ -71,14 +71,13 @@ function getSuraVerseList(script, translation, sura, fromVerse, toVerse) {
       elList
         .map(($) => [$.attr("id"), $.text()])
         .filter(([id]) => id.startsWith(idPrefix))
-        .map(([id, text]) => [
-          id.substring(idPrefix.length),
-          text,
-          text.indexOf("\u200F"),
-        ])
-        .map(([verseIndex, text, rtlIndex]) => [
+        .map(([id, text]) => [id.substring(idPrefix.length), text])
+        .map(([verseIndex, text]) => [
           Number(verseIndex),
-          rtlIndex >= 0 ? text.substring(0, rtlIndex) : text,
+          text.replace(
+            /\s*(\u200F﴿\uFEFF.*\uFEFF﴾|\(\uFEFF.*\uFEFF\)\uFEFF)/g,
+            ""
+          ),
         ])
         .map(([verse, text]) => ({
           sura,
@@ -99,14 +98,18 @@ function getQuranVerseList(script, translation, suraList) {
   return Promise.resolve(suraList)
     .then((suraList) =>
       suraList.map(({ sura, verseCount }) =>
-        getSuraVerseList(script, translation, sura, 1, verseCount).then(
-          (result) => {
+        new Promise((resolve) => {
+          setTimeout(resolve, 1000 * sura);
+        })
+          .then(() =>
+            getSuraVerseList(script, translation, sura, 1, verseCount)
+          )
+          .then((result) => {
             console.log(
               `Download for ${script.name}/${translation.name} surah ${sura} success`
             );
             return result;
-          }
-        )
+          })
       )
     )
     .then((list) => Promise.all(list))
