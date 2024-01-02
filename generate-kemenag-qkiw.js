@@ -15,82 +15,86 @@ const baseDataOpts = {
   version: options.version,
 };
 
-function importLajnah() {
-  const db = new sqlite3.Database(join(options.input, "kemenag.lajnah"));
+const idToPositionMap = new Map();
 
-  const verseTextData = {
-    ...baseDataOpts,
-    name: "Quran Hafs oleh Kemenag",
-    font: "LPMQ Isep Misbah",
-    verse: [],
-  };
-  const verseGundulData = {
-    ...baseDataOpts,
-    name: "Quran Gundul oleh Kemenag",
-    font: "LPMQ Isep Misbah",
-    verse: [],
-  };
-  const verseIsyaratData = {
-    ...baseDataOpts,
-    name: "Quran Isyarat oleh Kemenag",
-    font: "LPMQ MSI ISYARAT",
-    verse: [],
-  };
-  const surahData = {
-    ...baseDataOpts,
-    surah: [],
-  };
+const importLajnah = () =>
+  new Promise((resolve) => {
+    const db = new sqlite3.Database(join(options.input, "kemenag.lajnah"));
 
-  db.serialize(() => {
-    db.each(
-      "SELECT surah, ayat, teks, gundul, isyarat FROM quran",
-      (err, row) => {
-        // console.log(row);
-        const pos = {
-          sura: parseInt(row.surah),
-          verse: parseInt(row.ayat),
-        };
-        verseTextData.verse.push({
-          ...pos,
-          text: row.teks,
-        });
-        verseGundulData.verse.push({
-          ...pos,
-          text: row.gundul,
-        });
-        verseIsyaratData.verse.push({
-          ...pos,
-          text: row.isyarat,
-        });
-      },
-      () => {
-        writeDatabase(verseTextData, "kemenag.text.hafs");
-        writeDatabase(verseGundulData, "kemenag.text.gundul");
-        writeDatabase(verseIsyaratData, "kemenag.text.isyarat");
-      }
-    );
+    const verseTextData = {
+      ...baseDataOpts,
+      name: "Quran Hafs IndoPak",
+      font: "LPMQ Isep Misbah",
+      verse: [],
+    };
+    const verseGundulData = {
+      ...baseDataOpts,
+      name: "Plain Quran",
+      font: "LPMQ Isep Misbah",
+      verse: [],
+    };
+    const verseIsyaratData = {
+      ...baseDataOpts,
+      name: "Quran Isyarat",
+      font: "LPMQ MSI ISYARAT",
+      verse: [],
+    };
+    const surahData = {
+      ...baseDataOpts,
+      surah: [],
+    };
 
-    db.each(
-      `SELECT id, namalatin, jumlahayat, namaarab, kategory,terjemah, posisi FROM namasurat`,
-      (err, row) => {
-        surahData.surah.push({
-          index: parseInt(row.id),
-          name: row.namalatin,
-          verseCount: parseInt(row.jumlahayat),
-          arabicName: row.namaarab,
-          category: row.kategory,
-          translation: row.terjemah,
-          position: parseInt(row.posisi),
-        });
-      },
-      () => {
-        writeDatabase(surahData, "kemenag.extra.surah");
-      }
-    );
+    db.serialize(() => {
+      db.each(
+        "SELECT id, surah, ayat, teks, gundul, isyarat FROM quran",
+        (err, row) => {
+          // console.log(row);
+          const pos = {
+            sura: parseInt(row.surah),
+            verse: parseInt(row.ayat),
+          };
+          verseTextData.verse.push({
+            ...pos,
+            text: row.teks,
+          });
+          verseGundulData.verse.push({
+            ...pos,
+            text: row.gundul,
+          });
+          verseIsyaratData.verse.push({
+            ...pos,
+            text: row.isyarat,
+          });
+          idToPositionMap.set(parseInt(row.id), pos);
+        },
+        () => {
+          writeDatabase(verseTextData, "kemenag.text.hafs");
+          writeDatabase(verseGundulData, "kemenag.text.plain");
+          writeDatabase(verseIsyaratData, "kemenag.isyarat.isyarat");
+        }
+      );
+
+      db.each(
+        `SELECT id, namalatin, jumlahayat, namaarab, kategory,terjemah, posisi FROM namasurat`,
+        (err, row) => {
+          surahData.surah.push({
+            index: parseInt(row.id),
+            name: row.namalatin,
+            verseCount: parseInt(row.jumlahayat),
+            arabicName: row.namaarab,
+            category: row.kategory,
+            translation: row.terjemah,
+            position: parseInt(row.posisi),
+          });
+        },
+        () => {
+          writeDatabase(surahData, "kemenag.extra.surah");
+        }
+      );
+    });
+
+    db.close(resolve);
   });
-
-  db.close();
-}
 
 const timesNewRomanArabToNormalFont = {
   "\xa1": "ṣ",
@@ -147,75 +151,67 @@ function importData() {
 
     const isIndonesia2019 = baseName === "Indonesia2019";
 
-    const type = ["indonesia", "indonesia2019", "mandar"].includes(
-      baseName.toLowerCase()
-    )
-      ? "translation"
-      : "tafsir";
+    const type = ["ringkas_kemenag", "tahlili"].includes(baseName.toLowerCase())
+      ? "tafsir"
+      : "translation";
 
     db.serialize(() => {
       db.get("SELECT trans_name FROM trans", (err, row) => {
         data.name = row.trans_name;
       });
-      let suraColumn = "sura";
-      let verseColumn = "aya";
-      if (baseName === "tahlili") {
-        suraColumn = "aya";
-        verseColumn = "juz";
-      }
       db.each(
-        `SELECT ${suraColumn}, ${verseColumn}, text ${
-          isIndonesia2019 ? ",no_fn,text_fn" : ""
-        } FROM ${baseName}`,
+        `SELECT * FROM ${baseName}`,
         (err, row) => {
-          const pos = {
-            sura: parseInt(row[suraColumn]),
-            verse: parseInt(row[verseColumn]),
-          };
+          const pos = idToPositionMap.get(parseInt(row.id));
           let text = row.text;
           if (baseName === "tahlili") {
             text = convertTimesNewRomanArabToNormalFont(text);
           }
-          if (isIndonesia2019 && row.no_fn) {
-            const noList =
-              row.no_fn === "620621"
-                ? ["620", "621"]
-                : row.no_fn === "696697"
-                ? ["696", "697"]
-                : row.no_fn.split(",");
-            const textList = row.text_fn.split("\n").reduce((acc, line) => {
+
+          if (row.text_fn) {
+            const fnList = row.text_fn.split("\n").reduce((acc, line) => {
               const current = line.trim();
-              if (acc.length == 0 || /^\d+\)/.test(current)) {
-                acc.push(current);
+              let match = current.match(/^(\d+)\)\s*(.*)$/);
+              if (!match) {
+                match = current.match(/^\((\d+)\s+(.*)$/);
+                if (match) {
+                  console.log(
+                    `Warning: ${name} Improper footnote found at ${current}`
+                  );
+                }
+              }
+              if (acc.length == 0 && !match) {
+                const prevFootnote = data.footnote[data.footnote.length - 1];
+                console.log("----");
+                console.log(
+                  `Warning: ${name} Footnote maybe include previous footnote text`
+                );
+                console.log("Current row:", row);
+                console.log("Previous footnote:", prevFootnote);
+                console.log("Current text:", current);
+                if (prevFootnote.text.endsWith(current))
+                  console.log(
+                    "Text not appended because previous footnote ends with current text"
+                  );
+                else {
+                  console.log("Text appended to end previous footnote");
+                  prevFootnote.text += " " + current;
+                  console.log("Previous footnote text: ", prevFootnote.text);
+                }
+                console.log("----");
+              } else if (acc.length == 0 || match) {
+                acc.push({
+                  index: parseInt(match[1]),
+                  text: match[2],
+                });
               } else {
-                acc[acc.length - 1] += "\n" + current;
+                acc[acc.length - 1].text += "\n" + current;
               }
               return acc;
             }, []);
-            if (noList.length != textList.length) {
-              console.log(
-                `Warning footnote index and text list not match (${pos.sura}:${pos.verse})`
-              );
-              console.log(row.no_fn);
-              console.log(row.text_fn);
-            }
-            for (let i = 0; i < noList.length; i++) {
-              let index = parseInt(noList[i]);
-              let text = textList[i];
-
-              if (index == 28 && text.startsWith("280)")) {
-                index = 280;
-              }
-
-              if (text.startsWith(`${index})`)) {
-                text = text.replace(/^\d+\)\s*/, "");
-              }
-
-              if (index == 672 && text.startsWith("(672")) {
-                text = text.replace(/^\(672\s*/, "");
-              }
-
-              noList[i] = index;
+            const fnNoList = [];
+            for (const { index, text } of fnList) {
+              fnNoList.push(index);
 
               data.footnote.push({
                 ...pos,
@@ -224,13 +220,23 @@ function importData() {
               });
             }
 
-            for (const res of text.matchAll(/(\d+)\)/g)) {
+            for (const res of text.matchAll(/(?<!\([^)\sa-zA-Z]*)(\d+)\)/gm)) {
               const idx = parseInt(res[1]);
-              if (!noList.includes(idx)) {
+              if (!fnNoList.includes(idx)) {
                 console.log(
-                  `Verse have external foot note ${pos.sura}:${pos.verse} to ${idx}`
+                  `Warning: ${name} Verse have external foot note ${pos.sura}:${pos.verse} to ${idx}`
                 );
+              } else {
+                fnNoList.splice(fnNoList.indexOf(idx), 1);
               }
+            }
+
+            if (fnNoList.length > 0) {
+              console.log(
+                `Warning: ${name} Verse have unused footnote ${pos.sura}:${pos.verse}`,
+                fnNoList,
+                row
+              );
             }
           }
 
@@ -240,7 +246,9 @@ function importData() {
           });
         },
         () => {
-          writeDatabase(data, `kemenag.${type}.${baseName.toLowerCase()}`);
+          let dbName = baseName.toLowerCase();
+          if (dbName === "ringkas_kemenag") dbName = "wajiz";
+          writeDatabase(data, `kemenag.${type}.${dbName}`);
         }
       );
 
@@ -269,6 +277,4 @@ function importData() {
   }
 }
 
-importLajnah();
-
-importData();
+importLajnah().then(importData);
