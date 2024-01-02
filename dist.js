@@ -77,9 +77,9 @@ for (const id in idMap) {
     );
     const previewCanvasStream = previewCanvas.createPNGStream();
     previewCanvasStream.pipe(previewFileStream);
-    dbSummary.preview = previewName;
+    dbSummary.previewImage = previewName;
   } else if (type === "latin") {
-    dbSummary.preview = db.verse[0].text;
+    dbSummary.previewText = db.verse[0].text;
   }
 
   indexData.push(dbSummary);
