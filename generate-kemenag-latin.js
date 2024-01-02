@@ -10,7 +10,7 @@ const textDatabase = readDatabase("kemenag.text.hafs");
 
 const database = {
   version: program.opts().version,
-  name: "Quran Latin oleh Kemenag",
+  name: "Quran Latin",
   verse: [],
 };
 
@@ -18,10 +18,12 @@ console.log("Downloading latin text ...");
 
 Promise.all(
   textDatabase.verse.map((_, index) =>
-    fetch(`${rootUrl}/${index + 1}`).then((response) => {
-      console.log(`Download success for ${response.url}`);
-      return response;
-    })
+    new Promise((resolve) => setTimeout(resolve, index * 100)).then(() =>
+      fetch(`${rootUrl}/${index + 1}`).then((response) => {
+        console.log(`Download success for ${response.url}`);
+        return response;
+      })
+    )
   )
 )
   .then((list) => {

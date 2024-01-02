@@ -71,7 +71,7 @@ function processVerseText(verse) {
 writeDatabase(
   {
     version,
-    name: name + " by King Fahd Glorius Quran Complex Printing",
+    name,
     font,
     verse: data.map((item) => ({
       sura: item.sura_no,
