@@ -32,10 +32,11 @@ const measureContext = measureCanvas.getContext("2d");
 for (const id in idMap) {
   const name = idMap[id];
   const db = readDatabase(name);
-  const [, type] = name.split(".");
+  const [source, type] = name.split(".");
   const dbSummary = {
     id: Number(id),
     title: db.name,
+    source,
     type,
     font: db.font,
   };
