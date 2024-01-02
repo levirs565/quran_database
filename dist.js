@@ -35,19 +35,17 @@ for (const id in idMap) {
   const [, type] = name.split(".");
   const dbSummary = {
     id: Number(id),
-    name: name,
     title: db.name,
     type,
     font: db.font,
   };
   fs.writeFileSync(
-    path.join(distDir, name + ".json"),
+    path.join(distDir, id + ".json"),
     JSON.stringify({
       ...dbSummary,
       ...db,
     })
   );
-  indexData.push(dbSummary);
 
   if (type === "text") {
     measureContext.font = `24pt ${db.font}`;
@@ -72,12 +70,18 @@ for (const id in idMap) {
       textMetric.actualBoundingBoxAscent + paddingVertical
     );
 
+    const previewName = `${id}.preview.png`;
     const previewFileStream = fs.createWriteStream(
-      path.join(distDir, `${name}.preview.png`)
+      path.join(distDir, previewName)
     );
     const previewCanvasStream = previewCanvas.createPNGStream();
     previewCanvasStream.pipe(previewFileStream);
+    dbSummary.preview = previewName;
+  } else if (type === "latin") {
+    dbSummary.preview = db.verse[0].text;
   }
+
+  indexData.push(dbSummary);
 }
 
 fs.writeFileSync(path.join(distDir, "index.json"), JSON.stringify(indexData));
