@@ -1,10 +1,8 @@
 import fs from "fs";
-import { currentDir, distDir, idFile, readDatabase } from "./util.js";
+import { currentDir, dbDir, distDir, idFile, readDatabase } from "./util.js";
 import path from "path";
 import { globSync } from "glob";
 import { createCanvas, registerFont } from "canvas";
-
-console.log("Only export database registered in ids.json");
 
 if (fs.existsSync(distDir)) {
   globSync("*", { cwd: distDir }).forEach((name) => {
@@ -15,8 +13,19 @@ if (fs.existsSync(distDir)) {
 
 fs.mkdirSync(distDir);
 
+const includedType = ["text", "isyarat", "latin", "translation", "tafsir"];
+const excludedName = ["pakdata.text.indopak", "pakdata.text.usmani"];
+
 const indexData = [];
-const idMap = JSON.parse(fs.readFileSync(idFile));
+const dbList = fs
+  .readdirSync(dbDir)
+  .map((fname) => ({
+    name: path.parse(fname).name,
+    source: fname.split(".")[0],
+    type: fname.split(".")[1],
+  }))
+  .filter(({ type }) => includedType.includes(type))
+  .filter(({ name }) => !excludedName.includes(name));
 
 console.log("Registering all fonts");
 
@@ -29,19 +38,17 @@ globSync("*", { cwd: fontsDir }).forEach((name) => {
 const measureCanvas = createCanvas(200, 200);
 const measureContext = measureCanvas.getContext("2d");
 
-for (const id in idMap) {
-  const name = idMap[id];
+for (const { name, source, type } of dbList) {
   const db = readDatabase(name);
-  const [source, type] = name.split(".");
   const dbSummary = {
-    id: Number(id),
+    id: name,
     title: db.name,
     source,
     type,
     font: db.font,
   };
   fs.writeFileSync(
-    path.join(distDir, id + ".json"),
+    path.join(distDir, name + ".json"),
     JSON.stringify({
       ...dbSummary,
       ...db,
@@ -71,7 +78,7 @@ for (const id in idMap) {
       textMetric.actualBoundingBoxAscent + paddingVertical
     );
 
-    const previewName = `${id}.preview.png`;
+    const previewName = `${name}.preview.png`;
     const previewFileStream = fs.createWriteStream(
       path.join(distDir, previewName)
     );
