@@ -1,12 +1,15 @@
-import fs from "fs";
+import fs, { cpSync, mkdirSync, statSync } from "fs";
 import { currentDir, dbDir, distDir, idFile, readDatabase } from "./util.js";
 import path from "path";
 import { globSync } from "glob";
 import { createCanvas, registerFont } from "canvas";
 
 if (fs.existsSync(distDir)) {
-  globSync("*", { cwd: distDir }).forEach((name) => {
+  globSync("*/*", { cwd: distDir, nodir: true }).forEach((name) => {
     fs.rmSync(path.join(distDir, name));
+  });
+  globSync("**/*", { cwd: distDir }).forEach((name) => {
+    fs.rmdirSync(path.join(distDir, name));
   });
   fs.rmdirSync(distDir);
 }
@@ -27,9 +30,17 @@ const dbList = fs
   .filter(({ type }) => includedType.includes(type))
   .filter(({ name }) => !excludedName.includes(name));
 
-console.log("Registering all fonts");
+console.log("Copying font...");
 
 const fontsDir = path.join(currentDir, "fonts");
+const distFontDir = path.join(distDir, "fonts");
+
+cpSync(fontsDir + "/", distFontDir, {
+  recursive: true,
+});
+
+console.log("Registering all fonts");
+
 globSync("*", { cwd: fontsDir }).forEach((name) => {
   const fontName = path.parse(name).name;
   registerFont(path.join(fontsDir, name), { family: fontName });
@@ -37,6 +48,10 @@ globSync("*", { cwd: fontsDir }).forEach((name) => {
 
 const measureCanvas = createCanvas(200, 200);
 const measureContext = measureCanvas.getContext("2d");
+
+console.log("Copying databases...");
+const distDbDir = path.join(distDir, "datas");
+mkdirSync(distDbDir);
 
 for (const { name, source, type } of dbList) {
   const db = readDatabase(name);
@@ -48,7 +63,7 @@ for (const { name, source, type } of dbList) {
     font: db.font,
   };
   fs.writeFileSync(
-    path.join(distDir, name + ".json"),
+    path.join(distDbDir, name + ".json"),
     JSON.stringify({
       ...dbSummary,
       ...db,
@@ -80,7 +95,7 @@ for (const { name, source, type } of dbList) {
 
     const previewName = `${name}.preview.png`;
     const previewFileStream = fs.createWriteStream(
-      path.join(distDir, previewName)
+      path.join(distDbDir, previewName)
     );
     const previewCanvasStream = previewCanvas.createPNGStream();
     previewCanvasStream.pipe(previewFileStream);
@@ -92,4 +107,6 @@ for (const { name, source, type } of dbList) {
   indexData.push(dbSummary);
 }
 
-fs.writeFileSync(path.join(distDir, "index.json"), JSON.stringify(indexData));
+console.log("Writing database indexes...");
+
+fs.writeFileSync(path.join(distDbDir, "index.json"), JSON.stringify(indexData));
