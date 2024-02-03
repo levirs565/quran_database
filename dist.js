@@ -16,8 +16,18 @@ if (fs.existsSync(distDir)) {
 
 fs.mkdirSync(distDir);
 
+const authorMap = {
+  kemenag: "Indonesian Ministry of Religious Affairs",
+  kfgqpc: "King Fahd Quran Complex",
+  tanzil: "Tanzil",
+};
+
 const includedType = ["text", "isyarat", "latin", "translation", "tafsir"];
-const excludedName = ["pakdata.text.indopak", "pakdata.text.usmani"];
+const excludedName = [
+  "pakdata.text.indopak",
+  "pakdata.text.usmani",
+  "kemenag.text.plain",
+];
 
 const indexData = [];
 const dbList = fs
@@ -58,10 +68,16 @@ for (const { name, source, type } of dbList) {
   const dbSummary = {
     id: name,
     title: db.name,
-    source,
+    author: authorMap[source],
     type,
     font: db.font,
   };
+
+  if (!dbSummary.author) {
+    console.log("Author not found: " + name);
+    process.exit(0);
+  }
+
   fs.writeFileSync(
     path.join(distDbDir, name + ".json"),
     JSON.stringify({

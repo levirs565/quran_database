@@ -23,7 +23,7 @@ const importLajnah = () =>
 
     const verseTextData = {
       ...baseDataOpts,
-      name: "Quran Hafs IndoPak",
+      name: "IndoPak",
       font: "LPMQ Isep Misbah",
       verse: [],
     };
