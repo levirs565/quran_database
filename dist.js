@@ -63,6 +63,8 @@ console.log("Copying databases...");
 const distDbDir = path.join(distDir, "datas");
 mkdirSync(distDbDir);
 
+const imagePreviewList = [];
+
 for (const { name, source, type } of dbList) {
   const db = readDatabase(name);
   const dbSummary = {
@@ -87,35 +89,24 @@ for (const { name, source, type } of dbList) {
   );
 
   if (type === "text") {
-    measureContext.font = `24pt ${db.font}`;
+    let fontSize = 24 * 2;
+    if (db.font === "LPMQ Isep Misbah") fontSize = 20 * 2;
+    measureContext.font = `${fontSize}pt ${db.font}`;
     const textMetric = measureContext.measureText(db.verse[0].text);
 
     const textHeight =
       textMetric.actualBoundingBoxAscent + textMetric.actualBoundingBoxDescent;
-    const paddingVertical = textHeight * 0.05;
-    const paddingHorizontal = textMetric.width * 0.05;
-
-    const previewCanvas = createCanvas(
-      textMetric.width + 2 * paddingHorizontal,
-      textHeight + 2 * paddingVertical
-    );
-    const previewContext = previewCanvas.getContext("2d");
-
-    previewContext.font = measureContext.font;
-    previewContext.fillStyle = "black";
-    previewContext.fillText(
-      db.verse[0].text,
-      paddingHorizontal,
-      textMetric.actualBoundingBoxAscent + paddingVertical
-    );
 
     const previewName = `${name}.preview.png`;
-    const previewFileStream = fs.createWriteStream(
-      path.join(distDbDir, previewName)
-    );
-    const previewCanvasStream = previewCanvas.createPNGStream();
-    previewCanvasStream.pipe(previewFileStream);
     dbSummary.previewImage = previewName;
+    imagePreviewList.push({
+      fileName: previewName,
+      contentWidth: textMetric.width,
+      contentHeight: textHeight,
+      font: measureContext.font,
+      text: db.verse[0].text,
+      deltaY: textMetric.actualBoundingBoxAscent,
+    });
   } else if (type === "latin") {
     dbSummary.previewText = db.verse[0].text;
   }
@@ -123,6 +114,42 @@ for (const { name, source, type } of dbList) {
   indexData.push(dbSummary);
 }
 
-console.log("Writing database indexes...");
+console.log("Generating preview image...");
 
+const maxContentWidth = Math.max(
+  ...imagePreviewList.map((x) => x.contentWidth)
+);
+const maxContentHeight = Math.max(
+  ...imagePreviewList.map((x) => x.contentHeight)
+);
+const previewWidth = maxContentWidth * 1.1;
+const previewPaddingRight = maxContentWidth * 0.05;
+const previewHeight = maxContentHeight * 1.1;
+
+for (const {
+  fileName,
+  font,
+  text,
+  contentWidth,
+  contentHeight,
+  deltaY,
+} of imagePreviewList) {
+  const previewCanvas = createCanvas(previewWidth, previewHeight);
+  const previewContext = previewCanvas.getContext("2d");
+  previewContext.font = font;
+  previewContext.fillStyle = "black";
+  previewContext.fillText(
+    text,
+    previewWidth - contentWidth - previewPaddingRight,
+    deltaY + (previewHeight - contentHeight) / 2
+  );
+
+  const previewFileStream = fs.createWriteStream(
+    path.join(distDbDir, fileName)
+  );
+  const previewCanvasStream = previewCanvas.createPNGStream();
+  previewCanvasStream.pipe(previewFileStream);
+}
+
+console.log("Writing database indexes...");
 fs.writeFileSync(path.join(distDbDir, "index.json"), JSON.stringify(indexData));
