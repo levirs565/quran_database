@@ -12,6 +12,7 @@ const database = {
   version: program.opts().version,
   name: "Quran Latin",
   verse: [],
+  contentType: "plain"
 };
 
 console.log("Downloading latin text ...");
