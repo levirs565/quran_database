@@ -865,7 +865,7 @@ Dina (ngalaksanakeun hukum) qisos téh aya (jaminan hak) hirup pikeun aranjeun, 
 
 Diwajibkeun ka aranjeun, lamun salah saurang ti antara aranjeun rék maot jeung manéhna ninggalkeun harta banda, wasiat ka indung-bapa jeung ka kulawarga anu dareukeut ku cara anu hadé, [^57] (minangka) kawajiban pikeun jalma-jalma anu takwa.
 
-[^57]: Wasiat teu meunang ngaleuwihan sapertilu harta jalma anu méré wasiat. Ieu ayat, hususna pikeun ahli waris, di-nasakh (digantian hukumna) ku ayat ngeunaan waris (an-Nisā’/4:[^11].
+[^57]: Wasiat teu meunang ngaleuwihan sapertilu harta jalma anu méré wasiat. Ieu ayat, hususna pikeun ahli waris, di-nasakh (digantian hukumna) ku ayat ngeunaan waris (an-Nisā’/4:11).
 
 ## 2:181
 
@@ -1103,7 +1103,7 @@ Pamajikan-pamajikan anu ditalak (kudu) nunggu kalayan nahan dirina (salila) tilu
 
 [^79]: Qurū' jama tina kecap qar' anu hartina suci atawa héd.
 
-[^80]: Sabab salaki, di antarana, ngabogaan tanggung jawab kana kasalametan sarta karaharjaan rumah tangga (an-Nisā’/4:[^34].
+[^80]: Sabab salaki, di antarana, ngabogaan tanggung jawab kana kasalametan sarta karaharjaan rumah tangga (an-Nisā’/4:34).
 
 ## 2:229
 
@@ -2389,7 +2389,7 @@ Sabenerna jalma-jalma anu ngadahar harta budak yatim ku cara aniaya, maranѐhna 
 
 Allah nyaréatkeun (ngawajibkeun) ka aranjeun ngeunaan (ngabagikeun warisan pikeun) anak-anak aranjeun, (nyaéta) bagian anak lalaki saurang sarua jeung bagian anak awѐwѐ dua urang. [^185] Lamun anak-anakna kabѐh awѐwѐ anu jumlahna leuwih ti dua, nya bagian maranѐhna téh dua-pertilu tina harta (warisan) nu ditinggalkeun (ku mayit). Lamun anak awѐwѐna ngan saurang, nya bagian manéhna téh satengah (tina harta anu ditinggalkeun). Pikeun indung-bapa masing-masing kabagian sapergenep tina titinggal mayit lamun manéhna (mayit) boga anak. Lamun mayit teu ninggalkeun anak jeung ahli warisna ngan indung-bapana (wungkul), nya pikeun indungna sapertiluna (sedengkeun sésana keur bapana). Lamun mayit ninggalkeun dulur sababaraha urang, nya indungna meunang sapergenep. (Ngabagikeun warisan saperti ieu téh) sanggeus (ngalaksanakeun) wasiat anu dijieun atawa sabada (mayaran) hutangna. (Ngeunaan) indung-bapa jeung anak-anak aranjeun, aranjeun moal terang saha ti antara maranéhna anu leuwih loba mangpa'atna pikeun aranjeun. Ieu téh hiji katangtuan ti Allah. Saleresna Allah Mahauninga (tur) Mahawijaksana.
 
-[^185]: Bagian salaki dua kali bagian awéwé, sabab kawajiban salaki leuwih beurat tinimbang awéwé, saperti kawajiban mayar maskawin sarta méré napakah (tingal al-Nisā'/4:[^34].
+[^185]: Bagian salaki dua kali bagian awéwé, sabab kawajiban salaki leuwih beurat tinimbang awéwé, saperti kawajiban mayar maskawin sarta méré napakah (tingal al-Nisā'/4:34).
 
 ## 4:12
 
@@ -3423,7 +3423,7 @@ Sakuduna para panganut Injil mutuskeun (perkara) nurutkeun kana (pituduh) anu ge
 
 [^277]: Para panganut Injil (nyaéta Nasrani) diwajibkeun pikeun mutuskeun perkara ku hukum anu luyu jeung pituduh anu geus diturunkeun ku Allah dina Injil nepi ka wanci diturunkeunana Al-Qur’an.
 
-[^278]: Jalma anu henteu mutuskeun perkara nurutkeun kana hukum Allah téh aya tilu golongan: a) Ku sabab ceuceub jeung ingkar kana hukum Allah. Jalma anu kieu kaasup kana golongan kapir (surat al-Mā’idah/5:[^44]; b) Ku sabab nurutkeun kana hawa napsuna bari ngarugikeun batur. Jalma anu kieu kaasup kana golongan dolim (surat al-Mā’idah/5:4; jeung c) ku sabab pasik sakumaha dijelaskeun dina surat al-Mā’idah/5:47.
+[^278]: Jalma anu henteu mutuskeun perkara nurutkeun kana hukum Allah téh aya tilu golongan: a) Ku sabab ceuceub jeung ingkar kana hukum Allah. Jalma anu kieu kaasup kana golongan kapir (surat al-Mā’idah/5:44); b) Ku sabab nurutkeun kana hawa napsuna bari ngarugikeun batur. Jalma anu kieu kaasup kana golongan dolim (surat al-Mā’idah/5:4; jeung c) ku sabab pasik sakumaha dijelaskeun dina surat al-Mā’idah/5:47.
 
 ## 5:48
 
@@ -3479,7 +3479,7 @@ Pok ucapkeun ku hidep (Muhammad), “Hé Ahli Kitab, naha aranjeun nganggap kuri
 
 Ucapkeun ku hidep (Muhammad), “Naha kuring kudu ngabéjakeun ka aranjeun ngeunaan jalma anu leuwih goréng wawalesna (tibatan jalma pasék) mungguhing Allah? Nyaéta jalma nu dila’nat jeung dibenduan ku Allah (anu) ti antara maranéhna dijadikeun monyét tur bagong, [^280] jeung jalma anu nyembah ka Ṭagūt. Maranéhna téh leuwih goréng kalungguhanana jeung leuwih sasar tina jalan nu lempeng.
 
-[^280]: Urang-urang Yahudi anu ngarempak kasucian jeung kaagungan poé Sabat (tingal deui surat al-Baqarah/2:[^65].
+[^280]: Urang-urang Yahudi anu ngarempak kasucian jeung kaagungan poé Sabat (tingal deui surat al-Baqarah/2:65).
 
 ## 5:61
 
@@ -4111,7 +4111,7 @@ Kaomna (Ibrahim) ngabangkang. Anjeunna (Ibrahim) nyarios, “Naha aranjeun bet m
 
 Naha kuring maké rék sieun kana naon baé (sesembahan) nu ku aranjeun disarékatkeun (jeung Allah), padahal aranjeun sorangan ogé henteu sieun kana naon baé anu Allah nyalira henteu ngalungsurkeun katerangan ka aranjeun pikeun nyieun pamusrikan (ka Allah). Anu mana ti antara éta dua golongan téh anu leuwih bener pikeun meunang kaamanan (tina siksaan Allah) mun enya mah aranjeun nyaho?” [^314]
 
-[^314]: Saatos Allah ningalikeun ka Nabi Ibrahim a.s. tanda kakawasaana-Na, nya anjeunna langkung kiat imanna ka Allah (ayat [^75], sareng anjeunna teras ngabingbing kaomna kana taohid.
+[^314]: Saatos Allah ningalikeun ka Nabi Ibrahim a.s. tanda kakawasaana-Na, nya anjeunna langkung kiat imanna ka Allah (ayat 75), sareng anjeunna teras ngabingbing kaomna kana taohid.
 
 ## 6:82
 
@@ -5561,7 +5561,7 @@ Kanyahokeun, saenyana naon baé nu ku aranjeun katampa mangrupa rampasan perang,
 
 [^376]: Nu dimaksud rampasan perang (ganīmah) nyaéta harta anu dirampas ti jalma-jalma kapir ku alatan perang ku kaom muslimin, sedengkeun harta anu dirampas teu ngaliwatan peperangan dingaranan harta fai’. Pangbagian anu aya dina ieu ayat ngan ngeunaan harta rampasan (ganīmah).
 
-[^377]: Saperlima ti harta rampasan téh dibagi ka: ([^1] Allah sareng Rasul-Na, ([^2] Kaluarga Rasul (Bani Hasyim jeung Bani Muthalib), ([^3] Anak Yatim, ([^4] Jalma-jalma anup miskin, ([^5] Ibnu sabil. Opat perlimana dibagikeun ka anu miluan perang.
+[^377]: Saperlima ti harta rampasan téh dibagi ka: (1) Allah sareng Rasul-Na, (2) Kaluarga Rasul (Bani Hasyim jeung Bani Muthalib), (3) Anak Yatim, (4) Jalma-jalma anup miskin, (5) Ibnu sabil. Opat perlimana dibagikeun ka anu miluan perang.
 
 [^378]: Furqān nyaéta pamisah antara anu ḥaq jeung anu bāṭil. Anu dimaksud poé al-Furqān nyaéta poé kaunggulan kaom muslimin jeung éléhna kaom kapir.
 
@@ -5979,7 +5979,7 @@ Lamun seug maranéhna bener-bener rido mah kana sagala rupa nu geus dipaparinkeu
 
 Sabenerna sidekah (jakat) téh ngan wungkul (dibagikeun) pikeun jalma-jalma pakir, jalma-jalma miskin, para amil, jalma-jalma nu dililindeuk haténa (para mualap), pikeun (ngamerdikakeun) budak beulian, pikeun (ngabébaskeun) jalma-jalma nu boga hutang, pikeun (jalma-jalma nu) berjuang di jalan Allah, jeung ka (jalma-jalma) nu keur lalampahan jauh (anu ngabutuhkeun pitulung). Éta téh kawajiban ti Allah. Allah téh Mahauninga (tur) Mahawijaksana. [^398]
 
-[^398]: Nu boga hak pikeun narima jakat téh nyaéta: ([^1] jalma-jalma pakir, nyaéta jalma-jalma anu sangsara dina hirupna, teu ngabogaan harta atawa tanaga pikeun minuhan kabutuhan hirupna, ([^2] jalma-jalma miskin, nyaéta jalma-jalma nu teu matak cukup dina minuhan kabutuhna, aya dina kakurangan, ([^3] Amil (nu nguruskeun) jakat, nyaéta jalma-jalma nu dibéré tugas pikeun ngumpulkeun, ngurus, jeung ngabagikeun jakat ka anu hakna, ([^4] Mualap, nyaéta jalma-jalma nu asalna kapir asup Islam tapi kaimanana masih lemah tur butuh dibébérah ku jakat supaya kuat kaimanana ku dicukupan kabutuhanana, ([^5] Budak-budak nu dimerdikakeun, nyaéta budak-budak nu aya dina tawanan musuh tuluy dileupaskeun tur dimerdikakeun ku éta harta jakat, ([^6] jalma-jalma nu kabeulit hutang, nyaéta jalma-jalma nu kabeulit hutangna téh lain ku alatan ludes sabab migawé ma’siat tur teu sanggup pikeun mayar éta hutang, ([^7] fī sabīlillāh (di jalan Allah), nyaéta lumampah pikeun kaperluan nanjeurkeun agama. Mimitina mah asnāf nu ieu sok dikaitkeun kana lumampah ngajugjug kana peperangan pikeun mertahankeun agama. Aya ogé ahli tapsir anu ngama’naan “pikeun ngawangun sakola agama (madrasah), pasantrén, jeung sabangsana”, ([^8] Ibn sabīl, nyaéta jalma anu keur aya di pangumbaraan (lumampah kaluar ti imah), tapi lain keur migawé ma’siat.
+[^398]: Nu boga hak pikeun narima jakat téh nyaéta: (1) jalma-jalma pakir, nyaéta jalma-jalma anu sangsara dina hirupna, teu ngabogaan harta atawa tanaga pikeun minuhan kabutuhan hirupna, (2) jalma-jalma miskin, nyaéta jalma-jalma nu teu matak cukup dina minuhan kabutuhna, aya dina kakurangan, (3) Amil (nu nguruskeun) jakat, nyaéta jalma-jalma nu dibéré tugas pikeun ngumpulkeun, ngurus, jeung ngabagikeun jakat ka anu hakna, (4) Mualap, nyaéta jalma-jalma nu asalna kapir asup Islam tapi kaimanana masih lemah tur butuh dibébérah ku jakat supaya kuat kaimanana ku dicukupan kabutuhanana, (5) Budak-budak nu dimerdikakeun, nyaéta budak-budak nu aya dina tawanan musuh tuluy dileupaskeun tur dimerdikakeun ku éta harta jakat, (6) jalma-jalma nu kabeulit hutang, nyaéta jalma-jalma nu kabeulit hutangna téh lain ku alatan ludes sabab migawé ma’siat tur teu sanggup pikeun mayar éta hutang, (7) fī sabīlillāh (di jalan Allah), nyaéta lumampah pikeun kaperluan nanjeurkeun agama. Mimitina mah asnāf nu ieu sok dikaitkeun kana lumampah ngajugjug kana peperangan pikeun mertahankeun agama. Aya ogé ahli tapsir anu ngama’naan “pikeun ngawangun sakola agama (madrasah), pasantrén, jeung sabangsana”, (8) Ibn sabīl, nyaéta jalma anu keur aya di pangumbaraan (lumampah kaluar ti imah), tapi lain keur migawé ma’siat.
 
 ## 9:61
 
@@ -22375,7 +22375,7 @@ Dulur-dulur jeung barudak maranéh moal mangpa’at pikeun maranéh dina Poé Ki
 
 Tétéla geus aya picontoeun anu hadé pikeun maranéh dina (pribadi) Ibrahim jeung jalma-jalma anu nyarenganana, waktu aranjeunna nyarios ka kaomna, “Sabenerna kuring saréréa lulubaran (teu tanggung jawab) ti aranjeun jeung tina naon rupa anu disembah ku aranjeun salian ti Allah. Kuring saréréa lulubaran tina (kakupuran) aranjeun sarta geus pertéla antara pihak kuring saréréa jeung pihak aranjeun aya mumusuhan jeung kaceuceub pikeun salawasna, nepi ka aranjeun iman ka Allah wungkul,” kajaba caritaan Ibrahim ka ramana, [^875] “Saleresna abdi badé mangnedakeun Pangampura kanggo bapa, nanging abdi teu wasa ngahalangan (siksa) Allah ka bapa sakedik ogé.” (Ibrahim lajeng ngadoa), “Nun Gusti Pangéran abdi sadaya, mung ka Gusti abdi sadaya sumerah, sareng mung ka Gusti abdi sadaya tobat, tur mung ka Gusti abdi sadaya mulang.
 
-[^875]: Nabi Ibrahim kantos mangnedakeun pangapunten pikeun ramana anu musrik ka Allah. Ieu teu meunang diturutan, sabab Allah henteu ngijinan jalma mu’min mangméntakeun pangampura pikeun jalma-jalma kupur (pariksa Q.S. An-Nisā’/4: [^48].
+[^875]: Nabi Ibrahim kantos mangnedakeun pangapunten pikeun ramana anu musrik ka Allah. Ieu teu meunang diturutan, sabab Allah henteu ngijinan jalma mu’min mangméntakeun pangampura pikeun jalma-jalma kupur (pariksa Q.S. An-Nisā’/4: 48).
 
 ## 60:5
 

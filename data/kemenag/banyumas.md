@@ -205,7 +205,7 @@ Lan, (élinga) rikala Ingsun dhawuh maring para malaékat, “Sujuda ko kabéh m
 
 Lan Ingsun dhawuh, “Hé Adam! Manggona sliramu karo bojomu neng njero suwarga, lan mangana kanthi nékmat (serupané panganan) sing ana neng kana sesenengmu. (Ningén) aja nganti sliramu méreki wit kiyé, [^17] mengko sliramu bakal klebu wong-wong sing padha aniaya (gawé kapitunan) [^18] .
 
-[^17]: Apus-apusé sétan, sapa sing mangan wohé wit kuwé, bakal langgeng neng suwarga, deleng Taha ([^20]: 120.
+[^17]: Apus-apusé sétan, sapa sing mangan wohé wit kuwé, bakal langgeng neng suwarga, deleng Taha (20): 120.
 
 [^18]: Dolim tegesé  gawé aniaya. Wong sing dolim yakuwé wong sing nglakoni penggawé aniaya, sing gawé kapitunan maring awaké dhéwék utawa wong liya.
 
@@ -331,7 +331,7 @@ Banjur wong-wong sing aniaya padha ngganti préntah karo préntah (liyané) sing
 
 Lan (élinga) rikala Musa nyuwun banyu nggo kaumé, banjur Ingsun dhawuh, “Gebuga watu kuwé karo tekenmu!” Mangka mancur sekang watu kuwé rolas tuk banyu. Saben golongan wis ngerténi panggonan nginumé (dhéwék-dhéwék) [^30] , mangana lan nginuma sekang rejeki (sing déparingna) Gusti Allah, lan ko aja padha nglakoni kejahatan neng dunya kanthi gawé kerusakan.
 
-[^30]: Saben golongan sekang 12 golongan Bani Israil, kaya sing désebut neng Al-A’raf ([^7]: 160
+[^30]: Saben golongan sekang 12 golongan Bani Israil, kaya sing désebut neng Al-A’raf (7): 160
 
 ## 2:61
 
@@ -871,7 +871,7 @@ Lan sejeroné qisas kuwé ana (tanggungan) penguripan nggo ko kabéh, hé wong-w
 
 Déwajibna ingatasé ko kabéh, angger pati bakal marani salah siji wong neng antarané ko kabéh, angger dhéwéké ninggalna bandha, wasiyat kanggo wong tuwa loro lan sedulur-sedulur nganggo cara sing apik, [^60] (minangka) kewajiban tumrap wong-wong sing padha wedi (maring Gusti Allah).
 
-[^60]: Wasiyat kuwé ora nglewihi sepertelu sekang sekabéhé bandha wong sing wasiyat, ayat kiyé mligi nggo ahli waris sing dénasakh (déganti ukumané) karo ayat bab waris (An Nisa ([^4] : [^11].
+[^60]: Wasiyat kuwé ora nglewihi sepertelu sekang sekabéhé bandha wong sing wasiyat, ayat kiyé mligi nggo ahli waris sing dénasakh (déganti ukumané) karo ayat bab waris (An Nisa (4) : 11).
 
 ## 2:181
 
@@ -1107,7 +1107,7 @@ Lan para bojo sing padha dépegat (wajib) nahan awak dhéwék (nunggu) telung qu
 
 [^81]: Quru’ jamak sekang qor’u sing tegesé suci, utawa héd.
 
-[^82]: Sebab lanang duwé tanggungjawab maring keslametané lan kejembarané balé-somah utawa keluwarga (An-Nisa’ ([^4]: [^34].
+[^82]: Sebab lanang duwé tanggungjawab maring keslametané lan kejembarané balé-somah utawa keluwarga (An-Nisa’ (4): 34).
 
 ## 2:229
 
@@ -1809,7 +1809,7 @@ Ko kabéh ora bakal olih kebagusan, seurungé ko padha nyumbangna sebagéan band
 
 Kabéh panganan kuwé halal nggo Bani israil, kejaba panganan sing déharamna (délarang) neng Israil (Yakub) ingatasé awaké dhéwék seurungé Taurat déturunaken. [^131] Dhawuha (Muhammad), “Mangka gawakna Taurat banjur wacanen, angger ko kabéh kuwé wong-wong sing bener.”
 
-[^131]: Sewisé Taurat déturunaken, ana sewetara panganan sing déharamna ingatasé dhéwéké kabéh minangka ukuman. Jeneng-jeneng panganan kuwé kesebut neng njeroné. Seterusé delengen surat An-Nisa’ ([^4]: 160 lan Al-An’am ([^6]: 146.
+[^131]: Sewisé Taurat déturunaken, ana sewetara panganan sing déharamna ingatasé dhéwéké kabéh minangka ukuman. Jeneng-jeneng panganan kuwé kesebut neng njeroné. Seterusé delengen surat An-Nisa’ (4): 160 lan Al-An’am (6): 146.
 
 ## 3:94
 
@@ -1831,7 +1831,7 @@ Setemené umah (pesembahan) sing dhisit dhéwék dégawé nggo menungsa, kuwé (
 
 Neng kana ana tetenger sing genah (antarané) makom Ibrahim. [^134] Sapa wongé sing ngleboni (Baitullah) dhéwéké bakal aman. Lan (antarané) kewajibané menungsa maring Gusti Allah kuwé nindakna ngibadah haji maring Baitullah, kuwé kanggoné wong-wong sing kuwat [^135] nglakoni lelungan maring nganah. Sapa wongé sing ngingkari (kewajibané) haji, mangka padha ngertia lamon Gusti Allah Mahasugih (ora butuh maring sewiji-wiji) sekang sekabéhané ngalam.
 
-[^134]: Delengen surat al-Baqoroh ([^2]: 125
+[^134]: Delengen surat al-Baqoroh (2): 125
 
 [^135]: Wong sing sanggup nganakna sangu lan uba-rampéné lelungan tur sehat raga, lan dalané maring Tanah Suci aman tur keluwarga sing détinggal déjamin penguripané
 
@@ -2381,7 +2381,7 @@ Setemené wong-wong sing padha mangan bandhané bocah yatim kanthi cara aniaya (
 
 Gusti Allah nyaréngatna (ngudokna) maring ko kabéh ngenani (mbagi warisan nggo) anak-anakmu, (yakuwé) bagéané wong lanang siji padha karo bagéané wong wadon loro. [^181] Lan angger anak kuwé wadon kabéh sing cacahé lewih sekang loro, mangka bagéané dhéwéké kabéh rong-pertelon sekang bandha sing détinggalna. Angger dhéwéké (anak wadon) kuwé mung siji, mangka dhéwéké olih separoné (bandha sing détinggalna). Lan nggo sekaroné rama-biyung, bagéané dhéwék-dhéwék sepranem (1/[^6] sekang bandha sing détinggalna, angger dhéwéké (sing mati) duwé anak. Angger dhéwéké (sing mati) ora duwé anak lan dhéwéké déwarisi neng rama-biyung (thok), mangka si biyung olih sepertelu. Angger dhéwéké (sing mati) duwé pirang-pirang sedulur, mangka biyungé olih sepranem. (Bagén-bagén sing kasebut ning dhuwur kuwé) sewisé (délaksanakna) wasiyat sing dégawe (neng sing mati) utawa (lan sewisé débayar) utangé. (Ngenani) wong tuwamu lan anak-anakmu, ko kabéh ora ngerti sapa wongé neng antarané dhé-wéké kabéh sing lewih akéh pigunané tumrap ko kabéh. Kiyé (anané) pepesthéné Gusti Allah. Temen, Gusti Allah Maha Ngawuningani, Maha-wicaksana.
 
-[^181]: Bagéané wong lanang tikel loro sekan wong wadon yakuwé sebab kewajibané wong lanang lewih abot sekang wong wadon, kayadéné kewajiban mbayar maskawin lan awéh napkah (deleng An-Nisa’ ([^4] : [^34].
+[^181]: Bagéané wong lanang tikel loro sekan wong wadon yakuwé sebab kewajibané wong lanang lewih abot sekang wong wadon, kayadéné kewajiban mbayar maskawin lan awéh napkah (deleng An-Nisa’ (4) : 34).
 
 ## 4:12
 
@@ -2403,7 +2403,7 @@ Lan wong-wong wadon sing padha nglakoni penggawéyan jember [^183] neng antaran�
 
 [^183]: Miturut sebagéan juru tapsir yakuwé penggawéyan jina, ning miturut pinemu sing liyané yakuwé sekabéhané penggawéyan saru kayadéné : jina, homoseks, lan sing serupané. Miturut pinemuné Muslim lan Mujahid yakuwé musahakah (lesbian: wadon dhemen wadon).
 
-[^184]: Miturut sebagéan juru tapsir, dalan sing liyané kuwé yakuwé kanthi temuruné An-Nur ([^24] : 2, ngenani hukum pecut.
+[^184]: Miturut sebagéan juru tapsir, dalan sing liyané kuwé yakuwé kanthi temuruné An-Nur (24) : 2, ngenani hukum pecut.
 
 ## 4:16
 
@@ -2445,9 +2445,9 @@ Délarang (haram) tumrap ko kabéh (mbojo) biyung-biyungmu, anak-anakmu wadon, s
 
 Lan ko kabéh délarang mbojo wong wadon sing duwé lanang, kejaba batur-tukon wadon (budhak, tawanan perang) sing ko duwéni [^187] minangka ketetepané Gusti Allah ingatasé ko kabéh. Lan désekolihi ingatasé ko kabéh (mbojo) seliyané (wong-wong wadon) sing klebu larangan mau, [^188] angger ko usaha kanthi bandhamu, nggo mbojo dhéwéké udu nggo jina. Mangka merga kenékmatan sing wis ko padha pekolih sekang dhéwéké kabéh, bayaren mas kawiné maring dhéwéké kabéh minangka dadi kewajiban. Ning ora dadi apa angger nyatané neng antarané ko kabéh wis padha déné ngrilakna, sewisé détetepna. [^189] Temen, Gusti Allah Maha Ngawuningani, Mahawicaksana.
 
-[^187]: Wong-wong wadon sing déduwéni sing lanangé ora mélu détawan bareng dhéwéké. Keterangan seterusé deleng An-Nisa ([^4] : 3.
+[^187]: Wong-wong wadon sing déduwéni sing lanangé ora mélu détawan bareng dhéwéké. Keterangan seterusé deleng An-Nisa (4) : 3.
 
-[^188]: Seliyané wong wadon sing wis désebut neng An-Nisa ([^4] : 23.
+[^188]: Seliyané wong wadon sing wis désebut neng An-Nisa (4) : 23.
 
 [^189]: Nambahi, ngelong utawa ora mbayar babar pisan mas kawin sing wis détetepna.
 
@@ -2557,7 +2557,7 @@ Lan Gusti Allah lewih ngawuningani ngenani mungsuh-mungsuhmu. Cukup mung Gusti A
 
 [^198]: Dhéwéké kabéh ngucapna, “Rungokna,” ning atiné padha ngucap, “Moga-moga ko ora téyéng ngrungu (budheg)”.
 
-[^199]: Sekang omongan raa’inaa padha baé unzurna sing tegesé ‘gatékna Inyong kabéh’. Seterusé delengen Al-Baqoroh ([^2] : 104.
+[^199]: Sekang omongan raa’inaa padha baé unzurna sing tegesé ‘gatékna Inyong kabéh’. Seterusé delengen Al-Baqoroh (2) : 104.
 
 [^200]: Ana sing ngarani ukuran keprecayaan sing tipis, lan ana sing ngarani cacahé wong sing semendhing.
 
@@ -2939,7 +2939,7 @@ Lan kagungané Gusti Allah apa sing ana neng langit lan apa sing ana neng bumi l
 
 Lan dhéwéké padha njaluk ketetepan hukum (fatwa) maring sliramu ngenani wong wadon. Dhawuhna, “Gusti Allah paring ketetepan hukum (fatwa) maring ko kabéh ngenani dhéwéké, [^228] lan apa sing déwa-cakna maring ko kabéh senjeroné Al-Qur’an (uga paring putusan hukum) ngenani wong-wong wadon yatim sing ora ko wéhi apa-apa (mas kawin) sing détetepna nggo dhéwéké, mangkané ko padha kepéngin mbojo wong wadon kuwé [^229] lan (ngenani) bocah-bocah sing ésih keton ora daya. Lan (Gusti Allah dhawuh maring ko kabéh) supaya ngrumat bocah-bocah yatim kanthi adil. Lan kebecikan apa baé sing ko lakoni, setemené Gusti Allah Maha Ngawuningani.
 
-[^228]: Waca An-Nisa ([^4]: 2 lan 3
+[^228]: Waca An-Nisa (4): 2 lan 3
 
 [^229]: Miturut adat Arab jahiliyah, sewiji wali nguwasani wong wadon yatim sing dadi rumatané, lan ngewasani bandhané. Agger wadon yatim kuwé ayu rupané, banjur débojo lan déjikot bandhané. Angger wong wadon yatim kuwé ala rupané déalang-alangi kawin karo wong lanang liya supayané bisa ngewasani bandhané. Ayat kiyé nglarang adat kuwé.
 
@@ -2947,7 +2947,7 @@ Lan dhéwéké padha njaluk ketetepan hukum (fatwa) maring sliramu ngenani wong 
 
 Lan upamané ana wong wadon kewatir lanangé arep nusyuz [^230] utawa temindak ora preduli (ora opén) mangka sekaroné kena nganakna geguyuban sing temen, [^231] lan guyub kuwé lewih apik (tumrap dhéwéké kabéh) senajan menungsa kuwé miturut wateké mbethithil. [^232] Lan angger ko padha ngapiki (srawung-apik karo bojomu) lan ngreksa awakmu (sekang nusyuz lan laku ora opén), mangka temen, Gusti Allah Mahanastiti maring apa sing ko padha pergawé.
 
-[^230]: Deleng tegesé nusyuz tumrap wong wadon neng cathetan An-Nisa ([^4] : 34. Nusyuz tumrap wong lanang kuwé temindak keras maring bojo, ora gelem ngembuli lan ora gelem awéh apa sing dadi haké.
+[^230]: Deleng tegesé nusyuz tumrap wong wadon neng cathetan An-Nisa (4) : 34. Nusyuz tumrap wong lanang kuwé temindak keras maring bojo, ora gelem ngembuli lan ora gelem awéh apa sing dadi haké.
 
 [^231]: Kaya wong wadon nrima sewetara haké dékurangi asal lanangé gelem becik maning.
 
@@ -3207,7 +3207,7 @@ Hé wong-wong sing padha precaya! Aja nganti ko kabéh nerak kuncara-kuncara (sy
 
 Délarang (haram) tumrap ko kabéh (mangan) bathang, getih, [^258] daging babi lan (daging) kéwan sing désembeléh udu merga (asmané) Gusti Allah, sing ketekek (kendhat), sing dégebug, sing tiba, sing kenang sungu lan sing décengkerem kéwan galak, kejaba sing ésih bisa ko sembeléh. [^259] Lan (déharamna uga) sing désembeléh kanggo brehala, lan (déharamna uga) ngogan (ngramal) nasib karo azlam (jemparing) [^260] merga kuwé sewiji penggawéan pasék. Neng dina kiyé [^261] wong-wong kapir wis padha pedhot pengarep-arepé nggo (ngalahna) agamamu, mula kuwé aja nganti ko padha wedi maring dhéwéké, ning padha wedia maring Ingsun. Neng dina kiyé wis Ingsun sempurnakna agamamu kanggo ko kabéh lan wis Ingsun cukupna nékmaté Ingsun tumrap ko kabéh, lan wis Ingsun keparengaken (ridhani) Islam minangka agamamu kabéh. Ning sapa wongé kepeksa [^262] merga kencot ora merga kepéngin gawé dosa, mangka temen, Gusti Allah Maha Ngampura, Mahaasih.
 
-[^258]: Getih sing metu sekang awak, kayadéné désebutna neng Al An’am ([^6] : 145
+[^258]: Getih sing metu sekang awak, kayadéné désebutna neng Al An’am (6) : 145
 
 [^259]: Kéwan sing ketekek (kendhat), sing dégebug, sing tiba, sing désrudug lan sing décengkerem kéwan galak kuwé halal angger konangan ésih urip lan ésih bisa désembeléh seurungé mati.
 
@@ -3427,7 +3427,7 @@ Lan preyoga wong sing manut maring Injil mutusna prékara miturut apa apa sing d
 
 [^279]: Wong-wong sing nuruti kitab Injil kuwé déwajibna mutus (ngukumi) prekara miturut apa sing déturunaken déning Gusti Allah neng jero kitab Injil kuwé, nganti tekan wektuné déturunaken Al-Qur’an.
 
-[^280]: Wong sing ora mutusna prekara karo hukumé Gusti Allah ana telung werna: a). Merga wadheh lan ingkaré maring hukumé Gusti Allah, wong sing kaya kiyé kapir (Al-Maidah ([^5] [^44]. b). Merga mélu hawa napsu lan gawé tuna maring wong liya déarani dolim (aniaya), (Al-Maidah ([^5] [^45] c). Merga pasék kayadéné sing ana jeroné ayat 47 surat kiyé.
+[^280]: Wong sing ora mutusna prekara karo hukumé Gusti Allah ana telung werna: a). Merga wadheh lan ingkaré maring hukumé Gusti Allah, wong sing kaya kiyé kapir (Al-Maidah (5) 44). b). Merga mélu hawa napsu lan gawé tuna maring wong liya déarani dolim (aniaya), (Al-Maidah (5) 45) c). Merga pasék kayadéné sing ana jeroné ayat 47 surat kiyé.
 
 ## 5:48
 
@@ -3485,7 +3485,7 @@ Dhawuha, “Hé para Ahli Kitab! Apa ko padha nganggep inyong kabéh salah, mung
 
 Dhawuha (Muhammad), “Apa bakal ingsun wertakna maring ko kabéh ngenani wong sing lewih ala piwalesé tenimbang (wong pasék) neng sisihé Gusti Allah? Yakuwé wong sing désupatani lan dédukani déning Gusti Allah, neng antarané wong-wong mau (ana) sing dédadékna kethék, lan céléng [^283] lan (wong sing) nyembah Tagut.” Wong-wong kuwé lewih ala panggonané lan lewih kesasar sekang dalan sing jejeg.
 
-[^283]: Wong-wong Yahudi sing nglanggar kemulyané dina Sabat (deleng Al-Baqarah ([^2] : [^65].
+[^283]: Wong-wong Yahudi sing nglanggar kemulyané dina Sabat (deleng Al-Baqarah (2) : 65).
 
 ## 5:61
 
@@ -4117,7 +4117,7 @@ Lan kaumé padha mbantah dhéwéké. Dhéwéké (Ibrahim) ngucap, “Apa ko kab�
 
 Kepriwé inyong wedi maring apa sing ko padha sekuthokna (karo Gusti Allah), mangkané ko kabéh ora wedi maring apa sing Gusti Allah pribadi ora nurunaken keterangan maring ko kabéh supayané nyekuthokna Penjenengané. Endi sekang rong golongan kuwé sing lewih duwé hak olih pengayoman (sekang marabaya), angger ko mengerténi? [^317]
 
-[^317]: Sewisé dedhéngna déning Gusti Allah maring Nabi Ibrahim tetenger keagungan-E lan tambah teguh precayaé maring Gusti Allah (ayat [^75], mangka Nabi Ibrahim a.s mimpin kaumé maring tauhid kanthi ngetutna ngalam pikirané wong-wong mau.
+[^317]: Sewisé dedhéngna déning Gusti Allah maring Nabi Ibrahim tetenger keagungan-E lan tambah teguh precayaé maring Gusti Allah (ayat 75), mangka Nabi Ibrahim a.s mimpin kaumé maring tauhid kanthi ngetutna ngalam pikirané wong-wong mau.
 
 ## 6:82
 
@@ -6611,7 +6611,7 @@ Kenangapa tembé siki (ko precaya) mangka-né setemené ko wis duraka kawit gemi
 
 Mangka neng dina kiyé Ingsun slametna wangkemu [^392] supayané ko dadi piwulang nggo wong-wong sing teka sewismu, ning akéh-akéhé menungsa ora padha nggatékna tandha-tandha (kewasané Ingsun).
 
-[^392]: Sing deslametna neng Gusti Allah kuwé jasad (awak wadhage). Miturut sejarah, sewisé Fir’aun kerem, mayidé minggir maring kikis segara detemokna neng wong-wong Mesir terus debalsem, mula wutuh nganti siki lan bisa dédeleng neng musium Mesir. Seterusé deleng Al-Baqarah ([^2]:50
+[^392]: Sing deslametna neng Gusti Allah kuwé jasad (awak wadhage). Miturut sejarah, sewisé Fir’aun kerem, mayidé minggir maring kikis segara detemokna neng wong-wong Mesir terus debalsem, mula wutuh nganti siki lan bisa dédeleng neng musium Mesir. Seterusé deleng Al-Baqarah (2):50
 
 ## 10:93
 
@@ -9011,7 +9011,7 @@ Lan aja pisan-pisan ko padha ngucapna maring apa sing désebut-sebut déning ila
 
 Lan ingatasé wong Yahudi, Ingsun nglarang (ngaramna) apa sing wis Ingsun critakna ganu maring sliramu (Muhammad). [^466] Ingsun ora ngapitunani (dolim) maring wong-wong mau, malah wong kuwé sing padha ngapitunani maring awaké dhéwék.
 
-[^466]: Deleng Al-An’am ([^6]: 146
+[^466]: Deleng Al-An’am (6): 146
 
 ## 16:119
 
@@ -9197,7 +9197,7 @@ Lan aja pisan-pisan ko padha méreki royal (jina); (royal) kuwé temen sewiji pe
 
 Lan aja pisan-pisan ko maténi wong sing délarang neng Gusti Allah (maténi wong kuwé), kejaba kanthi sewiji (alésan) sing bener. [^473] Lan sapa wongé sing dépaténi kanthi aniaya (dolim), mangka temen, Ingsun wis paring kewenangan [^474]  maring waliné, ning waliné kuwé aja ngléwati wates neng (urusan) pepaténan. Setemené dhéwéké kuwé wong sing olih pitulungan.
 
-[^473]: Deleng catetan al-An’am ([^6]: 15
+[^473]: Deleng catetan al-An’am (6): 15
 
 [^474]: Kekuwasan neng kéné yakuwé ahli waris sing mati utawa penguwasa sing nuntut Qisas utawa nerima diyat. Deleng Al-Baqoroh ayat 178 lan An-nisa ayat 92
 
@@ -10581,7 +10581,7 @@ Lan temen, Ingsun wis paring nékmat maring sliramu neng wektu liya (seurungé k
 
 (yakuwé) rikala sedulur wadonmu mlaku, banjur dhéwéké ngucap (maring kulawargané Fir’aun), “Apa inyong olih nidhokna maring ko kabéh wong sing bakal ngrumat dhéwéké?” Mangka Ingsun mbalékna sliramu maring biyungmu, supayané seneng atiné lan ora nelangsa. Lan sliramu nglakon maténi sijiné wong, [^513] banjur Ingsun slametna sliramu sekang reribed (sing gedhé) lan Ingsun wis paring coba maring sliramu kanthi pirang-pirang coba (sing abot), banjur sliramu manggon pirang-pirang taun neng antarané warga Madyan, [^514] banjur sliramu, hé Musa, teka miturut wektu sing détetepna,
 
-[^513]: Sing dépaténi yakuwé sewijiné wong bangsa Qibti sing lagi gelut karo Bani Israil kayadéné sing deriwayatna neng njeroné surat al-Qasas ([^28] : 15.
+[^513]: Sing dépaténi yakuwé sewijiné wong bangsa Qibti sing lagi gelut karo Bani Israil kayadéné sing deriwayatna neng njeroné surat al-Qasas (28) : 15.
 
 [^514]: Nabi Musa a.s. teka maring negari Madyan nggo mlayu, neng kana dhéwéké dejodhokna déning Nabi Syuaib a.s. Karo salah sijiné anak wadoné lan netep pirang-pirang taun lawasé.
 
@@ -10739,7 +10739,7 @@ Ning sapa wongé sing teka maring Penjenengané neng kahanan precaya, lan nyata-
 
 Lan temen, wis Ingsun wahyokna maring Musa, “Padha mangkata bareng kawula-kawulané Ingsun (Bani Israil) wektu mbengi lan gebugen (gawékna) nggo dhéwéké kabéh dalan sing garing neng segara kuwé, [^518] (sliramu) ora perlu wedi bakal kesusul lan ora perlu kewatir (bakal kelelep).”
 
-[^518]: Nggebug segara kuwé karo teken. Waca Asy-Syu\`ara ([^26] : 63.
+[^518]: Nggebug segara kuwé karo teken. Waca Asy-Syu\`ara (26) : 63.
 
 ## 20:78
 
@@ -10787,7 +10787,7 @@ Wong-wong kuwé ngucap, “Inyong kabéh ora nerak janjimu nganggo karepku dhéw
 
 banjur (sekang bolongan geni kuwé) dhéwéké (Samiri) ngetokna (reca) anak sapi (pedhét) sing ana awaké lan bisa moni [^520] nggo wong-wong kuwé, mangka dhéwéké padha ngucap, “Kiyé Pengéranmu lan Pengérané Musa, tapi dhéwéké (Musa) wis kelalén.”
 
-[^520]: Waca cathetan Al-A\`raf ([^7] : 148.
+[^520]: Waca cathetan Al-A\`raf (7) : 148.
 
 ## 20:89
 
@@ -10907,7 +10907,7 @@ Mangka Mahaluhur Gusti Allah, Raja sing sebener-beneré. Lan aja pisan-pisan sli
 
 Lan temen wis Ingsun wélingna, [^526] maring Adam gemiyén, ning dhéwéké kelalén, lan Ingsun ora nemu kekarepan sing kuwat neng dhéwéké.
 
-[^526]: Wélingané Gusti Allah kiyé désebut sejeroné Al-Baqarah ([^2] : 35.
+[^526]: Wélingané Gusti Allah kiyé désebut sejeroné Al-Baqarah (2) : 35.
 
 ## 20:116
 
@@ -11607,7 +11607,7 @@ Mengkana kuwé (dhawuhé Gusti Allah). Lan sapa wongé ngegungna kuncara (syiar-
 
 Nggo ko kabéh, neng kuwé (kéwan hadyu), [^546] ana pirang-pirang piguna (manpangat) [^547] , butul wektu sing détemtokna, banjur panggonan sembeléhané yakuwé neng sekubengé Baitul Atiq (Baitullah).
 
-[^546]: Tiliki Al-Baqarah ([^2] : 196.
+[^546]: Tiliki Al-Baqarah (2) : 196.
 
 [^547]: Maksudé kéwan-kéwan hadyu kena ndéjikot manpangaté kayadéné détunggangi, deperes susuné, lan sepadhané nganti dina nahar.
 
@@ -17975,7 +17975,7 @@ Lan apa ora padha ngaweruhi lamon Gusti Allah ngombérna rejeki tumrap sapa sing
 
 Dhawuhna, “Hé kewula-kewulané Ingsun sing padha ngliwati wates maring awaké dhéwék! Aja pisan-pisan ko padha pungkas (pedhot pengarep-arep) sekang kewelasané (rahmat) Gusti Allah. Setemené Gusti Allah ngampurani dosa-dosa [^764] sekabéhé. Temen, Gusti Allah Sing Maha Ngampura, Mahawelas.
 
-[^764]: Deleng An-Nisa’ ([^4]: 48, kejaba dosa syirik.
+[^764]: Deleng An-Nisa’ (4): 48, kejaba dosa syirik.
 
 ## 39:54
 
@@ -22293,7 +22293,7 @@ Sanak-sedulurmu lan anak-anakmu ora bakal migunani tumrap ko kabéh neng dina Ki
 
 Temen, wis ana tepa-tuladha sing apik nggo ko kabéh neng (pribadine) Ibrahim lan wong-wong sing padha bareng karo dhéwéké, nalika dhéwéké ngucap maring kaumé, “Setemené inyong padha kipat sekang ko kabéh lan sekang apa sing ko padha sembah seliyané Gusti Allah, inyong kabéh ngingkari (kekapiran)mu lan wis genah antarané inyong lan ko kabéh ana mungsuhan lan wewadhéhan nggo selawas-lawasé nganti ko padha precaya mung maring Gusti Allah,” Kejaba ucapané Ibrahim maring ramané, [^837] “Temen, inyong arep nyuwunaken ngampura nggo rika, ning inyong babar pisan ora bisa nolak (siksané) Gusti Allah tumrap rika.” (Ibrahim matur), “Dhuh Pengéran kula sami, namung dhateng Penjenengan kula sedaya pasrah lan namung dhateng Penjenengan kula sami mertobat lan namung dhateng Penjenengan kula sami wangsul.
 
-[^837]: Nabi Ibrahim wis nglakon nyuwunaken ampura nggo ramané sing musrik maring Gusti Allah, kiyé ora kena détiru merga Gusti Allah ora mbenerna wong mukmin njalukna ampura nggo wong kapir (An-Nisa ayat [^48].
+[^837]: Nabi Ibrahim wis nglakon nyuwunaken ampura nggo ramané sing musrik maring Gusti Allah, kiyé ora kena détiru merga Gusti Allah ora mbenerna wong mukmin njalukna ampura nggo wong kapir (An-Nisa ayat 48).
 
 ## 60:5
 
@@ -24021,7 +24021,7 @@ Neng dina kuwé dewertakna maring menungsa apa sing wis dépergawé lan apa sing
 
 Malah menungsa dadi seksi nggo awaké dhéwék, [^879]
 
-[^879]: Perangan awak menungsa dadi seksi ingatasé penggawéan sing délakoni neng dhéwéké kaya sing kesebut neng Surat An-Nur ([^24] ayat 24.
+[^879]: Perangan awak menungsa dadi seksi ingatasé penggawéan sing délakoni neng dhéwéké kaya sing kesebut neng Surat An-Nur (24) ayat 24.
 
 ## 75:15
 

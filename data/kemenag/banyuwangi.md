@@ -2253,7 +2253,7 @@ Kambi neng loro wong kang ngelakoni kelakonan keji ring antara riko, dadi wenono
 
 Saktemene taubat ring sampinge Alloh mong tobate kanggo wong-wong hang ngelakokake kejahatan lantaran kejailan. [^104] Kang teruse yane taubat kambi secepete, dadi yane iku hang di terimo Alloh taubate; lan Alloh moho ngerteni kambi mohowicaksana.
 
-[^104]: Maksude iku: [^1] wong kang ngelakukake maksiat kambi kambi heng weruh bahwa kelakuan iku ma’siat kecuali saklaine kadung di pikiraken solong; [^2] Wong kang durhoko ring Alloh mboh disengojo utowo oseng. [^3] Wong kang ngelakoni kejahatan kerono kurang sadar lantaran ngamuk utowo kerono surungan hawa nafsu.
+[^104]: Maksude iku: 1) wong kang ngelakukake maksiat kambi kambi heng weruh bahwa kelakuan iku ma’siat kecuali saklaine kadung di pikiraken solong; 2) Wong kang durhoko ring Alloh mboh disengojo utowo oseng. 3) Wong kang ngelakoni kejahatan kerono kurang sadar lantaran ngamuk utowo kerono surungan hawa nafsu.
 
 ## 4:18
 
@@ -2487,7 +2487,7 @@ He wong-wong kang podo iman, podo manuto riko ing Gusti Alloh lan Rosule lan pem
 
 Opo riko sing weruh nong wong-wong kang ngaku-ngaku wes iman nong perkoro kang didhunaken ring riko lan perkoro kang didhunaken sakdurungiro? Iyane jaluk hukum ring thoghut [^135] , aliyo iyane wes diperintah supoyo ingkar nang thoghut iku mau. Lan setan nyejo nyasaraken iyane sakadoh-adohe kesingsal.
 
-[^135]: Kang musuhi Kanjeng Nabi lan kaum muslimin, lan ono ugo pendapat yoiku Abu Barzah tukang sihir nong jamane Kanjeng Nabi. Kalebu ugo Thoghut: [^1] Wong-wong kang netepaken hukum kanthi nakalan lan nuruti howo nafsu; [^2] Berholo-berholo
+[^135]: Kang musuhi Kanjeng Nabi lan kaum muslimin, lan ono ugo pendapat yoiku Abu Barzah tukang sihir nong jamane Kanjeng Nabi. Kalebu ugo Thoghut: 1) Wong-wong kang netepaken hukum kanthi nakalan lan nuruti howo nafsu; 2) Berholo-berholo
 
 ## 4:61
 
@@ -3405,7 +3405,7 @@ Ngomongo: “He Ahli Kitab, opo riko nganggep isun iki salah, mung mergo isun im
 
 Ngomongo siro Muhammad: “ Opo perlu isun ceritani wong-wong kang luwih olo tinimbang (wong-wong fasiq) iku piwalese nong ngarsane Gusti Alloh, yoiku wongwong kang dilaknat lan dibendhu Gusti Alloh, lan dibendhu dadi bojog lan celeng [^242] lan (wong kang) nyembah thaghut?” Iyane iku kabeh luwih olo panggonelan luwih kesasar teko dalan kang kenceng
 
-[^242]: Kang dimaksud nong kene yoiku wong-wong Yahudi kang nerak kinurmatane dino Sabtu (dilengen ayat 65 surat Al-Baqoroh lan not [^59]
+[^242]: Kang dimaksud nong kene yoiku wong-wong Yahudi kang nerak kinurmatane dino Sabtu (dilengen ayat 65 surat Al-Baqoroh lan not 59)
 
 ## 5:61
 
@@ -4035,7 +4035,7 @@ Lan Ibrohim diengkel kambi kaume, Ibrohim ngucap : opo riko arep nyangkal nyang 
 
 Klendi isun wedi nyang sembahan sembahan hang riko sekutokaen (kambi Alloh) ale riko seng wedi nyekutokaen Alloh kambi sembhan sembahan hang Alloh dewek seng nurunaken hujjah nynag riko kanggo nyekutokaen, .mongko endi antarane rong golongan mau hang lebih duwine hak oleh keamanan (teko malapetka) kadung riko ngerti [^275]
 
-[^275]: Sakwise di delengaen Alloh nyang nabi Ibrohim AS tondo tondo gedine lan kambi iku teguhlah imane nyang Alloh (ayat [^75] mongko Ibrohim mimpin kaume nyang ijen kambi ngetutaen alm pikirane wong wong mau kanggo sakwise di sangkal.
+[^275]: Sakwise di delengaen Alloh nyang nabi Ibrohim AS tondo tondo gedine lan kambi iku teguhlah imane nyang Alloh (ayat 75) mongko Ibrohim mimpin kaume nyang ijen kambi ngetutaen alm pikirane wong wong mau kanggo sakwise di sangkal.
 
 ## 6:82
 
@@ -8025,7 +8025,7 @@ Wong-wong kafir iku podo ndadekaken sekuton nyang Alloh kanggo nyasaraken (menun
 
 Ngomongo siro nyang kawulo kawulonisun hang wes iman: “ngelakonono sembayang siro, nafkahno rezki hang wes sun wakaken nyang siro. Nganggo coro samar utowo terang-terangan sedurunge tekone (kiamat) hang ring dino iku sing ono dodol tinuku lan koncoan. [^448]
 
-[^448]: Maksute: nang dino kiamat iku sengono tebusane duso lan pitulungan teko konco, delengen pisan ayat 254 surat ([^2] Al-Baqarah.
+[^448]: Maksute: nang dino kiamat iku sengono tebusane duso lan pitulungan teko konco, delengen pisan ayat 254 surat (2) Al-Baqarah.
 
 ## 14:32
 
@@ -9175,7 +9175,7 @@ Lan ojo siro mareki zina; saktemene zina iku siji laku kang kotor lan siji dalan
 
 Lan ojo siro mateni awak kang diharamaken Gusti Alloh, kejobo kelawan (alasan) kang bener. Lan sopo baen dipateni nggo coro dzalim, mongko Kito wes nguweni kuoso [^461] )nong ahli warise, tapeng ojo o ahli waris iku ngeliwati wates nong matenine. Saktemene iyane iku wong kang oleh pitulung.
 
-[^461]: Maksude: kuoso neng kene yoiku perihal ahli waris kang dipateni utowo wong kang diwekasi kuoso nuntut ukuman qishosh utowo nompo diat (dendo). Delengen surat al-Baqarah ([^2] ayat 178 not. 111, surat an-Nisa’ ([^4]ayat 92 not 335.
+[^461]: Maksude: kuoso neng kene yoiku perihal ahli waris kang dipateni utowo wong kang diwekasi kuoso nuntut ukuman qishosh utowo nompo diat (dendo). Delengen surat al-Baqarah (2) ayat 178 not. 111, surat an-Nisa’ (4)ayat 92 not 335.
 
 ## 17:34
 
@@ -10599,7 +10599,7 @@ Yoiku: “ Shalehno iyane (Musa) nong jero kotak kayu, terus uncalno iyane nong 
 
 (Yoiku) wektu seduluriro kang wadon melaku, terus iyane ngomong nong (keluargane Fir’aun): “Oleh tah isun nuduhaken nong siro wong kang arep ngerawati?”Mongko Isun mbalekaken siro nong emake siro, supoyo seneng atine lan osing bengung pikire. Lan siro tau mateni menungso, [^521]  terus Isun nyelametaken siro teko (roso bengong susahe ati), lan Isun uwis nguji siro kambi pirang-pirang ujian; mongko siro manggon pirang-pirang tahun nong antarane penduduk Mad-yan, [^522]  terus siro teko meturut wektu kang ditetepaken [^523] he Musa.
 
-[^521]: Kang dipateni Musa iki iku wang bongso Qibthi kang tukaran kambi bongso Isroil, koyo kang diceritokaken nong surat ([^28] al-Qoshosh ayat 15.
+[^521]: Kang dipateni Musa iki iku wang bongso Qibthi kang tukaran kambi bongso Isroil, koyo kang diceritokaken nong surat (28) al-Qoshosh ayat 15.
 
 [^522]: Nabi Musa a.s teko nong negeri Mad-yan enggo melayu ngilang, reng kono iyane dikawinaken kambi Nabi Syu’aib a.s nong anak wadone lan manggon pirang-pirang tahun lawase.
 
@@ -10683,7 +10683,7 @@ Teko bumi (lemah) iku Isun nggawe siro lan nong kono Isun arep mbalekaken siro l
 
 Lan saktemene Isun uwes ngatokaken nong iyane (Fir’aun) tenger-tengere kekuwosoanisun sekabehane, [^531]  mongko iyane nggubabaken lan emong (nerimo kebeneran).
 
-[^531]: Kang dikarepaken kambi “tenger-tenger” reng kene iku tenger-tengere kenabiane Musa surat ([^17] al-Israa, Nong ketemune antarane Nabi Musa a.s kambi Fir’aun iki, kang dikatokaken buru loro yoiku tekene Nabi Musa a.s dadi ulo lan tangane dadi putih kinclong.
+[^531]: Kang dikarepaken kambi “tenger-tenger” reng kene iku tenger-tengere kenabiane Musa surat (17) al-Israa, Nong ketemune antarane Nabi Musa a.s kambi Fir’aun iki, kang dikatokaken buru loro yoiku tekene Nabi Musa a.s dadi ulo lan tangane dadi putih kinclong.
 
 ## 20:57
 
@@ -10777,7 +10777,7 @@ Lan sopo baen kang teko nong pengerane nang keadaan iman, tur bener-bener ngelak
 
 Lan saktemene uwes Isun wahyukaken nong Musa: “Melakuo siro kambi kawulo-kawulonisun (Bani Isroil) reng dino bengi, mongko gaweo enggo iyan-iyane dalan kang garing no ring segoro iku, [^536]  siro osing usah kuwatir kadung kesusul lan osing usah wedi (kesilep).
 
-[^536]: “Nggawe dalan kang garing nong jero segoro iku” yoiku menthong segoro kambi tekene. Dilengen ayat 63 surat ([^26] Asy-Syuaro
+[^536]: “Nggawe dalan kang garing nong jero segoro iku” yoiku menthong segoro kambi tekene. Dilengen ayat 63 surat (26) Asy-Syuaro
 
 ## 20:78
 
@@ -10953,7 +10953,7 @@ Mongko Moho Duwur Gusti Alloh rojo kang sakbener-benere, lan ojo siro kesusu moc
 
 Lan saktemene uwes Isun perintahaken [^548] nong Adam bengene, mongko iyane lali (nong perintah iku) lan Isun osing nemu nong iyane niat (karep) kang kuat.
 
-[^548]: Perintahe Gusti Alloh iki disebuteno nong jero ayat 35 surat ([^2] al-Baqarah.
+[^548]: Perintahe Gusti Alloh iki disebuteno nong jero ayat 35 surat (2) al-Baqarah.
 
 ## 20:116
 
@@ -11983,7 +11983,7 @@ Iyane osing liyo mung wong lanang kang loro edan, mongko ngantenono (sabaro) sam
 
 Nuh ndungo: “hei pengeranisun, tulungono isun [^591] , kerono iyane kabeh nggubabi nong isun.
 
-[^591]: Pitulunge kang dijaluk kambi Nuh nong gusti Gusti Alloh iku mateni kaume sakentek-enteke. Dilengen mari iki surat ([^71] Nuh ayat 26.
+[^591]: Pitulunge kang dijaluk kambi Nuh nong gusti Gusti Alloh iku mateni kaume sakentek-enteke. Dilengen mari iki surat (71) Nuh ayat 26.
 
 ## 23:27
 
@@ -12108,7 +12108,7 @@ He rosul-rosul, madango teko panganan kang apik-apik, lan lakonono amal kang sho
 
 Saktemene (agomo tauhid) iki, iku agamone siro kabeh, agomo kang siji [^601] lan Isun iku pengeraniro, mongko takwaho siro nong Isun.
 
-[^601]: Dilengen not surat al-Anbiyaa’ ([^21] ayat 92.
+[^601]: Dilengen not surat al-Anbiyaa’ (21) ayat 92.
 
 ## 23:53
 
@@ -12126,7 +12126,7 @@ Opo iyane-iyane ngiro kadung saktemene bondo lan anak-anake kang Isun weni nong 
 
 Isun age-age nguweni keapikan nong iyane kabeh? Osing, sakbenere iyan-iyane osing sadar (keroso). [^602]
 
-[^602]: Dilengen surat ([^9] at-Taubah ayat 55, lan dilengen surat ([^3] Ali ‘Imron
+[^602]: Dilengen surat (9) at-Taubah ayat 55, lan dilengen surat (3) Ali ‘Imron
 
 ## 23:57
 
@@ -12156,7 +12156,7 @@ Iyan-iyane age-age supoyo oleh keapikan-keapikan lan iyan-iyane iku wong kang ag
 
 Isun osing ngeboti wong kejobo ngepasi kambi kemampuane, lan nong ngarep Isun ono kitab kang ngomongaken kebeneran [^605] , lan iyan-iyane osing dianioyo
 
-[^605]: Maksude: kitab panggonan malaikat-malikat nulisi kelakuane-kelakuane wong, emboh iku apik utowo elek, kang arep diwocokaken reng dino kiamat (dilengen surat ([^45] al-Jatsiyah ayat 29.
+[^605]: Maksude: kitab panggonan malaikat-malikat nulisi kelakuane-kelakuane wong, emboh iku apik utowo elek, kang arep diwocokaken reng dino kiamat (dilengen surat (45) al-Jatsiyah ayat 29.
 
 ## 23:63
 
@@ -12348,7 +12348,7 @@ Sopo baen kang abot timbangan (keapikane) iyane [^618] , mongko iyane iku wong-w
 
 lan sopo baen kang enteng timbangan iyane [^619], mongko iyane ikulah wong-wong kang ngerugekaken awake dewek, iyane sakteruse (kekal) nong jero neroko jahanam
 
-[^619]: Maksude: wong-wong kafir, kerono percoyone lan amale iyane osing ono diregani kambi Gusti Alloh reng dino kiamat iku. Dilengen ayat 105 surat ([^18] al-Kahfi.
+[^619]: Maksude: wong-wong kafir, kerono percoyone lan amale iyane osing ono diregani kambi Gusti Alloh reng dino kiamat iku. Dilengen ayat 105 surat (18) al-Kahfi.
 
 ## 23:104
 
@@ -14986,7 +14986,7 @@ Nyang negeri hang parek [^660] lan iane kabeh sakmarine dikalahno terus menang. 
 
 Nyang jerone pirang-pirang tahun (maning). [^662]  Mung nyang Gusti Alloh urusan sakdurunge lan sakwise (iane kabeh menang). Lan nyang dinone (menange bongso Rumawi) iku podo seneng-seneng uwong-uwong hang iman.
 
-[^662]: Yoiku antara telu sampek sangang tahun. Waktu kalahe bongso Rumawi (tahun 614-[^615] M kambi menange (tahun 622 M) yoiku kiro-kiro pitung tahun
+[^662]: Yoiku antara telu sampek sangang tahun. Waktu kalahe bongso Rumawi (tahun 614-615) M kambi menange (tahun 622 M) yoiku kiro-kiro pitung tahun
 
 ## 30:5
 
@@ -24618,7 +24618,7 @@ Lan (Malaikat) hang nyalip anter (gowo ruhe wong-wong mukmin nang surga).
 
 Lan (Malaikat) hang ngatur urusan dunyo. [^869]
 
-[^869]: Nang Ayat 1 sampek 5 Gusti Alloh sumpah kambi para Malaikat hang macem-macem sifat urusane saktemene menungsa arep ditangèkaken pas dina kiamat, separuh teka Ahli Tafsir berpendapat, saktemene nang ayat-ayat iki (kejaba ayat [^5], Gusti Alloh sumpah kambi lintang-lintang
+[^869]: Nang Ayat 1 sampek 5 Gusti Alloh sumpah kambi para Malaikat hang macem-macem sifat urusane saktemene menungsa arep ditangèkaken pas dina kiamat, separuh teka Ahli Tafsir berpendapat, saktemene nang ayat-ayat iki (kejaba ayat 5), Gusti Alloh sumpah kambi lintang-lintang
 
 ## 79:6
 

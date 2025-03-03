@@ -15,7 +15,7 @@ const parseKemenag = async (text: string): Promise<Root> => {
 
     const paragraph: Paragraph = u("paragraph", []);
     for (const match of text.matchAll(/(\d+)\)/g)) {
-        paragraph.children.push(u("text", {value: text.substring(lastIndex, match.index)}));
+        paragraph.children.push(u("text", { value: text.substring(lastIndex, match.index) }));
         paragraph.children.push(u('footnoteReference', {
             identifier: match[1],
         }))
@@ -23,7 +23,7 @@ const parseKemenag = async (text: string): Promise<Root> => {
     }
 
     if (lastIndex != text.length) {
-        paragraph.children.push(u("text", {value: text.substring(lastIndex, text.length)}));
+        paragraph.children.push(u("text", { value: text.substring(lastIndex, text.length) }));
     }
 
     return u("root", [paragraph]);
@@ -60,16 +60,18 @@ for await (const child of Deno.readDir(databaseDir)) {
         metadata,
         verseList: []
     }
-    const parser = parsedName.name == "tanzil.latin.en" ? htmlToMdast
-        : source == "kemenag" && type == "translation" ? parseKemenag
-            : async (text: string) => plainToMdast(text);
+    const parseBase = parsedName.name == "tanzil.latin.en" ? htmlToMdast
+        : async (text: string) => plainToMdast(text);
+
+    const parseText = source == "kemenag" && type == "translation" ? parseKemenag
+        : parseBase;
 
     for (const { sura, verse, text } of data.verse) {
         document.verseList.push(
             {
                 sura,
                 verse,
-                text: await parser(text),
+                text: await parseText(text),
                 footnotes: []
             }
         )
@@ -80,7 +82,7 @@ for await (const child of Deno.readDir(databaseDir)) {
             const verseObj = document.verseList.find((val) => val.sura == sura && val.verse == verse)
             verseObj?.footnotes.push({
                 index: index,
-                text: await parser(text)
+                text: await parseBase(text)
             })
         }
 
