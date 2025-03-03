@@ -3288,6 +3288,7 @@ Sungguh rugi orang-orang nang mandustokan pertemuan dengan Allah. Mako, apobilo 
 ## 6:32
 
 Kahidupan dunio hanyolah permainan dan kalengahan, sedangkan negri akherat tu, sungguh lebih baik bagi orang-orang nang
+
 batakwa. Idakkah kamu mangerti?
 
 ## 6:33
@@ -25383,6 +25384,7 @@ Dari (golongan) jin dan manusio.”
 [^216]: Imak catatan kaki surah Āli ‘Imrān/3: 28.
 
 [^217]: Hal nang lebih buruk pambalasannyo adolah manganggap salah kaimanan kapado Allah Swt., Al-Qur’an, dan
+
     kitab suci nang diturunkan sabelumnyo.
 
 [^218]: Laknat ko ditimpokan kapado orang-orang Yahudi nang malanggar kahormatan hari Sabat (imak surah al- Baqarah/2: 65).

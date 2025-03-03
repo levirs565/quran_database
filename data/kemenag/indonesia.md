@@ -227,7 +227,7 @@ Dan takutlah kamu pada hari, (ketika) tidak seorang pun dapat membela orang lain
 
 ## 2:49
 
-Dan (ingatlah) ketika Kami menyelamatkan kamu dari (Fir‘aun dan) pengikut-pengikut Fir‘aun. Mereka menimpakan siksaan yang sangat berat kepadamu. Mereka menyembelih anak-anak laki-lakimu dan membiarkan hidup anak-anak perempuanmu. Dan pada yang demikian itu merupakan cobaan yang besar dari Tuhanmu.&#x20;
+Dan (ingatlah) ketika Kami menyelamatkan kamu dari (Fir‘aun dan) pengikut-pengikut Fir‘aun. Mereka menimpakan siksaan yang sangat berat kepadamu. Mereka menyembelih anak-anak laki-lakimu dan membiarkan hidup anak-anak perempuanmu. Dan pada yang demikian itu merupakan cobaan yang besar dari Tuhanmu.
 
 ## 2:50
 
@@ -243,7 +243,7 @@ Kemudian Kami memaafkan kamu setelah itu, agar kamu bersyukur.
 
 ## 2:53
 
-Dan (ingatlah), ketika Kami memberikan kepada Musa Kitab dan Furqan, agar kamu memperoleh petunjuk.&#x20;
+Dan (ingatlah), ketika Kami memberikan kepada Musa Kitab dan Furqan, agar kamu memperoleh petunjuk.
 
 ## 2:54
 
@@ -291,7 +291,7 @@ Kemudian setelah itu kamu berpaling. Maka sekiranya bukan karena karunia Allah d
 
 ## 2:65
 
-Dan sungguh, kamu telah mengetahui orang-orang yang melakukan pelanggaran di antara kamu pada hari Sabat,  lalu Kami katakan kepada mereka, “Jadilah kamu kera yang hina!”&#x20;
+Dan sungguh, kamu telah mengetahui orang-orang yang melakukan pelanggaran di antara kamu pada hari Sabat,  lalu Kami katakan kepada mereka, “Jadilah kamu kera yang hina!”
 
 ## 2:66
 
@@ -335,7 +335,7 @@ Maka apakah kamu (Muslimin) sangat mengharapkan mereka akan percaya kepadamu, se
 
 ## 2:76
 
-Dan apabila mereka berjumpa dengan orang-orang yang beriman, mereka berkata, “Kami telah beriman.” Tetapi apabila kembali kepada sesamanya, mereka bertanya, “Apakah akan kamu ceritakan kepada mereka apa yang telah diterangkan Allah kepadamu, sehingga mereka dapat menyanggah kamu di hadapan Tuhanmu? Tidakkah kamu mengerti?”&#x20;
+Dan apabila mereka berjumpa dengan orang-orang yang beriman, mereka berkata, “Kami telah beriman.” Tetapi apabila kembali kepada sesamanya, mereka bertanya, “Apakah akan kamu ceritakan kepada mereka apa yang telah diterangkan Allah kepadamu, sehingga mereka dapat menyanggah kamu di hadapan Tuhanmu? Tidakkah kamu mengerti?”
 
 ## 2:77
 
@@ -527,7 +527,7 @@ Dan takutlah kamu pada hari, (ketika) tidak seorang pun dapat menggantikan (memb
 
 ## 2:124
 
-Dan (ingatlah), ketika Ibrahim diuji Tuhannya dengan beberapa kalimat, lalu dia melaksanakannya dengan sempurna. Dia (Allah) berfirman, “Sesungguhnya Aku menjadikan engkau sebagai pemimpin bagi seluruh manusia.” Dia (Ibrahim) berkata, “Dan (juga) dari anak cucuku?” Allah berfirman, “(Benar, tetapi) janji-Ku tidak berlaku bagi orang-orang zalim.”  &#x20;
+Dan (ingatlah), ketika Ibrahim diuji Tuhannya dengan beberapa kalimat, lalu dia melaksanakannya dengan sempurna. Dia (Allah) berfirman, “Sesungguhnya Aku menjadikan engkau sebagai pemimpin bagi seluruh manusia.” Dia (Ibrahim) berkata, “Dan (juga) dari anak cucuku?” Allah berfirman, “(Benar, tetapi) janji-Ku tidak berlaku bagi orang-orang zalim.”
 
 ## 2:125
 
@@ -1723,7 +1723,7 @@ Balasan bagi mereka ialah ampunan dari Tuhan mereka dan surga-surga yang mengali
 
 ## 3:137
 
-Sungguh, telah berlalu sebelum kamu sunnah-sunnah (Allah), karena itu berjalanlah kamu ke (segenap penjuru) bumi dan perhatikanlah bagai-mana kesudahan orang yang mendustakan (rasul-rasul).   &#x20;
+Sungguh, telah berlalu sebelum kamu sunnah-sunnah (Allah), karena itu berjalanlah kamu ke (segenap penjuru) bumi dan perhatikanlah bagai-mana kesudahan orang yang mendustakan (rasul-rasul).
 
 ## 3:138
 
@@ -1975,7 +1975,7 @@ Dan sesungguhnya di antara Ahli Kitab ada yang beriman kepada Allah, dan kepada 
 
 ## 3:200
 
-Wahai orang-orang yang beriman! Bersabarlah kamu dan kuatkanlah kesabaranmu dan tetaplah bersiap-siaga (di perbatasan negerimu) dan bertakwalah kepada Allah agar kamu beruntung.                   &#x20;
+Wahai orang-orang yang beriman! Bersabarlah kamu dan kuatkanlah kesabaranmu dan tetaplah bersiap-siaga (di perbatasan negerimu) dan bertakwalah kepada Allah agar kamu beruntung.
 
 ## 4:1
 
@@ -2559,7 +2559,7 @@ Sungguh, orang-orang munafik itu (ditempatkan) pada tingkatan yang paling bawah 
 
 ## 4:146
 
-Kecuali orang-orang yang bertobat dan memperbaiki diri dan berpegang teguh pada (agama) Allah dan dengan tulus ikhlas (menjalankan) agama mereka karena Allah. Maka mereka itu bersama-sama orang-orang yang beriman dan kelak Allah akan memberikan pahala yang besar kepada orang-orang yang beriman.  &#x20;
+Kecuali orang-orang yang bertobat dan memperbaiki diri dan berpegang teguh pada (agama) Allah dan dengan tulus ikhlas (menjalankan) agama mereka karena Allah. Maka mereka itu bersama-sama orang-orang yang beriman dan kelak Allah akan memberikan pahala yang besar kepada orang-orang yang beriman.
 
 ## 4:147
 
@@ -2643,11 +2643,11 @@ Tetapi Allah menjadi saksi atas (Al-Qur'an) yang diturunkan-Nya kepadamu (Muhamm
 
 ## 4:167
 
-Sesungguhnya orang-orang yang kafir dan menghalang-halangi (orang lain) dari jalan Allah, benar-benar telah sesat sejauh-jauhnya. &#x20;
+Sesungguhnya orang-orang yang kafir dan menghalang-halangi (orang lain) dari jalan Allah, benar-benar telah sesat sejauh-jauhnya.
 
 ## 4:168
 
-Sesungguhnya orang-orang yang kafir dan melakukan kezaliman, Allah tidak akan mengampuni mereka, dan tidak (pula) akan menunjukkan kepada mereka jalan (yang lurus),  &#x20;
+Sesungguhnya orang-orang yang kafir dan melakukan kezaliman, Allah tidak akan mengampuni mereka, dan tidak (pula) akan menunjukkan kepada mereka jalan (yang lurus),
 
 ## 4:169
 
@@ -3431,7 +3431,7 @@ Setiap berita (yang dibawa oleh rasul) ada (waktu) terjadinya dan kelak kamu aka
 
 ## 6:68
 
-Apabila engkau (Muhammad) melihat orang-orang memperolok-olokkan ayat-ayat Kami, maka tinggalkanlah mereka hingga mereka beralih ke pembicaraan lain. Dan jika setan benar-benar menjadikan engkau lupa (akan larangan ini), setelah ingat kembali janganlah engkau duduk bersama orang-orang yang zalim. &#x20;
+Apabila engkau (Muhammad) melihat orang-orang memperolok-olokkan ayat-ayat Kami, maka tinggalkanlah mereka hingga mereka beralih ke pembicaraan lain. Dan jika setan benar-benar menjadikan engkau lupa (akan larangan ini), setelah ingat kembali janganlah engkau duduk bersama orang-orang yang zalim.
 
 ## 6:69
 
@@ -3519,7 +3519,7 @@ Mereka itulah orang-orang yang telah Kami berikan kitab, hikmah dan kenabian. Ji
 
 ## 6:90
 
-Mereka itulah (para nabi) yang telah diberi petunjuk oleh Allah, maka ikutilah petunjuk mereka. Katakanlah (Muhammad), “Aku tidak meminta imbalan kepadamu dalam menyampaikan (Al-Qur'an).” Al-Qur'an itu tidak lain hanyalah peringatan untuk (segala umat) seluruh alam.  &#x20;
+Mereka itulah (para nabi) yang telah diberi petunjuk oleh Allah, maka ikutilah petunjuk mereka. Katakanlah (Muhammad), “Aku tidak meminta imbalan kepadamu dalam menyampaikan (Al-Qur'an).” Al-Qur'an itu tidak lain hanyalah peringatan untuk (segala umat) seluruh alam.
 
 ## 6:91
 
@@ -4327,7 +4327,7 @@ Dan engkau tidak melakukan balas dendam kepada kami, melainkan karena kami berim
 
 ## 7:127
 
-Dan para pemuka dari kaum Fir‘aun berkata, “Apakah engkau akan membiarkan Musa dan kaumnya untuk berbuat kerusakan di negeri ini (Mesir) dan meninggalkanmu dan tuhan-tuhanmu?” (Fir‘aun) menjawab, “Akan kita bunuh anak-anak laki-laki mereka dan kita biarkan hidup anak-anak perempuan mereka dan sesungguhnya kita berkuasa penuh atas mereka.”                  &#x20;
+Dan para pemuka dari kaum Fir‘aun berkata, “Apakah engkau akan membiarkan Musa dan kaumnya untuk berbuat kerusakan di negeri ini (Mesir) dan meninggalkanmu dan tuhan-tuhanmu?” (Fir‘aun) menjawab, “Akan kita bunuh anak-anak laki-laki mereka dan kita biarkan hidup anak-anak perempuan mereka dan sesungguhnya kita berkuasa penuh atas mereka.”
 
 ## 7:128
 
@@ -4399,7 +4399,7 @@ Dan ketika Musa datang untuk (munajat) pada waktu yang telah Kami tentukan dan T
 
 ## 7:145
 
-Dan telah Kami tuliskan untuk Musa pada lauh-lauh (Taurat) segala sesuatu sebagai pelajaran dan penjelasan untuk segala hal; maka (Kami berfirman), “Berpegangteguhlah kepadanya dan suruhlah kaummu berpegang kepadanya dengan sebaik-baiknya, Aku akan memperlihatkan kepadamu negeri orang-orang fasik.”  &#x20;
+Dan telah Kami tuliskan untuk Musa pada lauh-lauh (Taurat) segala sesuatu sebagai pelajaran dan penjelasan untuk segala hal; maka (Kami berfirman), “Berpegangteguhlah kepadanya dan suruhlah kaummu berpegang kepadanya dengan sebaik-baiknya, Aku akan memperlihatkan kepadamu negeri orang-orang fasik.”
 
 ## 7:146
 
@@ -4451,7 +4451,7 @@ Dan tetapkanlah untuk kami kebaikan di dunia ini dan di akhirat. Sungguh, kami k
 
 ## 7:158
 
-Katakanlah (Muhammad), “Wahai manusia! Sesungguhnya aku ini utusan Allah bagi kamu semua, Yang memiliki kerajaan langit dan bumi; tidak ada tuhan (yang berhak disembah) selain Dia, Yang menghidupkan dan mematikan, maka berimanlah kamu kepada Allah dan Rasul-Nya, (yaitu) Nabi yang ummi yang beriman kepada Allah dan kepada kalimat-kalimat-Nya (kitab-kitab-Nya). Ikutilah dia, agar kamu mendapat petunjuk.”         &#x20;
+Katakanlah (Muhammad), “Wahai manusia! Sesungguhnya aku ini utusan Allah bagi kamu semua, Yang memiliki kerajaan langit dan bumi; tidak ada tuhan (yang berhak disembah) selain Dia, Yang menghidupkan dan mematikan, maka berimanlah kamu kepada Allah dan Rasul-Nya, (yaitu) Nabi yang ummi yang beriman kepada Allah dan kepada kalimat-kalimat-Nya (kitab-kitab-Nya). Ikutilah dia, agar kamu mendapat petunjuk.”
 
 ## 7:159
 
@@ -5459,7 +5459,7 @@ Sungguh, telah datang kepadamu seorang rasul dari kaummu sendiri, berat terasa o
 
 ## 9:129
 
-Maka jika mereka berpaling (dari keimanan), maka katakanlah (Muhammad), “Cukuplah Allah bagiku; tidak ada tuhan selain Dia. Hanya kepada-Nya aku bertawakal, dan Dia adalah Tuhan yang memiliki ‘Arsy (singgasana) yang agung.”   &#x20;
+Maka jika mereka berpaling (dari keimanan), maka katakanlah (Muhammad), “Cukuplah Allah bagiku; tidak ada tuhan selain Dia. Hanya kepada-Nya aku bertawakal, dan Dia adalah Tuhan yang memiliki ‘Arsy (singgasana) yang agung.”
 
 ## 10:1
 
@@ -5567,11 +5567,11 @@ Bagi orang-orang yang berbuat baik, ada pahala yang terbaik (surga) dan tambahan
 
 ## 10:27
 
-Adapun orang-orang yang berbuat kejahatan (akan mendapat) balasan kejahatan yang setimpal dan mereka diselubungi kehinaan. Tidak ada bagi mereka seorang pelindung pun dari (azab) Allah, seakan-akan wajah mereka ditutupi dengan kepingan-kepingan malam yang gelap gulita. Mereka itulah penghuni neraka, mereka kekal di dalamnya.          &#x20;
+Adapun orang-orang yang berbuat kejahatan (akan mendapat) balasan kejahatan yang setimpal dan mereka diselubungi kehinaan. Tidak ada bagi mereka seorang pelindung pun dari (azab) Allah, seakan-akan wajah mereka ditutupi dengan kepingan-kepingan malam yang gelap gulita. Mereka itulah penghuni neraka, mereka kekal di dalamnya.
 
 ## 10:28
 
-Dan (ingatlah) pada hari (ketika) itu Kami mengumpulkan mereka semuanya, kemudian Kami berkata kepada orang yang mempersekutukan (Allah), “Tetaplah di tempatmu, kamu dan para sekutumu.” Lalu Kami pisahkan mereka dan berkatalah sekutu-sekutu mereka, “Kamu sekali-kali tidak pernah menyembah kami.&#x20;
+Dan (ingatlah) pada hari (ketika) itu Kami mengumpulkan mereka semuanya, kemudian Kami berkata kepada orang yang mempersekutukan (Allah), “Tetaplah di tempatmu, kamu dan para sekutumu.” Lalu Kami pisahkan mereka dan berkatalah sekutu-sekutu mereka, “Kamu sekali-kali tidak pernah menyembah kami.
 
 ## 10:29
 
@@ -5615,7 +5615,7 @@ Apakah pantas mereka mengatakan dia (Muhammad) yang telah membuat-buatnya? Katak
 
 ## 10:39
 
-Bahkan (yang sebenarnya), mereka mendustakan apa yang mereka belum mengetahuinya dengan sempurna dan belum mereka peroleh penjelasannya. Demikianlah halnya umat-umat yang ada sebelum mereka telah mendustakan (rasul). Maka perhatikanlah bagaimana akibat orang yang zalim.&#x20;
+Bahkan (yang sebenarnya), mereka mendustakan apa yang mereka belum mengetahuinya dengan sempurna dan belum mereka peroleh penjelasannya. Demikianlah halnya umat-umat yang ada sebelum mereka telah mendustakan (rasul). Maka perhatikanlah bagaimana akibat orang yang zalim.
 
 ## 10:40
 
@@ -5655,7 +5655,7 @@ Dan mereka mengatakan,  ”Bilakah (datangnya) ancaman itu, jika kamu orang-oran
 
 ## 10:49
 
-Katakanlah (Muhammad), “Aku tidak kuasa menolak mudarat maupun mendatangkan manfaat kepada diriku, kecuali apa yang Allah kehendaki.” Bagi setiap umat mempunyai ajal (batas waktu). Apabila ajalnya tiba, mereka tidak dapat meminta penundaan atau percepatan sesaat pun.&#x20;
+Katakanlah (Muhammad), “Aku tidak kuasa menolak mudarat maupun mendatangkan manfaat kepada diriku, kecuali apa yang Allah kehendaki.” Bagi setiap umat mempunyai ajal (batas waktu). Apabila ajalnya tiba, mereka tidak dapat meminta penundaan atau percepatan sesaat pun.
 
 ## 10:50
 
@@ -5959,7 +5959,7 @@ Barangsiapa menghendaki kehidupan dunia dan perhiasannya, pasti Kami berikan (ba
 
 ## 11:16
 
-Itulah orang-orang yang tidak memperoleh (sesuatu) di akhirat kecuali neraka, dan sia-sialah di sana apa yang telah mereka usahakan (di dunia) dan terhapuslah apa yang telah mereka kerjakan.&#x20;
+Itulah orang-orang yang tidak memperoleh (sesuatu) di akhirat kecuali neraka, dan sia-sialah di sana apa yang telah mereka usahakan (di dunia) dan terhapuslah apa yang telah mereka kerjakan.
 
 ## 11:17
 
@@ -6123,7 +6123,7 @@ Sesungguhnya aku bertawakal kepada Allah Tuhanku dan Tuhanmu. Tidak satu pun mak
 
 ## 11:57
 
-Maka jika kamu berpaling, maka sungguh, aku telah menyampaikan kepadamu apa yang menjadi tugasku sebagai rasul kepadamu. Dan Tuhanku akan mengganti kamu dengan kaum yang lain, sedang kamu tidak dapat mendatangkan mudarat kepada-Nya sedikit pun. Sesungguhnya Tuhanku Maha Pemelihara segala sesuatu.”&#x20;
+Maka jika kamu berpaling, maka sungguh, aku telah menyampaikan kepadamu apa yang menjadi tugasku sebagai rasul kepadamu. Dan Tuhanku akan mengganti kamu dengan kaum yang lain, sedang kamu tidak dapat mendatangkan mudarat kepada-Nya sedikit pun. Sesungguhnya Tuhanku Maha Pemelihara segala sesuatu.”
 
 ## 11:58
 
@@ -6223,7 +6223,7 @@ Mereka (para malaikat) berkata, “Wahai Lut! Sesungguhnya kami adalah para utus
 
 ## 11:82
 
-Maka ketika keputusan Kami datang, Kami menjungkirbalikkannya negeri kaum Lut, dan Kami hujani mereka bertubi-tubi dengan batu dari tanah yang terbakar,&#x20;
+Maka ketika keputusan Kami datang, Kami menjungkirbalikkannya negeri kaum Lut, dan Kami hujani mereka bertubi-tubi dengan batu dari tanah yang terbakar,
 
 ## 11:83
 
@@ -6359,7 +6359,7 @@ Dan bersabarlah, karena sesungguhnya Allah tidak menyia-nyiakan pahala orang yan
 
 ## 11:116
 
-Maka mengapa tidak ada di antara umat-umat sebelum kamu orang yang mempunyai keutamaan yang melarang (berbuat) kerusakan di bumi, kecuali sebagian kecil di antara orang yang telah Kami selamatkan. Dan orang-orang yang zalim hanya mementingkan kenikmatan dan kemewahan. Dan mereka adalah orang-orang yang berdosa.&#x20;
+Maka mengapa tidak ada di antara umat-umat sebelum kamu orang yang mempunyai keutamaan yang melarang (berbuat) kerusakan di bumi, kecuali sebagian kecil di antara orang yang telah Kami selamatkan. Dan orang-orang yang zalim hanya mementingkan kenikmatan dan kemewahan. Dan mereka adalah orang-orang yang berdosa.
 
 ## 11:117
 
@@ -6415,7 +6415,7 @@ Dan demikianlah, Tuhan memilih engkau (untuk menjadi Nabi) dan mengajarkan kepad
 
 ## 12:7
 
-Sungguh, dalam (kisah) Yusuf dan saudara-saudaranya terdapat tanda-tanda (kekuasaan Allah) bagi orang yang bertanya.&#x20;
+Sungguh, dalam (kisah) Yusuf dan saudara-saudaranya terdapat tanda-tanda (kekuasaan Allah) bagi orang yang bertanya.
 
 ## 12:8
 
@@ -6559,7 +6559,7 @@ Dan dia (Yusuf) berkata kepada orang yang diketahuinya akan selamat di antara me
 
 ## 12:43
 
-Dan raja berkata (kepada para pemuka kaumnya), “Sesungguhnya aku bermimpi melihat tujuh ekor sapi betina yang gemuk dimakan oleh tujuh ekor sapi betina yang kurus; tujuh tangkai (gandum) yang hijau dan (tujuh tangkai) lainnya yang kering. Wahai orang yang terkemuka! Terangkanlah kepadaku tentang takwil mimpiku itu jika kamu dapat menakwilkan mimpi.”&#x20;
+Dan raja berkata (kepada para pemuka kaumnya), “Sesungguhnya aku bermimpi melihat tujuh ekor sapi betina yang gemuk dimakan oleh tujuh ekor sapi betina yang kurus; tujuh tangkai (gandum) yang hijau dan (tujuh tangkai) lainnya yang kering. Wahai orang yang terkemuka! Terangkanlah kepadaku tentang takwil mimpiku itu jika kamu dapat menakwilkan mimpi.”
 
 ## 12:44
 
@@ -6579,7 +6579,7 @@ Dia (Yusuf) berkata, “Agar kamu bercocok tanam tujuh tahun (berturut-turut) se
 
 ## 12:48
 
-Kemudian setelah  itu akan datang tujuh (tahun) yang sangat sulit, yang menghabiskan apa yang kamu simpan untuk menghadapinya (tahun sulit), kecuali sedikit dari apa (bibit gandum) yang kamu simpan.&#x20;
+Kemudian setelah  itu akan datang tujuh (tahun) yang sangat sulit, yang menghabiskan apa yang kamu simpan untuk menghadapinya (tahun sulit), kecuali sedikit dari apa (bibit gandum) yang kamu simpan.
 
 ## 12:49
 
@@ -6595,7 +6595,7 @@ Dia (raja) berkata (kepada perempuan-perempuan itu), “Bagaimana keadaanmu keti
 
 ## 12:52
 
-(Yusuf berkata), “Yang demikian itu agar dia (Al-Aziz) mengetahui bahwa aku benar-benar tidak mengkhianatinya ketika dia tidak ada (di rumah), dan bahwa Allah tidak meridai tipu daya orang-orang yang berkhianat.&#x20;
+(Yusuf berkata), “Yang demikian itu agar dia (Al-Aziz) mengetahui bahwa aku benar-benar tidak mengkhianatinya ketika dia tidak ada (di rumah), dan bahwa Allah tidak meridai tipu daya orang-orang yang berkhianat.
 
 ## 12:53
 
@@ -6667,7 +6667,7 @@ Dan ketika mereka masuk ke (tempat) Yusuf, dia menempatkan saudaranya (Bunyamin)
 
 ## 12:70
 
-Maka ketika telah disiapkan bahan makanan untuk mereka, dia (Yusuf) memasukkan piala ke dalam karung saudaranya. Kemudian berteriaklah seseorang yang menyerukan, “Wahai kafilah! Sesungguhnya kamu pasti pencuri.”&#x20;
+Maka ketika telah disiapkan bahan makanan untuk mereka, dia (Yusuf) memasukkan piala ke dalam karung saudaranya. Kemudian berteriaklah seseorang yang menyerukan, “Wahai kafilah! Sesungguhnya kamu pasti pencuri.”
 
 ## 12:71
 
@@ -6775,7 +6775,7 @@ Maka ketika telah tiba pembawa kabar gembira itu, maka diusapkannya (baju itu) k
 
 ## 12:97
 
-Mereka berkata, “Wahai ayah kami! Mohonkanlah ampunan untuk kami atas dosa-dosa kami, sesungguhnya kami adalah orang yang bersalah (berdosa).”&#x20;
+Mereka berkata, “Wahai ayah kami! Mohonkanlah ampunan untuk kami atas dosa-dosa kami, sesungguhnya kami adalah orang yang bersalah (berdosa).”
 
 ## 12:98
 
@@ -6791,7 +6791,7 @@ Dan dia menaikkan kedua orang tuanya ke atas singgasana. Dan mereka (semua) tund
 
 ## 12:101
 
-Tuhanku, sesungguhnya Engkau telah menganugerahkan kepadaku sebagian kekuasaan dan telah mengajarkan kepadaku sebagian takwil mimpi. (Wahai Tuhan) pencipta langit dan bumi, Engkaulah pelindungku di dunia dan di akhirat, wafatkanlah aku dalam keadaan muslim dan gabungkanlah aku dengan orang yang saleh.”&#x20;
+Tuhanku, sesungguhnya Engkau telah menganugerahkan kepadaku sebagian kekuasaan dan telah mengajarkan kepadaku sebagian takwil mimpi. (Wahai Tuhan) pencipta langit dan bumi, Engkaulah pelindungku di dunia dan di akhirat, wafatkanlah aku dalam keadaan muslim dan gabungkanlah aku dengan orang yang saleh.”
 
 ## 12:102
 
@@ -6879,7 +6879,7 @@ Baginya (manusia) ada malaikat-malaikat yang selalu menjaganya bergiliran, dari 
 
 ## 13:12
 
-Dialah yang memperlihatkan kilat kepadamu, yang menimbulkan ketakutan dan harapan, dan Dia menjadikan mendung.&#x20;
+Dialah yang memperlihatkan kilat kepadamu, yang menimbulkan ketakutan dan harapan, dan Dia menjadikan mendung.
 
 ## 13:13
 
@@ -6959,7 +6959,7 @@ Dan sekiranya ada suatu bacaan (Kitab Suci) yang dengan itu gunung-gunung dapat 
 
 ## 13:32
 
-Dan sesungguhnya beberapa rasul sebelum engkau (Muhammad) telah diperolok-olokkan, maka Aku beri tenggang waktu kepada orang-orang kafir itu, kemudian Aku binasakan mereka. Maka alangkah hebatnya siksaan-Ku itu!&#x20;
+Dan sesungguhnya beberapa rasul sebelum engkau (Muhammad) telah diperolok-olokkan, maka Aku beri tenggang waktu kepada orang-orang kafir itu, kemudian Aku binasakan mereka. Maka alangkah hebatnya siksaan-Ku itu!
 
 ## 13:33
 
@@ -7003,7 +7003,7 @@ Dan sungguh, orang sebelum mereka (kafir Mekah) telah mengadakan tipu daya, teta
 
 ## 13:43
 
-&#x20;Dan orang-orang kafir berkata, “Engkau (Muhammad) bukanlah seorang Rasul.” Katakanlah, “Cukuplah Allah dan orang yang menguasai ilmu Al-Kitab menjadi saksi antara aku dan kamu.”&#x20;
+&#x20;Dan orang-orang kafir berkata, “Engkau (Muhammad) bukanlah seorang Rasul.” Katakanlah, “Cukuplah Allah dan orang yang menguasai ilmu Al-Kitab menjadi saksi antara aku dan kamu.”
 
 ## 14:1
 
@@ -7011,7 +7011,7 @@ Alif Lam Ra. (Ini adalah) Kitab yang Kami turunkan kepadamu (Muhammad) agar engk
 
 ## 14:2
 
-Allah yang memiliki apa yang ada di langit dan apa yang ada di bumi. Celakalah bagi orang yang ingkar kepada Tuhan karena siksaan yang sangat berat,&#x20;
+Allah yang memiliki apa yang ada di langit dan apa yang ada di bumi. Celakalah bagi orang yang ingkar kepada Tuhan karena siksaan yang sangat berat,
 
 ## 14:3
 
@@ -7063,7 +7063,7 @@ Dan Kami pasti akan menempatkan kamu di negeri-negeri itu setelah mereka. Yang d
 
 ## 14:15
 
-Dan mereka memohon diberi kemenangan dan binasalah semua orang yang berlaku sewenang-wenang lagi keras kepala,&#x20;
+Dan mereka memohon diberi kemenangan dan binasalah semua orang yang berlaku sewenang-wenang lagi keras kepala,
 
 ## 14:16
 
@@ -7127,11 +7127,11 @@ Dan mereka (orang kafir) itu telah menjadikan tandingan bagi Allah untuk menyesa
 
 ## 14:31
 
-Katakanlah (Muhammad) kepada hamba-hamba-Ku yang telah beriman, “Hendaklah mereka melaksanakan salat, menginfakkan sebagian rezeki yang Kami berikan secara sembunyi atau terang-terangan sebelum datang hari, ketika tidak ada lagi jual beli dan persahabatan.”&#x20;
+Katakanlah (Muhammad) kepada hamba-hamba-Ku yang telah beriman, “Hendaklah mereka melaksanakan salat, menginfakkan sebagian rezeki yang Kami berikan secara sembunyi atau terang-terangan sebelum datang hari, ketika tidak ada lagi jual beli dan persahabatan.”
 
 ## 14:32
 
-Allah-lah yang telah menciptakan langit dan bumi dan menurunkan air (hujan) dari langit, kemudian dengan (air hujan) itu Dia mengeluarkan berbagai buah-buahan sebagai rezeki untukmu; dan Dia telah menundukkan kapal bagimu agar berlayar di lautan dengan kehendak-Nya, dan Dia telah menundukkan sungai-sungai bagimu.&#x20;
+Allah-lah yang telah menciptakan langit dan bumi dan menurunkan air (hujan) dari langit, kemudian dengan (air hujan) itu Dia mengeluarkan berbagai buah-buahan sebagai rezeki untukmu; dan Dia telah menundukkan kapal bagimu agar berlayar di lautan dengan kehendak-Nya, dan Dia telah menundukkan sungai-sungai bagimu.
 
 ## 14:33
 
@@ -7175,7 +7175,7 @@ Dan janganlah engkau mengira, bahwa Allah lengah dari apa yang diperbuat oleh or
 
 ## 14:43
 
-mereka datang tergesa-gesa (memenuhi panggilan) dengan mengangkat kepalanya, sedang mata mereka tidak berkedip-kedip dan hati mereka kosong.&#x20;
+mereka datang tergesa-gesa (memenuhi panggilan) dengan mengangkat kepalanya, sedang mata mereka tidak berkedip-kedip dan hati mereka kosong.
 
 ## 14:44
 
@@ -7195,7 +7195,7 @@ Dan sungguh, mereka telah membuat tipu daya padahal Allah (mengetahui dan akan m
 
 ## 14:48
 
-(Yaitu) pada hari (ketika) bumi diganti dengan bumi yang lain dan (demikian pula) langit, dan mereka (manusia) berkumpul (di Padang Mahsyar) menghadap Allah Yang Maha Esa, Mahaperkasa.&#x20;
+(Yaitu) pada hari (ketika) bumi diganti dengan bumi yang lain dan (demikian pula) langit, dan mereka (manusia) berkumpul (di Padang Mahsyar) menghadap Allah Yang Maha Esa, Mahaperkasa.
 
 ## 14:49
 
@@ -7207,7 +7207,7 @@ Pakaian mereka dari cairan aspal, dan wajah mereka ditutup oleh api neraka,
 
 ## 14:51
 
-agar Allah memberi balasan kepada setiap orang terhadap apa yang dia usahakan. Sungguh, Allah Mahacepat perhitungan-Nya.&#x20;
+agar Allah memberi balasan kepada setiap orang terhadap apa yang dia usahakan. Sungguh, Allah Mahacepat perhitungan-Nya.
 
 ## 14:52
 
@@ -7271,7 +7271,7 @@ Dan kalau Kami bukakan kepada mereka salah satu pintu langit, lalu mereka terus 
 
 ## 15:15
 
-tentulah mereka berkata, “Sesungguhnya pandangan kamilah yang dikaburkan, bahkan kami adalah orang yang terkena sihir.” &#x20;
+tentulah mereka berkata, “Sesungguhnya pandangan kamilah yang dikaburkan, bahkan kami adalah orang yang terkena sihir.”
 
 ## 15:16
 
@@ -7351,7 +7351,7 @@ Dia (Allah) berfirman, “(Kalau begitu) keluarlah dari surga, karena sesungguhn
 
 ## 15:35
 
-&#x20;dan sesungguhnya kutukan itu tetap menimpamu sampai hari Kiamat.”&#x20;
+&#x20;dan sesungguhnya kutukan itu tetap menimpamu sampai hari Kiamat.”
 
 ## 15:36
 
@@ -7419,11 +7419,11 @@ Dan kabarkanlah (Muhammad) kepada mereka tentang tamu Ibrahim (malaikat).
 
 ## 15:52
 
-Ketika mereka masuk ke tempatnya, lalu mereka mengucapkan, “Salam.” Dia (Ibrahim) berkata, “Kami benar-benar merasa takut kepadamu.”&#x20;
+Ketika mereka masuk ke tempatnya, lalu mereka mengucapkan, “Salam.” Dia (Ibrahim) berkata, “Kami benar-benar merasa takut kepadamu.”
 
 ## 15:53
 
-(Mereka) berkata, “Janganlah engkau merasa takut, sesungguhnya kami memberi kabar gembira kepadamu dengan (kelahiran seorang) anak laki-laki (yang akan menjadi) orang yang pandai (Ishak).” &#x20;
+(Mereka) berkata, “Janganlah engkau merasa takut, sesungguhnya kami memberi kabar gembira kepadamu dengan (kelahiran seorang) anak laki-laki (yang akan menjadi) orang yang pandai (Ishak).”
 
 ## 15:54
 
@@ -7459,7 +7459,7 @@ Maka ketika utusan itu datang kepada para pengikut Lut,
 
 ## 15:62
 
-dia (Lut) berkata, “Sesungguhnya kamu orang yang tidak kami kenal.”&#x20;
+dia (Lut) berkata, “Sesungguhnya kamu orang yang tidak kami kenal.”
 
 ## 15:63
 
@@ -7471,7 +7471,7 @@ Dan kami datang kepadamu membawa kebenaran dan sungguh, kami orang yang benar.
 
 ## 15:65
 
-Maka pergilah kamu pada akhir malam beserta keluargamu, dan ikutilah mereka dari belakang. Jangan ada di antara kamu yang menoleh ke belakang dan teruskanlah perjalanan ke tempat yang diperintahkan kepadamu.” &#x20;
+Maka pergilah kamu pada akhir malam beserta keluargamu, dan ikutilah mereka dari belakang. Jangan ada di antara kamu yang menoleh ke belakang dan teruskanlah perjalanan ke tempat yang diperintahkan kepadamu.”
 
 ## 15:66
 
@@ -7487,7 +7487,7 @@ Dia (Lut) berkata, “Sesungguhnya mereka adalah tamuku; maka jangan kamu memper
 
 ## 15:69
 
-Dan bertakwalah kepada Allah dan janganlah kamu membuat aku terhina.”&#x20;
+Dan bertakwalah kepada Allah dan janganlah kamu membuat aku terhina.”
 
 ## 15:70
 
@@ -7535,7 +7535,7 @@ Dan sesungguhnya penduduk negeri Hijr benar-benar telah mendustakan para rasul (
 
 ## 15:81
 
-dan Kami telah mendatangkan kepada mereka tanda-tanda (kekuasaan) Kami, tetapi mereka selalu berpaling darinya,&#x20;
+dan Kami telah mendatangkan kepada mereka tanda-tanda (kekuasaan) Kami, tetapi mereka selalu berpaling darinya,
 
 ## 15:82
 
@@ -7547,7 +7547,7 @@ Kemudian mereka dibinasakan oleh suara keras yang mengguntur pada pagi hari,
 
 ## 15:84
 
-sehingga tidak berguna bagi mereka, apa yang telah mereka usahakan.&#x20;
+sehingga tidak berguna bagi mereka, apa yang telah mereka usahakan.
 
 ## 15:85
 
@@ -7583,7 +7583,7 @@ Maka demi Tuhanmu, Kami pasti akan menanyai mereka semua,
 
 ## 15:93
 
-tentang apa yang telah mereka kerjakan dahulu.&#x20;
+tentang apa yang telah mereka kerjakan dahulu.
 
 ## 15:94
 
@@ -7599,11 +7599,11 @@ Sesungguhnya Kami memelihara engkau (Muhammad) dari (kejahatan) orang yang mempe
 
 ## 15:97
 
-Dan sungguh, Kami mengetahui bahwa dadamu menjadi sempit disebabkan apa yang mereka ucapkan,&#x20;
+Dan sungguh, Kami mengetahui bahwa dadamu menjadi sempit disebabkan apa yang mereka ucapkan,
 
 ## 15:98
 
-maka bertasbihlah dengan memuji Tuhanmu dan jadilah engkau di antara orang yang bersujud (salat),&#x20;
+maka bertasbihlah dengan memuji Tuhanmu dan jadilah engkau di antara orang yang bersujud (salat),
 
 ## 15:99
 
@@ -7615,7 +7615,7 @@ Ketetapan Allah pasti datang, maka janganlah kamu meminta agar dipercepat (datan
 
 ## 16:2
 
-Dia menurunkan para malaikat membawa wahyu dengan perintah-Nya kepada siapa yang Dia kehendaki di antara hamba-hamba-Nya, (dengan berfirman) yaitu, “Peringatkanlah (hamba-hamba-Ku), bahwa tidak ada tuhan selain Aku, maka hendaklah kamu bertakwa kepada-Ku.”      &#x20;
+Dia menurunkan para malaikat membawa wahyu dengan perintah-Nya kepada siapa yang Dia kehendaki di antara hamba-hamba-Nya, (dengan berfirman) yaitu, “Peringatkanlah (hamba-hamba-Ku), bahwa tidak ada tuhan selain Aku, maka hendaklah kamu bertakwa kepada-Ku.”
 
 ## 16:3
 
@@ -7763,7 +7763,7 @@ Dan mereka bersumpah dengan (nama) Allah dengan sumpah yang sungguh-sungguh, “
 
 ## 16:39
 
-agar Dia menjelaskan kepada mereka apa yang mereka perselisihkan itu, dan agar orang kafir itu mengetahui bahwa mereka adalah orang yang berdusta.&#x20;
+agar Dia menjelaskan kepada mereka apa yang mereka perselisihkan itu, dan agar orang kafir itu mengetahui bahwa mereka adalah orang yang berdusta.
 
 ## 16:40
 
@@ -7787,7 +7787,7 @@ Dan Kami tidak mengutus sebelum engkau (Muhammad), melainkan orang laki-laki yan
 
 ## 16:45
 
-maka apakah orang yang membuat tipu daya yang jahat itu, merasa aman (dari bencana) dibenamkannya bumi oleh Allah bersama mereka, atau (terhadap) datangnya siksa kepada mereka dari arah yang tidak mereka sadari,&#x20;
+maka apakah orang yang membuat tipu daya yang jahat itu, merasa aman (dari bencana) dibenamkannya bumi oleh Allah bersama mereka, atau (terhadap) datangnya siksa kepada mereka dari arah yang tidak mereka sadari,
 
 ## 16:46
 
@@ -7851,7 +7851,7 @@ Bagi orang-orang yang tidak beriman pada (kehidupan) akhirat, (mempunyai) sifat 
 
 ## 16:61
 
-Dan kalau Allah menghukum manusia karena kezalimannya, niscaya tidak akan ada yang ditinggalkan-Nya (di bumi) dari makhluk yang melata sekalipun, tetapi Allah menangguhkan mereka sampai waktu yang sudah ditentukan. Maka apabila ajalnya tiba, mereka tidak dapat meminta penundaan atau percepatan sesaat pun.&#x20;
+Dan kalau Allah menghukum manusia karena kezalimannya, niscaya tidak akan ada yang ditinggalkan-Nya (di bumi) dari makhluk yang melata sekalipun, tetapi Allah menangguhkan mereka sampai waktu yang sudah ditentukan. Maka apabila ajalnya tiba, mereka tidak dapat meminta penundaan atau percepatan sesaat pun.
 
 ## 16:62
 
@@ -7931,7 +7931,7 @@ Dan Allah menjadikan rumah-rumah bagimu sebagai tempat tinggal dan Dia menjadika
 
 ## 16:81
 
-Dan Allah menjadikan tempat bernaung bagimu dari apa yang telah Dia ciptakan, Dia menjadikan bagimu tempat-tempat tinggal di gunung-gunung, dan Dia menjadikan pakaian bagimu yang memeliharamu dari panas dan pakaian (baju besi) yang memelihara kamu dalam peperangan. Demikian Allah menyempurnakan nikmat-Nya kepadamu agar kamu berserah diri (kepada-Nya).&#x20;
+Dan Allah menjadikan tempat bernaung bagimu dari apa yang telah Dia ciptakan, Dia menjadikan bagimu tempat-tempat tinggal di gunung-gunung, dan Dia menjadikan pakaian bagimu yang memeliharamu dari panas dan pakaian (baju besi) yang memelihara kamu dalam peperangan. Demikian Allah menyempurnakan nikmat-Nya kepadamu agar kamu berserah diri (kepada-Nya).
 
 ## 16:82
 
@@ -8127,7 +8127,7 @@ Mahasuci (Allah), yang telah memperjalankan hamba-Nya (Muhammad) pada malam hari
 
 ## 17:2
 
-Dan Kami berikan kepada Musa, Kitab (Taurat) dan Kami jadikannya petunjuk bagi Bani Israil (dengan firman), “Janganlah kamu mengambil (pelindung) selain Aku.&#x20;
+Dan Kami berikan kepada Musa, Kitab (Taurat) dan Kami jadikannya petunjuk bagi Bani Israil (dengan firman), “Janganlah kamu mengambil (pelindung) selain Aku.
 
 ## 17:3
 
@@ -8171,7 +8171,7 @@ Dan Kami jadikan malam dan siang sebagai dua tanda (kebesaran Kami), kemudian Ka
 
 ## 17:13
 
-Dan setiap manusia telah Kami kalungkan (catatan) amal perbuatannya di lehernya. Dan pada hari Kiamat Kami keluarkan baginya sebuah kitab dalam keadaan terbuka.&#x20;
+Dan setiap manusia telah Kami kalungkan (catatan) amal perbuatannya di lehernya. Dan pada hari Kiamat Kami keluarkan baginya sebuah kitab dalam keadaan terbuka.
 
 ## 17:14
 
@@ -8395,7 +8395,7 @@ Maka apakah kamu merasa aman bahwa Dia tidak akan membenamkan sebagian daratan b
 
 ## 17:69
 
-ataukah kamu merasa aman bahwa Dia tidak akan mengembalikan kamu ke laut sekali lagi, lalu Dia tiupkan angin topan kepada kamu dan ditenggelamkan-Nya kamu disebabkan kekafiranmu? Kemudian kamu tidak akan mendapatkan seorang penolong pun dalam menghadapi (siksaan) Kami. &#x20;
+ataukah kamu merasa aman bahwa Dia tidak akan mengembalikan kamu ke laut sekali lagi, lalu Dia tiupkan angin topan kepada kamu dan ditenggelamkan-Nya kamu disebabkan kekafiranmu? Kemudian kamu tidak akan mendapatkan seorang penolong pun dalam menghadapi (siksaan) Kami.
 
 ## 17:70
 
@@ -8467,7 +8467,7 @@ Dan sesungguhnya jika Kami menghendaki, niscaya Kami lenyapkan apa yang telah Ka
 
 ## 17:87
 
-kecuali karena rahmat dari Tuhanmu. Sungguh, karunia-Nya atasmu (Muhammad) sangat besar.&#x20;
+kecuali karena rahmat dari Tuhanmu. Sungguh, karunia-Nya atasmu (Muhammad) sangat besar.
 
 ## 17:88
 
@@ -8551,7 +8551,7 @@ Katakanlah (Muhammad), “Berimanlah kamu kepadanya (Al-Qur'an) atau tidak usah 
 
 ## 17:108
 
-dan mereka berkata, “Mahasuci Tuhan kami; sungguh, janji Tuhan kami pasti dipenuhi.” &#x20;
+dan mereka berkata, “Mahasuci Tuhan kami; sungguh, janji Tuhan kami pasti dipenuhi.”
 
 ## 17:109
 
@@ -8643,7 +8643,7 @@ Dan demikianlah Kami bangunkan mereka, agar di antara mereka saling bertanya. Sa
 
 ## 18:20
 
-Sesungguhnya jika mereka dapat mengetahui tempatmu, niscaya mereka akan melempari kamu dengan batu, atau memaksamu kembali kepada agama mereka, dan jika demikian niscaya kamu tidak akan beruntung selama-lamanya.”     &#x20;
+Sesungguhnya jika mereka dapat mengetahui tempatmu, niscaya mereka akan melempari kamu dengan batu, atau memaksamu kembali kepada agama mereka, dan jika demikian niscaya kamu tidak akan beruntung selama-lamanya.”
 
 ## 18:21
 
@@ -8695,11 +8695,11 @@ Dan berikanlah (Muhammad) kepada mereka sebuah perumpamaan, dua orang laki-laki,
 
 ## 18:33
 
-Kedua kebun itu menghasilkan buahnya, dan tidak berkurang (buahnya) sedikit pun, dan di celah-celah kedua kebun itu Kami alirkan sungai,&#x20;
+Kedua kebun itu menghasilkan buahnya, dan tidak berkurang (buahnya) sedikit pun, dan di celah-celah kedua kebun itu Kami alirkan sungai,
 
 ## 18:34
 
-dan dia memiliki kekayaan besar, maka dia berkata kepada kawannya (yang beriman) ketika bercakap-cakap dengan dia, “Hartaku lebih banyak daripada hartamu dan pengikutku lebih kuat.”&#x20;
+dan dia memiliki kekayaan besar, maka dia berkata kepada kawannya (yang beriman) ketika bercakap-cakap dengan dia, “Hartaku lebih banyak daripada hartamu dan pengikutku lebih kuat.”
 
 ## 18:35
 
@@ -8775,7 +8775,7 @@ Dan (ingatlah) pada hari (ketika) Dia berfirman, “Panggillah olehmu sekutu-sek
 
 ## 18:53
 
-Dan orang yang berdosa melihat neraka, lalu mereka menduga, bahwa mereka akan jatuh ke dalamnya, dan mereka tidak menemukan tempat berpaling darinya.&#x20;
+Dan orang yang berdosa melihat neraka, lalu mereka menduga, bahwa mereka akan jatuh ke dalamnya, dan mereka tidak menemukan tempat berpaling darinya.
 
 ## 18:54
 
@@ -8891,7 +8891,7 @@ Dan adapun anak muda (kafir) itu, kedua orang tuanya mukmin, dan kami khawatir k
 
 ## 18:82
 
-. Dan adapun dinding rumah itu adalah milik dua anak yatim di kota itu, yang di bawahnya tersimpan harta bagi mereka berdua, dan ayahnya seorang yang saleh. Maka Tuhanmu menghendaki agar keduanya sampai dewasa dan keduanya mengeluarkan simpanannya itu sebagai rahmat dari Tuhanmu. Apa yang kuperbuat bukan menurut kemauanku sendiri. Itulah keterangan perbuatan-perbuatan yang engkau tidak sabar terhadapnya.”&#x20;
+. Dan adapun dinding rumah itu adalah milik dua anak yatim di kota itu, yang di bawahnya tersimpan harta bagi mereka berdua, dan ayahnya seorang yang saleh. Maka Tuhanmu menghendaki agar keduanya sampai dewasa dan keduanya mengeluarkan simpanannya itu sebagai rahmat dari Tuhanmu. Apa yang kuperbuat bukan menurut kemauanku sendiri. Itulah keterangan perbuatan-perbuatan yang engkau tidak sabar terhadapnya.”
 
 ## 18:83
 
@@ -9055,7 +9055,7 @@ Maka dia keluar dari mihrab menuju kaumnya, lalu dia memberi isyarat kepada mere
 
 ## 19:13
 
-dan (Kami jadikan) rasa kasih sayang (kepada sesama) dari Kami dan bersih (dari dosa). Dan dia pun seorang yang bertakwa,&#x20;
+dan (Kami jadikan) rasa kasih sayang (kepada sesama) dari Kami dan bersih (dari dosa). Dan dia pun seorang yang bertakwa,
 
 ## 19:14
 
@@ -9119,7 +9119,7 @@ Wahai saudara perempuan Harun (Maryam)! Ayahmu bukan seorang yang buruk perangai
 
 ## 19:29
 
-Maka dia (Maryam) menunjuk kepada (anak)nya. Mereka berkata, “Bagaimana kami akan berbicara dengan anak kecil yang masih dalam ayunan?”&#x20;
+Maka dia (Maryam) menunjuk kepada (anak)nya. Mereka berkata, “Bagaimana kami akan berbicara dengan anak kecil yang masih dalam ayunan?”
 
 ## 19:30
 
@@ -9167,7 +9167,7 @@ Sesungguhnya Kamilah yang mewarisi bumi dan semua yang ada di atasnya, dan hanya
 
 ## 19:41
 
-Dan ceritakanlah (Muhammad) kisah Ibrahim di dalam Kitab (Al-Qur'an), sesungguhnya dia adalah seorang yang sangat membenarkan, seorang Nabi.&#x20;
+Dan ceritakanlah (Muhammad) kisah Ibrahim di dalam Kitab (Al-Qur'an), sesungguhnya dia adalah seorang yang sangat membenarkan, seorang Nabi.
 
 ## 19:42
 
@@ -9187,7 +9187,7 @@ Wahai ayahku! Aku sungguh khawatir engkau akan ditimpa azab dari Tuhan Yang Maha
 
 ## 19:46
 
-Dia (ayahnya) berkata, “Bencikah engkau kepada tuhan-tuhanku, wahai Ibrahim? Jika engkau tidak berhenti, pasti engkau akan kurajam, maka tinggalkanlah aku untuk waktu yang lama.”&#x20;
+Dia (ayahnya) berkata, “Bencikah engkau kepada tuhan-tuhanku, wahai Ibrahim? Jika engkau tidak berhenti, pasti engkau akan kurajam, maka tinggalkanlah aku untuk waktu yang lama.”
 
 ## 19:47
 
@@ -9499,7 +9499,7 @@ Pergilah kepada Fir‘aun; dia benar-benar telah melampaui batas.”
 
 ## 20:26
 
-dan mudahkanlah untukku urusanku,&#x20;
+dan mudahkanlah untukku urusanku,
 
 ## 20:27
 
@@ -9735,7 +9735,7 @@ Dia (Musa) berkata, “Itu mereka sedang menyusul aku dan aku bersegera kepada-M
 
 ## 20:85
 
-Dia (Allah) berfirman, “Sungguh, Kami telah menguji kaummu setelah engkau tinggalkan, dan mereka telah disesatkan oleh Samiri.”&#x20;
+Dia (Allah) berfirman, “Sungguh, Kami telah menguji kaummu setelah engkau tinggalkan, dan mereka telah disesatkan oleh Samiri.”
 
 ## 20:86
 
@@ -9771,7 +9771,7 @@ Dia (Musa) berkata, “Wahai Harun! Apa yang menghalangimu ketika engkau melihat
 
 ## 20:94
 
-Dia (Harun) menjawab, “Wahai putra ibuku! Janganlah engkau pegang janggutku dan jangan (pula) kepalaku. Aku sungguh khawatir engkau akan berkata (kepadaku), ‘Engkau telah memecah belah antara Bani Israil dan engkau tidak memelihara amanatku.’”&#x20;
+Dia (Harun) menjawab, “Wahai putra ibuku! Janganlah engkau pegang janggutku dan jangan (pula) kepalaku. Aku sungguh khawatir engkau akan berkata (kepadaku), ‘Engkau telah memecah belah antara Bani Israil dan engkau tidak memelihara amanatku.’”
 
 ## 20:95
 
@@ -9795,11 +9795,11 @@ Demikianlah Kami kisahkan kepadamu (Muhammad) sebagian kisah (umat) yang telah l
 
 ## 20:100
 
-Barangsiapa berpaling darinya (Al-Qur'an), maka sesungguhnya dia akan memikul beban yang berat (dosa) pada hari Kiamat,&#x20;
+Barangsiapa berpaling darinya (Al-Qur'an), maka sesungguhnya dia akan memikul beban yang berat (dosa) pada hari Kiamat,
 
 ## 20:101
 
-mereka kekal di dalam keadaan itu. Dan sungguh buruk beban dosa itu bagi mereka pada hari Kiamat,&#x20;
+mereka kekal di dalam keadaan itu. Dan sungguh buruk beban dosa itu bagi mereka pada hari Kiamat,
 
 ## 20:102
 
@@ -9819,11 +9819,11 @@ Dan mereka bertanya kepadamu (Muhammad) tentang gunung-gunung, maka katakanlah, 
 
 ## 20:106
 
-kemudian Dia akan menjadikan (bekas gunung-gunung) itu rata sama sekali,&#x20;
+kemudian Dia akan menjadikan (bekas gunung-gunung) itu rata sama sekali,
 
 ## 20:107
 
-(sehingga) kamu tidak akan melihat lagi ada tempat yang rendah dan yang tinggi di sana.”&#x20;
+(sehingga) kamu tidak akan melihat lagi ada tempat yang rendah dan yang tinggi di sana.”
 
 ## 20:108
 
@@ -9871,7 +9871,7 @@ Sungguh, ada (jaminan) untukmu di sana, engkau tidak akan kelaparan dan tidak ak
 
 ## 20:119
 
-Dan sungguh, di sana engkau tidak akan merasa dahaga dan tidak akan ditimpa panas matahari.”&#x20;
+Dan sungguh, di sana engkau tidak akan merasa dahaga dan tidak akan ditimpa panas matahari.”
 
 ## 20:120
 
@@ -9903,7 +9903,7 @@ Dia (Allah) berfirman, “Demikianlah, dahulu telah datang kepadamu ayat-ayat Ka
 
 ## 20:127
 
-Dan demikianlah Kami membalas orang yang melampaui batas dan tidak percaya kepada ayat-ayat Tuhannya. Sungguh, azab di akhirat itu lebih berat dan lebih kekal.&#x20;
+Dan demikianlah Kami membalas orang yang melampaui batas dan tidak percaya kepada ayat-ayat Tuhannya. Sungguh, azab di akhirat itu lebih berat dan lebih kekal.
 
 ## 20:128
 
@@ -10231,7 +10231,7 @@ Dan Kami menjadikan mereka itu sebagai pemimpin-pemimpin yang memberi petunjuk d
 
 ## 21:74
 
-Kepada Lut, Kami berikan hikmah dan ilmu, dan Kami selamatkan dia dari (azab yang telah menimpa penduduk) kota yang melakukan perbuatan keji. Sungguh, mereka orang-orang yang jahat lagi fasik. &#x20;
+Kepada Lut, Kami berikan hikmah dan ilmu, dan Kami selamatkan dia dari (azab yang telah menimpa penduduk) kota yang melakukan perbuatan keji. Sungguh, mereka orang-orang yang jahat lagi fasik.
 
 ## 21:75
 
@@ -10343,7 +10343,7 @@ Sungguh, sejak dahulu bagi orang-orang yang telah ada (ketetapan) yang baik dari
 
 ## 21:102
 
-Mereka tidak mendengar bunyi desis (api neraka), dan mereka kekal dalam (menikmati) semua yang mereka ingini. &#x20;
+Mereka tidak mendengar bunyi desis (api neraka), dan mereka kekal dalam (menikmati) semua yang mereka ingini.
 
 ## 21:103
 
@@ -10499,7 +10499,7 @@ Agar mereka menyaksikan berbagai manfaat untuk mereka dan agar mere-ka menyebut 
 
 ## 22:29
 
-Kemudian, hendaklah mereka menghilangkan kotoran (yang ada di badan) mereka, menyempurnakan nazar-nazar mereka dan melakukan tawaf sekeliling rumah tua (Baitullah).&#x20;
+Kemudian, hendaklah mereka menghilangkan kotoran (yang ada di badan) mereka, menyempurnakan nazar-nazar mereka dan melakukan tawaf sekeliling rumah tua (Baitullah).
 
 ## 22:30
 
@@ -10567,7 +10567,7 @@ Maka betapa banyak negeri yang telah Kami binasakan karena (penduduk)nya dalam k
 
 ## 22:46
 
-Maka tidak pernahkah mereka berjalan di bumi, sehingga hati (akal) mereka dapat memahami, telinga mereka dapat mendengar? Sebenarnya bukan mata itu yang buta, tetapi yang buta ialah hati yang di dalam dada.&#x20;
+Maka tidak pernahkah mereka berjalan di bumi, sehingga hati (akal) mereka dapat memahami, telinga mereka dapat mendengar? Sebenarnya bukan mata itu yang buta, tetapi yang buta ialah hati yang di dalam dada.
 
 ## 22:47
 
@@ -10659,11 +10659,11 @@ Dan jika mereka membantah engkau, maka katakanlah, “Allah lebih tahu tentang a
 
 ## 22:69
 
-Allah akan mengadili di antara kamu pada hari Kiamat tentang apa yang dahulu kamu memperselisihkannya.&#x20;
+Allah akan mengadili di antara kamu pada hari Kiamat tentang apa yang dahulu kamu memperselisihkannya.
 
 ## 22:70
 
-Tidakkah engkau tahu bahwa Allah mengetahui apa yang di langit dan di bumi? Sungguh, yang demikian itu sudah terdapat dalam sebuah Kitab (Lauh Mahfuzh). Sesungguhnya yang demikian itu sangat mudah bagi Allah.&#x20;
+Tidakkah engkau tahu bahwa Allah mengetahui apa yang di langit dan di bumi? Sungguh, yang demikian itu sudah terdapat dalam sebuah Kitab (Lauh Mahfuzh). Sesungguhnya yang demikian itu sangat mudah bagi Allah.
 
 ## 22:71
 
@@ -10767,15 +10767,15 @@ Dan sungguh, Kami telah menciptakan tujuh (lapis) langit di atas kamu, dan Kami 
 
 ## 23:18
 
-Dan Kami turunkan air dari langit dengan suatu ukuran; lalu Kami jadikan air itu menetap di bumi, dan pasti Kami berkuasa melenyapkannya.&#x20;
+Dan Kami turunkan air dari langit dengan suatu ukuran; lalu Kami jadikan air itu menetap di bumi, dan pasti Kami berkuasa melenyapkannya.
 
 ## 23:19
 
-Lalu dengan (air) itu, Kami tumbuhkan untukmu kebun-kebun kurma dan anggur; di sana kamu memperoleh buah-buahan yang banyak dan sebagian dari (buah-buahan) itu kamu makan,&#x20;
+Lalu dengan (air) itu, Kami tumbuhkan untukmu kebun-kebun kurma dan anggur; di sana kamu memperoleh buah-buahan yang banyak dan sebagian dari (buah-buahan) itu kamu makan,
 
 ## 23:20
 
-dan (Kami tumbuhkan) pohon (zaitun) yang tumbuh dari gunung Sinai, yang menghasilkan minyak, dan bahan pembangkit selera bagi orang-orang yang makan.&#x20;
+dan (Kami tumbuhkan) pohon (zaitun) yang tumbuh dari gunung Sinai, yang menghasilkan minyak, dan bahan pembangkit selera bagi orang-orang yang makan.
 
 ## 23:21
 
@@ -10839,7 +10839,7 @@ Adakah dia menjanjikan kepada kamu, bahwa apabila kamu telah mati dan menjadi ta
 
 ## 23:36
 
-Jauh! Jauh sekali (dari kebenaran) apa yang diancamkan kepada kamu,&#x20;
+Jauh! Jauh sekali (dari kebenaran) apa yang diancamkan kepada kamu,
 
 ## 23:37
 
@@ -10859,7 +10859,7 @@ Dia (Allah) berfirman, “Tidak lama lagi mereka pasti akan menyesal.”
 
 ## 23:41
 
-Lalu mereka benar-benar dimusnahkan oleh suara yang mengguntur, dan Kami jadikan mereka (seperti) sampah yang dibawa banjir. Maka binasalah bagi orang-orang yang zalim.&#x20;
+Lalu mereka benar-benar dimusnahkan oleh suara yang mengguntur, dan Kami jadikan mereka (seperti) sampah yang dibawa banjir. Maka binasalah bagi orang-orang yang zalim.
 
 ## 23:42
 
@@ -10943,7 +10943,7 @@ mereka itu bersegera dalam kebaikan-kebaikan, dan merekalah orang-orang yang leb
 
 ## 23:62
 
-Dan Kami tidak membebani seseorang melainkan menurut kesanggupannya, dan pada Kami ada suatu catatan yang menuturkan dengan sebenarnya, dan mereka tidak dizalimi (dirugikan).&#x20;
+Dan Kami tidak membebani seseorang melainkan menurut kesanggupannya, dan pada Kami ada suatu catatan yang menuturkan dengan sebenarnya, dan mereka tidak dizalimi (dirugikan).
 
 ## 23:63
 
@@ -10975,7 +10975,7 @@ Ataukah mereka tidak mengenal Rasul mereka (Muhammad), karena itu mereka menging
 
 ## 23:70
 
-Atau mereka berkata, “Orang itu (Muhammad) gila.” Padahal, dia telah datang membawa kebenaran kepada mereka, tetapi kebanyakan mereka membenci kebenaran.&#x20;
+Atau mereka berkata, “Orang itu (Muhammad) gila.” Padahal, dia telah datang membawa kebenaran kepada mereka, tetapi kebanyakan mereka membenci kebenaran.
 
 ## 23:71
 
@@ -11023,7 +11023,7 @@ Bahkan mereka mengucapkan perkataan yang serupa dengan apa yang diucapkan oleh o
 
 ## 23:82
 
-Mereka berkata, “Apakah betul, apabila kami telah mati dan telah menjadi tanah dan tulang belulang, kami benar-benar akan dibangkitkan kembali? &#x20;
+Mereka berkata, “Apakah betul, apabila kami telah mati dan telah menjadi tanah dan tulang belulang, kami benar-benar akan dibangkitkan kembali?
 
 ## 23:83
 
@@ -11151,7 +11151,7 @@ Mereka menjawab, “Kami tinggal (di bumi) sehari atau setengah hari, maka tanya
 
 ## 23:114
 
-Dia (Allah) berfirman, “Kamu tinggal (di bumi) hanya sebentar saja, jika kamu benar-benar mengetahui.”&#x20;
+Dia (Allah) berfirman, “Kamu tinggal (di bumi) hanya sebentar saja, jika kamu benar-benar mengetahui.”
 
 ## 23:115
 
@@ -11203,7 +11203,7 @@ Dan istri itu terhindar dari hukuman apabila dia bersumpah empat kali atas (nama
 
 ## 24:9
 
-dan (sumpah) yang kelima bahwa kemurkaan Allah akan menimpanya (istri), jika dia (suaminya) itu termasuk orang yang berkata benar.  &#x20;
+dan (sumpah) yang kelima bahwa kemurkaan Allah akan menimpanya (istri), jika dia (suaminya) itu termasuk orang yang berkata benar.
 
 ## 24:10
 
@@ -11247,7 +11247,7 @@ Sesungguhnya orang-orang yang ingin agar perbuatan yang sangat keji itu (berita 
 
 ## 24:20
 
-Dan kalau bukan karena karunia Allah dan rahmat-Nya kepadamu (niscaya kamu akan ditimpa azab yang besar). Sungguh, Allah Maha Penyantun, Ma-ha Penyayang.&#x20;
+Dan kalau bukan karena karunia Allah dan rahmat-Nya kepadamu (niscaya kamu akan ditimpa azab yang besar). Sungguh, Allah Maha Penyantun, Ma-ha Penyayang.
 
 ## 24:21
 
@@ -11327,7 +11327,7 @@ Dan orang-orang yang kafir, amal perbuatan mereka seperti fatamorgana di tanah y
 
 ## 24:40
 
-Atau (keadaan orang-orang kafir) seperti gelap gulita di lautan yang dalam, yang diliputi oleh gelombang demi gelombang, di atasnya ada (lagi) awan gelap. Itulah gelap gulita yang berlapis-lapis. Apabila dia mengeluarkan tangannya hampir tidak dapat melihatnya. Barangsiapa tidak diberi cahaya (petunjuk) oleh Allah, maka dia tidak mempunyai cahaya sedikit pun.&#x20;
+Atau (keadaan orang-orang kafir) seperti gelap gulita di lautan yang dalam, yang diliputi oleh gelombang demi gelombang, di atasnya ada (lagi) awan gelap. Itulah gelap gulita yang berlapis-lapis. Apabila dia mengeluarkan tangannya hampir tidak dapat melihatnya. Barangsiapa tidak diberi cahaya (petunjuk) oleh Allah, maka dia tidak mempunyai cahaya sedikit pun.
 
 ## 24:41
 
@@ -11411,7 +11411,7 @@ Dan para perempuan tua yang telah berhenti (dari haid dan mengandung) yang tidak
 
 ## 24:61
 
-Tidak ada halangan bagi orang buta, tidak (pula) bagi orang pincang, tidak (pula) bagi orang sakit, dan tidak (pula) bagi dirimu, makan (bersama-sama mereka) di rumah kamu atau di rumah bapak-bapakmu, di rumah ibu-ibumu, di rumah saudara-saudaramu yang laki-laki, di rumah saudara-saudaramu yang perempuan, di rumah saudara-saudara bapakmu yang laki-laki, di rumah saudara-saudara bapakmu yang perempuan, di rumah saudara-saudara ibumu yang laki-laki, di rumah saudara-saudara ibumu yang perempuan, (di rumah) yang kamu miliki kuncinya atau (di rumah) kawan-kawanmu. Tidak ada halangan bagi kamu makan bersama-sama mereka atau sendiri-sendiri. Apabila kamu memasuki rumah-rumah hendaklah kamu memberi salam (kepada penghuninya, yang berarti memberi salam) kepada dirimu sendiri, dengan salam yang penuh berkah dan baik dari sisi Allah. Demikianlah Allah menjelaskan ayat-ayat(-Nya) bagimu, agar kamu mengerti.&#x20;
+Tidak ada halangan bagi orang buta, tidak (pula) bagi orang pincang, tidak (pula) bagi orang sakit, dan tidak (pula) bagi dirimu, makan (bersama-sama mereka) di rumah kamu atau di rumah bapak-bapakmu, di rumah ibu-ibumu, di rumah saudara-saudaramu yang laki-laki, di rumah saudara-saudaramu yang perempuan, di rumah saudara-saudara bapakmu yang laki-laki, di rumah saudara-saudara bapakmu yang perempuan, di rumah saudara-saudara ibumu yang laki-laki, di rumah saudara-saudara ibumu yang perempuan, (di rumah) yang kamu miliki kuncinya atau (di rumah) kawan-kawanmu. Tidak ada halangan bagi kamu makan bersama-sama mereka atau sendiri-sendiri. Apabila kamu memasuki rumah-rumah hendaklah kamu memberi salam (kepada penghuninya, yang berarti memberi salam) kepada dirimu sendiri, dengan salam yang penuh berkah dan baik dari sisi Allah. Demikianlah Allah menjelaskan ayat-ayat(-Nya) bagimu, agar kamu mengerti.
 
 ## 24:62
 
@@ -11431,7 +11431,7 @@ Mahasuci Allah yang telah menurunkan Furqan (Al-Qur'an) kepada hamba-Nya (Muhamm
 
 ## 25:2
 
-Yang memiliki kerajaan langit dan bumi, tidak mempunyai anak, tidak ada sekutu bagi-Nya dalam kekuasaan(-Nya), dan Dia menciptakan segala sesuatu, lalu menetapkan ukuran-ukurannya dengan tepat.&#x20;
+Yang memiliki kerajaan langit dan bumi, tidak mempunyai anak, tidak ada sekutu bagi-Nya dalam kekuasaan(-Nya), dan Dia menciptakan segala sesuatu, lalu menetapkan ukuran-ukurannya dengan tepat.
 
 ## 25:3
 
@@ -11447,7 +11447,7 @@ Dan mereka berkata, “(Itu hanya) dongeng-dongeng orang-orang terdahulu, yang d
 
 ## 25:6
 
-Katakanlah (Muhammad), “(Al-Qur'an) itu diturunkan oleh (Allah) yang mengetahui rahasia di langit dan di bumi. Sungguh, Dia Maha Pengampun, Maha Penyayang.”&#x20;
+Katakanlah (Muhammad), “(Al-Qur'an) itu diturunkan oleh (Allah) yang mengetahui rahasia di langit dan di bumi. Sungguh, Dia Maha Pengampun, Maha Penyayang.”
 
 ## 25:7
 
@@ -11459,7 +11459,7 @@ atau (mengapa tidak) diturunkan kepadanya harta kekayaan atau (mengapa tidak ada
 
 ## 25:9
 
-Perhatikanlah, bagaimana mereka membuat perumpamaan-perumpamaan tentang engkau, maka sesatlah mereka, mereka tidak sanggup (mendapatkan) jalan (untuk menentang kerasulanmu).&#x20;
+Perhatikanlah, bagaimana mereka membuat perumpamaan-perumpamaan tentang engkau, maka sesatlah mereka, mereka tidak sanggup (mendapatkan) jalan (untuk menentang kerasulanmu).
 
 ## 25:10
 
@@ -11479,7 +11479,7 @@ Dan apabila mereka dilemparkan ke tempat yang sempit di neraka dengan dibelenggu
 
 ## 25:14
 
-(Akan dikatakan kepada mereka), “Janganlah kamu mengharapkan pada hari ini satu kebinasaan, melainkan harapkanlah kebinasaan yang berulang-ulang.”&#x20;
+(Akan dikatakan kepada mereka), “Janganlah kamu mengharapkan pada hari ini satu kebinasaan, melainkan harapkanlah kebinasaan yang berulang-ulang.”
 
 ## 25:15
 
@@ -11491,7 +11491,7 @@ Bagi mereka segala yang mereka kehendaki ada di dalamnya (surga), mereka kekal (
 
 ## 25:17
 
-Dan (ingatlah) pada hari (ketika) Allah mengumpulkan mereka bersama apa yang mereka sembah selain Allah, lalu Dia berfirman (kepada yang disembah), “Apakah kamu yang menyesatkan hamba-hamba-Ku itu, atau mereka sendirikah yang sesat dari jalan (yang benar)?”&#x20;
+Dan (ingatlah) pada hari (ketika) Allah mengumpulkan mereka bersama apa yang mereka sembah selain Allah, lalu Dia berfirman (kepada yang disembah), “Apakah kamu yang menyesatkan hamba-hamba-Ku itu, atau mereka sendirikah yang sesat dari jalan (yang benar)?”
 
 ## 25:18
 
@@ -11515,11 +11515,11 @@ Dan orang-orang yang tidak mengharapkan pertemuan dengan Kami (di akhirat) berka
 
 ## 25:23
 
-Dan Kami akan perlihatkan segala amal yang mereka kerjakan, lalu Kami akan jadikan amal itu (bagaikan) debu yang beterbangan.&#x20;
+Dan Kami akan perlihatkan segala amal yang mereka kerjakan, lalu Kami akan jadikan amal itu (bagaikan) debu yang beterbangan.
 
 ## 25:24
 
-Penghuni-penghuni surga pada hari itu paling baik tempat tinggalnya dan paling indah tempat istirahatnya.&#x20;
+Penghuni-penghuni surga pada hari itu paling baik tempat tinggalnya dan paling indah tempat istirahatnya.
 
 ## 25:25
 
@@ -11527,19 +11527,19 @@ Dan (ingatlah) pada hari (ketika) langit pecah mengeluarkan kabut putih dan para
 
 ## 25:26
 
-Kerajaan yang hak pada hari itu adalah milik Tuhan Yang Maha Pengasih. Dan itulah hari yang sulit bagi orang-orang kafir.&#x20;
+Kerajaan yang hak pada hari itu adalah milik Tuhan Yang Maha Pengasih. Dan itulah hari yang sulit bagi orang-orang kafir.
 
 ## 25:27
 
-Dan (ingatlah) pada hari (ketika) orang-orang zalim menggigit dua jarinya, (menyesali perbuatannya) seraya berkata, “Wahai! Sekiranya (dulu) aku mengambil jalan bersama Rasul. &#x20;
+Dan (ingatlah) pada hari (ketika) orang-orang zalim menggigit dua jarinya, (menyesali perbuatannya) seraya berkata, “Wahai! Sekiranya (dulu) aku mengambil jalan bersama Rasul.
 
 ## 25:28
 
-Wahai, celaka aku! Sekiranya (dulu) aku tidak menjadikan si fulan itu teman akrab(ku),&#x20;
+Wahai, celaka aku! Sekiranya (dulu) aku tidak menjadikan si fulan itu teman akrab(ku),
 
 ## 25:29
 
-sungguh, dia telah menyesatkan aku dari peringatan (Al-Qur'an) ketika (Al-Qur'an) itu telah datang kepadaku. Dan setan memang pengkhianat manusia.”&#x20;
+sungguh, dia telah menyesatkan aku dari peringatan (Al-Qur'an) ketika (Al-Qur'an) itu telah datang kepadaku. Dan setan memang pengkhianat manusia.”
 
 ## 25:30
 
@@ -11547,47 +11547,47 @@ Dan Rasul (Muhammad) berkata, “Ya Tuhanku, sesungguhnya kaumku telah menjadika
 
 ## 25:31
 
-Begitulah, bagi setiap nabi, telah Kami adakan musuh dari orang-orang yang berdosa. Tetapi cukuplah Tuhanmu menjadi pemberi petunjuk dan penolong.&#x20;
+Begitulah, bagi setiap nabi, telah Kami adakan musuh dari orang-orang yang berdosa. Tetapi cukuplah Tuhanmu menjadi pemberi petunjuk dan penolong.
 
 ## 25:32
 
-Dan orang-orang kafir berkata, “Mengapa Al-Qur'an itu tidak diturunkan kepadanya sekaligus?” Demikianlah, agar Kami memperteguh hatimu (Muhammad) dengannya dan Kami membacakannya secara tartil (berangsur-angsur, perlahan dan benar).&#x20;
+Dan orang-orang kafir berkata, “Mengapa Al-Qur'an itu tidak diturunkan kepadanya sekaligus?” Demikianlah, agar Kami memperteguh hatimu (Muhammad) dengannya dan Kami membacakannya secara tartil (berangsur-angsur, perlahan dan benar).
 
 ## 25:33
 
-Dan mereka (orang-orang kafir itu) tidak datang kepadamu (membawa) sesuatu yang aneh, melainkan Kami datangkan kepadamu yang benar dan penjelasan yang paling baik.&#x20;
+Dan mereka (orang-orang kafir itu) tidak datang kepadamu (membawa) sesuatu yang aneh, melainkan Kami datangkan kepadamu yang benar dan penjelasan yang paling baik.
 
 ## 25:34
 
-Orang-orang yang dikumpulkan ke neraka Jahanam dengan diseret wajahnya, mereka itulah yang paling buruk tempatnya dan paling sesat jalannya.&#x20;
+Orang-orang yang dikumpulkan ke neraka Jahanam dengan diseret wajahnya, mereka itulah yang paling buruk tempatnya dan paling sesat jalannya.
 
 ## 25:35
 
-Dan sungguh, Kami telah memberikan Kitab (Taurat) kepada Musa dan Kami telah menjadikan Harun saudaranya, menyertai dia sebagai wazir (pembantu).&#x20;
+Dan sungguh, Kami telah memberikan Kitab (Taurat) kepada Musa dan Kami telah menjadikan Harun saudaranya, menyertai dia sebagai wazir (pembantu).
 
 ## 25:36
 
-Kemudian Kami berfirman (kepada keduanya), “Pergilah kamu berdua kepada kaum yang mendustakan ayat-ayat Kami.” Lalu Kami hancurkan mereka dengan sehancur-hancurnya.&#x20;
+Kemudian Kami berfirman (kepada keduanya), “Pergilah kamu berdua kepada kaum yang mendustakan ayat-ayat Kami.” Lalu Kami hancurkan mereka dengan sehancur-hancurnya.
 
 ## 25:37
 
-Dan (telah Kami binasakan) kaum Nuh ketika mereka mendustakan para rasul. Kami tenggelamkam mereka dan Kami jadikan (cerita) mereka itu pelajaran bagi manusia. Dan Kami telah sediakan bagi orang-orang zalim azab yang pedih;&#x20;
+Dan (telah Kami binasakan) kaum Nuh ketika mereka mendustakan para rasul. Kami tenggelamkam mereka dan Kami jadikan (cerita) mereka itu pelajaran bagi manusia. Dan Kami telah sediakan bagi orang-orang zalim azab yang pedih;
 
 ## 25:38
 
-dan (telah Kami binasakan) kaum ‘Ad dan samud dan penduduk Rass serta banyak (lagi) generasi di antara (kaum-kaum) itu.&#x20;
+dan (telah Kami binasakan) kaum ‘Ad dan samud dan penduduk Rass serta banyak (lagi) generasi di antara (kaum-kaum) itu.
 
 ## 25:39
 
-Dan masing-masing telah Kami jadikan perumpamaan dan masing-masing telah Kami hancurkan sehancur-hancurnya. &#x20;
+Dan masing-masing telah Kami jadikan perumpamaan dan masing-masing telah Kami hancurkan sehancur-hancurnya.
 
 ## 25:40
 
-Dan sungguh, mereka (kaum musyrik Mekah) telah melalui negeri (Sodom) yang (dulu) dijatuhi hujan yang buruk (hujan batu). Tidakkah mereka menyaksikannya? Bahkan mereka itu sebenarnya tidak mengharapkan hari kebangkitan.&#x20;
+Dan sungguh, mereka (kaum musyrik Mekah) telah melalui negeri (Sodom) yang (dulu) dijatuhi hujan yang buruk (hujan batu). Tidakkah mereka menyaksikannya? Bahkan mereka itu sebenarnya tidak mengharapkan hari kebangkitan.
 
 ## 25:41
 
-Dan apabila mereka melihat engkau (Muhammad), mereka hanyalah menjadikan engkau sebagai ejekan (dengan mengatakan), “Inikah orangnya yang diutus Allah sebagai Rasul?&#x20;
+Dan apabila mereka melihat engkau (Muhammad), mereka hanyalah menjadikan engkau sebagai ejekan (dengan mengatakan), “Inikah orangnya yang diutus Allah sebagai Rasul?
 
 ## 25:42
 
@@ -11595,7 +11595,7 @@ Sungguh, hampir saja dia menyesatkan kita dari sesembahan kita, seandainya kita 
 
 ## 25:43
 
-Sudahkah engkau (Muhammad) melihat orang yang menjadikan keinginannya sebagai tuhannya. Apakah engkau akan menjadi pelindungnya?&#x20;
+Sudahkah engkau (Muhammad) melihat orang yang menjadikan keinginannya sebagai tuhannya. Apakah engkau akan menjadi pelindungnya?
 
 ## 25:44
 
@@ -11603,23 +11603,23 @@ Atau apakah engkau mengira bahwa kebanyakan mereka itu mendengar atau memahami? 
 
 ## 25:45
 
-Tidakkah engkau memperhatikan (penciptaan) Tuhanmu, bagaimana Dia memanjangkan (dan memendekkan) bayang-bayang; dan sekiranya Dia menghendaki, niscaya Dia jadikannya (bayang-bayang itu) tetap, kemudian Kami jadikan matahari sebagai petunjuk,&#x20;
+Tidakkah engkau memperhatikan (penciptaan) Tuhanmu, bagaimana Dia memanjangkan (dan memendekkan) bayang-bayang; dan sekiranya Dia menghendaki, niscaya Dia jadikannya (bayang-bayang itu) tetap, kemudian Kami jadikan matahari sebagai petunjuk,
 
 ## 25:46
 
-kemudian Kami menariknya (bayang-bayang itu) kepada Kami sedikit demi sedikit.&#x20;
+kemudian Kami menariknya (bayang-bayang itu) kepada Kami sedikit demi sedikit.
 
 ## 25:47
 
-Dan Dialah yang menjadikan malam untukmu (sebagai) pakaian, dan tidur untuk istirahat, dan Dia menjadikan siang untuk bangkit berusaha.&#x20;
+Dan Dialah yang menjadikan malam untukmu (sebagai) pakaian, dan tidur untuk istirahat, dan Dia menjadikan siang untuk bangkit berusaha.
 
 ## 25:48
 
-Dan Dialah yang meniupkan angin (sebagai) pembawa kabar gembira sebelum kedatangan rahmat-Nya (hujan); dan Kami turunkan dari langit air yang sangat bersih,&#x20;
+Dan Dialah yang meniupkan angin (sebagai) pembawa kabar gembira sebelum kedatangan rahmat-Nya (hujan); dan Kami turunkan dari langit air yang sangat bersih,
 
 ## 25:49
 
-agar (dengan air itu) Kami menghidupkan negeri yang mati (tandus), dan Kami memberi minum kepada sebagian apa yang telah Kami ciptakan, (berupa) hewan-hewan ternak dan manusia yang banyak.&#x20;
+agar (dengan air itu) Kami menghidupkan negeri yang mati (tandus), dan Kami memberi minum kepada sebagian apa yang telah Kami ciptakan, (berupa) hewan-hewan ternak dan manusia yang banyak.
 
 ## 25:50
 
@@ -11627,47 +11627,47 @@ Dan sungguh, Kami telah mempergilirkan (hujan) itu di antara mereka agar mereka 
 
 ## 25:51
 
-Dan sekiranya Kami menghendaki, niscaya Kami utus seorang pemberi peringatan pada setiap negeri.&#x20;
+Dan sekiranya Kami menghendaki, niscaya Kami utus seorang pemberi peringatan pada setiap negeri.
 
 ## 25:52
 
-Maka janganlah engkau taati orang-orang kafir, dan berjuanglah terhadap mereka dengannya (Al-Qur'an) dengan (semangat) perjuangan yang besar.&#x20;
+Maka janganlah engkau taati orang-orang kafir, dan berjuanglah terhadap mereka dengannya (Al-Qur'an) dengan (semangat) perjuangan yang besar.
 
 ## 25:53
 
-Dan Dialah yang membiarkan dua laut mengalir (berdampingan); yang ini tawar dan segar dan yang lain sangat asin lagi pahit; dan Dia jadikan antara keduanya dinding dan batas yang tidak tembus.&#x20;
+Dan Dialah yang membiarkan dua laut mengalir (berdampingan); yang ini tawar dan segar dan yang lain sangat asin lagi pahit; dan Dia jadikan antara keduanya dinding dan batas yang tidak tembus.
 
 ## 25:54
 
-Dan Dia (pula) yang menciptakan manusia dari air, lalu Dia jadikan manusia itu (mempunyai) keturunan dan musaharah dan Tuhanmu adalah Mahakuasa.&#x20;
+Dan Dia (pula) yang menciptakan manusia dari air, lalu Dia jadikan manusia itu (mempunyai) keturunan dan musaharah dan Tuhanmu adalah Mahakuasa.
 
 ## 25:55
 
-Dan mereka menyembah selain Allah apa yang tidak memberi manfaat kepada mereka dan tidak (pula) mendatangkan bencana kepada mereka. Orang-orang kafir adalah penolong (setan untuk berbuat durhaka) terhadap Tuhannya.&#x20;
+Dan mereka menyembah selain Allah apa yang tidak memberi manfaat kepada mereka dan tidak (pula) mendatangkan bencana kepada mereka. Orang-orang kafir adalah penolong (setan untuk berbuat durhaka) terhadap Tuhannya.
 
 ## 25:56
 
-Dan tidaklah Kami mengutus engkau (Muhammad) melainkan hanya sebagai pembawa kabar gembira dan pemberi peringatan.&#x20;
+Dan tidaklah Kami mengutus engkau (Muhammad) melainkan hanya sebagai pembawa kabar gembira dan pemberi peringatan.
 
 ## 25:57
 
-Katakanlah, “Aku tidak meminta imbalan apa pun dari kamu dalam menyampaikan (risalah) itu, melainkan (mengharapkan agar) orang-orang mau mengambil jalan kepada Tuhannya.”&#x20;
+Katakanlah, “Aku tidak meminta imbalan apa pun dari kamu dalam menyampaikan (risalah) itu, melainkan (mengharapkan agar) orang-orang mau mengambil jalan kepada Tuhannya.”
 
 ## 25:58
 
-Dan bertawakallah kepada Allah Yang Hidup, Yang tidak mati, dan bertasbihlah dengan memuji-Nya. Dan cukuplah Dia Maha Mengetahui dosa hamba-hamba-Nya,&#x20;
+Dan bertawakallah kepada Allah Yang Hidup, Yang tidak mati, dan bertasbihlah dengan memuji-Nya. Dan cukuplah Dia Maha Mengetahui dosa hamba-hamba-Nya,
 
 ## 25:59
 
-yang menciptakan langit dan bumi dan apa yang ada di antara keduanya dalam enam masa, kemudian Dia bersemayam di atas ‘Arsy, (Dialah) Yang Maha Pengasih, maka tanyakanlah (tentang Allah) kepada orang yang lebih mengetahui (Muhammad).&#x20;
+yang menciptakan langit dan bumi dan apa yang ada di antara keduanya dalam enam masa, kemudian Dia bersemayam di atas ‘Arsy, (Dialah) Yang Maha Pengasih, maka tanyakanlah (tentang Allah) kepada orang yang lebih mengetahui (Muhammad).
 
 ## 25:60
 
-Dan apabila dikatakan kepada mereka, “Sujudlah kepada Yang Maha Pengasih”, mereka menjawab, “Siapakah yang Maha Pengasih itu? Apakah kami harus sujud kepada Allah yang engkau (Muhammad) perintahkan kepada kami (bersujud kepada-Nya)?” Dan mereka makin jauh lari (dari kebenaran).&#x20;
+Dan apabila dikatakan kepada mereka, “Sujudlah kepada Yang Maha Pengasih”, mereka menjawab, “Siapakah yang Maha Pengasih itu? Apakah kami harus sujud kepada Allah yang engkau (Muhammad) perintahkan kepada kami (bersujud kepada-Nya)?” Dan mereka makin jauh lari (dari kebenaran).
 
 ## 25:61
 
-Mahasuci Allah yang menjadikan di langit gugusan bintang-bintang dan Dia juga menjadikan padanya matahari dan bulan yang bersinar.&#x20;
+Mahasuci Allah yang menjadikan di langit gugusan bintang-bintang dan Dia juga menjadikan padanya matahari dan bulan yang bersinar.
 
 ## 25:62
 
@@ -11675,11 +11675,11 @@ Dan Dia (pula) yang menjadikan malam dan siang silih berganti bagi orang yang in
 
 ## 25:63
 
-Adapun hamba-hamba Tuhan Yang Maha Pengasih itu adalah orang-orang yang berjalan di bumi dengan rendah hati dan apabila orang-orang bodoh menyapa mereka (dengan kata-kata yang menghina), mereka mengucapkan “salam,”&#x20;
+Adapun hamba-hamba Tuhan Yang Maha Pengasih itu adalah orang-orang yang berjalan di bumi dengan rendah hati dan apabila orang-orang bodoh menyapa mereka (dengan kata-kata yang menghina), mereka mengucapkan “salam,”
 
 ## 25:64
 
-dan orang-orang yang menghabiskan waktu malam untuk beribadah kepada Tuhan mereka dengan bersujud dan berdiri.&#x20;
+dan orang-orang yang menghabiskan waktu malam untuk beribadah kepada Tuhan mereka dengan bersujud dan berdiri.
 
 ## 25:65
 
@@ -11699,7 +11699,7 @@ dan orang-orang yang tidak mempersekutukan Allah dengan sembahan lain dan tidak 
 
 ## 25:69
 
-(yakni) akan dilipatgandakan azab untuknya pada hari Kiamat dan dia akan kekal dalam azab itu, dalam keadaan terhina,&#x20;
+(yakni) akan dilipatgandakan azab untuknya pada hari Kiamat dan dia akan kekal dalam azab itu, dalam keadaan terhina,
 
 ## 25:70
 
@@ -11839,7 +11839,7 @@ Dia (Musa) berkata, “(Dia) Tuhanmu dan juga Tuhan nenek moyangmu terdahulu.”
 
 ## 26:27
 
-Dia (Fir‘aun) berkata, “Sungguh, Rasulmu yang diutus kepada kamu benar-benar orang gila.”&#x20;
+Dia (Fir‘aun) berkata, “Sungguh, Rasulmu yang diutus kepada kamu benar-benar orang gila.”
 
 ## 26:28
 
@@ -11879,11 +11879,11 @@ Mereka menjawab, “Tahanlah (untuk sementara) dia dan saudaranya, dan utuslah k
 
 ## 26:37
 
-niscaya mereka akan mendatangkan semua pesihir yang pandai kepadamu.”&#x20;
+niscaya mereka akan mendatangkan semua pesihir yang pandai kepadamu.”
 
 ## 26:38
 
-Lalu dikumpulkanlah para pesihir pada waktu (yang ditetapkan) pada hari yang telah ditentukan,&#x20;
+Lalu dikumpulkanlah para pesihir pada waktu (yang ditetapkan) pada hari yang telah ditentukan,
 
 ## 26:39
 
@@ -11963,7 +11963,7 @@ Kemudian, Kami keluarkan mereka (Fir‘aun dan kaumnya) dari taman-taman dan mat
 
 ## 26:58
 
-dan (dari) harta kekayaan dan kedudukan yang mulia,&#x20;
+dan (dari) harta kekayaan dan kedudukan yang mulia,
 
 ## 26:59
 
@@ -11987,7 +11987,7 @@ Lalu Kami wahyukan kepada Musa, “Pukullah laut itu dengan tongkatmu.” Maka t
 
 ## 26:64
 
-Dan di sanalah Kami dekatkan golongan yang lain.&#x20;
+Dan di sanalah Kami dekatkan golongan yang lain.
 
 ## 26:65
 
@@ -12051,7 +12051,7 @@ dan Yang memberi makan dan minum kepadaku;
 
 ## 26:80
 
-dan apabila aku sakit, Dialah yang menyembuhkan aku,&#x20;
+dan apabila aku sakit, Dialah yang menyembuhkan aku,
 
 ## 26:81
 
@@ -12203,7 +12203,7 @@ Dia (Nuh) berkata, “Ya Tuhanku, sungguh kaumku telah mendustakan aku;
 
 ## 26:118
 
-maka berilah keputusan antara aku dengan mereka, dan selamatkanlah aku dan mereka yang beriman bersamaku.”&#x20;
+maka berilah keputusan antara aku dengan mereka, dan selamatkanlah aku dan mereka yang beriman bersamaku.”
 
 ## 26:119
 
@@ -12243,7 +12243,7 @@ Dan aku tidak meminta imbalan kepadamu atas ajakan itu; imbalanku hanyalah dari 
 
 ## 26:128
 
-Apakah kamu mendirikan istana-istana pada setiap tanah yang tinggi untuk kemegahan tanpa ditempati,&#x20;
+Apakah kamu mendirikan istana-istana pada setiap tanah yang tinggi untuk kemegahan tanpa ditempati,
 
 ## 26:129
 
@@ -12271,7 +12271,7 @@ dan kebun-kebun, dan mata air,
 
 ## 26:135
 
-sesungguhnya aku takut kamu akan ditimpa azab pada hari yang besar.”&#x20;
+sesungguhnya aku takut kamu akan ditimpa azab pada hari yang besar.”
 
 ## 26:136
 
@@ -12395,7 +12395,7 @@ Mengapa kamu mendatangi jenis laki-laki di antara manusia (berbuat homoseks),
 
 ## 26:166
 
-dan kamu tinggalkan (perempuan) yang diciptakan Tuhan untuk menjadi istri-istri kamu? Kamu (memang) orang-orang yang melampaui batas.”&#x20;
+dan kamu tinggalkan (perempuan) yang diciptakan Tuhan untuk menjadi istri-istri kamu? Kamu (memang) orang-orang yang melampaui batas.”
 
 ## 26:167
 
@@ -12503,7 +12503,7 @@ Dan sungguh, (Al-Qur'an) ini benar-benar diturunkan oleh Tuhan seluruh alam,
 
 ## 26:193
 
-Yang dibawa turun oleh ar-Ruh al-Amin (Jibril),&#x20;
+Yang dibawa turun oleh ar-Ruh al-Amin (Jibril),
 
 ## 26:194
 
@@ -12543,7 +12543,7 @@ maka datang azab kepada mereka secara mendadak, ketika mereka tidak menyadarinya
 
 ## 26:203
 
-lalu mereka berkata, “Apakah kami diberi penangguhan waktu?”&#x20;
+lalu mereka berkata, “Apakah kami diberi penangguhan waktu?”
 
 ## 26:204
 
@@ -12567,7 +12567,7 @@ Dan Kami tidak membinasakan sesuatu negeri, kecuali setelah ada orang-orang yang
 
 ## 26:209
 
-untuk (menjadi) peringatan. Dan Kami tidak berlaku zalim.&#x20;
+untuk (menjadi) peringatan. Dan Kami tidak berlaku zalim.
 
 ## 26:210
 
@@ -12783,7 +12783,7 @@ Dan sungguh, aku akan mengirim utusan kepada mereka dengan (membawa) hadiah, dan
 
 ## 27:36
 
-Maka ketika para (utusan itu) sampai kepada Sulaiman, dia (Sulaiman) berkata, “Apakah kamu akan memberi harta kepadaku? Apa yang Allah berikan kepadaku lebih baik daripada apa yang Allah berikan kepadamu; tetapi kamu merasa bangga dengan hadiahmu.&#x20;
+Maka ketika para (utusan itu) sampai kepada Sulaiman, dia (Sulaiman) berkata, “Apakah kamu akan memberi harta kepadaku? Apa yang Allah berikan kepadaku lebih baik daripada apa yang Allah berikan kepadamu; tetapi kamu merasa bangga dengan hadiahmu.
 
 ## 27:37
 
@@ -12871,7 +12871,7 @@ Maka Kami selamatkan dia dan keluarganya, kecuali istrinya. Kami telah menentuka
 
 ## 27:58
 
-Dan Kami hujani mereka dengan hujan (batu), maka sangat buruklah hujan (yang ditimpakan) pada orang-orang yang diberi peringatan itu (tetapi tidak mengindahkan).&#x20;
+Dan Kami hujani mereka dengan hujan (batu), maka sangat buruklah hujan (yang ditimpakan) pada orang-orang yang diberi peringatan itu (tetapi tidak mengindahkan).
 
 ## 27:59
 
@@ -12891,7 +12891,7 @@ Bukankah Dia (Allah) yang memperkenankan (doa) orang yang dalam kesulitan apabil
 
 ## 27:63
 
-Bukankah Dia (Allah) yang memberi petunjuk kepada kamu dalam kegelapan di daratan dan lautan dan yang mendatangkan angin sebagai kabar gembira sebelum (kedatangan) rahmat-Nya? Apakah di samping Allah ada tuhan (yang lain)? Mahatinggi Allah terhadap apa yang mereka persekutukan.&#x20;
+Bukankah Dia (Allah) yang memberi petunjuk kepada kamu dalam kegelapan di daratan dan lautan dan yang mendatangkan angin sebagai kabar gembira sebelum (kedatangan) rahmat-Nya? Apakah di samping Allah ada tuhan (yang lain)? Mahatinggi Allah terhadap apa yang mereka persekutukan.
 
 ## 27:64
 
@@ -12915,7 +12915,7 @@ Sejak dahulu kami telah diberi ancaman dengan ini (hari kebangkitan); kami dan n
 
 ## 27:69
 
-Katakanlah (Muhammad), “Berjalanlah kamu di bumi, lalu perhatikanlah bagaimana kesudahan orang-orang yang berdosa.&#x20;
+Katakanlah (Muhammad), “Berjalanlah kamu di bumi, lalu perhatikanlah bagaimana kesudahan orang-orang yang berdosa.
 
 ## 27:70
 
@@ -12967,7 +12967,7 @@ Dan engkau tidak akan dapat memberi petunjuk orang buta dari kesesatannya. Engka
 
 ## 27:82
 
-Dan apabila perkataan (ketentuan masa kehancuran alam) telah berlaku atas mereka, Kami keluarkan makhluk bergerak yang bernyawa dari bumi yang akan mengatakan kepada mereka bahwa manusia dahulu tidak yakin kepada ayat-ayat Kami.&#x20;
+Dan apabila perkataan (ketentuan masa kehancuran alam) telah berlaku atas mereka, Kami keluarkan makhluk bergerak yang bernyawa dari bumi yang akan mengatakan kepada mereka bahwa manusia dahulu tidak yakin kepada ayat-ayat Kami.
 
 ## 27:83
 
@@ -13139,31 +13139,31 @@ Dan lemparkanlah tongkatmu.” Maka ketika dia (Musa) melihatnya bergerak-gerak 
 
 ## 28:32
 
-Masukkanlah tanganmu ke leher bajumu, dia akan keluar putih (bercahaya) tanpa cacat, dan dekapkanlah kedua tanganmu ke dadamu apabila ketakutan. Itulah dua mukjizat dari Tuhanmu (yang akan engkau pertunjukkan) kepada Fir‘aun dan para pembesarnya. Sungguh, mereka adalah orang-orang fasik.”   &#x20;
+Masukkanlah tanganmu ke leher bajumu, dia akan keluar putih (bercahaya) tanpa cacat, dan dekapkanlah kedua tanganmu ke dadamu apabila ketakutan. Itulah dua mukjizat dari Tuhanmu (yang akan engkau pertunjukkan) kepada Fir‘aun dan para pembesarnya. Sungguh, mereka adalah orang-orang fasik.”
 
 ## 28:33
 
-Dia (Musa) berkata, “Ya Tuhanku, sungguh aku telah membunuh seorang dari golongan mereka, sehingga aku takut mereka akan membunuhku.&#x20;
+Dia (Musa) berkata, “Ya Tuhanku, sungguh aku telah membunuh seorang dari golongan mereka, sehingga aku takut mereka akan membunuhku.
 
 ## 28:34
 
-Dan saudaraku Harun, dia lebih fasih lidahnya daripada aku, maka utuslah dia bersamaku sebagai pembantuku untuk membenarkan (perkataan)ku; sungguh, aku takut mereka akan mendustakanku.”&#x20;
+Dan saudaraku Harun, dia lebih fasih lidahnya daripada aku, maka utuslah dia bersamaku sebagai pembantuku untuk membenarkan (perkataan)ku; sungguh, aku takut mereka akan mendustakanku.”
 
 ## 28:35
 
-Dia (Allah) berfirman, “Kami akan menguatkan engkau (membantumu) dengan saudaramu, dan Kami berikan kepadamu berdua kekuasaan yang besar, maka mereka tidak akan dapat mencapaimu; (berangkatlah kamu berdua) dengan membawa mukjizat Kami, kamu berdua dan orang yang mengikuti kamu yang akan menang.”&#x20;
+Dia (Allah) berfirman, “Kami akan menguatkan engkau (membantumu) dengan saudaramu, dan Kami berikan kepadamu berdua kekuasaan yang besar, maka mereka tidak akan dapat mencapaimu; (berangkatlah kamu berdua) dengan membawa mukjizat Kami, kamu berdua dan orang yang mengikuti kamu yang akan menang.”
 
 ## 28:36
 
-Maka ketika Musa datang kepada mereka dengan (membawa) mukjizat Kami yang nyata, mereka berkata, “Ini hanyalah sihir yang dibuat-buat, dan kami tidak pernah mendengar (yang seperti) ini pada nenek moyang kami dahulu.”&#x20;
+Maka ketika Musa datang kepada mereka dengan (membawa) mukjizat Kami yang nyata, mereka berkata, “Ini hanyalah sihir yang dibuat-buat, dan kami tidak pernah mendengar (yang seperti) ini pada nenek moyang kami dahulu.”
 
 ## 28:37
 
-Dan dia (Musa) menjawab, “Tuhanku lebih mengetahui siapa yang (pantas) membawa petunjuk dari sisi-Nya dan siapa yang akan mendapat kesudahan (yang baik) di akhirat. Sesungguhnya orang-orang yang zalim tidak akan mendapat kemenangan.”&#x20;
+Dan dia (Musa) menjawab, “Tuhanku lebih mengetahui siapa yang (pantas) membawa petunjuk dari sisi-Nya dan siapa yang akan mendapat kesudahan (yang baik) di akhirat. Sesungguhnya orang-orang yang zalim tidak akan mendapat kemenangan.”
 
 ## 28:38
 
-Dan Fir‘aun berkata, “Wahai para pembesar kaumku! Aku tidak mengetahui ada Tuhan bagimu selain aku. Maka bakarlah tanah liat untukku wahai Haman (untuk membuat batu bata), kemudian buatkanlah bangunan yang tinggi untukku agar aku dapat naik melihat Tuhannya Musa, dan aku yakin bahwa dia termasuk pendusta.”&#x20;
+Dan Fir‘aun berkata, “Wahai para pembesar kaumku! Aku tidak mengetahui ada Tuhan bagimu selain aku. Maka bakarlah tanah liat untukku wahai Haman (untuk membuat batu bata), kemudian buatkanlah bangunan yang tinggi untukku agar aku dapat naik melihat Tuhannya Musa, dan aku yakin bahwa dia termasuk pendusta.”
 
 ## 28:39
 
@@ -13243,11 +13243,11 @@ Dan mereka berkata, “Jika kami mengikuti petunjuk bersama engkau, niscaya kami
 
 ## 28:58
 
-Dan betapa banyak (penduduk) negeri yang sudah bersenang-senang dalam kehidupannya yang telah Kami binasakan, maka itulah tempat kediaman mereka yang tidak didiami (lagi) setelah mereka, kecuali sebagian kecil. Dan Kamilah yang mewarisinya.”&#x20;
+Dan betapa banyak (penduduk) negeri yang sudah bersenang-senang dalam kehidupannya yang telah Kami binasakan, maka itulah tempat kediaman mereka yang tidak didiami (lagi) setelah mereka, kecuali sebagian kecil. Dan Kamilah yang mewarisinya.”
 
 ## 28:59
 
-Dan Tuhanmu tidak akan membinasakan negeri-negeri, sebelum Dia mengutus seorang rasul di ibukotanya yang membacakan ayat-ayat Kami kepada mereka; dan tidak pernah (pula) Kami membinasakan (penduduk) negeri; kecuali penduduknya melakukan kezaliman.&#x20;
+Dan Tuhanmu tidak akan membinasakan negeri-negeri, sebelum Dia mengutus seorang rasul di ibukotanya yang membacakan ayat-ayat Kami kepada mereka; dan tidak pernah (pula) Kami membinasakan (penduduk) negeri; kecuali penduduknya melakukan kezaliman.
 
 ## 28:60
 
@@ -13263,11 +13263,11 @@ Dan (ingatlah) pada hari ketika Dia (Allah) menyeru mereka dan berfirman, “Di 
 
 ## 28:63
 
-Orang-orang yang sudah pasti akan mendapatkan hukuman berkata, “Ya Tuhan kami, mereka inilah orang-orang yang kami sesatkan itu; kami telah menyesatkan mereka sebagaimana kami (sendiri) sesat, kami menyatakan kepada Engkau berlepas diri (dari mereka), mereka sekali-kali tidak menyembah kami.”&#x20;
+Orang-orang yang sudah pasti akan mendapatkan hukuman berkata, “Ya Tuhan kami, mereka inilah orang-orang yang kami sesatkan itu; kami telah menyesatkan mereka sebagaimana kami (sendiri) sesat, kami menyatakan kepada Engkau berlepas diri (dari mereka), mereka sekali-kali tidak menyembah kami.”
 
 ## 28:64
 
-Dan dikatakan (kepada mereka), “Serulah sekutu-sekutumu,” lalu mereka menyerunya, tetapi yang diseru tidak menyambutnya, dan mereka melihat azab. (Mereka itu berkeinginan) sekiranya mereka dahulu menerima petunjuk.&#x20;
+Dan dikatakan (kepada mereka), “Serulah sekutu-sekutumu,” lalu mereka menyerunya, tetapi yang diseru tidak menyambutnya, dan mereka melihat azab. (Mereka itu berkeinginan) sekiranya mereka dahulu menerima petunjuk.
 
 ## 28:65
 
@@ -13275,11 +13275,11 @@ Dan (ingatlah) pada hari ketika Dia (Allah) menyeru mereka, dan berfirman, “Ap
 
 ## 28:66
 
-Maka gelaplah bagi mereka segala macam alasan pada hari itu, karena itu mereka tidak saling bertanya.&#x20;
+Maka gelaplah bagi mereka segala macam alasan pada hari itu, karena itu mereka tidak saling bertanya.
 
 ## 28:67
 
-Maka adapun orang yang bertobat dan beriman, serta mengerjakan kebajikan, maka mudah-mudahan dia termasuk orang yang beruntung.&#x20;
+Maka adapun orang yang bertobat dan beriman, serta mengerjakan kebajikan, maka mudah-mudahan dia termasuk orang yang beruntung.
 
 ## 28:68
 
@@ -13287,7 +13287,7 @@ Dan Tuhanmu menciptakan dan memilih apa yang Dia kehendaki. Bagi mereka (manusia
 
 ## 28:69
 
-Dan Tuhanmu mengetahui apa yang disembunyikan dalam dada mereka dan apa yang mereka nyatakan.&#x20;
+Dan Tuhanmu mengetahui apa yang disembunyikan dalam dada mereka dan apa yang mereka nyatakan.
 
 ## 28:70
 
@@ -13379,7 +13379,7 @@ Dan sungguh, Kami telah menguji orang-orang sebelum mereka, maka Allah pasti men
 
 ## 29:4
 
-Ataukah orang-orang yang mengerjakan kejahatan itu mengira bahwa mereka akan luput dari (azab) Kami? Sangatlah buruk apa yang mereka tetapkan itu!&#x20;
+Ataukah orang-orang yang mengerjakan kejahatan itu mengira bahwa mereka akan luput dari (azab) Kami? Sangatlah buruk apa yang mereka tetapkan itu!
 
 ## 29:5
 
@@ -13471,43 +13471,43 @@ Maka Lut membenarkan (kenabian Ibrahim). Dan dia (Ibrahim) berkata, “Sesungguh
 
 ## 29:27
 
-Dan Kami anugerahkan kepada Ibrahim, Ishak dan Yakub, dan Kami jadikan kenabian dan kitab kepada keturunannya, dan Kami berikan kepadanya balasannya di dunia; dan sesungguhnya dia di akhirat, termasuk orang yang saleh.&#x20;
+Dan Kami anugerahkan kepada Ibrahim, Ishak dan Yakub, dan Kami jadikan kenabian dan kitab kepada keturunannya, dan Kami berikan kepadanya balasannya di dunia; dan sesungguhnya dia di akhirat, termasuk orang yang saleh.
 
 ## 29:28
 
-Dan (ingatlah) ketika Lut berkata kepada kaumnya, “Kamu benar-benar melakukan perbuatan yang sangat keji (homoseksual) yang belum pernah dilakukan oleh seorang pun dari umat-umat sebelum kamu.&#x20;
+Dan (ingatlah) ketika Lut berkata kepada kaumnya, “Kamu benar-benar melakukan perbuatan yang sangat keji (homoseksual) yang belum pernah dilakukan oleh seorang pun dari umat-umat sebelum kamu.
 
 ## 29:29
 
-Apakah pantas kamu mendatangi laki-laki, menyamun dan mengerjakan kemungkaran di tempat-tempat pertemuanmu?” Maka jawaban kaumnya tidak lain hanya mengatakan, “Datangkanlah kepada kami azab Allah, jika engkau termasuk orang-orang yang benar.”&#x20;
+Apakah pantas kamu mendatangi laki-laki, menyamun dan mengerjakan kemungkaran di tempat-tempat pertemuanmu?” Maka jawaban kaumnya tidak lain hanya mengatakan, “Datangkanlah kepada kami azab Allah, jika engkau termasuk orang-orang yang benar.”
 
 ## 29:30
 
-Dia (Lut) berdoa, “Ya Tuhanku, tolonglah aku (dengan menimpakan azab) atas golongan yang berbuat kerusakan itu.”&#x20;
+Dia (Lut) berdoa, “Ya Tuhanku, tolonglah aku (dengan menimpakan azab) atas golongan yang berbuat kerusakan itu.”
 
 ## 29:31
 
-Dan ketika utusan Kami (para malaikat) datang kepada Ibrahim dengan membawa kabar gembira, mereka mengatakan, “Sungguh, kami akan membinasakan penduduk kota (Sodom) ini karena penduduknya sungguh orang-orang zalim.”&#x20;
+Dan ketika utusan Kami (para malaikat) datang kepada Ibrahim dengan membawa kabar gembira, mereka mengatakan, “Sungguh, kami akan membinasakan penduduk kota (Sodom) ini karena penduduknya sungguh orang-orang zalim.”
 
 ## 29:32
 
-Ibrahim berkata, “Sesungguhnya di kota itu ada Lut.” Mereka (para malaikat) berkata, “Kami lebih mengetahui siapa yang ada di kota itu. Kami pasti akan menyelamatkan dia dan pengikut-pengikutnya kecuali istrinya. Dia termasuk orang-orang yang tertinggal (dibinasakan).”&#x20;
+Ibrahim berkata, “Sesungguhnya di kota itu ada Lut.” Mereka (para malaikat) berkata, “Kami lebih mengetahui siapa yang ada di kota itu. Kami pasti akan menyelamatkan dia dan pengikut-pengikutnya kecuali istrinya. Dia termasuk orang-orang yang tertinggal (dibinasakan).”
 
 ## 29:33
 
-Dan ketika para utusan Kami (para malaikat) datang kepada Lut, dia merasa bersedih hati karena (kedatangan) mereka, dan (merasa) tidak mempunyai kekuatan untuk melindungi mereka, dan mereka (para utusan) berkata, “Janganlah engkau takut dan jangan (pula) bersedih hati. Sesungguhnya Kami akan menyelamatkanmu dan pengikut-pengikutmu, kecuali istrimu, dia termasuk orang-orang yang tinggal (dibinasakan).”&#x20;
+Dan ketika para utusan Kami (para malaikat) datang kepada Lut, dia merasa bersedih hati karena (kedatangan) mereka, dan (merasa) tidak mempunyai kekuatan untuk melindungi mereka, dan mereka (para utusan) berkata, “Janganlah engkau takut dan jangan (pula) bersedih hati. Sesungguhnya Kami akan menyelamatkanmu dan pengikut-pengikutmu, kecuali istrimu, dia termasuk orang-orang yang tinggal (dibinasakan).”
 
 ## 29:34
 
-Sesungguhnya Kami akan menurunkan azab dari langit kepada penduduk kota ini karena mereka berbuat fasik.&#x20;
+Sesungguhnya Kami akan menurunkan azab dari langit kepada penduduk kota ini karena mereka berbuat fasik.
 
 ## 29:35
 
-Dan sungguh, tentang itu telah Kami tinggalkan suatu tanda yang nyata bagi orang-orang yang mengerti.&#x20;
+Dan sungguh, tentang itu telah Kami tinggalkan suatu tanda yang nyata bagi orang-orang yang mengerti.
 
 ## 29:36
 
-Dan kepada penduduk Madyan, (Kami telah mengutus) saudara mereka Syuaib, dia berkata, “Wahai kaumku! Sembahlah Allah, harapkanlah (pahala) hari akhir, dan jangan kamu berkeliaran di bumi berbuat kerusakan.”&#x20;
+Dan kepada penduduk Madyan, (Kami telah mengutus) saudara mereka Syuaib, dia berkata, “Wahai kaumku! Sembahlah Allah, harapkanlah (pahala) hari akhir, dan jangan kamu berkeliaran di bumi berbuat kerusakan.”
 
 ## 29:37
 
@@ -13515,35 +13515,35 @@ Mereka mendustakannya (Syuaib), maka mereka ditimpa gempa yang dahsyat, lalu jad
 
 ## 29:38
 
-Juga (ingatlah) kaum ’Ad dan Samud, sungguh telah nyata bagi kamu (kehancuran mereka) dari (puing-puing) tempat tinggal mereka. Setan telah menjadikan terasa indah bagi mereka perbuatan (buruk) mereka, sehingga menghalangi mereka dari jalan (Allah), sedangkan mereka adalah orang-orang yang berpandangan tajam,&#x20;
+Juga (ingatlah) kaum ’Ad dan Samud, sungguh telah nyata bagi kamu (kehancuran mereka) dari (puing-puing) tempat tinggal mereka. Setan telah menjadikan terasa indah bagi mereka perbuatan (buruk) mereka, sehingga menghalangi mereka dari jalan (Allah), sedangkan mereka adalah orang-orang yang berpandangan tajam,
 
 ## 29:39
 
-dan (juga) Karun, Fir‘aun dan Haman. Sungguh, telah datang kepada mereka Musa dengan (membawa) keterangan-keterangan yang nyata. Tetapi mereka berlaku sombong di bumi, dan mereka orang-orang yang tidak luput (dari azab Allah).&#x20;
+dan (juga) Karun, Fir‘aun dan Haman. Sungguh, telah datang kepada mereka Musa dengan (membawa) keterangan-keterangan yang nyata. Tetapi mereka berlaku sombong di bumi, dan mereka orang-orang yang tidak luput (dari azab Allah).
 
 ## 29:40
 
-Maka masing-masing (mereka itu) Kami azab karena dosa-dosanya, di antara mereka ada yang Kami timpakan kepadanya hujan batu kerikil, ada yang ditimpa suara keras yang mengguntur, ada yang Kami benamkan ke dalam bumi, dan ada pula yang Kami tenggelamkan. Allah sama sekali tidak hendak menzalimi mereka, akan tetapi merekalah yang menzalimi diri mereka sendiri.&#x20;
+Maka masing-masing (mereka itu) Kami azab karena dosa-dosanya, di antara mereka ada yang Kami timpakan kepadanya hujan batu kerikil, ada yang ditimpa suara keras yang mengguntur, ada yang Kami benamkan ke dalam bumi, dan ada pula yang Kami tenggelamkan. Allah sama sekali tidak hendak menzalimi mereka, akan tetapi merekalah yang menzalimi diri mereka sendiri.
 
 ## 29:41
 
-Perumpamaan orang-orang yang mengambil pelindung selain Allah adalah seperti laba-laba yang membuat rumah. Dan sesungguhnya rumah yang paling lemah ialah rumah laba-laba, sekiranya mereka mengetahui.&#x20;
+Perumpamaan orang-orang yang mengambil pelindung selain Allah adalah seperti laba-laba yang membuat rumah. Dan sesungguhnya rumah yang paling lemah ialah rumah laba-laba, sekiranya mereka mengetahui.
 
 ## 29:42
 
-Sungguh, Allah mengetahui apa saja yang mereka sembah selain Dia. Dan Dia Mahaperkasa, Mahabijaksana.&#x20;
+Sungguh, Allah mengetahui apa saja yang mereka sembah selain Dia. Dan Dia Mahaperkasa, Mahabijaksana.
 
 ## 29:43
 
-Dan perumpamaan-perumpamaan ini Kami buat untuk manusia; dan tidak ada yang akan memahaminya kecuali mereka yang berilmu.&#x20;
+Dan perumpamaan-perumpamaan ini Kami buat untuk manusia; dan tidak ada yang akan memahaminya kecuali mereka yang berilmu.
 
 ## 29:44
 
-Allah menciptakan langit dan bumi dengan haq. Sungguh, pada yang demikian itu pasti terdapat tanda-tanda (kebesaran Allah) bagi orang-orang yang beriman.&#x20;
+Allah menciptakan langit dan bumi dengan haq. Sungguh, pada yang demikian itu pasti terdapat tanda-tanda (kebesaran Allah) bagi orang-orang yang beriman.
 
 ## 29:45
 
-Bacalah Kitab (Al-Qur'an) yang telah diwahyukan kepadamu (Muhammad) dan laksanakanlah salat. Sesungguhnya salat itu mencegah dari (perbuatan) keji dan mungkar. Dan (ketahuilah) mengingat Allah (salat) itu lebih besar (keutamaannya dari ibadah yang lain). Allah mengetahui apa yang kamu kerjakan.&#x20;
+Bacalah Kitab (Al-Qur'an) yang telah diwahyukan kepadamu (Muhammad) dan laksanakanlah salat. Sesungguhnya salat itu mencegah dari (perbuatan) keji dan mungkar. Dan (ketahuilah) mengingat Allah (salat) itu lebih besar (keutamaannya dari ibadah yang lain). Allah mengetahui apa yang kamu kerjakan.
 
 ## 29:46
 
@@ -13551,35 +13551,35 @@ Dan janganlah kamu berdebat dengan Ahli Kitab, melainkan dengan cara yang baik, 
 
 ## 29:47
 
-Dan demikianlah Kami turunkan Kitab (Al-Qur'an) kepadamu. Adapun orang-orang yang telah Kami berikan Kitab (Taurat dan Injil) mereka beriman kepadanya (Al-Qur'an), dan di antara mereka (orang-orang kafir Mekah) ada yang beriman kepadanya. Dan hanya orang-orang kafir yang mengingkari ayat-ayat Kami.&#x20;
+Dan demikianlah Kami turunkan Kitab (Al-Qur'an) kepadamu. Adapun orang-orang yang telah Kami berikan Kitab (Taurat dan Injil) mereka beriman kepadanya (Al-Qur'an), dan di antara mereka (orang-orang kafir Mekah) ada yang beriman kepadanya. Dan hanya orang-orang kafir yang mengingkari ayat-ayat Kami.
 
 ## 29:48
 
-Dan engkau (Muhammad) tidak pernah membaca sesuatu kitab sebelum (Al-Qur'an) dan engkau tidak (pernah) menulis suatu kitab dengan tangan kananmu; sekiranya (engkau pernah membaca dan menulis), niscaya ragu orang-orang yang mengingkarinya.&#x20;
+Dan engkau (Muhammad) tidak pernah membaca sesuatu kitab sebelum (Al-Qur'an) dan engkau tidak (pernah) menulis suatu kitab dengan tangan kananmu; sekiranya (engkau pernah membaca dan menulis), niscaya ragu orang-orang yang mengingkarinya.
 
 ## 29:49
 
-Sebenarnya, (Al-Qur'an) itu adalah ayat-ayat yang jelas di dalam dada orang-orang yang berilmu. Hanya orang-orang yang zalim yang mengingkari ayat-ayat Kami.&#x20;
+Sebenarnya, (Al-Qur'an) itu adalah ayat-ayat yang jelas di dalam dada orang-orang yang berilmu. Hanya orang-orang yang zalim yang mengingkari ayat-ayat Kami.
 
 ## 29:50
 
-Dan mereka (orang-orang kafir Mekah) berkata, ”Mengapa tidak diturunkan mukjizat-mukjizat dari Tuhannya?” Katakanlah (Muhammad), ”Mukjizat-mukjizat itu terserah kepada Allah. Aku hanya seorang pemberi peringatan yang jelas.”&#x20;
+Dan mereka (orang-orang kafir Mekah) berkata, ”Mengapa tidak diturunkan mukjizat-mukjizat dari Tuhannya?” Katakanlah (Muhammad), ”Mukjizat-mukjizat itu terserah kepada Allah. Aku hanya seorang pemberi peringatan yang jelas.”
 
 ## 29:51
 
-Apakah tidak cukup bagi mereka bahwa Kami telah menurunkan kepadamu Kitab (Al-Qur'an) yang dibacakan kepada mereka? Sungguh, dalam (Al-Qur'an) itu terdapat rahmat yang besar dan pelajaran bagi orang-orang yang beriman.&#x20;
+Apakah tidak cukup bagi mereka bahwa Kami telah menurunkan kepadamu Kitab (Al-Qur'an) yang dibacakan kepada mereka? Sungguh, dalam (Al-Qur'an) itu terdapat rahmat yang besar dan pelajaran bagi orang-orang yang beriman.
 
 ## 29:52
 
-Katakanlah (Muhammad), ”Cukuplah Allah menjadi saksi antara aku dan kamu. Dia mengetahui apa yang di langit dan di bumi. Dan orang yang percaya kepada yang batil dan ingkar kepada Allah, mereka itulah orang-orang yang rugi.”&#x20;
+Katakanlah (Muhammad), ”Cukuplah Allah menjadi saksi antara aku dan kamu. Dia mengetahui apa yang di langit dan di bumi. Dan orang yang percaya kepada yang batil dan ingkar kepada Allah, mereka itulah orang-orang yang rugi.”
 
 ## 29:53
 
-Dan mereka meminta kepadamu agar segera diturunkan azab. Kalau bukan karena waktunya yang telah ditetapkan, niscaya datang azab kepada mereka, dan (azab itu) pasti akan datang kepada mereka dengan tiba-tiba, sedang mereka tidak menyadarinya.&#x20;
+Dan mereka meminta kepadamu agar segera diturunkan azab. Kalau bukan karena waktunya yang telah ditetapkan, niscaya datang azab kepada mereka, dan (azab itu) pasti akan datang kepada mereka dengan tiba-tiba, sedang mereka tidak menyadarinya.
 
 ## 29:54
 
-Mereka meminta kepadamu agar segera diturunkan azab. Dan sesungguhnya neraka Jahanam itu pasti meliputi orang-orang kafir,&#x20;
+Mereka meminta kepadamu agar segera diturunkan azab. Dan sesungguhnya neraka Jahanam itu pasti meliputi orang-orang kafir,
 
 ## 29:55
 
@@ -13587,55 +13587,55 @@ pada hari (ketika) azab menutup mereka dari atas dan dari bawah kaki mereka dan 
 
 ## 29:56
 
-Wahai hamba-hamba-Ku yang beriman! Sungguh, bumi-Ku luas, maka sembahlah Aku (saja).&#x20;
+Wahai hamba-hamba-Ku yang beriman! Sungguh, bumi-Ku luas, maka sembahlah Aku (saja).
 
 ## 29:57
 
-Setiap yang bernyawa akan merasakan mati. Kemudian hanya kepada Kami kamu dikembalikan.&#x20;
+Setiap yang bernyawa akan merasakan mati. Kemudian hanya kepada Kami kamu dikembalikan.
 
 ## 29:58
 
-Dan orang-orang yang beriman dan mengerjakan kebajikan, sungguh, mereka akan Kami tempatkan pada tempat-tempat yang tinggi (di dalam surga), yang mengalir di bawahnya sungai-sungai, mereka kekal di dalamnya. Itulah sebaik-baik balasan bagi orang yang berbuat kebajikan,&#x20;
+Dan orang-orang yang beriman dan mengerjakan kebajikan, sungguh, mereka akan Kami tempatkan pada tempat-tempat yang tinggi (di dalam surga), yang mengalir di bawahnya sungai-sungai, mereka kekal di dalamnya. Itulah sebaik-baik balasan bagi orang yang berbuat kebajikan,
 
 ## 29:59
 
-(yaitu) orang-orang yang bersabar dan bertawakal kepada Tuhannya.&#x20;
+(yaitu) orang-orang yang bersabar dan bertawakal kepada Tuhannya.
 
 ## 29:60
 
-Dan berapa banyak makhluk bergerak yang bernyawa yang tidak (dapat) membawa (mengurus) rezekinya sendiri. Allah-lah yang memberi rezeki kepadanya dan kepadamu. Dia Maha Mendengar, Maha Mengetahui.&#x20;
+Dan berapa banyak makhluk bergerak yang bernyawa yang tidak (dapat) membawa (mengurus) rezekinya sendiri. Allah-lah yang memberi rezeki kepadanya dan kepadamu. Dia Maha Mendengar, Maha Mengetahui.
 
 ## 29:61
 
-Dan jika engkau bertanya kepada mereka, ”Siapakah yang menciptakan langit dan bumi dan menundukkan matahari dan bulan?” Pasti mereka akan menjawab, ”Allah.” Maka mengapa mereka bisa dipalingkan (dari kebenaran).&#x20;
+Dan jika engkau bertanya kepada mereka, ”Siapakah yang menciptakan langit dan bumi dan menundukkan matahari dan bulan?” Pasti mereka akan menjawab, ”Allah.” Maka mengapa mereka bisa dipalingkan (dari kebenaran).
 
 ## 29:62
 
-Allah melapangkan rezeki bagi orang yang Dia kehendaki di antara hamba-hamba-Nya dan Dia (pula) yang membatasi baginya. Sungguh, Allah Maha Mengetahui segala sesuatu.&#x20;
+Allah melapangkan rezeki bagi orang yang Dia kehendaki di antara hamba-hamba-Nya dan Dia (pula) yang membatasi baginya. Sungguh, Allah Maha Mengetahui segala sesuatu.
 
 ## 29:63
 
-Dan jika kamu bertanya kepada mereka, ”Siapakah yang menurunkan air dari langit lalu dengan (air) itu dihidupkannya bumi yang sudah mati?” Pasti mereka akan menjawab, ”Allah.” Katakanlah, ”Segala puji bagi Allah,” tetapi kebanyakan mereka tidak mengerti.&#x20;
+Dan jika kamu bertanya kepada mereka, ”Siapakah yang menurunkan air dari langit lalu dengan (air) itu dihidupkannya bumi yang sudah mati?” Pasti mereka akan menjawab, ”Allah.” Katakanlah, ”Segala puji bagi Allah,” tetapi kebanyakan mereka tidak mengerti.
 
 ## 29:64
 
-Dan kehidupan dunia ini hanya senda gurau dan permainan. Dan sesungguhnya negeri akhirat itulah kehidupan yang sebenarnya, sekiranya mereka mengetahui.&#x20;
+Dan kehidupan dunia ini hanya senda gurau dan permainan. Dan sesungguhnya negeri akhirat itulah kehidupan yang sebenarnya, sekiranya mereka mengetahui.
 
 ## 29:65
 
-Maka apabila mereka naik kapal, mereka berdoa kepada Allah dengan penuh rasa pengabdian (ikhlas) kepada-Nya, tetapi ketika Allah menyelamatkan mereka sampai ke darat, malah mereka (kembali) mempersekutukan (Allah),&#x20;
+Maka apabila mereka naik kapal, mereka berdoa kepada Allah dengan penuh rasa pengabdian (ikhlas) kepada-Nya, tetapi ketika Allah menyelamatkan mereka sampai ke darat, malah mereka (kembali) mempersekutukan (Allah),
 
 ## 29:66
 
-biarlah mereka mengingkari nikmat yang telah Kami berikan kepada mereka dan silakan mereka (hidup) bersenang-senang (dalam kekafiran). Maka kelak mereka akan mengetahui (akibat perbuatannya).&#x20;
+biarlah mereka mengingkari nikmat yang telah Kami berikan kepada mereka dan silakan mereka (hidup) bersenang-senang (dalam kekafiran). Maka kelak mereka akan mengetahui (akibat perbuatannya).
 
 ## 29:67
 
-Tidakkah mereka memperhatikan, bahwa Kami telah menjadikan (negeri mereka) tanah suci yang aman, padahal manusia di sekitarnya saling merampok. Mengapa (setelah nyata kebenaran) mereka masih percaya kepada yang batil dan ingkar kepada nikmat Allah?&#x20;
+Tidakkah mereka memperhatikan, bahwa Kami telah menjadikan (negeri mereka) tanah suci yang aman, padahal manusia di sekitarnya saling merampok. Mengapa (setelah nyata kebenaran) mereka masih percaya kepada yang batil dan ingkar kepada nikmat Allah?
 
 ## 29:68
 
-Dan siapakah yang lebih zalim daripada orang yang mengada-adakan kebohongan kepada Allah atau orang yang mendustakan yang hak ketika (yang hak) itu datang kepadanya? Bukankah dalam neraka Jahanam ada tempat bagi orang-orang kafir?&#x20;
+Dan siapakah yang lebih zalim daripada orang yang mengada-adakan kebohongan kepada Allah atau orang yang mendustakan yang hak ketika (yang hak) itu datang kepadanya? Bukankah dalam neraka Jahanam ada tempat bagi orang-orang kafir?
 
 ## 29:69
 
@@ -13651,11 +13651,11 @@ Bangsa Romawi telah dikalahkan,
 
 ## 30:3
 
-di negeri yang terdekat dan mereka setelah kekalahannya itu akan menang,&#x20;
+di negeri yang terdekat dan mereka setelah kekalahannya itu akan menang,
 
 ## 30:4
 
-dalam beberapa tahun (lagi). Bagi Allah-lah urusan sebelum dan setelah (mereka menang). Dan pada hari (kemenangan bangsa Romawi) itu bergembiralah orang-orang yang beriman,&#x20;
+dalam beberapa tahun (lagi). Bagi Allah-lah urusan sebelum dan setelah (mereka menang). Dan pada hari (kemenangan bangsa Romawi) itu bergembiralah orang-orang yang beriman,
 
 ## 30:5
 
@@ -13663,23 +13663,23 @@ karena pertolongan Allah. Dia menolong siapa yang Dia kehendaki. Dia Mahaperkasa
 
 ## 30:6
 
-(Itulah) janji Allah. Allah tidak akan menyalahi janji-Nya, tetapi kebanyakan manusia tidak mengetahui.&#x20;
+(Itulah) janji Allah. Allah tidak akan menyalahi janji-Nya, tetapi kebanyakan manusia tidak mengetahui.
 
 ## 30:7
 
-Mereka mengetahui yang lahir (tampak) dari kehidupan dunia; sedangkan terhadap (kehidupan) akhirat mereka lalai.&#x20;
+Mereka mengetahui yang lahir (tampak) dari kehidupan dunia; sedangkan terhadap (kehidupan) akhirat mereka lalai.
 
 ## 30:8
 
-Dan mengapa mereka tidak memikirkan tentang (kejadian) diri mereka? Allah tidak menciptakan langit dan bumi dan apa yang ada di antara keduanya melainkan dengan (tujuan) yang benar dan dalam waktu yang ditentukan. Dan sesungguhnya kebanyakan di antara manusia benar-benar mengingkari pertemuan dengan Tuhannya.&#x20;
+Dan mengapa mereka tidak memikirkan tentang (kejadian) diri mereka? Allah tidak menciptakan langit dan bumi dan apa yang ada di antara keduanya melainkan dengan (tujuan) yang benar dan dalam waktu yang ditentukan. Dan sesungguhnya kebanyakan di antara manusia benar-benar mengingkari pertemuan dengan Tuhannya.
 
 ## 30:9
 
-Dan tidakkah mereka bepergian di bumi lalu melihat bagaimana kesudahan orang-orang sebelum mereka (yang mendustakan rasul)? Orang-orang itu lebih kuat dari mereka (sendiri) dan mereka telah mengolah bumi (tanah) serta memakmurkannya melebihi apa yang telah mereka makmurkan. Dan telah datang kepada mereka rasul-rasul mereka dengan membawa bukti-bukti yang jelas. Maka Allah sama sekali tidak berlaku zalim kepada mereka, tetapi merekalah yang berlaku zalim kepada diri mereka sendiri.&#x20;
+Dan tidakkah mereka bepergian di bumi lalu melihat bagaimana kesudahan orang-orang sebelum mereka (yang mendustakan rasul)? Orang-orang itu lebih kuat dari mereka (sendiri) dan mereka telah mengolah bumi (tanah) serta memakmurkannya melebihi apa yang telah mereka makmurkan. Dan telah datang kepada mereka rasul-rasul mereka dengan membawa bukti-bukti yang jelas. Maka Allah sama sekali tidak berlaku zalim kepada mereka, tetapi merekalah yang berlaku zalim kepada diri mereka sendiri.
 
 ## 30:10
 
-Kemudian, azab yang lebih buruk adalah kesudahan bagi orang-orang yang mengerjakan kejahatan. Karena mereka mendustakan ayat-ayat Allah dan mereka selalu memperolok-olokkannya.&#x20;
+Kemudian, azab yang lebih buruk adalah kesudahan bagi orang-orang yang mengerjakan kejahatan. Karena mereka mendustakan ayat-ayat Allah dan mereka selalu memperolok-olokkannya.
 
 ## 30:11
 
@@ -13687,67 +13687,67 @@ Allah yang memulai penciptaan (makhluk), kemudian mengulanginya kembali; kemudia
 
 ## 30:12
 
-Dan pada hari (ketika) terjadi Kiamat, orang-orang yang berdosa (kaum musyrik) terdiam berputus asa.&#x20;
+Dan pada hari (ketika) terjadi Kiamat, orang-orang yang berdosa (kaum musyrik) terdiam berputus asa.
 
 ## 30:13
 
-Dan tidak mungkin ada pemberi syafaat (pertolongan) bagi mereka dari berhala-berhala mereka, sedangkan mereka mengingkari berhala-berhala mereka itu.&#x20;
+Dan tidak mungkin ada pemberi syafaat (pertolongan) bagi mereka dari berhala-berhala mereka, sedangkan mereka mengingkari berhala-berhala mereka itu.
 
 ## 30:14
 
-Dan pada hari (ketika) terjadi Kiamat, pada hari itu manusia terpecah-pecah (dalam kelompok).&#x20;
+Dan pada hari (ketika) terjadi Kiamat, pada hari itu manusia terpecah-pecah (dalam kelompok).
 
 ## 30:15
 
-Maka adapun orang-orang yang beriman dan mengerjakan kebajikan, maka mereka di dalam taman (surga) bergembira.&#x20;
+Maka adapun orang-orang yang beriman dan mengerjakan kebajikan, maka mereka di dalam taman (surga) bergembira.
 
 ## 30:16
 
-Dan adapun orang-orang yang kafir dan mendustakan ayat-ayat Kami serta (mendustakan) pertemuan hari akhirat, maka mereka tetap berada di dalam azab (neraka).&#x20;
+Dan adapun orang-orang yang kafir dan mendustakan ayat-ayat Kami serta (mendustakan) pertemuan hari akhirat, maka mereka tetap berada di dalam azab (neraka).
 
 ## 30:17
 
-Maka bertasbihlah kepada Allah pada petang hari dan pada pagi hari (waktu subuh),&#x20;
+Maka bertasbihlah kepada Allah pada petang hari dan pada pagi hari (waktu subuh),
 
 ## 30:18
 
-dan segala puji bagi-Nya baik di langit, di bumi, pada malam hari dan pada waktu zuhur (tengah hari).&#x20;
+dan segala puji bagi-Nya baik di langit, di bumi, pada malam hari dan pada waktu zuhur (tengah hari).
 
 ## 30:19
 
-Dia mengeluarkan yang hidup dari yang mati dan mengeluarkan yang mati dari yang hidup dan menghidupkan bumi setelah mati (kering). Dan seperti itulah kamu akan dikeluarkan (dari kubur).&#x20;
+Dia mengeluarkan yang hidup dari yang mati dan mengeluarkan yang mati dari yang hidup dan menghidupkan bumi setelah mati (kering). Dan seperti itulah kamu akan dikeluarkan (dari kubur).
 
 ## 30:20
 
-Dan di antara tanda-tanda (kebesaran)-Nya ialah Dia menciptakan kamu dari tanah, kemudian tiba-tiba kamu (menjadi) manusia yang berkembang biak.&#x20;
+Dan di antara tanda-tanda (kebesaran)-Nya ialah Dia menciptakan kamu dari tanah, kemudian tiba-tiba kamu (menjadi) manusia yang berkembang biak.
 
 ## 30:21
 
-Dan di antara tanda-tanda (kebesaran)-Nya ialah Dia menciptakan pasangan-pasangan untukmu dari jenismu sendiri, agar kamu cenderung dan merasa tenteram kepadanya, dan Dia menjadikan di antaramu rasa kasih dan sayang. Sungguh, pada yang demikian itu benar-benar terdapat tanda-tanda (kebesaran Allah) bagi kaum yang berpikir.&#x20;
+Dan di antara tanda-tanda (kebesaran)-Nya ialah Dia menciptakan pasangan-pasangan untukmu dari jenismu sendiri, agar kamu cenderung dan merasa tenteram kepadanya, dan Dia menjadikan di antaramu rasa kasih dan sayang. Sungguh, pada yang demikian itu benar-benar terdapat tanda-tanda (kebesaran Allah) bagi kaum yang berpikir.
 
 ## 30:22
 
-Dan di antara tanda-tanda (kebesaran)-Nya ialah penciptaan langit dan bumi, perbedaan bahasamu dan warna kulitmu. Sungguh, pada yang demikian itu benar-benar terdapat tanda-tanda bagi orang-orang yang mengetahui.&#x20;
+Dan di antara tanda-tanda (kebesaran)-Nya ialah penciptaan langit dan bumi, perbedaan bahasamu dan warna kulitmu. Sungguh, pada yang demikian itu benar-benar terdapat tanda-tanda bagi orang-orang yang mengetahui.
 
 ## 30:23
 
-Dan di antara tanda-tanda (kebesaran)-Nya ialah tidurmu pada waktu malam dan siang hari dan usahamu mencari sebagian dari karunia-Nya. Sungguh, pada yang demikian itu benar-benar terdapat tanda-tanda bagi kaum yang mendengarkan.&#x20;
+Dan di antara tanda-tanda (kebesaran)-Nya ialah tidurmu pada waktu malam dan siang hari dan usahamu mencari sebagian dari karunia-Nya. Sungguh, pada yang demikian itu benar-benar terdapat tanda-tanda bagi kaum yang mendengarkan.
 
 ## 30:24
 
-Dan di antara tanda-tanda (kebesaran)-Nya, Dia memperlihatkan kilat kepadamu untuk (menimbulkan) ketakutan dan harapan, dan Dia menurunkan air (hujan) dari langit, lalu dengan air itu dihidupkannya bumi setelah mati (kering). Sungguh, pada yang demikian itu benar-benar terdapat tanda-tanda bagi kaum yang mengerti.&#x20;
+Dan di antara tanda-tanda (kebesaran)-Nya, Dia memperlihatkan kilat kepadamu untuk (menimbulkan) ketakutan dan harapan, dan Dia menurunkan air (hujan) dari langit, lalu dengan air itu dihidupkannya bumi setelah mati (kering). Sungguh, pada yang demikian itu benar-benar terdapat tanda-tanda bagi kaum yang mengerti.
 
 ## 30:25
 
-Dan di antara tanda-tanda (kebesaran)-Nya ialah berdirinya langit dan bumi dengan kehendak-Nya. Kemudian apabila Dia memanggil kamu sekali panggil dari bumi, seketika itu kamu keluar (dari kubur).&#x20;
+Dan di antara tanda-tanda (kebesaran)-Nya ialah berdirinya langit dan bumi dengan kehendak-Nya. Kemudian apabila Dia memanggil kamu sekali panggil dari bumi, seketika itu kamu keluar (dari kubur).
 
 ## 30:26
 
-Dan milik-Nya apa yang di langit dan di bumi. Semuanya hanya kepada-Nya tunduk.&#x20;
+Dan milik-Nya apa yang di langit dan di bumi. Semuanya hanya kepada-Nya tunduk.
 
 ## 30:27
 
-Dan Dialah yang memulai penciptaan, kemudian mengulanginya kembali, dan itu lebih mudah bagi-Nya. Dia memiliki sifat yang Mahatinggi di langit dan di bumi. Dan Dialah Yang Mahaperkasa, Mahabijaksana.&#x20;
+Dan Dialah yang memulai penciptaan, kemudian mengulanginya kembali, dan itu lebih mudah bagi-Nya. Dia memiliki sifat yang Mahatinggi di langit dan di bumi. Dan Dialah Yang Mahaperkasa, Mahabijaksana.
 
 ## 30:28
 
@@ -13755,7 +13755,7 @@ Dia membuat perumpamaan bagimu dari dirimu sendiri. Apakah (kamu rela jika) ada 
 
 ## 30:29
 
-Tetapi orang-orang yang zalim, mengikuti keinginannya tanpa ilmu pengetahuan; maka siapakah yang dapat memberi petunjuk kepada orang yang telah disesatkan Allah. Dan tidak ada seorang penolong pun bagi mereka.&#x20;
+Tetapi orang-orang yang zalim, mengikuti keinginannya tanpa ilmu pengetahuan; maka siapakah yang dapat memberi petunjuk kepada orang yang telah disesatkan Allah. Dan tidak ada seorang penolong pun bagi mereka.
 
 ## 30:30
 
@@ -13763,11 +13763,11 @@ Maka hadapkanlah wajahmu dengan lurus kepada agama (Islam); (sesuai) fitrah Alla
 
 ## 30:31
 
-dengan kembali bertobat kepada-Nya dan bertakwalah kepada-Nya serta laksanakanlah salat dan janganlah kamu termasuk orang-orang yang mempersekutukan  Allah,&#x20;
+dengan kembali bertobat kepada-Nya dan bertakwalah kepada-Nya serta laksanakanlah salat dan janganlah kamu termasuk orang-orang yang mempersekutukan  Allah,
 
 ## 30:32
 
-yaitu orang-orang yang memecah belah agama mereka dan mereka menjadi beberapa golongan. Setiap golongan merasa bangga dengan apa yang ada pada golongan mereka.&#x20;
+yaitu orang-orang yang memecah belah agama mereka dan mereka menjadi beberapa golongan. Setiap golongan merasa bangga dengan apa yang ada pada golongan mereka.
 
 ## 30:33
 
@@ -13775,35 +13775,35 @@ Dan apabila manusia ditimpa oleh suatu bahaya, mereka menyeru Tuhannya dengan ke
 
 ## 30:34
 
-Biarkan mereka mengingkari rahmat yang telah Kami berikan. Dan bersenang-senanglah kamu, maka kelak kamu akan mengetahui (akibat perbuatanmu).&#x20;
+Biarkan mereka mengingkari rahmat yang telah Kami berikan. Dan bersenang-senanglah kamu, maka kelak kamu akan mengetahui (akibat perbuatanmu).
 
 ## 30:35
 
-Atau pernahkah Kami menurunkan kepada mereka keterangan, yang menjelaskan (membenarkan) apa yang (selalu) mereka persekutukan dengan Tuhan?&#x20;
+Atau pernahkah Kami menurunkan kepada mereka keterangan, yang menjelaskan (membenarkan) apa yang (selalu) mereka persekutukan dengan Tuhan?
 
 ## 30:36
 
-Dan apabila Kami berikan sesuatu rahmat kepada manusia, niscaya mereka gembira dengan (rahmat) itu. Tetapi apabila mereka ditimpa sesuatu musibah (bahaya) karena kesalahan mereka sendiri, seketika itu mereka berputus asa.&#x20;
+Dan apabila Kami berikan sesuatu rahmat kepada manusia, niscaya mereka gembira dengan (rahmat) itu. Tetapi apabila mereka ditimpa sesuatu musibah (bahaya) karena kesalahan mereka sendiri, seketika itu mereka berputus asa.
 
 ## 30:37
 
-Dan tidakkah mereka memperhatikan bahwa Allah yang melapangkan rezeki bagi siapa yang Dia kehendaki dan Dia (pula) yang membatasi (bagi siapa yang Dia kehendaki). Sungguh, pada yang demikian itu benar-benar terdapat tanda-tanda (kebesaran Allah) bagi kaum yang beriman.&#x20;
+Dan tidakkah mereka memperhatikan bahwa Allah yang melapangkan rezeki bagi siapa yang Dia kehendaki dan Dia (pula) yang membatasi (bagi siapa yang Dia kehendaki). Sungguh, pada yang demikian itu benar-benar terdapat tanda-tanda (kebesaran Allah) bagi kaum yang beriman.
 
 ## 30:38
 
-Maka berikanlah haknya kepada kerabat dekat, juga kepada orang miskin dan orang-orang yang dalam perjalanan. Itulah yang lebih baik bagi orang-orang yang mencari keridaan Allah. Dan mereka itulah orang-orang yang beruntung.&#x20;
+Maka berikanlah haknya kepada kerabat dekat, juga kepada orang miskin dan orang-orang yang dalam perjalanan. Itulah yang lebih baik bagi orang-orang yang mencari keridaan Allah. Dan mereka itulah orang-orang yang beruntung.
 
 ## 30:39
 
-Dan sesuatu riba (tambahan) yang kamu berikan agar harta manusia bertambah, maka tidak bertambah dalam pandangan Allah. Dan apa yang kamu berikan berupa zakat yang kamu maksudkan untuk memperoleh keridaan Allah, maka itulah orang-orang yang melipatgandakan  (pahalanya).&#x20;
+Dan sesuatu riba (tambahan) yang kamu berikan agar harta manusia bertambah, maka tidak bertambah dalam pandangan Allah. Dan apa yang kamu berikan berupa zakat yang kamu maksudkan untuk memperoleh keridaan Allah, maka itulah orang-orang yang melipatgandakan  (pahalanya).
 
 ## 30:40
 
-Allah yang menciptakan kamu, kemudian memberimu rezeki, lalu mematikanmu, kemudian menghidupkanmu (kembali). Adakah di antara mereka yang kamu sekutukan dengan Allah itu yang dapat berbuat sesuatu yang demikian itu? Mahasuci Dia dan Mahatinggi dari apa yang mereka  persekutukan.&#x20;
+Allah yang menciptakan kamu, kemudian memberimu rezeki, lalu mematikanmu, kemudian menghidupkanmu (kembali). Adakah di antara mereka yang kamu sekutukan dengan Allah itu yang dapat berbuat sesuatu yang demikian itu? Mahasuci Dia dan Mahatinggi dari apa yang mereka  persekutukan.
 
 ## 30:41
 
-Telah tampak kerusakan di darat dan di laut disebabkan karena perbuatan tangan manusia; Allah menghendaki agar mereka merasakan sebagian dari (akibat) perbuatan mereka, agar mereka kembali (ke jalan yang benar).&#x20;
+Telah tampak kerusakan di darat dan di laut disebabkan karena perbuatan tangan manusia; Allah menghendaki agar mereka merasakan sebagian dari (akibat) perbuatan mereka, agar mereka kembali (ke jalan yang benar).
 
 ## 30:42
 
@@ -13815,11 +13815,11 @@ Oleh karena itu, hadapkanlah wajahmu kepada agama yang lurus (Islam) sebelum dat
 
 ## 30:44
 
-Barangsiapa kafir maka dia sendirilah yang menanggung (akibat) kekafirannya itu; dan barangsiapa mengerjakan kebajikan maka mereka menyiapkan untuk diri mereka sendiri (tempat yang menyenangkan),&#x20;
+Barangsiapa kafir maka dia sendirilah yang menanggung (akibat) kekafirannya itu; dan barangsiapa mengerjakan kebajikan maka mereka menyiapkan untuk diri mereka sendiri (tempat yang menyenangkan),
 
 ## 30:45
 
-agar Allah memberi balasan (pahala) kepada orang-orang yang beriman dan mengerjakan kebajikan dari karunia-Nya. Sungguh, Dia tidak menyukai orang-orang yang ingkar (kafir).&#x20;
+agar Allah memberi balasan (pahala) kepada orang-orang yang beriman dan mengerjakan kebajikan dari karunia-Nya. Sungguh, Dia tidak menyukai orang-orang yang ingkar (kafir).
 
 ## 30:46
 
@@ -13827,59 +13827,59 @@ Dan di antara tanda-tanda (kebesaran)-Nya adalah bahwa Dia mengirimkan angin seb
 
 ## 30:47
 
-Dan sungguh, Kami telah mengutus sebelum engkau (Muhammad) beberapa orang rasul kepada kaumnya, mereka datang kepadanya dengan membawa keterangan-keterangan (yang cukup), lalu Kami melakukan pembalasan terhadap orang-orang yang berdosa. Dan merupakan hak Kami untuk menolong orang-orang yang beriman.&#x20;
+Dan sungguh, Kami telah mengutus sebelum engkau (Muhammad) beberapa orang rasul kepada kaumnya, mereka datang kepadanya dengan membawa keterangan-keterangan (yang cukup), lalu Kami melakukan pembalasan terhadap orang-orang yang berdosa. Dan merupakan hak Kami untuk menolong orang-orang yang beriman.
 
 ## 30:48
 
-Allah-lah yang mengirimkan angin, lalu angin itu menggerakkan awan dan Allah membentangkannya di langit menurut yang Dia kehendaki, dan menjadikannya bergumpal-gumpal, lalu engkau lihat hujan keluar dari celah-celahnya, maka apabila Dia menurunkannya kepada hamba-hamba-Nya yang Dia kehendaki tiba-tiba mereka bergembira.&#x20;
+Allah-lah yang mengirimkan angin, lalu angin itu menggerakkan awan dan Allah membentangkannya di langit menurut yang Dia kehendaki, dan menjadikannya bergumpal-gumpal, lalu engkau lihat hujan keluar dari celah-celahnya, maka apabila Dia menurunkannya kepada hamba-hamba-Nya yang Dia kehendaki tiba-tiba mereka bergembira.
 
 ## 30:49
 
-Padahal walaupun sebelum hujan diturunkan kepada mereka, mereka benar-benar telah berputus asa.&#x20;
+Padahal walaupun sebelum hujan diturunkan kepada mereka, mereka benar-benar telah berputus asa.
 
 ## 30:50
 
-Maka perhatikanlah bekas-bekas rahmat Allah, bagaimana Allah menghidupkan bumi setelah mati (kering). Sungguh, itu berarti Dia pasti (berkuasa) menghidupkan yang telah mati. Dan Dia Mahakuasa atas segala sesuatu.&#x20;
+Maka perhatikanlah bekas-bekas rahmat Allah, bagaimana Allah menghidupkan bumi setelah mati (kering). Sungguh, itu berarti Dia pasti (berkuasa) menghidupkan yang telah mati. Dan Dia Mahakuasa atas segala sesuatu.
 
 ## 30:51
 
-Dan sungguh, jika Kami mengirimkan angin lalu mereka melihat (tumbuh-tumbuhan itu) menjadi kuning (kering), niscaya setelah itu mereka tetap ingkar.&#x20;
+Dan sungguh, jika Kami mengirimkan angin lalu mereka melihat (tumbuh-tumbuhan itu) menjadi kuning (kering), niscaya setelah itu mereka tetap ingkar.
 
 ## 30:52
 
-Maka sungguh, engkau tidak akan sanggup menjadikan orang-orang yang mati itu dapat mendengar, dan menjadikan orang-orang yang tuli dapat mendengar seruan, apabila mereka berpaling ke belakang.&#x20;
+Maka sungguh, engkau tidak akan sanggup menjadikan orang-orang yang mati itu dapat mendengar, dan menjadikan orang-orang yang tuli dapat mendengar seruan, apabila mereka berpaling ke belakang.
 
 ## 30:53
 
-Dan engkau tidak akan dapat memberi petunjuk kepada orang-orang yang buta (mata hatinya) dari kesesatannya. Dan engkau tidak dapat memperdengarkan (petunjuk Tuhan) kecuali kepada orang-orang yang beriman dengan ayat-ayat Kami, maka mereka itulah orang-orang yang berserah diri (kepada Kami).&#x20;
+Dan engkau tidak akan dapat memberi petunjuk kepada orang-orang yang buta (mata hatinya) dari kesesatannya. Dan engkau tidak dapat memperdengarkan (petunjuk Tuhan) kecuali kepada orang-orang yang beriman dengan ayat-ayat Kami, maka mereka itulah orang-orang yang berserah diri (kepada Kami).
 
 ## 30:54
 
-Allah-lah yang menciptakan kamu dari keadaan lemah, kemudian Dia menjadikan (kamu) setelah keadaan lemah itu menjadi kuat, kemudian Dia menjadikan (kamu) setelah kuat itu lemah (kembali) dan beruban. Dia menciptakan apa yang Dia kehendaki. Dan Dia Maha Mengetahui, Mahakuasa.&#x20;
+Allah-lah yang menciptakan kamu dari keadaan lemah, kemudian Dia menjadikan (kamu) setelah keadaan lemah itu menjadi kuat, kemudian Dia menjadikan (kamu) setelah kuat itu lemah (kembali) dan beruban. Dia menciptakan apa yang Dia kehendaki. Dan Dia Maha Mengetahui, Mahakuasa.
 
 ## 30:55
 
-Dan pada hari (ketika) terjadinya Kiamat, orang-orang yang berdosa bersumpah, bahwa mereka berdiam (dalam kubur) hanya sesaat (saja). Begitulah dahulu mereka dipalingkan (dari kebenaran).&#x20;
+Dan pada hari (ketika) terjadinya Kiamat, orang-orang yang berdosa bersumpah, bahwa mereka berdiam (dalam kubur) hanya sesaat (saja). Begitulah dahulu mereka dipalingkan (dari kebenaran).
 
 ## 30:56
 
-Dan orang-orang yang diberi ilmu dan keimanan berkata (kepada orang-orang kafir), “Sungguh, kamu telah berdiam (dalam kubur) menurut ketetapan Allah, sampai hari kebangkitan. Maka inilah hari kebangkitan itu, tetapi (dahulu) kamu tidak meyakini(nya).”&#x20;
+Dan orang-orang yang diberi ilmu dan keimanan berkata (kepada orang-orang kafir), “Sungguh, kamu telah berdiam (dalam kubur) menurut ketetapan Allah, sampai hari kebangkitan. Maka inilah hari kebangkitan itu, tetapi (dahulu) kamu tidak meyakini(nya).”
 
 ## 30:57
 
-Maka pada hari itu tidak bermanfaat (lagi) permintaan maaf orang-orang yang zalim, dan mereka tidak pula diberi kesempatan bertobat lagi.&#x20;
+Maka pada hari itu tidak bermanfaat (lagi) permintaan maaf orang-orang yang zalim, dan mereka tidak pula diberi kesempatan bertobat lagi.
 
 ## 30:58
 
-Dan sesungguhnya telah Kami jelaskan kepada manusia segala macam perumpamaan dalam Al-Qur'an ini. Dan jika engkau membawa suatu ayat kepada mereka, pastilah orang-orang kafir itu akan berkata, ”Kamu hanyalah orang-orang yang membuat kepalsuan belaka.”&#x20;
+Dan sesungguhnya telah Kami jelaskan kepada manusia segala macam perumpamaan dalam Al-Qur'an ini. Dan jika engkau membawa suatu ayat kepada mereka, pastilah orang-orang kafir itu akan berkata, ”Kamu hanyalah orang-orang yang membuat kepalsuan belaka.”
 
 ## 30:59
 
-Demikianlah Allah mengunci hati orang-orang yang tidak (mau) memahami.&#x20;
+Demikianlah Allah mengunci hati orang-orang yang tidak (mau) memahami.
 
 ## 30:60
 
-Maka bersabarlah engkau (Muhammad), sungguh, janji Allah itu benar dan sekali-kali jangan sampai orang-orang yang tidak meyakini (kebenaran ayat-ayat Allah) itu menggelisahkan engkau.&#x20;
+Maka bersabarlah engkau (Muhammad), sungguh, janji Allah itu benar dan sekali-kali jangan sampai orang-orang yang tidak meyakini (kebenaran ayat-ayat Allah) itu menggelisahkan engkau.
 
 ## 31:1
 
@@ -13887,19 +13887,19 @@ Alif Lam Mim.
 
 ## 31:2
 
-Inilah ayat-ayat Al-Qur'an yang mengandung hikmah,&#x20;
+Inilah ayat-ayat Al-Qur'an yang mengandung hikmah,
 
 ## 31:3
 
-sebagai petunjuk dan rahmat bagi orang-orang yang berbuat kebaikan,&#x20;
+sebagai petunjuk dan rahmat bagi orang-orang yang berbuat kebaikan,
 
 ## 31:4
 
-(yaitu) orang-orang yang melaksanakan salat, menunaikan zakat dan mereka meyakini adanya akhirat.&#x20;
+(yaitu) orang-orang yang melaksanakan salat, menunaikan zakat dan mereka meyakini adanya akhirat.
 
 ## 31:5
 
-Merekalah orang-orang yang tetap mendapat petunjuk dari Tuhannya dan mereka itulah orang-orang yang beruntung.&#x20;
+Merekalah orang-orang yang tetap mendapat petunjuk dari Tuhannya dan mereka itulah orang-orang yang beruntung.
 
 ## 31:6
 
@@ -13911,39 +13911,39 @@ Dan apabila dibacakan kepadanya ayat-ayat Kami, dia berpaling dengan menyombongk
 
 ## 31:8
 
-Sesungguhnya orang-orang yang beriman dan mengerjakan kebajikan, mereka akan mendapat surga-surga yang penuh kenikmatan,&#x20;
+Sesungguhnya orang-orang yang beriman dan mengerjakan kebajikan, mereka akan mendapat surga-surga yang penuh kenikmatan,
 
 ## 31:9
 
-mereka kekal di dalamnya, sebagai janji Allah yang benar. Dan Dia Mahaperkasa, Mahabijaksana.&#x20;
+mereka kekal di dalamnya, sebagai janji Allah yang benar. Dan Dia Mahaperkasa, Mahabijaksana.
 
 ## 31:10
 
-Dia menciptakan langit tanpa tiang sebagaimana kamu melihatnya, dan Dia meletakkan gunung-gunung (di permukaan) bumi agar ia (bumi) tidak menggoyangkan kamu; dan memperkembangbiakkan segala macam jenis makhluk bergerak yang bernyawa di bumi. Dan Kami turunkan air hujan dari langit, lalu Kami tumbuhkan padanya segala macam tumbuh-tumbuhan yang baik.&#x20;
+Dia menciptakan langit tanpa tiang sebagaimana kamu melihatnya, dan Dia meletakkan gunung-gunung (di permukaan) bumi agar ia (bumi) tidak menggoyangkan kamu; dan memperkembangbiakkan segala macam jenis makhluk bergerak yang bernyawa di bumi. Dan Kami turunkan air hujan dari langit, lalu Kami tumbuhkan padanya segala macam tumbuh-tumbuhan yang baik.
 
 ## 31:11
 
-Inilah ciptaan Allah, maka perlihatkanlah olehmu kepadaku apa yang telah diciptakan oleh (sesembahanmu) selain Allah. Sebenarnya orang-orang yang zalim itu berada di dalam kesesatan yang nyata.&#x20;
+Inilah ciptaan Allah, maka perlihatkanlah olehmu kepadaku apa yang telah diciptakan oleh (sesembahanmu) selain Allah. Sebenarnya orang-orang yang zalim itu berada di dalam kesesatan yang nyata.
 
 ## 31:12
 
-Dan sungguh, telah Kami berikan hikmah kepada Lukman, yaitu,  ”Bersyukurlah kepada Allah! Dan barangsiapa bersyukur (kepada Allah), maka sesungguhnya dia bersyukur untuk dirinya sendiri; dan barangsiapa tidak bersyukur (kufur), maka sesungguhnya Allah Mahakaya, Maha Terpuji.”&#x20;
+Dan sungguh, telah Kami berikan hikmah kepada Lukman, yaitu,  ”Bersyukurlah kepada Allah! Dan barangsiapa bersyukur (kepada Allah), maka sesungguhnya dia bersyukur untuk dirinya sendiri; dan barangsiapa tidak bersyukur (kufur), maka sesungguhnya Allah Mahakaya, Maha Terpuji.”
 
 ## 31:13
 
-Dan (ingatlah) ketika Lukman berkata kepada anaknya, ketika dia memberi pelajaran kepadanya, ”Wahai anakku! Janganlah engkau mempersekutukan Allah, sesungguhnya mempersekutukan (Allah) adalah benar-benar kezaliman yang besar.”&#x20;
+Dan (ingatlah) ketika Lukman berkata kepada anaknya, ketika dia memberi pelajaran kepadanya, ”Wahai anakku! Janganlah engkau mempersekutukan Allah, sesungguhnya mempersekutukan (Allah) adalah benar-benar kezaliman yang besar.”
 
 ## 31:14
 
-Dan Kami perintahkan kepada manusia (agar berbuat baik) kepada kedua orang tuanya. Ibunya telah mengandungnya dalam keadaan lemah yang bertambah-tambah, dan menyapihnya dalam usia dua tahun. Bersyukurlah kepada-Ku dan kepada kedua orang tuamu. Hanya kepada Aku kembalimu.&#x20;
+Dan Kami perintahkan kepada manusia (agar berbuat baik) kepada kedua orang tuanya. Ibunya telah mengandungnya dalam keadaan lemah yang bertambah-tambah, dan menyapihnya dalam usia dua tahun. Bersyukurlah kepada-Ku dan kepada kedua orang tuamu. Hanya kepada Aku kembalimu.
 
 ## 31:15
 
-Dan jika keduanya memaksamu untuk mempersekutukan Aku dengan sesuatu yang engkau tidak mempunyai ilmu tentang itu, maka janganlah engkau menaati keduanya, dan pergaulilah keduanya di dunia dengan baik, dan ikutilah jalan orang yang kembali kepada-Ku. Kemudian hanya kepada-Ku tempat kembalimu, maka akan Aku beritahukan kepadamu apa yang telah kamu kerjakan.&#x20;
+Dan jika keduanya memaksamu untuk mempersekutukan Aku dengan sesuatu yang engkau tidak mempunyai ilmu tentang itu, maka janganlah engkau menaati keduanya, dan pergaulilah keduanya di dunia dengan baik, dan ikutilah jalan orang yang kembali kepada-Ku. Kemudian hanya kepada-Ku tempat kembalimu, maka akan Aku beritahukan kepadamu apa yang telah kamu kerjakan.
 
 ## 31:16
 
-(Lukman berkata), ”Wahai anakku! Sungguh, jika ada (sesuatu perbuatan) seberat biji sawi, dan berada dalam batu atau di langit atau di bumi, niscaya Allah akan memberinya (balasan). Sesungguhnya Allah Mahahalus, Mahateliti.&#x20;
+(Lukman berkata), ”Wahai anakku! Sungguh, jika ada (sesuatu perbuatan) seberat biji sawi, dan berada dalam batu atau di langit atau di bumi, niscaya Allah akan memberinya (balasan). Sesungguhnya Allah Mahahalus, Mahateliti.
 
 ## 31:17
 
@@ -14023,7 +14023,7 @@ Alif Lam Mim.
 
 ## 32:2
 
-Turunnya Al-Qur'an itu tidak ada keraguan padanya, (yaitu) dari Tuhan seluruh alam.&#x20;
+Turunnya Al-Qur'an itu tidak ada keraguan padanya, (yaitu) dari Tuhan seluruh alam.
 
 ## 32:3
 
@@ -14431,7 +14431,7 @@ sehingga Allah akan mengazab orang-orang munafik laki-laki dan perempuan, orang-
 
 ## 34:1
 
-Segala puji bagi Allah yang memiliki apa yang ada di langit dan apa yang ada di bumi dan segala puji di akhirat bagi Allah. Dan Dialah Yang Mahabijaksana, Mahateliti.&#x20;
+Segala puji bagi Allah yang memiliki apa yang ada di langit dan apa yang ada di bumi dan segala puji di akhirat bagi Allah. Dan Dialah Yang Mahabijaksana, Mahateliti.
 
 ## 34:2
 
@@ -14803,7 +14803,7 @@ Dialah yang menjadikan kamu sebagai khalifah-khalifah di bumi. Barangsiapa kafir
 
 ## 35:40
 
-Katakanlah, “Terangkanlah olehmu tentang sekutu-sekutumu yang kamu seru selain Allah.” Perlihatkanlah kepada-Ku (bagian) manakah dari bumi ini yang telah mereka ciptakan; ataukah mereka mempunyai peran serta dalam (penciptaan) langit; atau adakah Kami memberikan kitab kepada mereka sehingga mereka mendapat keterangan-keterangan yang jelas darinya? Sebenarnya orang-orang zalim itu, sebagian mereka hanya menjanjikan tipuan belaka kepada sebagian yang lain. &#x20;
+Katakanlah, “Terangkanlah olehmu tentang sekutu-sekutumu yang kamu seru selain Allah.” Perlihatkanlah kepada-Ku (bagian) manakah dari bumi ini yang telah mereka ciptakan; ataukah mereka mempunyai peran serta dalam (penciptaan) langit; atau adakah Kami memberikan kitab kepada mereka sehingga mereka mendapat keterangan-keterangan yang jelas darinya? Sebenarnya orang-orang zalim itu, sebagian mereka hanya menjanjikan tipuan belaka kepada sebagian yang lain.
 
 ## 35:41
 
@@ -15163,7 +15163,7 @@ Demi (rombongan malaikat) yang berbaris bersaf-saf,
 
 ## 37:2
 
-demi (rombongan) yang mencegah dengan sungguh-sungguh,     &#x20;
+demi (rombongan) yang mencegah dengan sungguh-sungguh,
 
 ## 37:3
 
@@ -15431,7 +15431,7 @@ Kemudian pasti tempat kembali mereka ke neraka Jahim.
 
 ## 37:69
 
-Sesungguhnya mereka mendapati nenek moyang mereka dalam keadaan sesat,&#x20;
+Sesungguhnya mereka mendapati nenek moyang mereka dalam keadaan sesat,
 
 ## 37:70
 
@@ -15867,7 +15867,7 @@ Maka apabila (siksaan) itu turun di halaman mereka, maka sangat buruklah pagi ha
 
 ## 37:178
 
-Dan berpalinglah engkau dari mereka sampai waktu tertentu.&#x20;
+Dan berpalinglah engkau dari mereka sampai waktu tertentu.
 
 ## 37:179
 
@@ -15887,7 +15887,7 @@ Dan segala puji bagi Allah Tuhan seluruh alam.
 
 ## 38:1
 
-Shad, demi Al-Qur'an yang mengandung peringatan.&#x20;
+Shad, demi Al-Qur'an yang mengandung peringatan.
 
 ## 38:2
 
@@ -16327,7 +16327,7 @@ Maka apakah orang-orang yang dibukakan hatinya oleh Allah untuk (menerima) agama
 
 ## 39:23
 
-Allah telah menurunkan perkataan yang paling baik (yaitu) Al-Qur'an yang serupa (ayat-ayatnya) lagi berulang-ulang, gemetar karenanya kulit orang-orang yang takut kepada Tuhannya, kemudian menjadi tenang kulit dan hati mereka ketika mengingat Allah. Itulah petunjuk Allah, dengan Kitab itu Dia memberi petunjuk kepada siapa yang Dia kehendaki. Dan barangsiapa dibiarkan sesat oleh Allah, maka tidak seorang pun yang dapat memberi petunjuk. &#x20;
+Allah telah menurunkan perkataan yang paling baik (yaitu) Al-Qur'an yang serupa (ayat-ayatnya) lagi berulang-ulang, gemetar karenanya kulit orang-orang yang takut kepada Tuhannya, kemudian menjadi tenang kulit dan hati mereka ketika mengingat Allah. Itulah petunjuk Allah, dengan Kitab itu Dia memberi petunjuk kepada siapa yang Dia kehendaki. Dan barangsiapa dibiarkan sesat oleh Allah, maka tidak seorang pun yang dapat memberi petunjuk.
 
 ## 39:24
 
@@ -17091,7 +17091,7 @@ Kami akan memperlihatkan kepada mereka tanda-tanda (kebesaran) Kami di segenap p
 
 ## 41:54
 
-Ingatlah, sesungguhnya mereka dalam keraguan tentang pertemuan dengan Tuhan mereka. Ingatlah, sesungguhnya Dia Maha Meliputi segala sesuatu. &#x20;
+Ingatlah, sesungguhnya mereka dalam keraguan tentang pertemuan dengan Tuhan mereka. Ingatlah, sesungguhnya Dia Maha Meliputi segala sesuatu.
 
 ## 42:1
 
@@ -17439,7 +17439,7 @@ Dan sekiranya bukan karena menghindarkan manusia menjadi umat yang satu (dalam k
 
 ## 43:34
 
-dan (Kami buatkan pula) pintu-pintu (perak) bagi rumah-rumah mereka, dan (begitu pula) dipan-dipan tempat mereka bersandar, &#x20;
+dan (Kami buatkan pula) pintu-pintu (perak) bagi rumah-rumah mereka, dan (begitu pula) dipan-dipan tempat mereka bersandar,
 
 ## 43:35
 
@@ -17811,7 +17811,7 @@ Apakah mereka (kaum musyrikin) yang lebih baik atau kaum Tubba‘, dan orang-ora
 
 ## 44:38
 
-Dan tidaklah Kami bermain-main menciptakan langit dan bumi dan apa yang ada di antara keduanya. &#x20;
+Dan tidaklah Kami bermain-main menciptakan langit dan bumi dan apa yang ada di antara keduanya.
 
 ## 44:39
 
@@ -18051,19 +18051,19 @@ Ha Mim
 
 ## 46:2
 
-Kitab ini diturunkan dari Allah Yang Mahaperkasa, Mahabijaksana.&#x20;
+Kitab ini diturunkan dari Allah Yang Mahaperkasa, Mahabijaksana.
 
 ## 46:3
 
-Kami tidak menciptakan langit dan bumi dan apa yang ada di antara keduanya melainkan dengan (tujuan) yang benar dan dalam waktu yang ditentukan. Namun orang-orang yang kafir, berpaling dari peringatan yang diberikan kepada mereka.&#x20;
+Kami tidak menciptakan langit dan bumi dan apa yang ada di antara keduanya melainkan dengan (tujuan) yang benar dan dalam waktu yang ditentukan. Namun orang-orang yang kafir, berpaling dari peringatan yang diberikan kepada mereka.
 
 ## 46:4
 
-Katakanlah (Muhammad), “Terangkanlah (kepadaku) tentang apa yang kamu sembah selain Allah; perlihatkan kepadaku apa yang telah mereka ciptakan dari bumi atau adakah peran serta mereka dalam (penciptaan) langit? Bawalah kepadaku kitab yang sebelum (Al-Qur'an) ini atau peninggalan dari pengetahuan (orang-orang dahulu), jika kamu orang yang benar.”&#x20;
+Katakanlah (Muhammad), “Terangkanlah (kepadaku) tentang apa yang kamu sembah selain Allah; perlihatkan kepadaku apa yang telah mereka ciptakan dari bumi atau adakah peran serta mereka dalam (penciptaan) langit? Bawalah kepadaku kitab yang sebelum (Al-Qur'an) ini atau peninggalan dari pengetahuan (orang-orang dahulu), jika kamu orang yang benar.”
 
 ## 46:5
 
-Dan siapakah yang lebih sesat daripada orang-orang yang menyembah selain Allah (sembahan) yang tidak dapat memperkenankan (doa)nya sampai hari Kiamat dan mereka lalai dari (memperhatikan) doa mereka?&#x20;
+Dan siapakah yang lebih sesat daripada orang-orang yang menyembah selain Allah (sembahan) yang tidak dapat memperkenankan (doa)nya sampai hari Kiamat dan mereka lalai dari (memperhatikan) doa mereka?
 
 ## 46:6
 
@@ -18099,7 +18099,7 @@ Sesungguhnya orang-orang yang  berkata, “Tuhan kami adalah Allah,” kemudian 
 
 ## 46:14
 
-Mereka itulah para penghuni surga, kekal di dalamnya; sebagai balasan atas apa yang telah mereka kerjakan.&#x20;
+Mereka itulah para penghuni surga, kekal di dalamnya; sebagai balasan atas apa yang telah mereka kerjakan.
 
 ## 46:15
 
@@ -18359,11 +18359,11 @@ Agar Dia masukkan orang-orang mukmin laki-laki dan perempuan ke dalam surga yang
 
 ## 48:6
 
-dan Dia mengazab orang-orang munafik laki-laki dan perempuan, dan (juga) orang-orang musyrik laki-laki dan perempuan yang berprasangka buruk terhadap Allah. Mereka akan mendapat giliran (azab) yang buruk dan Allah murka kepada mereka dan mengutuk mereka serta menyediakan neraka Jahanam bagi mereka. Dan (neraka Jahanam) itu seburuk-buruk tempat kembali.&#x20;
+dan Dia mengazab orang-orang munafik laki-laki dan perempuan, dan (juga) orang-orang musyrik laki-laki dan perempuan yang berprasangka buruk terhadap Allah. Mereka akan mendapat giliran (azab) yang buruk dan Allah murka kepada mereka dan mengutuk mereka serta menyediakan neraka Jahanam bagi mereka. Dan (neraka Jahanam) itu seburuk-buruk tempat kembali.
 
 ## 48:7
 
-Dan milik Allah bala tentara langit dan bumi. Dan Allah Mahaperkasa, Mahabijaksana.&#x20;
+Dan milik Allah bala tentara langit dan bumi. Dan Allah Mahaperkasa, Mahabijaksana.
 
 ## 48:8
 
@@ -18375,35 +18375,35 @@ agar kamu semua beriman kepada Allah dan Rasul-Nya, menguatkan (agama)-Nya, memb
 
 ## 48:10
 
-Bahwasanya orang-orang yang berjanji setia kepadamu (Muhammad), sesungguhnya mereka hanya berjanji setia kepada Allah. Tangan Allah di atas tangan mereka, maka barangsiapa melanggar janji, maka sesungguhnya dia melanggar atas (janji) sendiri; dan barangsiapa menepati janjinya kepada Allah maka Dia akan memberinya pahala yang besar.&#x20;
+Bahwasanya orang-orang yang berjanji setia kepadamu (Muhammad), sesungguhnya mereka hanya berjanji setia kepada Allah. Tangan Allah di atas tangan mereka, maka barangsiapa melanggar janji, maka sesungguhnya dia melanggar atas (janji) sendiri; dan barangsiapa menepati janjinya kepada Allah maka Dia akan memberinya pahala yang besar.
 
 ## 48:11
 
-Orang-orang Badui yang tertinggal (tidak turut ke Hudaibiyah) akan berkata kepadamu, “Kami telah disibukkan oleh harta dan keluarga kami, maka mohonkanlah ampunan untuk kami.” Mereka mengucapkan sesuatu dengan mulutnya apa yang tidak ada dalam hatinya. Katakanlah, “Maka siapakah yang dapat menghalang-halangi kehendak Allah jika Dia menghendaki bencana terhadap kamu atau jika Dia menghendaki keuntungan bagimu? Sungguh, Allah Mahateliti dengan apa yang kamu kerjakan.”&#x20;
+Orang-orang Badui yang tertinggal (tidak turut ke Hudaibiyah) akan berkata kepadamu, “Kami telah disibukkan oleh harta dan keluarga kami, maka mohonkanlah ampunan untuk kami.” Mereka mengucapkan sesuatu dengan mulutnya apa yang tidak ada dalam hatinya. Katakanlah, “Maka siapakah yang dapat menghalang-halangi kehendak Allah jika Dia menghendaki bencana terhadap kamu atau jika Dia menghendaki keuntungan bagimu? Sungguh, Allah Mahateliti dengan apa yang kamu kerjakan.”
 
 ## 48:12
 
-Bahkan (semula) kamu menyangka bahwa Rasul dan orang-orang mukmin sekali-kali tidak akan kembali lagi kepada keluarga mereka selama-lamanya dan dijadikan terasa indah yang demikian itu di dalam hatimu, dan kamu telah berprasangka dengan prasangka yang buruk, karena itu kamu menjadi kaum yang binasa.&#x20;
+Bahkan (semula) kamu menyangka bahwa Rasul dan orang-orang mukmin sekali-kali tidak akan kembali lagi kepada keluarga mereka selama-lamanya dan dijadikan terasa indah yang demikian itu di dalam hatimu, dan kamu telah berprasangka dengan prasangka yang buruk, karena itu kamu menjadi kaum yang binasa.
 
 ## 48:13
 
-Dan barangsiapa tidak beriman kepada Allah dan Rasul-Nya, maka sesungguhnya Kami telah menyediakan untuk orang-orang kafir itu neraka yang menyala-nyala.&#x20;
+Dan barangsiapa tidak beriman kepada Allah dan Rasul-Nya, maka sesungguhnya Kami telah menyediakan untuk orang-orang kafir itu neraka yang menyala-nyala.
 
 ## 48:14
 
-Dan hanya milik Allah kerajaan langit dan bumi. Dia mengampuni siapa yang Dia kehendaki dan akan mengazab siapa yang Dia kehendaki. Dan Allah Maha Pengampun, Maha Penyayang.&#x20;
+Dan hanya milik Allah kerajaan langit dan bumi. Dia mengampuni siapa yang Dia kehendaki dan akan mengazab siapa yang Dia kehendaki. Dan Allah Maha Pengampun, Maha Penyayang.
 
 ## 48:15
 
-Apabila kamu berangkat untuk mengambil barang rampasan, orang-orang Badui yang tertinggal itu akan berkata, “Biarkanlah kami mengikuti kamu.” Mereka hendak mengubah janji Allah. Katakanlah, “Kamu sekali-kali tidak (boleh) mengikuti kami. Demikianlah yang telah ditetapkan Allah sejak semula.” Maka mereka akan berkata, “Sebenarnya kamu dengki kepada kami.” Padahal mereka tidak mengerti melainkan sedikit sekali.&#x20;
+Apabila kamu berangkat untuk mengambil barang rampasan, orang-orang Badui yang tertinggal itu akan berkata, “Biarkanlah kami mengikuti kamu.” Mereka hendak mengubah janji Allah. Katakanlah, “Kamu sekali-kali tidak (boleh) mengikuti kami. Demikianlah yang telah ditetapkan Allah sejak semula.” Maka mereka akan berkata, “Sebenarnya kamu dengki kepada kami.” Padahal mereka tidak mengerti melainkan sedikit sekali.
 
 ## 48:16
 
-Katakanlah kepada orang-orang Badui yang tertinggal, “Kamu akan diajak untuk (memerangi) kaum yang mempunyai kekuatan yang besar, kamu harus memerangi mereka kecuali mereka menyerah. Jika kamu patuhi (ajakan itu) Allah akan memberimu pahala yang baik, tetapi jika kamu berpaling seperti yang kamu perbuat sebelumnya, Dia akan mengazab kamu dengan azab yang pedih.”&#x20;
+Katakanlah kepada orang-orang Badui yang tertinggal, “Kamu akan diajak untuk (memerangi) kaum yang mempunyai kekuatan yang besar, kamu harus memerangi mereka kecuali mereka menyerah. Jika kamu patuhi (ajakan itu) Allah akan memberimu pahala yang baik, tetapi jika kamu berpaling seperti yang kamu perbuat sebelumnya, Dia akan mengazab kamu dengan azab yang pedih.”
 
 ## 48:17
 
-Tidak ada dosa atas orang-orang yang buta, atas orang-orang yang pincang, dan atas orang-orang yang sakit (apabila tidak ikut berperang). Barangsiapa taat kepada Allah dan Rasul-Nya, Dia akan memasukkannya ke dalam surga yang mengalir di bawahnya sungai-sungai; tetapi barangsiapa berpaling, Dia akan mengazabnya dengan azab yang pedih.&#x20;
+Tidak ada dosa atas orang-orang yang buta, atas orang-orang yang pincang, dan atas orang-orang yang sakit (apabila tidak ikut berperang). Barangsiapa taat kepada Allah dan Rasul-Nya, Dia akan memasukkannya ke dalam surga yang mengalir di bawahnya sungai-sungai; tetapi barangsiapa berpaling, Dia akan mengazabnya dengan azab yang pedih.
 
 ## 48:18
 
@@ -18411,35 +18411,35 @@ Sungguh, Allah telah meridai orang-orang mukmin ketika mereka berjanji setia kep
 
 ## 48:19
 
-dan harta rampasan perang yang banyak yang akan mereka peroleh. Dan Allah Mahaperkasa, Mahabijaksana.&#x20;
+dan harta rampasan perang yang banyak yang akan mereka peroleh. Dan Allah Mahaperkasa, Mahabijaksana.
 
 ## 48:20
 
-Allah menjanjikan kepadamu harta rampasan perang yang banyak yang dapat kamu ambil, maka Dia segerakan (harta rampasan perang) ini untukmu dan Dia menahan tangan manusia dari (membinasakan)mu (agar kamu mensyukuri-Nya) dan agar menjadi bukti bagi orang-orang mukmin dan agar Dia menunjukkan kamu ke jalan yang lurus.&#x20;
+Allah menjanjikan kepadamu harta rampasan perang yang banyak yang dapat kamu ambil, maka Dia segerakan (harta rampasan perang) ini untukmu dan Dia menahan tangan manusia dari (membinasakan)mu (agar kamu mensyukuri-Nya) dan agar menjadi bukti bagi orang-orang mukmin dan agar Dia menunjukkan kamu ke jalan yang lurus.
 
 ## 48:21
 
-Dan (kemenangan-kemenangan) atas negeri-negeri lain yang tidak dapat kamu perkirakan, tetapi sesungguhnya Allah telah menentukannya. Dan Allah Mahakuasa atas segala sesuatu.&#x20;
+Dan (kemenangan-kemenangan) atas negeri-negeri lain yang tidak dapat kamu perkirakan, tetapi sesungguhnya Allah telah menentukannya. Dan Allah Mahakuasa atas segala sesuatu.
 
 ## 48:22
 
-Dan sekiranya orang-orang yang kafir itu memerangi kamu pastilah mereka akan berbalik melarikan diri (kalah) dan mereka tidak akan mendapatkan pelindung dan penolong.&#x20;
+Dan sekiranya orang-orang yang kafir itu memerangi kamu pastilah mereka akan berbalik melarikan diri (kalah) dan mereka tidak akan mendapatkan pelindung dan penolong.
 
 ## 48:23
 
-(Demikianlah) hukum Allah, yang telah berlaku sejak dahulu, kamu sekali-kali tidak akan menemukan perubahan pada hukum Allah itu.&#x20;
+(Demikianlah) hukum Allah, yang telah berlaku sejak dahulu, kamu sekali-kali tidak akan menemukan perubahan pada hukum Allah itu.
 
 ## 48:24
 
-Dan Dialah yang mencegah tangan mereka dari (membinasakan) kamu dan (mencegah) tangan kamu dari (membinasakan) mereka di tengah (kota) Mekah setelah Allah memenangkan kamu atas mereka. Dan Allah Maha Melihat apa yang kamu kerjakan.&#x20;
+Dan Dialah yang mencegah tangan mereka dari (membinasakan) kamu dan (mencegah) tangan kamu dari (membinasakan) mereka di tengah (kota) Mekah setelah Allah memenangkan kamu atas mereka. Dan Allah Maha Melihat apa yang kamu kerjakan.
 
 ## 48:25
 
-Merekalah orang-orang kafir yang menghalang-halangi kamu (masuk) Masjidilharam dan menghambat hewan-hewan kurban sampai ke tempat (penyembelihan)nya. Dan kalau bukanlah karena ada beberapa orang beriman laki-laki dan perempuan yang tidak kamu ketahui, tentulah kamu akan membunuh mereka yang menyebabkan kamu ditimpa kesulitan tanpa kamu sadari. Karena Allah hendak memasukkan siapa yang Dia kehendaki ke dalam rahmat-Nya. Sekiranya mereka terpisah, tentu Kami akan mengazab orang-orang yang kafir di antara mereka dengan azab yang pedih.&#x20;
+Merekalah orang-orang kafir yang menghalang-halangi kamu (masuk) Masjidilharam dan menghambat hewan-hewan kurban sampai ke tempat (penyembelihan)nya. Dan kalau bukanlah karena ada beberapa orang beriman laki-laki dan perempuan yang tidak kamu ketahui, tentulah kamu akan membunuh mereka yang menyebabkan kamu ditimpa kesulitan tanpa kamu sadari. Karena Allah hendak memasukkan siapa yang Dia kehendaki ke dalam rahmat-Nya. Sekiranya mereka terpisah, tentu Kami akan mengazab orang-orang yang kafir di antara mereka dengan azab yang pedih.
 
 ## 48:26
 
-Ketika orang-orang yang kafir menanamkan kesombongan dalam hati mereka (yaitu) kesombongan jahiliah, lalu Allah menurunkan ketenangan kepada Rasul-Nya, dan kepada orang-orang mukmin; dan (Allah) mewajibkan kepada mereka tetap taat menjalankan kalimat takwa dan mereka lebih berhak dengan itu dan patut memilikinya. Dan Allah Maha Mengetahui segala sesuatu.&#x20;
+Ketika orang-orang yang kafir menanamkan kesombongan dalam hati mereka (yaitu) kesombongan jahiliah, lalu Allah menurunkan ketenangan kepada Rasul-Nya, dan kepada orang-orang mukmin; dan (Allah) mewajibkan kepada mereka tetap taat menjalankan kalimat takwa dan mereka lebih berhak dengan itu dan patut memilikinya. Dan Allah Maha Mengetahui segala sesuatu.
 
 ## 48:27
 
@@ -18447,11 +18447,11 @@ Sungguh, Allah akan membuktikan kepada Rasul-Nya tentang kebenaran mimpinya bahw
 
 ## 48:28
 
-Dialah yang mengutus Rasul-Nya dengan membawa petunjuk dan agama yang benar agar dimenangkan-Nya terhadap semua agama. Dan cukuplah Allah sebagai saksi.&#x20;
+Dialah yang mengutus Rasul-Nya dengan membawa petunjuk dan agama yang benar agar dimenangkan-Nya terhadap semua agama. Dan cukuplah Allah sebagai saksi.
 
 ## 48:29
 
-Muhammad adalah utusan Allah dan orang-orang yang bersama dengan dia bersikap keras terhadap orang-orang kafir, tetapi berkasih sayang sesama mereka. Kamu melihat mereka rukuk dan sujud mencari karunia Allah dan keridaan-Nya. Pada wajah mereka tampak tanda-tanda bekas sujud. Demikianlah sifat-sifat mereka (yang diungkapkan) dalam Taurat dan sifat-sifat mereka (yang diungkapkan) dalam Injil, yaitu seperti benih yang mengeluarkan tunasnya, kemudian tunas itu semakin kuat lalu menjadi besar dan tegak lurus di atas batangnya; tanaman itu menyenangkan hati penanam-penanamnya karena Allah hendak menjengkelkan hati orang-orang kafir (dengan kekuatan orang-orang mukmin). Allah menjanjikan kepada orang-orang yang beriman dan mengerjakan kebajikan di antara mereka, ampunan dan pahala yang besar.&#x20;
+Muhammad adalah utusan Allah dan orang-orang yang bersama dengan dia bersikap keras terhadap orang-orang kafir, tetapi berkasih sayang sesama mereka. Kamu melihat mereka rukuk dan sujud mencari karunia Allah dan keridaan-Nya. Pada wajah mereka tampak tanda-tanda bekas sujud. Demikianlah sifat-sifat mereka (yang diungkapkan) dalam Taurat dan sifat-sifat mereka (yang diungkapkan) dalam Injil, yaitu seperti benih yang mengeluarkan tunasnya, kemudian tunas itu semakin kuat lalu menjadi besar dan tegak lurus di atas batangnya; tanaman itu menyenangkan hati penanam-penanamnya karena Allah hendak menjengkelkan hati orang-orang kafir (dengan kekuatan orang-orang mukmin). Allah menjanjikan kepada orang-orang yang beriman dan mengerjakan kebajikan di antara mereka, ampunan dan pahala yang besar.
 
 ## 49:1
 
@@ -18459,7 +18459,7 @@ Wahai orang-orang yang beriman! Janganlah kamu mendahului Allah dan Rasul-Nya da
 
 ## 49:2
 
-Wahai orang-orang yang beriman! Janganlah kamu meninggikan suaramu melebihi suara Nabi, dan janganlah kamu berkata kepadanya dengan suara keras sebagaimana kerasnya (suara) sebagian kamu terhadap yang lain, nanti (pahala) segala amalmu bisa terhapus sedangkan kamu tidak menyadari.&#x20;
+Wahai orang-orang yang beriman! Janganlah kamu meninggikan suaramu melebihi suara Nabi, dan janganlah kamu berkata kepadanya dengan suara keras sebagaimana kerasnya (suara) sebagian kamu terhadap yang lain, nanti (pahala) segala amalmu bisa terhapus sedangkan kamu tidak menyadari.
 
 ## 49:3
 
@@ -18467,15 +18467,15 @@ Sesungguhnya orang-orang yang merendahkan suaranya di sisi Rasulullah, mereka it
 
 ## 49:4
 
-Sesungguhnya orang-orang yang memanggil engkau (Muhammad) dari luar kamar(mu) kebanyakan mereka tidak mengerti.&#x20;
+Sesungguhnya orang-orang yang memanggil engkau (Muhammad) dari luar kamar(mu) kebanyakan mereka tidak mengerti.
 
 ## 49:5
 
-Dan sekiranya mereka bersabar sampai engkau keluar menemui mereka, tentu akan lebih baik bagi mereka. Dan Allah Maha Pengampun, Maha Penyayang.&#x20;
+Dan sekiranya mereka bersabar sampai engkau keluar menemui mereka, tentu akan lebih baik bagi mereka. Dan Allah Maha Pengampun, Maha Penyayang.
 
 ## 49:6
 
-Wahai orang-orang yang beriman! Jika seseorang yang fasik datang kepadamu membawa suatu berita, maka telitilah kebenarannya, agar kamu tidak mencelakakan suatu kaum karena kebodohan (kecerobohan), yang akhirnya kamu menyesali perbuatanmu itu.&#x20;
+Wahai orang-orang yang beriman! Jika seseorang yang fasik datang kepadamu membawa suatu berita, maka telitilah kebenarannya, agar kamu tidak mencelakakan suatu kaum karena kebodohan (kecerobohan), yang akhirnya kamu menyesali perbuatanmu itu.
 
 ## 49:7
 
@@ -18487,15 +18487,15 @@ sebagai karunia dan nikmat dari Allah. Dan Allah Maha Mengetahui, Mahabijaksana.
 
 ## 49:9
 
-Dan apabila ada dua golongan orang-orang mukmin berperang, maka damaikanlah antara keduanya. Jika salah satu dari keduanya berbuat zalim terhadap (golongan) yang lain, maka perangilah (golongan) yang berbuat zalim itu, sehingga golongan itu kembali kepada perintah Allah. Jika golongan itu telah kembali (kepada perintah Allah), maka damaikanlah antara keduanya dengan adil, dan berlakulah adil. Sungguh, Allah mencintai orang-orang yang berlaku adil.&#x20;
+Dan apabila ada dua golongan orang-orang mukmin berperang, maka damaikanlah antara keduanya. Jika salah satu dari keduanya berbuat zalim terhadap (golongan) yang lain, maka perangilah (golongan) yang berbuat zalim itu, sehingga golongan itu kembali kepada perintah Allah. Jika golongan itu telah kembali (kepada perintah Allah), maka damaikanlah antara keduanya dengan adil, dan berlakulah adil. Sungguh, Allah mencintai orang-orang yang berlaku adil.
 
 ## 49:10
 
-Sesungguhnya orang-orang mukmin itu bersaudara, karena itu damaikanlah antara kedua saudaramu (yang berselisih) dan bertakwalah kepada Allah agar kamu mendapat rahmat.&#x20;
+Sesungguhnya orang-orang mukmin itu bersaudara, karena itu damaikanlah antara kedua saudaramu (yang berselisih) dan bertakwalah kepada Allah agar kamu mendapat rahmat.
 
 ## 49:11
 
-Wahai orang-orang yang beriman! Janganlah suatu kaum mengolok-olok kaum yang lain (karena) boleh jadi mereka (yang diperolok-olokkan) lebih baik dari mereka (yang mengolok-olok) dan jangan pula perempuan-perempuan (mengolok-olokkan) perempuan lain (karena) boleh jadi perempuan (yang diperolok-olokkan) lebih baik dari perempuan (yang mengolok-olok). Janganlah kamu saling mencela satu sama lain dan janganlah saling memanggil dengan gelar-gelar yang buruk. Seburuk-buruk panggilan adalah (panggilan) yang buruk (fasik) setelah beriman. Dan barangsiapa tidak bertobat, maka mereka itulah orang-orang yang zalim.&#x20;
+Wahai orang-orang yang beriman! Janganlah suatu kaum mengolok-olok kaum yang lain (karena) boleh jadi mereka (yang diperolok-olokkan) lebih baik dari mereka (yang mengolok-olok) dan jangan pula perempuan-perempuan (mengolok-olokkan) perempuan lain (karena) boleh jadi perempuan (yang diperolok-olokkan) lebih baik dari perempuan (yang mengolok-olok). Janganlah kamu saling mencela satu sama lain dan janganlah saling memanggil dengan gelar-gelar yang buruk. Seburuk-buruk panggilan adalah (panggilan) yang buruk (fasik) setelah beriman. Dan barangsiapa tidak bertobat, maka mereka itulah orang-orang yang zalim.
 
 ## 49:12
 
@@ -18503,11 +18503,11 @@ Wahai orang-orang yang beriman! Jauhilah banyak dari prasangka, sesungguhnya seb
 
 ## 49:13
 
-Wahai manusia! Sungguh, Kami telah menciptakan kamu dari seorang laki-laki dan seorang perempuan, kemudian Kami jadikan kamu berbangsa-bangsa dan bersuku-suku agar kamu saling mengenal. Sesungguhnya yang paling mulia di antara kamu di sisi Allah ialah orang yang paling bertakwa. Sungguh, Allah Maha Mengetahui, Mahateliti.&#x20;
+Wahai manusia! Sungguh, Kami telah menciptakan kamu dari seorang laki-laki dan seorang perempuan, kemudian Kami jadikan kamu berbangsa-bangsa dan bersuku-suku agar kamu saling mengenal. Sesungguhnya yang paling mulia di antara kamu di sisi Allah ialah orang yang paling bertakwa. Sungguh, Allah Maha Mengetahui, Mahateliti.
 
 ## 49:14
 
-Orang-orang Arab Badui berkata, “Kami telah beriman.” Katakanlah (kepada mereka), “Kamu belum beriman, tetapi katakanlah ‘Kami telah tunduk (Islam),’ karena iman belum masuk ke dalam hatimu. Dan jika kamu taat kepada Allah dan Rasul-Nya, Dia tidak akan mengurangi sedikit pun (pahala) amal perbuatanmu. Sungguh, Allah Maha Pengampun, Maha Penyayang.”&#x20;
+Orang-orang Arab Badui berkata, “Kami telah beriman.” Katakanlah (kepada mereka), “Kamu belum beriman, tetapi katakanlah ‘Kami telah tunduk (Islam),’ karena iman belum masuk ke dalam hatimu. Dan jika kamu taat kepada Allah dan Rasul-Nya, Dia tidak akan mengurangi sedikit pun (pahala) amal perbuatanmu. Sungguh, Allah Maha Pengampun, Maha Penyayang.”
 
 ## 49:15
 
@@ -18515,199 +18515,199 @@ Sesungguhnya orang-orang mukmin yang sebenarnya adalah mereka yang beriman kepad
 
 ## 49:16
 
-Katakanlah (kepada mereka), “Apakah kamu akan memberitahukan kepada Allah tentang agamamu (keyakinanmu), padahal Allah mengetahui apa yang ada di langit dan apa yang ada di bumi dan Allah Maha Mengetahui segala sesuatu.”&#x20;
+Katakanlah (kepada mereka), “Apakah kamu akan memberitahukan kepada Allah tentang agamamu (keyakinanmu), padahal Allah mengetahui apa yang ada di langit dan apa yang ada di bumi dan Allah Maha Mengetahui segala sesuatu.”
 
 ## 49:17
 
-Mereka merasa berjasa kepadamu dengan keislaman mereka. Katakanlah, “Janganlah kamu merasa berjasa kepadaku dengan keislamanmu, sebenarnya Allah yang melimpahkan nikmat kepadamu dengan menunjukkan kamu kepada keimanan, jika kamu orang yang benar.”&#x20;
+Mereka merasa berjasa kepadamu dengan keislaman mereka. Katakanlah, “Janganlah kamu merasa berjasa kepadaku dengan keislamanmu, sebenarnya Allah yang melimpahkan nikmat kepadamu dengan menunjukkan kamu kepada keimanan, jika kamu orang yang benar.”
 
 ## 49:18
 
-Sungguh, Allah mengetahui apa yang gaib di langit dan di bumi. Dan Allah Maha Melihat apa yang kamu kerjakan.&#x20;
+Sungguh, Allah mengetahui apa yang gaib di langit dan di bumi. Dan Allah Maha Melihat apa yang kamu kerjakan.
 
 ## 50:1
 
-Qaf. Demi Al-Qur'an yang mulia.&#x20;
+Qaf. Demi Al-Qur'an yang mulia.
 
 ## 50:2
 
-(Mereka tidak menerimanya) bahkan mereka tercengang karena telah datang kepada mereka seorang pemberi peringatan dari (kalangan) mereka sendiri, maka berkatalah orang-orang kafir, “Ini adalah suatu yang sangat ajaib.”&#x20;
+(Mereka tidak menerimanya) bahkan mereka tercengang karena telah datang kepada mereka seorang pemberi peringatan dari (kalangan) mereka sendiri, maka berkatalah orang-orang kafir, “Ini adalah suatu yang sangat ajaib.”
 
 ## 50:3
 
-Apakah apabila kami telah mati dan sudah menjadi tanah (akan kembali lagi)? Itu adalah suatu pengembalian yang tidak mungkin.&#x20;
+Apakah apabila kami telah mati dan sudah menjadi tanah (akan kembali lagi)? Itu adalah suatu pengembalian yang tidak mungkin.
 
 ## 50:4
 
-Sungguh, Kami telah mengetahui apa yang ditelan bumi dari (tubuh) mereka, sebab pada Kami ada kitab (catatan) yang terpelihara baik.&#x20;
+Sungguh, Kami telah mengetahui apa yang ditelan bumi dari (tubuh) mereka, sebab pada Kami ada kitab (catatan) yang terpelihara baik.
 
 ## 50:5
 
-Bahkan mereka telah mendustakan kebenaran ketika (kebenaran itu) datang kepada mereka, maka mereka berada dalam keadaan kacau balau.&#x20;
+Bahkan mereka telah mendustakan kebenaran ketika (kebenaran itu) datang kepada mereka, maka mereka berada dalam keadaan kacau balau.
 
 ## 50:6
 
-Maka tidakkah mereka memperhatikan langit yang ada di atas mereka, bagaimana cara Kami membangunnya dan menghiasinya dan tidak terdapat retak-retak sedikit pun?&#x20;
+Maka tidakkah mereka memperhatikan langit yang ada di atas mereka, bagaimana cara Kami membangunnya dan menghiasinya dan tidak terdapat retak-retak sedikit pun?
 
 ## 50:7
 
-Dan bumi yang Kami hamparkan dan Kami pancangkan di atasnya gunung-gunung yang kokoh dan Kami tumbuhkan di atasnya tanam-tanaman yang indah,&#x20;
+Dan bumi yang Kami hamparkan dan Kami pancangkan di atasnya gunung-gunung yang kokoh dan Kami tumbuhkan di atasnya tanam-tanaman yang indah,
 
 ## 50:8
 
-untuk menjadi pelajaran dan peringatan bagi setiap hamba yang kembali (tunduk kepada Allah).&#x20;
+untuk menjadi pelajaran dan peringatan bagi setiap hamba yang kembali (tunduk kepada Allah).
 
 ## 50:9
 
-Dan dari langit Kami turunkan air yang memberi berkah lalu Kami tumbuhkan dengan (air) itu pepohonan yang rindang dan biji-bijian yang dapat dipanen.&#x20;
+Dan dari langit Kami turunkan air yang memberi berkah lalu Kami tumbuhkan dengan (air) itu pepohonan yang rindang dan biji-bijian yang dapat dipanen.
 
 ## 50:10
 
-Dan pohon kurma yang tinggi-tinggi yang mempunyai mayang yang bersusun-susun,&#x20;
+Dan pohon kurma yang tinggi-tinggi yang mempunyai mayang yang bersusun-susun,
 
 ## 50:11
 
-(sebagai) rezeki bagi hamba-hamba (Kami), dan Kami hidupkan dengan (air) itu negeri yang mati (tandus). Seperti itulah terjadinya kebangkitan (dari kubur).&#x20;
+(sebagai) rezeki bagi hamba-hamba (Kami), dan Kami hidupkan dengan (air) itu negeri yang mati (tandus). Seperti itulah terjadinya kebangkitan (dari kubur).
 
 ## 50:12
 
-Sebelum mereka, kaum Nuh, penduduk Rass dan Samud telah mendustakan (rasul-rasul),&#x20;
+Sebelum mereka, kaum Nuh, penduduk Rass dan Samud telah mendustakan (rasul-rasul),
 
 ## 50:13
 
-dan (demikian juga) kaum  ‘Ad, kaum Fir‘aun dan kaum Lut,&#x20;
+dan (demikian juga) kaum  ‘Ad, kaum Fir‘aun dan kaum Lut,
 
 ## 50:14
 
-dan (juga) penduduk Aikah serta kaum Tubba‘. Semuanya telah mendustakan rasul-rasul maka berlakulah ancaman-Ku (atas mereka).&#x20;
+dan (juga) penduduk Aikah serta kaum Tubba‘. Semuanya telah mendustakan rasul-rasul maka berlakulah ancaman-Ku (atas mereka).
 
 ## 50:15
 
-Maka apakah Kami letih dengan penciptaan yang pertama? (Sama sekali tidak) bahkan mereka dalam keadaan ragu-ragu tentang penciptaan yang baru.&#x20;
+Maka apakah Kami letih dengan penciptaan yang pertama? (Sama sekali tidak) bahkan mereka dalam keadaan ragu-ragu tentang penciptaan yang baru.
 
 ## 50:16
 
-Dan sungguh, Kami telah menciptakan manusia dan mengetahui apa yang dibisikkan oleh hatinya, dan Kami lebih dekat kepadanya daripada urat lehernya.&#x20;
+Dan sungguh, Kami telah menciptakan manusia dan mengetahui apa yang dibisikkan oleh hatinya, dan Kami lebih dekat kepadanya daripada urat lehernya.
 
 ## 50:17
 
-(Ingatlah) ketika dua malaikat mencatat (perbuatannya), yang satu duduk di sebelah kanan dan yang lain di sebelah kiri.&#x20;
+(Ingatlah) ketika dua malaikat mencatat (perbuatannya), yang satu duduk di sebelah kanan dan yang lain di sebelah kiri.
 
 ## 50:18
 
-Tidak ada suatu kata yang diucapkannya melainkan ada di sisinya malaikat pengawas yang selalu siap (mencatat).&#x20;
+Tidak ada suatu kata yang diucapkannya melainkan ada di sisinya malaikat pengawas yang selalu siap (mencatat).
 
 ## 50:19
 
-Dan datanglah sakaratul maut dengan sebenar-benarnya. Itulah yang dahulu hendak kamu hindari.&#x20;
+Dan datanglah sakaratul maut dengan sebenar-benarnya. Itulah yang dahulu hendak kamu hindari.
 
 ## 50:20
 
-Dan ditiuplah sangkakala. Itulah hari yang diancamkan.&#x20;
+Dan ditiuplah sangkakala. Itulah hari yang diancamkan.
 
 ## 50:21
 
-Setiap orang akan datang bersama (malaikat) penggiring dan (malaikat) saksi.&#x20;
+Setiap orang akan datang bersama (malaikat) penggiring dan (malaikat) saksi.
 
 ## 50:22
 
-Sungguh, kamu dahulu lalai tentang (peristiwa) ini, maka Kami singkapkan tutup (yang menutupi) matamu, sehingga penglihatanmu pada hari ini sangat tajam.&#x20;
+Sungguh, kamu dahulu lalai tentang (peristiwa) ini, maka Kami singkapkan tutup (yang menutupi) matamu, sehingga penglihatanmu pada hari ini sangat tajam.
 
 ## 50:23
 
-Dan (malaikat) yang menyertainya berkata, “Inilah (catatan perbuatan) yang ada padaku.”&#x20;
+Dan (malaikat) yang menyertainya berkata, “Inilah (catatan perbuatan) yang ada padaku.”
 
 ## 50:24
 
-(Allah berfirman), “Lemparkanlah olehmu berdua ke dalam neraka Jahanam semua orang yang sangat ingkar dan keras kepala,&#x20;
+(Allah berfirman), “Lemparkanlah olehmu berdua ke dalam neraka Jahanam semua orang yang sangat ingkar dan keras kepala,
 
 ## 50:25
 
-yang sangat enggan melakukan kebajikan, melampaui batas dan bersikap ragu-ragu,&#x20;
+yang sangat enggan melakukan kebajikan, melampaui batas dan bersikap ragu-ragu,
 
 ## 50:26
 
-yang mempersekutukan Allah dengan tuhan lain, maka lemparkanlah dia ke dalam azab yang keras.”&#x20;
+yang mempersekutukan Allah dengan tuhan lain, maka lemparkanlah dia ke dalam azab yang keras.”
 
 ## 50:27
 
-(Setan) yang menyertainya berkata (pula), “Ya Tuhan kami, aku tidak menyesatkannya tetapi dia sendiri yang berada dalam kesesatan yang jauh.”&#x20;
+(Setan) yang menyertainya berkata (pula), “Ya Tuhan kami, aku tidak menyesatkannya tetapi dia sendiri yang berada dalam kesesatan yang jauh.”
 
 ## 50:28
 
-(Allah) berfirman, “Janganlah kamu bertengkar di hadapan-Ku, dan sungguh, dahulu Aku telah memberikan ancaman kepadamu.&#x20;
+(Allah) berfirman, “Janganlah kamu bertengkar di hadapan-Ku, dan sungguh, dahulu Aku telah memberikan ancaman kepadamu.
 
 ## 50:29
 
-Keputusan-Ku tidak dapat diubah dan Aku tidak menzalimi hamba-hamba-Ku.”&#x20;
+Keputusan-Ku tidak dapat diubah dan Aku tidak menzalimi hamba-hamba-Ku.”
 
 ## 50:30
 
-(Ingatlah) pada hari (ketika) Kami bertanya kepada Jahanam, “Apakah kamu sudah penuh?”  Ia menjawab, “Masih adakah tambahan?”&#x20;
+(Ingatlah) pada hari (ketika) Kami bertanya kepada Jahanam, “Apakah kamu sudah penuh?”  Ia menjawab, “Masih adakah tambahan?”
 
 ## 50:31
 
-Sedangkan surga didekatkan kepada orang-orang yang bertakwa pada tempat yang tidak jauh (dari mereka).&#x20;
+Sedangkan surga didekatkan kepada orang-orang yang bertakwa pada tempat yang tidak jauh (dari mereka).
 
 ## 50:32
 
-(Kepada mereka dikatakan), “Inilah nikmat yang dijanjikan kepadamu, (yaitu) kepada setiap hamba yang senantiasa bertobat (kepada Allah) dan memelihara (semua peraturan-peraturan-Nya).&#x20;
+(Kepada mereka dikatakan), “Inilah nikmat yang dijanjikan kepadamu, (yaitu) kepada setiap hamba yang senantiasa bertobat (kepada Allah) dan memelihara (semua peraturan-peraturan-Nya).
 
 ## 50:33
 
-(Yaitu) orang yang takut kepada Allah Yang Maha Pengasih sekalipun tidak kelihatan (olehnya) dan dia datang dengan hati yang bertobat,&#x20;
+(Yaitu) orang yang takut kepada Allah Yang Maha Pengasih sekalipun tidak kelihatan (olehnya) dan dia datang dengan hati yang bertobat,
 
 ## 50:34
 
-masuklah ke (dalam surga) dengan aman dan damai. Itulah hari yang abadi.”&#x20;
+masuklah ke (dalam surga) dengan aman dan damai. Itulah hari yang abadi.”
 
 ## 50:35
 
-Mereka di dalamnya memperoleh apa yang mereka kehendaki, dan pada Kami ada tambahannya.&#x20;
+Mereka di dalamnya memperoleh apa yang mereka kehendaki, dan pada Kami ada tambahannya.
 
 ## 50:36
 
-Dan betapa banyak umat yang telah Kami binasakan sebelum mereka, (padahal) mereka lebih hebat kekuatannya daripada mereka (umat yang belakangan) ini. Mereka pernah menjelajah di beberapa negeri. Adakah tempat pelarian (dari kebinasaan bagi mereka)?&#x20;
+Dan betapa banyak umat yang telah Kami binasakan sebelum mereka, (padahal) mereka lebih hebat kekuatannya daripada mereka (umat yang belakangan) ini. Mereka pernah menjelajah di beberapa negeri. Adakah tempat pelarian (dari kebinasaan bagi mereka)?
 
 ## 50:37
 
-Sungguh, pada yang demikian itu pasti terdapat peringatan bagi orang-orang yang mempunyai hati atau yang menggunakan pendengarannya, sedang dia menyaksikannya.&#x20;
+Sungguh, pada yang demikian itu pasti terdapat peringatan bagi orang-orang yang mempunyai hati atau yang menggunakan pendengarannya, sedang dia menyaksikannya.
 
 ## 50:38
 
-Dan sungguh, Kami telah menciptakan langit dan bumi dan apa yang ada antara keduanya dalam enam masa, dan Kami tidak merasa letih sedikit pun.&#x20;
+Dan sungguh, Kami telah menciptakan langit dan bumi dan apa yang ada antara keduanya dalam enam masa, dan Kami tidak merasa letih sedikit pun.
 
 ## 50:39
 
-Maka bersabarlah engkau (Muhammad) terhadap apa yang mereka katakan dan bertasbihlah dengan memuji Tuhanmu sebelum matahari terbit dan sebelum terbenam.&#x20;
+Maka bersabarlah engkau (Muhammad) terhadap apa yang mereka katakan dan bertasbihlah dengan memuji Tuhanmu sebelum matahari terbit dan sebelum terbenam.
 
 ## 50:40
 
-Dan bertasbihlah kepada-Nya pada malam hari dan setiap selesai salat.&#x20;
+Dan bertasbihlah kepada-Nya pada malam hari dan setiap selesai salat.
 
 ## 50:41
 
-Dan dengarkanlah (seruan) pada hari (ketika) penyeru (malaikat) menyeru dari tempat yang dekat.&#x20;
+Dan dengarkanlah (seruan) pada hari (ketika) penyeru (malaikat) menyeru dari tempat yang dekat.
 
 ## 50:42
 
-(Yaitu) pada hari (ketika) mereka men-dengar suara dahsyat dengan sebenarnya. Itulah hari keluar (dari kubur).&#x20;
+(Yaitu) pada hari (ketika) mereka men-dengar suara dahsyat dengan sebenarnya. Itulah hari keluar (dari kubur).
 
 ## 50:43
 
-Sungguh, Kami yang menghidupkan dan mematikan dan kepada Kami tempat kembali (semua makhluk).&#x20;
+Sungguh, Kami yang menghidupkan dan mematikan dan kepada Kami tempat kembali (semua makhluk).
 
 ## 50:44
 
-(Yaitu) pada hari (ketika) bumi terbelah, mereka keluar dengan cepat. Yang demikian itu adalah pengumpulan yang mudah bagi Kami.&#x20;
+(Yaitu) pada hari (ketika) bumi terbelah, mereka keluar dengan cepat. Yang demikian itu adalah pengumpulan yang mudah bagi Kami.
 
 ## 50:45
 
-Kami lebih mengetahui tentang apa yang mereka katakan, dan engkau (Muhammad) bukanlah seorang pemaksa terhadap mereka. Maka berilah peringatan dengan Al-Qur'an kepada siapa pun yang takut kepada ancaman-Ku.&#x20;
+Kami lebih mengetahui tentang apa yang mereka katakan, dan engkau (Muhammad) bukanlah seorang pemaksa terhadap mereka. Maka berilah peringatan dengan Al-Qur'an kepada siapa pun yang takut kepada ancaman-Ku.
 
 ## 51:1
 
-Demi (angin) yang menerbangkan debu,&#x20;
+Demi (angin) yang menerbangkan debu,
 
 ## 51:2
 
@@ -18715,7 +18715,7 @@ dan awan yang mengandung (hujan),
 
 ## 51:3
 
-dan (kapal-kapal) yang berlayar dengan mudah,&#x20;
+dan (kapal-kapal) yang berlayar dengan mudah,
 
 ## 51:4
 
@@ -18723,7 +18723,7 @@ dan (malaikat-malaikat) yang membagi-bagi urusan,
 
 ## 51:5
 
-sungguh, apa yang dijanjikan kepadamu pasti benar,&#x20;
+sungguh, apa yang dijanjikan kepadamu pasti benar,
 
 ## 51:6
 
@@ -18747,7 +18747,7 @@ Terkutuklah orang-orang yang banyak berdusta,
 
 ## 51:11
 
-(yaitu) orang-orang yang terbenam dalam kebodohan dan kelalaian,&#x20;
+(yaitu) orang-orang yang terbenam dalam kebodohan dan kelalaian,
 
 ## 51:12
 
@@ -18755,11 +18755,11 @@ mereka bertanya, “Kapankah hari pembalasan itu?”
 
 ## 51:13
 
-(Hari pembalasan itu ialah) pada hari (ketika) mereka diazab di dalam api neraka.&#x20;
+(Hari pembalasan itu ialah) pada hari (ketika) mereka diazab di dalam api neraka.
 
 ## 51:14
 
-(Dikatakan kepada mereka), “Rasakanlah azabmu ini. Inilah azab yang dahulu kamu minta agar disegerakan.”&#x20;
+(Dikatakan kepada mereka), “Rasakanlah azabmu ini. Inilah azab yang dahulu kamu minta agar disegerakan.”
 
 ## 51:15
 
@@ -18779,7 +18779,7 @@ dan pada akhir malam mereka memohon ampunan (kepada Allah).
 
 ## 51:19
 
-Dan pada harta benda mereka ada hak untuk orang miskin yang meminta dan orang miskin yang tidak meminta.&#x20;
+Dan pada harta benda mereka ada hak untuk orang miskin yang meminta dan orang miskin yang tidak meminta.
 
 ## 51:20
 
@@ -18795,7 +18795,7 @@ Dan di langit terdapat (sebab-sebab) rezekimu dan apa yang dijanjikan kepadamu.
 
 ## 51:23
 
-Maka demi Tuhan langit dan bumi, sungguh, apa yang dijanjikan itu pasti terjadi seperti apa yang kamu ucapkan.&#x20;
+Maka demi Tuhan langit dan bumi, sungguh, apa yang dijanjikan itu pasti terjadi seperti apa yang kamu ucapkan.
 
 ## 51:24
 
@@ -18803,7 +18803,7 @@ Sudahkah sampai kepadamu (Muhammad) cerita tamu Ibrahim (malaikat-malaikat) yang
 
 ## 51:25
 
-(Ingatlah) ketika mereka masuk ke tempatnya lalu mengucapkan, “Salaman” (salam), Ibrahim menjawab, “Salamun” (salam). (Mereka itu) orang-orang yang belum dikenalnya.&#x20;
+(Ingatlah) ketika mereka masuk ke tempatnya lalu mengucapkan, “Salaman” (salam), Ibrahim menjawab, “Salamun” (salam). (Mereka itu) orang-orang yang belum dikenalnya.
 
 ## 51:26
 
@@ -18815,11 +18815,11 @@ lalu dihidangkannya kepada mereka (tetapi mereka tidak mau makan). Ibrahim berka
 
 ## 51:28
 
-Maka dia (Ibrahim) merasa takut terhadap mereka. Mereka berkata, “Janganlah kamu takut,” dan mereka memberi kabar gembira kepadanya dengan (kelahiran) seorang anak yang alim (Ishak).&#x20;
+Maka dia (Ibrahim) merasa takut terhadap mereka. Mereka berkata, “Janganlah kamu takut,” dan mereka memberi kabar gembira kepadanya dengan (kelahiran) seorang anak yang alim (Ishak).
 
 ## 51:29
 
-Kemudian istrinya datang memekik (tercengang) lalu menepuk wajahnya sendiri seraya berkata, “(Aku ini) seorang perempuan tua yang mandul.”&#x20;
+Kemudian istrinya datang memekik (tercengang) lalu menepuk wajahnya sendiri seraya berkata, “(Aku ini) seorang perempuan tua yang mandul.”
 
 ## 51:30
 
@@ -18855,15 +18855,15 @@ Dan Kami tinggalkan padanya (negeri itu) suatu tanda bagi orang-orang yang takut
 
 ## 51:38
 
-Dan pada Musa (terdapat tanda-tanda kekuasaan Allah) ketika Kami mengutusnya kepada Fir‘aun dengan membawa mukjizat yang nyata.&#x20;
+Dan pada Musa (terdapat tanda-tanda kekuasaan Allah) ketika Kami mengutusnya kepada Fir‘aun dengan membawa mukjizat yang nyata.
 
 ## 51:39
 
-Tetapi dia (Fir‘aun) bersama bala tentaranya berpaling dan berkata, “Dia adalah seorang pesihir atau orang gila.”&#x20;
+Tetapi dia (Fir‘aun) bersama bala tentaranya berpaling dan berkata, “Dia adalah seorang pesihir atau orang gila.”
 
 ## 51:40
 
-Maka Kami siksa dia beserta bala tentaranya, lalu Kami lemparkan mereka ke dalam laut, dalam keadaan tercela.&#x20;
+Maka Kami siksa dia beserta bala tentaranya, lalu Kami lemparkan mereka ke dalam laut, dalam keadaan tercela.
 
 ## 51:41
 
@@ -18875,7 +18875,7 @@ Dan (juga) pada (kisah kaum) ‘Ad, ketika Kami kirimkan kepada mereka angin yan
 
 ## 51:43
 
-Dan pada (kisah kaum) Samud, ketika dikatakan kepada mereka, “Bersenang-senanglah kamu sampai waktu yang ditentukan.”&#x20;
+Dan pada (kisah kaum) Samud, ketika dikatakan kepada mereka, “Bersenang-senanglah kamu sampai waktu yang ditentukan.”
 
 ## 51:44
 
@@ -18887,7 +18887,7 @@ Maka mereka tidak mampu bangun dan juga tidak mendapat pertolongan,
 
 ## 51:46
 
-dan sebelum itu (telah Kami binasakan) kaum Nuh. Sungguh, mereka adalah kaum yang fasik.&#x20;
+dan sebelum itu (telah Kami binasakan) kaum Nuh. Sungguh, mereka adalah kaum yang fasik.
 
 ## 51:47
 
@@ -18895,39 +18895,39 @@ Dan langit Kami bangun dengan kekuasaan (Kami), dan Kami benar-benar meluaskanny
 
 ## 51:48
 
-Dan bumi Kami hamparkan; maka (Kami) sebaik-baik yang telah menghamparkan.&#x20;
+Dan bumi Kami hamparkan; maka (Kami) sebaik-baik yang telah menghamparkan.
 
 ## 51:49
 
-Dan segala sesuatu Kami ciptakan berpasang-pasangan agar kamu mengingat (kebesaran Allah).&#x20;
+Dan segala sesuatu Kami ciptakan berpasang-pasangan agar kamu mengingat (kebesaran Allah).
 
 ## 51:50
 
-Maka segeralah kembali kepada (menaati) Allah. Sungguh, aku seorang pemberi peringatan yang jelas dari Allah untukmu.&#x20;
+Maka segeralah kembali kepada (menaati) Allah. Sungguh, aku seorang pemberi peringatan yang jelas dari Allah untukmu.
 
 ## 51:51
 
-Dan janganlah kamu mengadakan tuhan yang lain selain Allah. Sungguh, aku seorang pemberi peringatan yang jelas dari Allah untukmu.&#x20;
+Dan janganlah kamu mengadakan tuhan yang lain selain Allah. Sungguh, aku seorang pemberi peringatan yang jelas dari Allah untukmu.
 
 ## 51:52
 
-Demikianlah setiap kali seorang Rasul yang datang kepada orang-orang yang sebelum mereka, mereka (kaumnya) pasti mengatakan, “Dia itu pesihir atau orang gila.”&#x20;
+Demikianlah setiap kali seorang Rasul yang datang kepada orang-orang yang sebelum mereka, mereka (kaumnya) pasti mengatakan, “Dia itu pesihir atau orang gila.”
 
 ## 51:53
 
-Apakah mereka saling berpesan tentang apa yang dikatakan itu. Sebenarnya mereka adalah kaum yang melampaui batas.&#x20;
+Apakah mereka saling berpesan tentang apa yang dikatakan itu. Sebenarnya mereka adalah kaum yang melampaui batas.
 
 ## 51:54
 
-Maka berpalinglah engkau dari mereka, dan engkau sama sekali tidak tercela.&#x20;
+Maka berpalinglah engkau dari mereka, dan engkau sama sekali tidak tercela.
 
 ## 51:55
 
-Dan tetaplah memberi peringatan, karena sesungguhnya peringatan itu bermanfaat bagi orang-orang mukmin.&#x20;
+Dan tetaplah memberi peringatan, karena sesungguhnya peringatan itu bermanfaat bagi orang-orang mukmin.
 
 ## 51:56
 
-Aku tidak menciptakan jin dan manusia melainkan agar mereka beribadah kepada-Ku.&#x20;
+Aku tidak menciptakan jin dan manusia melainkan agar mereka beribadah kepada-Ku.
 
 ## 51:57
 
@@ -18939,7 +18939,7 @@ Sungguh Allah, Dialah Pemberi rezeki Yang Mempunyai Kekuatan lagi Sangat Kokoh.
 
 ## 51:59
 
-Maka sungguh, untuk orang-orang yang zalim ada bagian (azab) seperti bagian teman-teman mereka (dahulu); maka janganlah mereka meminta kepada-Ku untuk menyegerakannya.&#x20;
+Maka sungguh, untuk orang-orang yang zalim ada bagian (azab) seperti bagian teman-teman mereka (dahulu); maka janganlah mereka meminta kepada-Ku untuk menyegerakannya.
 
 ## 51:60
 
@@ -18951,7 +18951,7 @@ Demi gunung (Sinai),
 
 ## 52:2
 
-dan demi Kitab yang ditulis,&#x20;
+dan demi Kitab yang ditulis,
 
 ## 52:3
 
@@ -18967,15 +18967,15 @@ demi atap yang ditinggikan (langit),
 
 ## 52:6
 
-demi lautan yang penuh gelombang,&#x20;
+demi lautan yang penuh gelombang,
 
 ## 52:7
 
-sungguh, azab Tuhanmu pasti terjadi,&#x20;
+sungguh, azab Tuhanmu pasti terjadi,
 
 ## 52:8
 
-tidak sesuatu pun yang dapat menolaknya,&#x20;
+tidak sesuatu pun yang dapat menolaknya,
 
 ## 52:9
 
@@ -18999,7 +18999,7 @@ pada hari (ketika) itu mereka didorong ke neraka Jahanam dengan sekuat-kuatnya.
 
 ## 52:14
 
-(Dikatakan kepada mereka), “Inilah neraka yang dahulu kamu mendustakannya.”&#x20;
+(Dikatakan kepada mereka), “Inilah neraka yang dahulu kamu mendustakannya.”
 
 ## 52:15
 
@@ -19007,7 +19007,7 @@ Maka apakah ini sihir? Ataukah kamu tidak melihat?
 
 ## 52:16
 
-Masuklah ke dalamnya (rasakanlah panas apinya); baik kamu bersabar atau tidak, sama saja bagimu; sesungguhnya kamu hanya diberi balasan atas apa yang telah kamu kerjakan.&#x20;
+Masuklah ke dalamnya (rasakanlah panas apinya); baik kamu bersabar atau tidak, sama saja bagimu; sesungguhnya kamu hanya diberi balasan atas apa yang telah kamu kerjakan.
 
 ## 52:17
 
@@ -19019,43 +19019,43 @@ mereka bersuka ria dengan apa yang diberikan Tuhan kepada mereka; dan Tuhan meme
 
 ## 52:19
 
-(Dikatakan kepada mereka), “Makan dan minumlah dengan rasa nikmat sebagai balasan dari apa yang telah kamu kerjakan.”&#x20;
+(Dikatakan kepada mereka), “Makan dan minumlah dengan rasa nikmat sebagai balasan dari apa yang telah kamu kerjakan.”
 
 ## 52:20
 
-Mereka bersandar di atas dipan-dipan yang tersusun dan Kami berikan kepada mereka pasangan bidadari yang bermata indah.&#x20;
+Mereka bersandar di atas dipan-dipan yang tersusun dan Kami berikan kepada mereka pasangan bidadari yang bermata indah.
 
 ## 52:21
 
-Dan orang-orang yang beriman, beserta anak cucu mereka yang mengikuti mereka dalam keimanan, Kami pertemukan mereka dengan anak cucu mereka (di dalam surga), dan Kami tidak mengurangi sedikit pun pahala amal (kebajikan) mereka. Setiap orang terikat dengan apa yang dikerjakannya.&#x20;
+Dan orang-orang yang beriman, beserta anak cucu mereka yang mengikuti mereka dalam keimanan, Kami pertemukan mereka dengan anak cucu mereka (di dalam surga), dan Kami tidak mengurangi sedikit pun pahala amal (kebajikan) mereka. Setiap orang terikat dengan apa yang dikerjakannya.
 
 ## 52:22
 
-Dan Kami berikan kepada mereka tambahan berupa buah-buahan dan daging dari segala jenis yang mereka ingini.&#x20;
+Dan Kami berikan kepada mereka tambahan berupa buah-buahan dan daging dari segala jenis yang mereka ingini.
 
 ## 52:23
 
-(Di dalam surga itu) mereka saling mengulurkan gelas yang isinya tidak (menimbulkan) ucapan yang tidak berfaedah ataupun perbuatan dosa.&#x20;
+(Di dalam surga itu) mereka saling mengulurkan gelas yang isinya tidak (menimbulkan) ucapan yang tidak berfaedah ataupun perbuatan dosa.
 
 ## 52:24
 
-Dan di sekitar mereka ada anak-anak muda yang berkeliling untuk (melayani) mereka, seakan-akan mereka itu mutiara yang tersimpan.&#x20;
+Dan di sekitar mereka ada anak-anak muda yang berkeliling untuk (melayani) mereka, seakan-akan mereka itu mutiara yang tersimpan.
 
 ## 52:25
 
-Dan sebagian mereka berhadap-hadapan satu sama lain saling bertegur sapa.&#x20;
+Dan sebagian mereka berhadap-hadapan satu sama lain saling bertegur sapa.
 
 ## 52:26
 
-Mereka berkata, “Sesungguhnya kami dahulu, sewaktu berada di tengah-tengah keluarga kami merasa takut (akan diazab).&#x20;
+Mereka berkata, “Sesungguhnya kami dahulu, sewaktu berada di tengah-tengah keluarga kami merasa takut (akan diazab).
 
 ## 52:27
 
-Maka Allah memberikan karunia kepada kami dan memelihara kami dari azab neraka.&#x20;
+Maka Allah memberikan karunia kepada kami dan memelihara kami dari azab neraka.
 
 ## 52:28
 
-Sesungguhnya kami menyembah-Nya sejak dahulu. Dialah Yang Maha Melimpahkan Kebaikan, Maha Penyayang.”&#x20;
+Sesungguhnya kami menyembah-Nya sejak dahulu. Dialah Yang Maha Melimpahkan Kebaikan, Maha Penyayang.”
 
 ## 52:29
 
@@ -19063,11 +19063,11 @@ Maka peringatkanlah, karena dengan nikmat Tuhanmu engkau (Muhammad) bukanlah seo
 
 ## 52:30
 
-Bahkan mereka berkata, “Dia adalah seorang penyair yang kami tunggu-tunggu kecelakaan menimpanya.”&#x20;
+Bahkan mereka berkata, “Dia adalah seorang penyair yang kami tunggu-tunggu kecelakaan menimpanya.”
 
 ## 52:31
 
-Katakanlah (Muhammad), “Tunggulah! Sesungguhnya aku pun termasuk orang yang sedang menunggu bersama kamu.”&#x20;
+Katakanlah (Muhammad), “Tunggulah! Sesungguhnya aku pun termasuk orang yang sedang menunggu bersama kamu.”
 
 ## 52:32
 
@@ -19075,11 +19075,11 @@ Apakah mereka diperintah oleh pikiran-pikiran mereka untuk mengucapkan (tuduhan-
 
 ## 52:33
 
-Ataukah mereka berkata, “Dia (Muhammad) mereka-rekanya.” Tidak! Merekalah yang tidak beriman.&#x20;
+Ataukah mereka berkata, “Dia (Muhammad) mereka-rekanya.” Tidak! Merekalah yang tidak beriman.
 
 ## 52:34
 
-Maka cobalah mereka membuat yang semisal dengannya (Al-Qur'an) jika mereka orang-orang yang benar.&#x20;
+Maka cobalah mereka membuat yang semisal dengannya (Al-Qur'an) jika mereka orang-orang yang benar.
 
 ## 52:35
 
@@ -19095,7 +19095,7 @@ Ataukah di sisi mereka ada perbendaharaan Tuhanmu ataukah mereka yang berkuasa?
 
 ## 52:38
 
-Atau apakah mereka mempunyai tangga (ke langit) untuk mendengarkan (hal-hal yang gaib)? Maka hendaklah orang yang mendengarkan di antara mereka itu datang membawa keterangan yang nyata.&#x20;
+Atau apakah mereka mempunyai tangga (ke langit) untuk mendengarkan (hal-hal yang gaib)? Maka hendaklah orang yang mendengarkan di antara mereka itu datang membawa keterangan yang nyata.
 
 ## 52:39
 
@@ -19119,11 +19119,11 @@ Ataukah mereka mempunyai tuhan selain Allah? Mahasuci Allah dari apa yang mereka
 
 ## 52:44
 
-Dan jika mereka melihat gumpalan-gumpalan awan berjatuhan dari langit, mereka berkata, “Itu adalah awan yang bertumpuk-tumpuk.”&#x20;
+Dan jika mereka melihat gumpalan-gumpalan awan berjatuhan dari langit, mereka berkata, “Itu adalah awan yang bertumpuk-tumpuk.”
 
 ## 52:45
 
-Maka biarkanlah mereka hingga mereka menemui hari (yang dijanjikan kepada) mereka, pada hari itu mereka dibinasakan,&#x20;
+Maka biarkanlah mereka hingga mereka menemui hari (yang dijanjikan kepada) mereka, pada hari itu mereka dibinasakan,
 
 ## 52:46
 
@@ -19135,7 +19135,7 @@ Dan sesungguhnya bagi orang-orang yang zalim masih ada azab selain itu. Tetapi k
 
 ## 52:48
 
-Dan bersabarlah (Muhammad) menunggu ketetapan Tuhanmu, karena sesungguhnya engkau berada dalam pengawasan Kami, dan bertasbihlah dengan memuji Tuhanmu ketika engkau bangun,&#x20;
+Dan bersabarlah (Muhammad) menunggu ketetapan Tuhanmu, karena sesungguhnya engkau berada dalam pengawasan Kami, dan bertasbihlah dengan memuji Tuhanmu ketika engkau bangun,
 
 ## 52:49
 
@@ -19143,7 +19143,7 @@ dan pada sebagian malam bertasbihlah kepada-Nya dan (juga) pada waktu terbenamny
 
 ## 53:1
 
-Demi bintang ketika terbenam,&#x20;
+Demi bintang ketika terbenam,
 
 ## 53:2
 
@@ -19151,7 +19151,7 @@ kawanmu (Muhammad) tidak sesat dan tidak (pula) keliru,
 
 ## 53:3
 
-dan tidaklah yang diucapkannya itu (Al-Qur'an) menurut keinginannya.&#x20;
+dan tidaklah yang diucapkannya itu (Al-Qur'an) menurut keinginannya.
 
 ## 53:4
 
@@ -19159,7 +19159,7 @@ Tidak lain (Al-Qur'an itu) adalah wahyu yang diwahyukan (kepadanya),
 
 ## 53:5
 
-yang diajarkan kepadanya oleh (Jibril) yang sangat kuat,&#x20;
+yang diajarkan kepadanya oleh (Jibril) yang sangat kuat,
 
 ## 53:6
 
@@ -19171,7 +19171,7 @@ Sedang dia berada di ufuk yang tinggi.
 
 ## 53:8
 
-Kemudian dia mendekat (pada Muhammad), lalu bertambah dekat,&#x20;
+Kemudian dia mendekat (pada Muhammad), lalu bertambah dekat,
 
 ## 53:9
 
@@ -19179,11 +19179,11 @@ sehingga jaraknya (sekitar) dua busur panah atau lebih dekat (lagi).
 
 ## 53:10
 
-Lalu disampaikannya wahyu kepada hamba-Nya (Muhammad) apa yang telah diwahyukan Allah.&#x20;
+Lalu disampaikannya wahyu kepada hamba-Nya (Muhammad) apa yang telah diwahyukan Allah.
 
 ## 53:11
 
-Hatinya tidak mendustakan apa yang telah dilihatnya.&#x20;
+Hatinya tidak mendustakan apa yang telah dilihatnya.
 
 ## 53:12
 
@@ -19211,7 +19211,7 @@ penglihatannya (Muhammad) tidak menyimpang dari yang dilihatnya itu dan tidak (p
 
 ## 53:18
 
-Sungguh, dia telah melihat sebagian tanda-tanda (kebesaran) Tuhannya yang paling besar.         &#x20;
+Sungguh, dia telah melihat sebagian tanda-tanda (kebesaran) Tuhannya yang paling besar.
 
 ## 53:19
 
@@ -19227,11 +19227,11 @@ Apakah (pantas) untuk kamu yang laki-laki dan untuk-Nya yang perempuan?
 
 ## 53:22
 
-Yang demikian itu tentulah suatu pembagian yang tidak adil.&#x20;
+Yang demikian itu tentulah suatu pembagian yang tidak adil.
 
 ## 53:23
 
-Itu tidak lain hanyalah nama-nama yang kamu dan nenek moyangmu mengada-adakannya; Allah tidak menurunkan suatu keterangan apa pun untuk (menyembah)nya. Mereka hanya mengikuti dugaan, dan apa yang diingini oleh keinginannya. Padahal sungguh, telah datang petunjuk dari Tuhan mereka.&#x20;
+Itu tidak lain hanyalah nama-nama yang kamu dan nenek moyangmu mengada-adakannya; Allah tidak menurunkan suatu keterangan apa pun untuk (menyembah)nya. Mereka hanya mengikuti dugaan, dan apa yang diingini oleh keinginannya. Padahal sungguh, telah datang petunjuk dari Tuhan mereka.
 
 ## 53:24
 
@@ -19239,19 +19239,19 @@ Atau apakah manusia akan mendapat segala yang dicita-citakannya?
 
 ## 53:25
 
-(Tidak!) Maka milik Allah-lah kehidupan akhirat dan kehidupan dunia.&#x20;
+(Tidak!) Maka milik Allah-lah kehidupan akhirat dan kehidupan dunia.
 
 ## 53:26
 
-Dan betapa banyak malaikat di langit, syafaat (pertolongan) mereka sedikit pun tidak berguna kecuali apabila Allah telah mengizinkan (dan hanya) bagi siapa yang Dia kehendaki dan Dia ridai.&#x20;
+Dan betapa banyak malaikat di langit, syafaat (pertolongan) mereka sedikit pun tidak berguna kecuali apabila Allah telah mengizinkan (dan hanya) bagi siapa yang Dia kehendaki dan Dia ridai.
 
 ## 53:27
 
-Sesungguhnya orang-orang yang tidak beriman kepada kehidupan akhirat, sungguh mereka menamakan para malaikat dengan nama perempuan.&#x20;
+Sesungguhnya orang-orang yang tidak beriman kepada kehidupan akhirat, sungguh mereka menamakan para malaikat dengan nama perempuan.
 
 ## 53:28
 
-Dan mereka tidak mempunyai ilmu tentang itu. Mereka tidak lain hanyalah mengikuti dugaan, dan sesungguhnya dugaan itu tidak berfaedah sedikit pun terhadap kebenaran.&#x20;
+Dan mereka tidak mempunyai ilmu tentang itu. Mereka tidak lain hanyalah mengikuti dugaan, dan sesungguhnya dugaan itu tidak berfaedah sedikit pun terhadap kebenaran.
 
 ## 53:29
 
@@ -19259,15 +19259,15 @@ Maka tinggalkanlah (Muhammad) orang yang berpaling dari peringatan Kami, dan dia
 
 ## 53:30
 
-Itulah kadar ilmu mereka. Sungguh, Tuhanmu, Dia lebih mengetahui siapa yang tersesat dari jalan-Nya dan Dia pula yang mengetahui siapa yang mendapat petunjuk.&#x20;
+Itulah kadar ilmu mereka. Sungguh, Tuhanmu, Dia lebih mengetahui siapa yang tersesat dari jalan-Nya dan Dia pula yang mengetahui siapa yang mendapat petunjuk.
 
 ## 53:31
 
-Dan milik Allah-lah apa yang ada di langit dan apa yang ada di bumi. (Dengan demikian) Dia akan memberi balasan kepada orang-orang yang berbuat jahat sesuai dengan apa yang telah mereka kerjakan dan Dia akan memberi balasan kepada orang-orang yang berbuat baik dengan pahala yang lebih baik (surga).&#x20;
+Dan milik Allah-lah apa yang ada di langit dan apa yang ada di bumi. (Dengan demikian) Dia akan memberi balasan kepada orang-orang yang berbuat jahat sesuai dengan apa yang telah mereka kerjakan dan Dia akan memberi balasan kepada orang-orang yang berbuat baik dengan pahala yang lebih baik (surga).
 
 ## 53:32
 
-Yaitu) mereka yang menjauhi dosa-dosa besar dan perbuatan keji, kecuali kesalahan-kesalahan kecil. Sungguh, Tuhanmu Mahaluas ampunan-Nya. Dia mengetahui tentang kamu, sejak Dia menjadikan kamu dari tanah lalu ketika kamu masih janin dalam perut ibumu. Maka janganlah kamu menganggap dirimu suci. Dia mengetahui tentang orang yang bertakwa.&#x20;
+Yaitu) mereka yang menjauhi dosa-dosa besar dan perbuatan keji, kecuali kesalahan-kesalahan kecil. Sungguh, Tuhanmu Mahaluas ampunan-Nya. Dia mengetahui tentang kamu, sejak Dia menjadikan kamu dari tanah lalu ketika kamu masih janin dalam perut ibumu. Maka janganlah kamu menganggap dirimu suci. Dia mengetahui tentang orang yang bertakwa.
 
 ## 53:33
 
@@ -19311,11 +19311,11 @@ dan sesungguhnya kepada Tuhanmulah kesudahannya (segala sesuatu),
 
 ## 53:43
 
-dan sesungguhnya Dialah yang menjadikan orang tertawa dan menangis,&#x20;
+dan sesungguhnya Dialah yang menjadikan orang tertawa dan menangis,
 
 ## 53:44
 
-dan sesungguhnya Dialah yang mematikan dan menghidupkan,&#x20;
+dan sesungguhnya Dialah yang mematikan dan menghidupkan,
 
 ## 53:45
 
@@ -19331,19 +19331,19 @@ dan sesungguhnya Dialah yang menetapkan penciptaan yang lain (kebangkitan setela
 
 ## 53:48
 
-dan sesungguhnya Dialah yang memberikan kekayaan dan kecukupan.&#x20;
+dan sesungguhnya Dialah yang memberikan kekayaan dan kecukupan.
 
 ## 53:49
 
-dan sesungguhnya Dialah Tuhan (yang memiliki) bintang Syi‘ra,&#x20;
+dan sesungguhnya Dialah Tuhan (yang memiliki) bintang Syi‘ra,
 
 ## 53:50
 
-dan sesungguhnya Dialah yang telah membinasakan kaum ‘Ad dahulu kala,&#x20;
+dan sesungguhnya Dialah yang telah membinasakan kaum ‘Ad dahulu kala,
 
 ## 53:51
 
-dan kaum Samud, tidak seorang pun yang ditinggalkan-Nya (hidup),&#x20;
+dan kaum Samud, tidak seorang pun yang ditinggalkan-Nya (hidup),
 
 ## 53:52
 
@@ -19351,11 +19351,11 @@ dan (juga) kaum Nuh sebelum itu. Sungguh, mereka adalah orang-orang yang paling 
 
 ## 53:53
 
-Dan prahara angin telah meruntuhkan (negeri kaum Lut),&#x20;
+Dan prahara angin telah meruntuhkan (negeri kaum Lut),
 
 ## 53:54
 
-lalu menimbuni negeri itu (sebagai azab) dengan (puing-puing) yang menimpanya.&#x20;
+lalu menimbuni negeri itu (sebagai azab) dengan (puing-puing) yang menimpanya.
 
 ## 53:55
 
@@ -19363,11 +19363,11 @@ Maka terhadap nikmat Tuhanmu yang manakah yang masih kamu ragukan?
 
 ## 53:56
 
-Ini (Muhammad) salah seorang pemberi peringatan di antara para pemberi peringatan yang telah terdahulu.&#x20;
+Ini (Muhammad) salah seorang pemberi peringatan di antara para pemberi peringatan yang telah terdahulu.
 
 ## 53:57
 
-Yang dekat (hari Kiamat) telah makin mendekat.&#x20;
+Yang dekat (hari Kiamat) telah makin mendekat.
 
 ## 53:58
 
@@ -19379,7 +19379,7 @@ Maka apakah kamu merasa heran terhadap pemberitaan ini?
 
 ## 53:60
 
-dan kamu tertawakan dan tidak menangis,&#x20;
+dan kamu tertawakan dan tidak menangis,
 
 ## 53:61
 
@@ -19387,15 +19387,15 @@ sedang kamu lengah (darinya).
 
 ## 53:62
 
-Maka bersujudlah kepada Allah dan sembahlah (Dia).&#x20;
+Maka bersujudlah kepada Allah dan sembahlah (Dia).
 
 ## 54:1
 
-&#x20;Saat (hari Kiamat) semakin dekat, bulan pun terbelah.&#x20;
+&#x20;Saat (hari Kiamat) semakin dekat, bulan pun terbelah.
 
 ## 54:2
 
-Dan jika mereka (orang-orang musyrikin) melihat suatu tanda (mukjizat), mereka berpaling dan berkata, “(Ini adalah) sihir yang terus menerus.”&#x20;
+Dan jika mereka (orang-orang musyrikin) melihat suatu tanda (mukjizat), mereka berpaling dan berkata, “(Ini adalah) sihir yang terus menerus.”
 
 ## 54:3
 
@@ -19411,7 +19411,7 @@ Dan sungguh, telah datang kepada mereka beberapa kisah yang di dalamnya terdapat
 
 ## 54:6
 
-maka berpalinglah engkau (Muhammad) dari mereka pada hari (ketika) penyeru (malaikat) mengajak (mereka) kepada sesuatu yang tidak menyenangkan (hari pembalasan),&#x20;
+maka berpalinglah engkau (Muhammad) dari mereka pada hari (ketika) penyeru (malaikat) mengajak (mereka) kepada sesuatu yang tidak menyenangkan (hari pembalasan),
 
 ## 54:7
 
@@ -19419,11 +19419,11 @@ pandangan mereka tertunduk, ketika mereka keluar dari kuburan, seakan-akan merek
 
 ## 54:8
 
-dengan patuh mereka segera datang kepada penyeru itu. Orang-orang kafir berkata, “Ini adalah hari yang sulit.”&#x20;
+dengan patuh mereka segera datang kepada penyeru itu. Orang-orang kafir berkata, “Ini adalah hari yang sulit.”
 
 ## 54:9
 
-Sebelum mereka, kaum Nuh juga telah mendustakan (rasul), maka mereka mendustakan hamba Kami (Nuh) dan mengatakan, “Dia orang gila!” Lalu diusirnya dengan ancaman.&#x20;
+Sebelum mereka, kaum Nuh juga telah mendustakan (rasul), maka mereka mendustakan hamba Kami (Nuh) dan mengatakan, “Dia orang gila!” Lalu diusirnya dengan ancaman.
 
 ## 54:10
 
@@ -19435,11 +19435,11 @@ Lalu Kami bukakan pintu-pintu langit dengan (menurunkan) air yang tercurah,
 
 ## 54:12
 
-dan Kami jadikan bumi menyemburkan mata-mata air maka bertemulah (air-air) itu sehingga (meluap menimbulkan) keadaan (bencana) yang telah ditetapkan.&#x20;
+dan Kami jadikan bumi menyemburkan mata-mata air maka bertemulah (air-air) itu sehingga (meluap menimbulkan) keadaan (bencana) yang telah ditetapkan.
 
 ## 54:13
 
-Dan Kami angkut dia (Nuh) ke atas (kapal) yang terbuat dari papan dan pasak,&#x20;
+Dan Kami angkut dia (Nuh) ke atas (kapal) yang terbuat dari papan dan pasak,
 
 ## 54:14
 
@@ -19451,7 +19451,7 @@ Dan sungguh, kapal itu telah Kami jadikan sebagai tanda (pelajaran). Maka adakah
 
 ## 54:16
 
-Maka betapa dahsyatnya azab-Ku dan peringatan-Ku!&#x20;
+Maka betapa dahsyatnya azab-Ku dan peringatan-Ku!
 
 ## 54:17
 
@@ -19459,19 +19459,19 @@ Dan sungguh, telah Kami mudahkan Al-Qur'an untuk peringatan, maka adakah orang y
 
 ## 54:18
 
-Kaum ‘Ad pun telah mendustakan. Maka betapa dahsyatnya azab-Ku dan peringatan-Ku!&#x20;
+Kaum ‘Ad pun telah mendustakan. Maka betapa dahsyatnya azab-Ku dan peringatan-Ku!
 
 ## 54:19
 
-Sesungguhnya Kami telah menghembuskan angin yang sangat kencang kepada mereka pada hari nahas yang terus menerus,&#x20;
+Sesungguhnya Kami telah menghembuskan angin yang sangat kencang kepada mereka pada hari nahas yang terus menerus,
 
 ## 54:20
 
-yang membuat manusia bergelimpangan, mereka bagaikan pohon-pohon kurma yang tumbang dengan akar-akarnya.&#x20;
+yang membuat manusia bergelimpangan, mereka bagaikan pohon-pohon kurma yang tumbang dengan akar-akarnya.
 
 ## 54:21
 
-Maka betapa dahsyatnya azab-Ku dan peringatan-Ku!&#x20;
+Maka betapa dahsyatnya azab-Ku dan peringatan-Ku!
 
 ## 54:22
 
@@ -19483,11 +19483,11 @@ Kaum Samud pun telah mendustakan peringatan itu.
 
 ## 54:24
 
-Maka mereka berkata, “Bagaimana kita akan mengikuti seorang manusia (biasa) di antara kita? Sungguh, kalau begitu kita benar-benar telah sesat dan gila.&#x20;
+Maka mereka berkata, “Bagaimana kita akan mengikuti seorang manusia (biasa) di antara kita? Sungguh, kalau begitu kita benar-benar telah sesat dan gila.
 
 ## 54:25
 
-Apakah wahyu itu diturunkan kepadanya di antara kita? Pastilah dia (Saleh) seorang yang sangat pendusta (dan) sombong.”&#x20;
+Apakah wahyu itu diturunkan kepadanya di antara kita? Pastilah dia (Saleh) seorang yang sangat pendusta (dan) sombong.”
 
 ## 54:26
 
@@ -19503,7 +19503,7 @@ Dan beritahukanlah kepada mereka bahwa air itu dibagi di antara mereka (dengan u
 
 ## 54:29
 
-Maka mereka memanggil kawannya, lalu dia menangkap (unta itu) dan memotongnya.&#x20;
+Maka mereka memanggil kawannya, lalu dia menangkap (unta itu) dan memotongnya.
 
 ## 54:30
 
@@ -19511,7 +19511,7 @@ Maka betapa dahsyatnya azab-Ku dan peringatan-Ku!
 
 ## 54:31
 
-Kami kirimkan atas mereka satu suara yang keras mengguntur, maka jadilah mereka seperti batang-batang kering yang lapuk.&#x20;
+Kami kirimkan atas mereka satu suara yang keras mengguntur, maka jadilah mereka seperti batang-batang kering yang lapuk.
 
 ## 54:32
 
@@ -19519,7 +19519,7 @@ Dan sungguh, telah Kami mudahkan Al-Qur'an untuk peringatan, maka adakah orang y
 
 ## 54:33
 
-Kaum Lut pun telah mendustakan peringatan itu.&#x20;
+Kaum Lut pun telah mendustakan peringatan itu.
 
 ## 54:34
 
@@ -19527,11 +19527,11 @@ Sesungguhnya Kami kirimkan kepada mereka badai yang membawa batu-batu (yang meni
 
 ## 54:35
 
-sebagai nikmat dari Kami. Demikianlah Kami memberi balasan kepada orang-orang yang bersyukur.&#x20;
+sebagai nikmat dari Kami. Demikianlah Kami memberi balasan kepada orang-orang yang bersyukur.
 
 ## 54:36
 
-Dan sungguh, dia (Lut) telah memperingatkan mereka akan hukuman Kami, tetapi mereka mendustakan peringatan-Ku.&#x20;
+Dan sungguh, dia (Lut) telah memperingatkan mereka akan hukuman Kami, tetapi mereka mendustakan peringatan-Ku.
 
 ## 54:37
 
@@ -19547,11 +19547,11 @@ Maka rasakanlah azab-Ku dan peringatan-Ku!
 
 ## 54:40
 
-Dan sungguh, telah Kami mudahkan Al-Qur'an untuk peringatan, maka adakah orang yang mau mengambil pelajaran?&#x20;
+Dan sungguh, telah Kami mudahkan Al-Qur'an untuk peringatan, maka adakah orang yang mau mengambil pelajaran?
 
 ## 54:41
 
-Dan sungguh, peringatan telah datang kepada keluarga Fir‘aun.&#x20;
+Dan sungguh, peringatan telah datang kepada keluarga Fir‘aun.
 
 ## 54:42
 
@@ -19559,23 +19559,23 @@ Mereka mendustakan mukjizat-mukjizat Kami semuanya, maka Kami azab mereka dengan
 
 ## 54:43
 
-Apakah orang-orang kafir di lingkunganmu (kaum musyrikin) lebih baik dari mereka, ataukah kamu telah mempunyai jaminan kebebasan (dari azab) dalam kitab-kitab terdahulu?&#x20;
+Apakah orang-orang kafir di lingkunganmu (kaum musyrikin) lebih baik dari mereka, ataukah kamu telah mempunyai jaminan kebebasan (dari azab) dalam kitab-kitab terdahulu?
 
 ## 54:44
 
-Atau mereka mengatakan, “Kami ini golongan yang bersatu yang pasti menang.”&#x20;
+Atau mereka mengatakan, “Kami ini golongan yang bersatu yang pasti menang.”
 
 ## 54:45
 
-Golongan itu pasti akan dikalahkan dan mereka akan mundur ke belakang.&#x20;
+Golongan itu pasti akan dikalahkan dan mereka akan mundur ke belakang.
 
 ## 54:46
 
-Bahkan hari Kiamat itulah hari yang dijanjikan kepada mereka dan hari Kiamat itu lebih dahsyat dan lebih pahit.&#x20;
+Bahkan hari Kiamat itulah hari yang dijanjikan kepada mereka dan hari Kiamat itu lebih dahsyat dan lebih pahit.
 
 ## 54:47
 
-Sungguh, orang-orang yang berdosa berada dalam kesesatan (di dunia) dan akan berada dalam neraka (di akhirat).&#x20;
+Sungguh, orang-orang yang berdosa berada dalam kesesatan (di dunia) dan akan berada dalam neraka (di akhirat).
 
 ## 54:48
 
@@ -19583,11 +19583,11 @@ Pada hari mereka diseret ke neraka pada wajahnya. (Dikatakan kepada mereka), “
 
 ## 54:49
 
-Sungguh, Kami menciptakan segala sesuatu menurut ukuran.&#x20;
+Sungguh, Kami menciptakan segala sesuatu menurut ukuran.
 
 ## 54:50
 
-Dan perintah Kami hanyalah (dengan) satu perkataan seperti kejapan mata.&#x20;
+Dan perintah Kami hanyalah (dengan) satu perkataan seperti kejapan mata.
 
 ## 54:51
 
@@ -19599,7 +19599,7 @@ Dan segala sesuatu yang telah mereka perbuat tercatat dalam buku-buku catatan.
 
 ## 54:53
 
-Dan segala (sesuatu) yang kecil maupun yang besar (semuanya) tertulis.&#x20;
+Dan segala (sesuatu) yang kecil maupun yang besar (semuanya) tertulis.
 
 ## 54:54
 
@@ -19619,7 +19619,7 @@ Yang telah mengajarkan Al-Qur'an.
 
 ## 55:3
 
-Dia menciptakan manusia,&#x20;
+Dia menciptakan manusia,
 
 ## 55:4
 
@@ -19631,7 +19631,7 @@ Matahari dan bulan beredar menurut perhitungan,
 
 ## 55:6
 
-dan tetumbuhan dan pepohonan, keduanya tunduk (kepada-Nya).&#x20;
+dan tetumbuhan dan pepohonan, keduanya tunduk (kepada-Nya).
 
 ## 55:7
 
@@ -19639,27 +19639,27 @@ Dan langit telah ditinggikan-Nya dan Dia ciptakan keseimbangan,
 
 ## 55:8
 
-agar kamu jangan merusak keseimbangan itu,&#x20;
+agar kamu jangan merusak keseimbangan itu,
 
 ## 55:9
 
-dan tegakkanlah keseimbangan itu dengan adil dan janganlah kamu mengurangi keseimbangan itu.&#x20;
+dan tegakkanlah keseimbangan itu dengan adil dan janganlah kamu mengurangi keseimbangan itu.
 
 ## 55:10
 
-Dan bumi telah dibentangkan-Nya untuk makhluk(-Nya),&#x20;
+Dan bumi telah dibentangkan-Nya untuk makhluk(-Nya),
 
 ## 55:11
 
-di dalamnya ada buah-buahan dan pohon kurma yang mempunyai kelopak mayang,&#x20;
+di dalamnya ada buah-buahan dan pohon kurma yang mempunyai kelopak mayang,
 
 ## 55:12
 
-dan biji-bijian yang berkulit dan bunga-bunga yang harum baunya.&#x20;
+dan biji-bijian yang berkulit dan bunga-bunga yang harum baunya.
 
 ## 55:13
 
-Maka nikmat Tuhanmu yang manakah yang kamu dustakan?&#x20;
+Maka nikmat Tuhanmu yang manakah yang kamu dustakan?
 
 ## 55:14
 
@@ -19683,7 +19683,7 @@ Maka nikmat Tuhanmu yang manakah yang kamu dustakan?
 
 ## 55:19
 
-Dia membiarkan dua laut mengalir yang (kemudian) keduanya bertemu,&#x20;
+Dia membiarkan dua laut mengalir yang (kemudian) keduanya bertemu,
 
 ## 55:20
 
@@ -19699,7 +19699,7 @@ Dari keduanya keluar mutiara dan marjan.
 
 ## 55:23
 
-Maka nikmat Tuhanmu yang manakah yang kamu dustakan?&#x20;
+Maka nikmat Tuhanmu yang manakah yang kamu dustakan?
 
 ## 55:24
 
@@ -19707,15 +19707,15 @@ Milik-Nyalah kapal-kapal yang berlayar di lautan bagaikan gunung-gunung.
 
 ## 55:25
 
-Maka nikmat Tuhanmu yang manakah yang kamu dustakan?&#x20;
+Maka nikmat Tuhanmu yang manakah yang kamu dustakan?
 
 ## 55:26
 
-Semua yang ada di bumi itu akan binasa,&#x20;
+Semua yang ada di bumi itu akan binasa,
 
 ## 55:27
 
-tetapi wajah Tuhanmu yang memiliki kebesaran dan kemuliaan tetap kekal.&#x20;
+tetapi wajah Tuhanmu yang memiliki kebesaran dan kemuliaan tetap kekal.
 
 ## 55:28
 
@@ -19723,7 +19723,7 @@ Maka nikmat Tuhanmu yang manakah yang kamu dustakan?
 
 ## 55:29
 
-Apa yang di langit dan di bumi selalu meminta kepada-Nya. Setiap waktu Dia dalam kesibukan.&#x20;
+Apa yang di langit dan di bumi selalu meminta kepada-Nya. Setiap waktu Dia dalam kesibukan.
 
 ## 55:30
 
@@ -19731,7 +19731,7 @@ Maka nikmat Tuhanmu yang manakah yang kamu dustakan?
 
 ## 55:31
 
-Kami akan memberi perhatian sepenuhnya kepadamu wahai (golongan) manusia dan jin!&#x20;
+Kami akan memberi perhatian sepenuhnya kepadamu wahai (golongan) manusia dan jin!
 
 ## 55:32
 
@@ -19739,7 +19739,7 @@ Maka nikmat Tuhanmu yang manakah yang kamu dustakan?
 
 ## 55:33
 
-Wahai golongan jin dan manusia! Jika kamu sanggup menembus (melintasi) penjuru langit dan bumi, maka tembuslah. Kamu tidak akan mampu menembusnya kecuali dengan kekuatan (dari Allah).&#x20;
+Wahai golongan jin dan manusia! Jika kamu sanggup menembus (melintasi) penjuru langit dan bumi, maka tembuslah. Kamu tidak akan mampu menembusnya kecuali dengan kekuatan (dari Allah).
 
 ## 55:34
 
@@ -19755,7 +19755,7 @@ Maka nikmat Tuhanmu yang manakah yang kamu dustakan?
 
 ## 55:37
 
-Maka apabila langit telah terbelah dan menjadi merah mawar seperti (kilauan) minyak.&#x20;
+Maka apabila langit telah terbelah dan menjadi merah mawar seperti (kilauan) minyak.
 
 ## 55:38
 
@@ -19763,7 +19763,7 @@ Maka nikmat Tuhanmu yang manakah yang kamu dustakan?
 
 ## 55:39
 
-Maka pada hari itu manusia dan jin tidak ditanya tentang dosanya.&#x20;
+Maka pada hari itu manusia dan jin tidak ditanya tentang dosanya.
 
 ## 55:40
 
@@ -19783,7 +19783,7 @@ Inilah neraka Jahanam yang didustakan oleh orang-orang yang berdosa.
 
 ## 55:44
 
-Mereka berkeliling di sana dan di antara air yang mendidih.&#x20;
+Mereka berkeliling di sana dan di antara air yang mendidih.
 
 ## 55:45
 
@@ -19815,7 +19815,7 @@ Maka nikmat Tuhanmu yang manakah yang kamu dustakan?
 
 ## 55:52
 
-Di dalam kedua surga itu terdapat aneka buah-buahan yang berpasang-pasangan.&#x20;
+Di dalam kedua surga itu terdapat aneka buah-buahan yang berpasang-pasangan.
 
 ## 55:53
 
@@ -19823,7 +19823,7 @@ Maka nikmat Tuhanmu yang manakah yang kamu dustakan?
 
 ## 55:54
 
-Mereka bersandar di atas permadani yang bagian dalamnya dari sutera tebal. Dan buah-buahan di kedua surga itu dapat (dipetik) dari dekat.&#x20;
+Mereka bersandar di atas permadani yang bagian dalamnya dari sutera tebal. Dan buah-buahan di kedua surga itu dapat (dipetik) dari dekat.
 
 ## 55:55
 
@@ -19831,7 +19831,7 @@ Maka nikmat Tuhanmu yang manakah yang kamu dustakan?
 
 ## 55:56
 
-Di dalam surga itu ada bidadari-bidadari yang membatasi pandangan, yang tidak pernah disentuh oleh manusia maupun jin sebelumnya.&#x20;
+Di dalam surga itu ada bidadari-bidadari yang membatasi pandangan, yang tidak pernah disentuh oleh manusia maupun jin sebelumnya.
 
 ## 55:57
 
@@ -19839,7 +19839,7 @@ Maka nikmat Tuhanmu yang manakah yang kamu dustakan?
 
 ## 55:58
 
-Seakan-akan mereka itu permata yakut dan marjan.&#x20;
+Seakan-akan mereka itu permata yakut dan marjan.
 
 ## 55:59
 
@@ -20339,7 +20339,7 @@ Dan mengapa kamu tidak beriman kepada Allah, padahal Rasul mengajak kamu beriman
 
 ## 57:9
 
-Dialah yang menurunkan ayat-ayat yang terang (Al-Qur'an) kepada hamba-Nya (Muhammad) untuk mengeluarkan kamu dari kegelapan kepada cahaya. Dan sungguh, terhadap kamu Allah Maha Penyantun, Maha Penyayang.&#x20;
+Dialah yang menurunkan ayat-ayat yang terang (Al-Qur'an) kepada hamba-Nya (Muhammad) untuk mengeluarkan kamu dari kegelapan kepada cahaya. Dan sungguh, terhadap kamu Allah Maha Penyantun, Maha Penyayang.
 
 ## 57:10
 
@@ -20379,23 +20379,23 @@ Sesungguhnya orang-orang yang bersedekah baik laki-laki maupun perempuan dan mem
 
 ## 57:19
 
-Dan orang-orang yang beriman kepada Allah dan rasul-rasul-Nya, mereka itu orang-orang yang tulus hati (pencinta kebenaran) dan saksi-saksi di sisi Tuhan mereka. Mereka berhak mendapat pahala dan cahaya. Tetapi orang-orang yang kafir dan mendustakan ayat-ayat Kami, mereka itu penghuni-penghuni neraka.&#x20;
+Dan orang-orang yang beriman kepada Allah dan rasul-rasul-Nya, mereka itu orang-orang yang tulus hati (pencinta kebenaran) dan saksi-saksi di sisi Tuhan mereka. Mereka berhak mendapat pahala dan cahaya. Tetapi orang-orang yang kafir dan mendustakan ayat-ayat Kami, mereka itu penghuni-penghuni neraka.
 
 ## 57:20
 
-Ketahuilah, sesungguhnya kehidupan dunia itu hanyalah permainan dan sendagurauan, perhiasan dan saling berbangga di antara kamu serta berlomba dalam kekayaan dan anak keturunan, seperti hujan yang tanam-tanamannya mengagumkan para petani; kemudian (tanaman) itu menjadi kering dan kamu lihat warnanya kuning kemudian menjadi hancur. Dan di akhirat (nanti) ada azab yang keras dan ampunan dari Allah serta keridaan-Nya. Dan kehidupan dunia tidak lain hanyalah kesenangan yang palsu.&#x20;
+Ketahuilah, sesungguhnya kehidupan dunia itu hanyalah permainan dan sendagurauan, perhiasan dan saling berbangga di antara kamu serta berlomba dalam kekayaan dan anak keturunan, seperti hujan yang tanam-tanamannya mengagumkan para petani; kemudian (tanaman) itu menjadi kering dan kamu lihat warnanya kuning kemudian menjadi hancur. Dan di akhirat (nanti) ada azab yang keras dan ampunan dari Allah serta keridaan-Nya. Dan kehidupan dunia tidak lain hanyalah kesenangan yang palsu.
 
 ## 57:21
 
-Berlomba-lombalah kamu untuk mendapatkan ampunan dari Tuhanmu dan surga yang luasnya seluas langit dan bumi, yang disediakan bagi orang-orang yang beriman kepada Allah dan rasul-rasul-Nya. Itulah karunia Allah, yang diberikan kepada siapa yang Dia kehendaki. Dan Allah mempunyai karunia yang besar.&#x20;
+Berlomba-lombalah kamu untuk mendapatkan ampunan dari Tuhanmu dan surga yang luasnya seluas langit dan bumi, yang disediakan bagi orang-orang yang beriman kepada Allah dan rasul-rasul-Nya. Itulah karunia Allah, yang diberikan kepada siapa yang Dia kehendaki. Dan Allah mempunyai karunia yang besar.
 
 ## 57:22
 
-Setiap bencana yang menimpa di bumi dan yang menimpa dirimu sendiri, semuanya telah tertulis dalam Kitab (Lauh Mahfuzh) sebelum Kami mewujudkannya. Sungguh, yang demikian itu mudah bagi Allah.&#x20;
+Setiap bencana yang menimpa di bumi dan yang menimpa dirimu sendiri, semuanya telah tertulis dalam Kitab (Lauh Mahfuzh) sebelum Kami mewujudkannya. Sungguh, yang demikian itu mudah bagi Allah.
 
 ## 57:23
 
-Agar kamu tidak bersedih hati terhadap apa yang luput dari kamu, dan jangan pula terlalu gembira terhadap apa yang diberikan-Nya kepadamu. Dan Allah tidak menyukai setiap orang yang sombong dan membanggakan diri,&#x20;
+Agar kamu tidak bersedih hati terhadap apa yang luput dari kamu, dan jangan pula terlalu gembira terhadap apa yang diberikan-Nya kepadamu. Dan Allah tidak menyukai setiap orang yang sombong dan membanggakan diri,
 
 ## 57:24
 
@@ -20427,43 +20427,43 @@ Sungguh, Allah telah mendengar ucapan perempuan yang mengajukan gugatan kepadamu
 
 ## 58:2
 
-Orang-orang di antara kamu yang menzihar istrinya, (menganggap istrinya sebagai ibunya, padahal) istri mereka itu bukanlah ibunya. Ibu-ibu mereka hanyalah perempuan yang melahirkannya. Dan sesungguhnya mereka benar-benar telah mengucapkan suatu perkataan yang mungkar dan dusta. Dan sesungguhnya Allah Maha Pemaaf, Maha Pengampun.&#x20;
+Orang-orang di antara kamu yang menzihar istrinya, (menganggap istrinya sebagai ibunya, padahal) istri mereka itu bukanlah ibunya. Ibu-ibu mereka hanyalah perempuan yang melahirkannya. Dan sesungguhnya mereka benar-benar telah mengucapkan suatu perkataan yang mungkar dan dusta. Dan sesungguhnya Allah Maha Pemaaf, Maha Pengampun.
 
 ## 58:3
 
-Dan mereka yang menzihar istrinya, kemudian menarik kembali apa yang telah mereka ucapkan, maka (mereka diwajibkan) memerdekakan seorang budak sebelum kedua suami istri itu bercampur. Demikianlah yang diajarkan kepadamu, dan Allah Mahateliti terhadap apa yang kamu kerjakan.&#x20;
+Dan mereka yang menzihar istrinya, kemudian menarik kembali apa yang telah mereka ucapkan, maka (mereka diwajibkan) memerdekakan seorang budak sebelum kedua suami istri itu bercampur. Demikianlah yang diajarkan kepadamu, dan Allah Mahateliti terhadap apa yang kamu kerjakan.
 
 ## 58:4
 
-Maka barangsiapa tidak dapat (memerdekakan hamba sahaya), maka (dia wajib) berpuasa dua bulan berturut-turut sebelum keduanya bercampur. Tetapi barangsiapa tidak mampu, maka (wajib) memberi makan enam puluh orang miskin. Demikianlah agar kamu beriman kepada Allah dan Rasul-Nya. Itulah hukum-hukum Allah, dan bagi orang-orang yang mengingkarinya akan mendapat azab yang sangat pedih.&#x20;
+Maka barangsiapa tidak dapat (memerdekakan hamba sahaya), maka (dia wajib) berpuasa dua bulan berturut-turut sebelum keduanya bercampur. Tetapi barangsiapa tidak mampu, maka (wajib) memberi makan enam puluh orang miskin. Demikianlah agar kamu beriman kepada Allah dan Rasul-Nya. Itulah hukum-hukum Allah, dan bagi orang-orang yang mengingkarinya akan mendapat azab yang sangat pedih.
 
 ## 58:5
 
-Sesungguhnya orang-orang yang menentang Allah dan Rasul-Nya pasti mendapat kehinaan sebagaimana kehinaan yang telah didapat oleh orang-orang sebelum mereka. Dan sungguh, Kami telah menurunkan bukti-bukti yang nyata. Dan bagi orang-orang yang mengingkarinya akan mendapat azab yang menghinakan.&#x20;
+Sesungguhnya orang-orang yang menentang Allah dan Rasul-Nya pasti mendapat kehinaan sebagaimana kehinaan yang telah didapat oleh orang-orang sebelum mereka. Dan sungguh, Kami telah menurunkan bukti-bukti yang nyata. Dan bagi orang-orang yang mengingkarinya akan mendapat azab yang menghinakan.
 
 ## 58:6
 
-Pada hari itu mereka semuanya dibangkitkan Allah, lalu diberitakan-Nya kepada mereka apa yang telah mereka kerjakan. Allah menghitungnya (semua amal perbuatan itu), meskipun mereka telah melupakannya. Dan Allah Maha Menyaksikan segala sesuatu.&#x20;
+Pada hari itu mereka semuanya dibangkitkan Allah, lalu diberitakan-Nya kepada mereka apa yang telah mereka kerjakan. Allah menghitungnya (semua amal perbuatan itu), meskipun mereka telah melupakannya. Dan Allah Maha Menyaksikan segala sesuatu.
 
 ## 58:7
 
-Tidakkah engkau perhatikan, bahwa Allah mengetahui apa yang ada di langit dan apa yang ada di bumi? Tidak ada pembicaraan rahasia antara tiga orang, melainkan Dialah yang keempatnya. Dan tidak ada lima orang, melainkan Dialah yang keenamnya. Dan tidak ada yang kurang dari itu atau lebih banyak, melainkan Dia pasti ada bersama mereka di mana pun mereka berada. Kemudian Dia akan memberitakan kepada mereka pada hari Kiamat apa yang telah mereka kerjakan. Sesungguhnya Allah Maha Mengetahui segala sesuatu.&#x20;
+Tidakkah engkau perhatikan, bahwa Allah mengetahui apa yang ada di langit dan apa yang ada di bumi? Tidak ada pembicaraan rahasia antara tiga orang, melainkan Dialah yang keempatnya. Dan tidak ada lima orang, melainkan Dialah yang keenamnya. Dan tidak ada yang kurang dari itu atau lebih banyak, melainkan Dia pasti ada bersama mereka di mana pun mereka berada. Kemudian Dia akan memberitakan kepada mereka pada hari Kiamat apa yang telah mereka kerjakan. Sesungguhnya Allah Maha Mengetahui segala sesuatu.
 
 ## 58:8
 
-Tidakkah engkau perhatikan orang-orang yang telah dilarang mengadakan pembicaraan rahasia, kemudian mereka kembali (mengerjakan) larangan itu dan mereka mengadakan pembicaraan rahasia untuk berbuat dosa, permusuhan dan durhaka kepada Rasul. Dan apabila mereka datang kepadamu (Muhammad), mereka mengucapkan salam dengan cara yang bukan seperti yang ditentukan Allah untukmu. Dan mereka mengatakan pada diri mereka sendiri, “Mengapa Allah tidak menyiksa kita atas apa yang kita katakan itu?” Cukuplah bagi mereka neraka Jahanam yang akan mereka masuki. Maka neraka itu seburuk-buruk tempat kembali.&#x20;
+Tidakkah engkau perhatikan orang-orang yang telah dilarang mengadakan pembicaraan rahasia, kemudian mereka kembali (mengerjakan) larangan itu dan mereka mengadakan pembicaraan rahasia untuk berbuat dosa, permusuhan dan durhaka kepada Rasul. Dan apabila mereka datang kepadamu (Muhammad), mereka mengucapkan salam dengan cara yang bukan seperti yang ditentukan Allah untukmu. Dan mereka mengatakan pada diri mereka sendiri, “Mengapa Allah tidak menyiksa kita atas apa yang kita katakan itu?” Cukuplah bagi mereka neraka Jahanam yang akan mereka masuki. Maka neraka itu seburuk-buruk tempat kembali.
 
 ## 58:9
 
-Wahai orang-orang yang beriman! Apabila kamu mengadakan pembicaraan rahasia, janganlah kamu membicarakan perbuatan dosa, permusuhan dan durhaka kepada Rasul. Tetapi bicarakanlah tentang perbuatan kebajikan dan takwa. Dan bertakwalah kepada Allah yang kepada-Nya kamu akan dikumpulkan kembali.&#x20;
+Wahai orang-orang yang beriman! Apabila kamu mengadakan pembicaraan rahasia, janganlah kamu membicarakan perbuatan dosa, permusuhan dan durhaka kepada Rasul. Tetapi bicarakanlah tentang perbuatan kebajikan dan takwa. Dan bertakwalah kepada Allah yang kepada-Nya kamu akan dikumpulkan kembali.
 
 ## 58:10
 
-Sesungguhnya pembicaraan rahasia itu termasuk (perbuatan) setan, agar orang-orang yang beriman itu bersedih hati, sedang (pembicaraan) itu tidaklah memberi bencana sedikit pun kepada mereka, kecuali dengan izin Allah. Dan kepada Allah hendaknya orang-orang yang beriman bertawakal.&#x20;
+Sesungguhnya pembicaraan rahasia itu termasuk (perbuatan) setan, agar orang-orang yang beriman itu bersedih hati, sedang (pembicaraan) itu tidaklah memberi bencana sedikit pun kepada mereka, kecuali dengan izin Allah. Dan kepada Allah hendaknya orang-orang yang beriman bertawakal.
 
 ## 58:11
 
-Wahai orang-orang yang beriman! Apabila dikatakan kepadamu, “Berilah kelapangan di dalam majelis-majelis,” maka lapangkanlah, niscaya Allah akan memberi kelapangan untukmu. Dan apabila dikatakan, “Berdirilah kamu,” maka berdirilah, niscaya Allah akan mengangkat (derajat) orang-orang yang beriman di antaramu dan orang-orang yang diberi ilmu beberapa derajat. Dan Allah Mahateliti apa yang kamu kerjakan.&#x20;
+Wahai orang-orang yang beriman! Apabila dikatakan kepadamu, “Berilah kelapangan di dalam majelis-majelis,” maka lapangkanlah, niscaya Allah akan memberi kelapangan untukmu. Dan apabila dikatakan, “Berdirilah kamu,” maka berdirilah, niscaya Allah akan mengangkat (derajat) orang-orang yang beriman di antaramu dan orang-orang yang diberi ilmu beberapa derajat. Dan Allah Mahateliti apa yang kamu kerjakan.
 
 ## 58:12
 
@@ -20475,11 +20475,11 @@ Apakah kamu takut akan (menjadi miskin) karena kamu memberikan sedekah sebelum (
 
 ## 58:14
 
-Tidakkah engkau perhatikan orang-orang (munafik) yang menjadikan suatu kaum yang telah dimurkai Allah sebagai sahabat? Orang-orang itu bukan dari (kaum) kamu dan bukan dari (kaum) mereka. Dan mereka bersumpah atas kebohongan, sedang mereka mengetahuinya.&#x20;
+Tidakkah engkau perhatikan orang-orang (munafik) yang menjadikan suatu kaum yang telah dimurkai Allah sebagai sahabat? Orang-orang itu bukan dari (kaum) kamu dan bukan dari (kaum) mereka. Dan mereka bersumpah atas kebohongan, sedang mereka mengetahuinya.
 
 ## 58:15
 
-Allah telah menyediakan azab yang sangat keras bagi mereka. Sungguh, betapa buruknya apa yang telah mereka kerjakan.&#x20;
+Allah telah menyediakan azab yang sangat keras bagi mereka. Sungguh, betapa buruknya apa yang telah mereka kerjakan.
 
 ## 58:16
 
@@ -20487,19 +20487,19 @@ Mereka menjadikan sumpah-sumpah mereka sebagai perisai, lalu mereka menghalang-h
 
 ## 58:17
 
-Harta benda dan anak-anak mereka tidak berguna sedikit pun (untuk menolong) mereka dari azab Allah. Mereka itulah penghuni neraka, mereka kekal di dalamnya.&#x20;
+Harta benda dan anak-anak mereka tidak berguna sedikit pun (untuk menolong) mereka dari azab Allah. Mereka itulah penghuni neraka, mereka kekal di dalamnya.
 
 ## 58:18
 
-(Ingatlah) pada hari (ketika) mereka semua dibangkitkan Allah, lalu mereka bersumpah kepada-Nya (bahwa mereka bukan orang musyrik) sebagaimana mereka bersumpah kepadamu; dan mereka menyangka bahwa mereka akan memperoleh sesuatu (manfaat). Ketahuilah, bahwa mereka orang-orang pendusta.&#x20;
+(Ingatlah) pada hari (ketika) mereka semua dibangkitkan Allah, lalu mereka bersumpah kepada-Nya (bahwa mereka bukan orang musyrik) sebagaimana mereka bersumpah kepadamu; dan mereka menyangka bahwa mereka akan memperoleh sesuatu (manfaat). Ketahuilah, bahwa mereka orang-orang pendusta.
 
 ## 58:19
 
-Setan telah menguasai mereka, lalu menjadikan mereka lupa mengingat Allah; mereka itulah golongan setan. Ketahuilah, bahwa golongan setan itulah golongan yang rugi.&#x20;
+Setan telah menguasai mereka, lalu menjadikan mereka lupa mengingat Allah; mereka itulah golongan setan. Ketahuilah, bahwa golongan setan itulah golongan yang rugi.
 
 ## 58:20
 
-Sesungguhnya orang-orang yang menentang Allah dan Rasul-Nya, mereka termasuk orang-orang yang sangat hina.&#x20;
+Sesungguhnya orang-orang yang menentang Allah dan Rasul-Nya, mereka termasuk orang-orang yang sangat hina.
 
 ## 58:21
 
@@ -20507,7 +20507,7 @@ Allah telah menetapkan, “Aku dan rasul-rasul-Ku pasti menang.” Sungguh, Alla
 
 ## 58:22
 
-Engkau (Muhammad) tidak akan mendapatkan suatu kaum yang beriman kepada Allah dan hari akhirat saling berkasih sayang dengan orang-orang yang menentang Allah dan Rasul-Nya, sekalipun orang-orang itu bapaknya, anaknya, saudaranya atau keluarganya. Mereka itulah orang-orang yang dalam hatinya telah ditanamkan Allah keimanan dan Allah telah menguatkan mereka dengan pertolongan yang datang dari Dia. Lalu dimasukkan-Nya mereka ke dalam surga yang mengalir di bawahnya sungai-sungai, mereka kekal di dalamnya. Allah rida terhadap mereka dan mereka pun merasa puas terhadap (limpahan rahmat)-Nya. Merekalah golongan Allah. Ingatlah, sesungguhnya golongan Allah itulah yang beruntung.&#x20;
+Engkau (Muhammad) tidak akan mendapatkan suatu kaum yang beriman kepada Allah dan hari akhirat saling berkasih sayang dengan orang-orang yang menentang Allah dan Rasul-Nya, sekalipun orang-orang itu bapaknya, anaknya, saudaranya atau keluarganya. Mereka itulah orang-orang yang dalam hatinya telah ditanamkan Allah keimanan dan Allah telah menguatkan mereka dengan pertolongan yang datang dari Dia. Lalu dimasukkan-Nya mereka ke dalam surga yang mengalir di bawahnya sungai-sungai, mereka kekal di dalamnya. Allah rida terhadap mereka dan mereka pun merasa puas terhadap (limpahan rahmat)-Nya. Merekalah golongan Allah. Ingatlah, sesungguhnya golongan Allah itulah yang beruntung.
 
 ## 59:1
 
@@ -20519,11 +20519,11 @@ Dialah yang mengeluarkan orang-orang kafir di antara Ahli Kitab dari kampung hal
 
 ## 59:3
 
-Dan sekiranya tidak karena Allah telah menetapkan pengusiran terhadap mereka, pasti Allah mengazab mereka di dunia. Dan di akhirat mereka akan mendapat azab neraka.&#x20;
+Dan sekiranya tidak karena Allah telah menetapkan pengusiran terhadap mereka, pasti Allah mengazab mereka di dunia. Dan di akhirat mereka akan mendapat azab neraka.
 
 ## 59:4
 
-Yang demikian itu karena sesungguhnya mereka menentang Allah dan Rasul-Nya. Barangsiapa menentang Allah, maka sesungguhnya Allah sangat keras hukuman-Nya.&#x20;
+Yang demikian itu karena sesungguhnya mereka menentang Allah dan Rasul-Nya. Barangsiapa menentang Allah, maka sesungguhnya Allah sangat keras hukuman-Nya.
 
 ## 59:5
 
@@ -20535,27 +20535,27 @@ Dan harta rampasan fai' dari mereka yang diberikan Allah kepada Rasul-Nya, kamu 
 
 ## 59:7
 
-Harta rampasan (fai') dari mereka yang diberikan Allah kepada Rasul-Nya (yang berasal) dari penduduk beberapa negeri, adalah untuk Allah, Rasul, kerabat (Rasul), anak-anak yatim, orang-orang miskin dan untuk orang-orang yang dalam perjalanan, agar harta itu jangan hanya beredar di antara orang-orang kaya saja di antara kamu. Apa yang diberikan Rasul kepadamu maka terimalah. Dan apa yang dilarangnya bagimu maka tinggalkanlah. Dan bertakwalah kepada Allah. Sungguh, Allah sangat keras hukuman-Nya.&#x20;
+Harta rampasan (fai') dari mereka yang diberikan Allah kepada Rasul-Nya (yang berasal) dari penduduk beberapa negeri, adalah untuk Allah, Rasul, kerabat (Rasul), anak-anak yatim, orang-orang miskin dan untuk orang-orang yang dalam perjalanan, agar harta itu jangan hanya beredar di antara orang-orang kaya saja di antara kamu. Apa yang diberikan Rasul kepadamu maka terimalah. Dan apa yang dilarangnya bagimu maka tinggalkanlah. Dan bertakwalah kepada Allah. Sungguh, Allah sangat keras hukuman-Nya.
 
 ## 59:8
 
-(Harta rampasan itu juga) untuk orang-orang fakir yang berhijrah yang terusir dari kampung halamannya dan meninggalkan harta bendanya demi mencari karunia dari Allah dan keridaan(-Nya) dan (demi) menolong (agama) Allah dan Rasul-Nya. Mereka itulah orang-orang yang benar.&#x20;
+(Harta rampasan itu juga) untuk orang-orang fakir yang berhijrah yang terusir dari kampung halamannya dan meninggalkan harta bendanya demi mencari karunia dari Allah dan keridaan(-Nya) dan (demi) menolong (agama) Allah dan Rasul-Nya. Mereka itulah orang-orang yang benar.
 
 ## 59:9
 
-Dan orang-orang (Ansar) yang telah menempati kota Madinah dan telah beriman sebelum (kedatangan) mereka (Muhajirin), mereka mencintai orang yang berhijrah ke tempat mereka. Dan mereka tidak menaruh keinginan dalam hati mereka terhadap apa yang diberikan kepada mereka (Muhajirin); dan mereka mengutamakan (Muhajirin), atas dirinya sendiri, meskipun mereka juga memerlukan. Dan siapa yang dijaga dirinya dari kekikiran, maka mereka itulah orang-orang yang beruntung.&#x20;
+Dan orang-orang (Ansar) yang telah menempati kota Madinah dan telah beriman sebelum (kedatangan) mereka (Muhajirin), mereka mencintai orang yang berhijrah ke tempat mereka. Dan mereka tidak menaruh keinginan dalam hati mereka terhadap apa yang diberikan kepada mereka (Muhajirin); dan mereka mengutamakan (Muhajirin), atas dirinya sendiri, meskipun mereka juga memerlukan. Dan siapa yang dijaga dirinya dari kekikiran, maka mereka itulah orang-orang yang beruntung.
 
 ## 59:10
 
-Dan orang-orang yang datang sesudah mereka (Muhajirin dan Ansar), mereka berdoa, “Ya Tuhan kami, ampunilah kami dan saudara-saudara kami yang telah beriman lebih dahulu dari kami, dan janganlah Engkau tanamkan kedengkian dalam hati kami terhadap orang-orang yang beriman. Ya Tuhan kami, Sungguh, Engkau Maha Penyantun, Maha Penyayang.” &#x20;
+Dan orang-orang yang datang sesudah mereka (Muhajirin dan Ansar), mereka berdoa, “Ya Tuhan kami, ampunilah kami dan saudara-saudara kami yang telah beriman lebih dahulu dari kami, dan janganlah Engkau tanamkan kedengkian dalam hati kami terhadap orang-orang yang beriman. Ya Tuhan kami, Sungguh, Engkau Maha Penyantun, Maha Penyayang.”
 
 ## 59:11
 
-Tidakkah engkau memperhatikan orang-orang munafik yang berkata kepada saudara-saudaranya yang kafir di antara Ahli Kitab, “Sungguh, jika kamu diusir niscaya kami pun akan keluar bersama kamu; dan kami selama-lamanya tidak akan patuh kepada siapa pun demi kamu, dan jika kamu diperangi pasti kami akan membantumu.” Dan Allah menyaksikan, bahwa mereka benar-benar pendusta.&#x20;
+Tidakkah engkau memperhatikan orang-orang munafik yang berkata kepada saudara-saudaranya yang kafir di antara Ahli Kitab, “Sungguh, jika kamu diusir niscaya kami pun akan keluar bersama kamu; dan kami selama-lamanya tidak akan patuh kepada siapa pun demi kamu, dan jika kamu diperangi pasti kami akan membantumu.” Dan Allah menyaksikan, bahwa mereka benar-benar pendusta.
 
 ## 59:12
 
-Sungguh, jika mereka diusir, orang-orang munafik itu tidak akan keluar bersama mereka, dan jika mereka di-perangi; mereka (juga) tidak akan menolongnya; dan kalau pun mereka menolongnya pastilah mereka akan berpaling lari ke belakang, kemudian mereka tidak akan mendapat pertolongan.&#x20;
+Sungguh, jika mereka diusir, orang-orang munafik itu tidak akan keluar bersama mereka, dan jika mereka di-perangi; mereka (juga) tidak akan menolongnya; dan kalau pun mereka menolongnya pastilah mereka akan berpaling lari ke belakang, kemudian mereka tidak akan mendapat pertolongan.
 
 ## 59:13
 
@@ -20563,27 +20563,27 @@ Sesungguhnya dalam hati mereka, kamu (Muslimin) lebih ditakuti daripada Allah. Y
 
 ## 59:14
 
-Mereka tidak akan memerangi kamu (secara) bersama-sama, kecuali di negeri-negeri yang berbenteng atau di balik tembok. Permusuhan antara sesama mereka sangat hebat. Kamu kira mereka itu bersatu padahal hati mereka terpecah belah. Yang demikian itu karena mereka orang-orang yang tidak mengerti.&#x20;
+Mereka tidak akan memerangi kamu (secara) bersama-sama, kecuali di negeri-negeri yang berbenteng atau di balik tembok. Permusuhan antara sesama mereka sangat hebat. Kamu kira mereka itu bersatu padahal hati mereka terpecah belah. Yang demikian itu karena mereka orang-orang yang tidak mengerti.
 
 ## 59:15
 
-(Mereka) seperti orang-orang yang sebelum mereka (Yahudi) belum lama berselang, telah merasakan akibat buruk (terusir) disebabkan perbuatan mereka sendiri. Dan mereka akan men-dapat azab yang pedih.&#x20;
+(Mereka) seperti orang-orang yang sebelum mereka (Yahudi) belum lama berselang, telah merasakan akibat buruk (terusir) disebabkan perbuatan mereka sendiri. Dan mereka akan men-dapat azab yang pedih.
 
 ## 59:16
 
-(Bujukan orang-orang munafik itu) seperti (bujukan) setan ketika ia berkata kepada manusia, “Kafirlah kamu!” Kemudian ketika manusia itu menjadi kafir ia berkata, “Sesungguhnya aku berlepas diri dari kamu, karena sesungguhnya aku takut kepada Allah, Tuhan seluruh alam.”&#x20;
+(Bujukan orang-orang munafik itu) seperti (bujukan) setan ketika ia berkata kepada manusia, “Kafirlah kamu!” Kemudian ketika manusia itu menjadi kafir ia berkata, “Sesungguhnya aku berlepas diri dari kamu, karena sesungguhnya aku takut kepada Allah, Tuhan seluruh alam.”
 
 ## 59:17
 
-Maka kesudahan bagi keduanya, bahwa keduanya masuk ke dalam neraka, kekal di dalamnya. Demikianlah balasan bagi orang-orang zalim.&#x20;
+Maka kesudahan bagi keduanya, bahwa keduanya masuk ke dalam neraka, kekal di dalamnya. Demikianlah balasan bagi orang-orang zalim.
 
 ## 59:18
 
-Wahai orang-orang yang beriman! Bertakwalah kepada Allah dan hendaklah setiap orang memperhatikan apa yang telah diperbuatnya untuk hari esok (akhirat), dan bertakwalah kepada Allah. Sungguh, Allah Mahateliti terhadap apa yang kamu kerjakan.&#x20;
+Wahai orang-orang yang beriman! Bertakwalah kepada Allah dan hendaklah setiap orang memperhatikan apa yang telah diperbuatnya untuk hari esok (akhirat), dan bertakwalah kepada Allah. Sungguh, Allah Mahateliti terhadap apa yang kamu kerjakan.
 
 ## 59:19
 
-Dan janganlah kamu seperti orang-orang yang lupa kepada Allah, sehingga Allah menjadikan mereka lupa akan diri sendiri. Mereka itulah orang-orang fasik.&#x20;
+Dan janganlah kamu seperti orang-orang yang lupa kepada Allah, sehingga Allah menjadikan mereka lupa akan diri sendiri. Mereka itulah orang-orang fasik.
 
 ## 59:20
 
@@ -20595,7 +20595,7 @@ Sekiranya Kami turunkan Al-Qur'an ini kepada sebuah gunung, pasti kamu akan meli
 
 ## 59:22
 
-Dialah Allah tidak ada tuhan selain Dia. Yang Mengetahui yang gaib dan yang nyata, Dialah Yang Maha Pengasih, Maha Penyayang.&#x20;
+Dialah Allah tidak ada tuhan selain Dia. Yang Mengetahui yang gaib dan yang nyata, Dialah Yang Maha Pengasih, Maha Penyayang.
 
 ## 59:23
 
@@ -20607,11 +20607,11 @@ Dialah Allah Yang Menciptakan, Yang Mengadakan, Yang Membentuk Rupa, Dia memilik
 
 ## 60:1
 
-Wahai orang-orang yang beriman! Janganlah kamu menjadikan musuh-Ku dan musuhmu sebagai teman-teman setia sehingga kamu sampaikan kepada mereka (berita-berita Muhammad), karena rasa kasih sayang; padahal mereka telah ingkar kepada kebenaran yang disampaikan kepadamu. Mereka mengusir Rasul dan kamu sendiri karena kamu beriman kepada Allah, Tuhanmu. Jika kamu benar-benar keluar untuk berjihad pada jalan-Ku dan mencari keridaan-Ku (janganlah kamu berbuat demikian). Kamu memberitahukan secara rahasia (berita-berita Muhammad) kepada mereka, karena rasa kasih sayang, dan Aku lebih mengetahui apa yang kamu sembunyikan dan apa yang kamu nyatakan. Dan barangsiapa di antara kamu yang melakukannya, maka sungguh, dia telah tersesat dari jalan yang lurus.&#x20;
+Wahai orang-orang yang beriman! Janganlah kamu menjadikan musuh-Ku dan musuhmu sebagai teman-teman setia sehingga kamu sampaikan kepada mereka (berita-berita Muhammad), karena rasa kasih sayang; padahal mereka telah ingkar kepada kebenaran yang disampaikan kepadamu. Mereka mengusir Rasul dan kamu sendiri karena kamu beriman kepada Allah, Tuhanmu. Jika kamu benar-benar keluar untuk berjihad pada jalan-Ku dan mencari keridaan-Ku (janganlah kamu berbuat demikian). Kamu memberitahukan secara rahasia (berita-berita Muhammad) kepada mereka, karena rasa kasih sayang, dan Aku lebih mengetahui apa yang kamu sembunyikan dan apa yang kamu nyatakan. Dan barangsiapa di antara kamu yang melakukannya, maka sungguh, dia telah tersesat dari jalan yang lurus.
 
 ## 60:2
 
-Jika mereka menangkapmu, niscaya mereka bertindak sebagai musuh bagimu lalu melepaskan tangan dan lidahnya kepadamu untuk menyakiti dan mereka ingin agar kamu (kembali) kafir.&#x20;
+Jika mereka menangkapmu, niscaya mereka bertindak sebagai musuh bagimu lalu melepaskan tangan dan lidahnya kepadamu untuk menyakiti dan mereka ingin agar kamu (kembali) kafir.
 
 ## 60:3
 
@@ -20679,19 +20679,19 @@ Dan (ingatlah) ketika Musa berkata kepada kaumnya, “Wahai kaumku! Mengapa kamu
 
 ## 61:6
 
-Dan (ingatlah) ketika Isa putra Maryam berkata, “Wahai Bani Israil! Sesungguhnya aku utusan Allah kepadamu, yang membenarkan kitab (yang turun) sebelumku, yaitu Taurat dan memberi kabar gembira dengan seorang Rasul yang akan datang setelahku, yang namanya Ahmad (Muhammad).” Namun ketika Rasul itu datang kepada mereka dengan membawa bukti-bukti yang nyata, mereka berkata, “Ini adalah sihir yang nyata.”&#x20;
+Dan (ingatlah) ketika Isa putra Maryam berkata, “Wahai Bani Israil! Sesungguhnya aku utusan Allah kepadamu, yang membenarkan kitab (yang turun) sebelumku, yaitu Taurat dan memberi kabar gembira dengan seorang Rasul yang akan datang setelahku, yang namanya Ahmad (Muhammad).” Namun ketika Rasul itu datang kepada mereka dengan membawa bukti-bukti yang nyata, mereka berkata, “Ini adalah sihir yang nyata.”
 
 ## 61:7
 
-Dan siapakah yang lebih zalim daripada orang yang mengada-adakan kebohongan terhadap Allah padahal dia diajak kepada (agama) Islam? Dan Allah tidak memberi petunjuk kepada orang-orang yang zalim.&#x20;
+Dan siapakah yang lebih zalim daripada orang yang mengada-adakan kebohongan terhadap Allah padahal dia diajak kepada (agama) Islam? Dan Allah tidak memberi petunjuk kepada orang-orang yang zalim.
 
 ## 61:8
 
-Mereka hendak memadamkan cahaya (agama) Allah dengan mulut (ucapan-ucapan) mereka, tetapi Allah tetap menyempurnakan cahaya-Nya meskipun orang-orang kafir membencinya.&#x20;
+Mereka hendak memadamkan cahaya (agama) Allah dengan mulut (ucapan-ucapan) mereka, tetapi Allah tetap menyempurnakan cahaya-Nya meskipun orang-orang kafir membencinya.
 
 ## 61:9
 
-Dialah yang mengutus Rasul-Nya dengan membawa petunjuk dan agama yang benar, untuk memenangkannya di atas segala agama meskipun orang-orang musyrik membencinya.&#x20;
+Dialah yang mengutus Rasul-Nya dengan membawa petunjuk dan agama yang benar, untuk memenangkannya di atas segala agama meskipun orang-orang musyrik membencinya.
 
 ## 61:10
 
@@ -20703,15 +20703,15 @@ Yaitu kamu beriman kepada Allah dan Rasul-Nya dan berjihad di jalan Allah dengan
 
 ## 61:12
 
-niscaya Allah mengampuni dosa-dosamu dan memasukkan kamu ke dalam surga yang mengalir di bawahnya sungai-sungai, dan ke tempat-tempat tinggal yang baik di dalam surga ‘Adn. Itulah kemenangan yang agung.&#x20;
+niscaya Allah mengampuni dosa-dosamu dan memasukkan kamu ke dalam surga yang mengalir di bawahnya sungai-sungai, dan ke tempat-tempat tinggal yang baik di dalam surga ‘Adn. Itulah kemenangan yang agung.
 
 ## 61:13
 
-Dan (ada lagi) karunia yang lain yang kamu sukai (yaitu) pertolongan dari Allah dan kemenangan yang dekat (waktunya). Dan sampaikanlah berita gembira kepada orang-orang mukmin.&#x20;
+Dan (ada lagi) karunia yang lain yang kamu sukai (yaitu) pertolongan dari Allah dan kemenangan yang dekat (waktunya). Dan sampaikanlah berita gembira kepada orang-orang mukmin.
 
 ## 61:14
 
-Wahai orang-orang yang beriman! Jadilah kamu penolong-penolong (agama) Allah sebagaimana Isa putra Maryam telah berkata kepada pengikut-pengikutnya yang setia, “Siapakah yang akan menjadi penolong-penolongku (untuk menegakkan agama) Allah?” Pengikut-pengikutnya yang setia itu berkata, “Kamilah penolong-penolong (agama) Allah,” lalu segolongan dari Bani Israil beriman dan segolongan (yang lain) kafir; lalu Kami berikan kekuatan ke-pada orang-orang yang beriman terhadap musuh-musuh mereka, sehingga mereka menjadi orang-orang yang menang.&#x20;
+Wahai orang-orang yang beriman! Jadilah kamu penolong-penolong (agama) Allah sebagaimana Isa putra Maryam telah berkata kepada pengikut-pengikutnya yang setia, “Siapakah yang akan menjadi penolong-penolongku (untuk menegakkan agama) Allah?” Pengikut-pengikutnya yang setia itu berkata, “Kamilah penolong-penolong (agama) Allah,” lalu segolongan dari Bani Israil beriman dan segolongan (yang lain) kafir; lalu Kami berikan kekuatan ke-pada orang-orang yang beriman terhadap musuh-musuh mereka, sehingga mereka menjadi orang-orang yang menang.
 
 ## 62:1
 
@@ -20723,27 +20723,27 @@ Dialah yang mengutus seorang Rasul kepada kaum yang buta huruf dari kalangan mer
 
 ## 62:3
 
-Dan (juga) kepada kaum yang lain dari mereka yang belum berhubungan dengan mereka. Dan Dialah Yang Mahaperkasa, Mahabijaksana.&#x20;
+Dan (juga) kepada kaum yang lain dari mereka yang belum berhubungan dengan mereka. Dan Dialah Yang Mahaperkasa, Mahabijaksana.
 
 ## 62:4
 
-Demikianlah karunia Allah, yang diberikan kepada siapa yang Dia kehendaki; dan Allah memiliki karunia yang besar.&#x20;
+Demikianlah karunia Allah, yang diberikan kepada siapa yang Dia kehendaki; dan Allah memiliki karunia yang besar.
 
 ## 62:5
 
-Perumpamaan orang-orang yang diberi tugas membawa Taurat, kemudian mereka tidak membawanya (tidak mengamalkannya) adalah seperti keledai yang membawa kitab-kitab yang tebal. Sangat buruk perumpamaan kaum yang mendustakan ayat-ayat Allah. Dan Allah tidak memberi petunjuk kepada orang-orang yang zalim.&#x20;
+Perumpamaan orang-orang yang diberi tugas membawa Taurat, kemudian mereka tidak membawanya (tidak mengamalkannya) adalah seperti keledai yang membawa kitab-kitab yang tebal. Sangat buruk perumpamaan kaum yang mendustakan ayat-ayat Allah. Dan Allah tidak memberi petunjuk kepada orang-orang yang zalim.
 
 ## 62:6
 
-Katakanlah (Muhammad), “Wahai orang-orang Yahudi! Jika kamu mengira bahwa kamulah kekasih Allah, bukan orang-orang yang lain, maka harapkanlah kematianmu, jika kamu orang yang benar.”&#x20;
+Katakanlah (Muhammad), “Wahai orang-orang Yahudi! Jika kamu mengira bahwa kamulah kekasih Allah, bukan orang-orang yang lain, maka harapkanlah kematianmu, jika kamu orang yang benar.”
 
 ## 62:7
 
-Dan mereka tidak akan mengharapkan kematian itu selamanya disebabkan kejahatan yang telah mereka perbuat dengan tangan mereka sendiri. Dan Allah Maha Mengetahui orang-orang yang zalim.&#x20;
+Dan mereka tidak akan mengharapkan kematian itu selamanya disebabkan kejahatan yang telah mereka perbuat dengan tangan mereka sendiri. Dan Allah Maha Mengetahui orang-orang yang zalim.
 
 ## 62:8
 
-Katakanlah, “Sesungguhnya kematian yang kamu lari dari padanya, ia pasti menemui kamu, kemudian kamu akan dikembalikan kepada (Allah), yang mengetahui yang gaib dan yang nyata, lalu Dia beritakan kepadamu apa yang telah kamu kerjakan.”&#x20;
+Katakanlah, “Sesungguhnya kematian yang kamu lari dari padanya, ia pasti menemui kamu, kemudian kamu akan dikembalikan kepada (Allah), yang mengetahui yang gaib dan yang nyata, lalu Dia beritakan kepadamu apa yang telah kamu kerjakan.”
 
 ## 62:9
 
@@ -20751,7 +20751,7 @@ Wahai orang-orang yang beriman! Apabila telah diseru untuk melaksanakan salat pa
 
 ## 62:10
 
-Apabila salat telah dilaksanakan, maka bertebaranlah kamu di bumi; carilah karunia Allah dan ingatlah Allah banyak-banyak agar kamu beruntung.&#x20;
+Apabila salat telah dilaksanakan, maka bertebaranlah kamu di bumi; carilah karunia Allah dan ingatlah Allah banyak-banyak agar kamu beruntung.
 
 ## 62:11
 
@@ -20767,7 +20767,7 @@ Mereka menjadikan sumpah-sumpah mereka sebagai perisai, lalu mereka menghalang-h
 
 ## 63:3
 
-Yang demikian itu karena sesungguhnya mereka telah beriman, kemudian menjadi kafir, maka hati mereka dikunci, sehingga mereka tidak dapat mengerti.&#x20;
+Yang demikian itu karena sesungguhnya mereka telah beriman, kemudian menjadi kafir, maka hati mereka dikunci, sehingga mereka tidak dapat mengerti.
 
 ## 63:4
 
@@ -20775,7 +20775,7 @@ Dan apabila engkau melihat mereka, tubuh mereka mengagumkanmu. Dan jika mereka b
 
 ## 63:5
 
-Dan apabila dikatakan kepada mereka, “Marilah (beriman), agar Rasulullah memohonkan ampunan bagimu,” mereka membuang muka dan engkau lihat mereka berpaling dengan menyombongkan diri.&#x20;
+Dan apabila dikatakan kepada mereka, “Marilah (beriman), agar Rasulullah memohonkan ampunan bagimu,” mereka membuang muka dan engkau lihat mereka berpaling dengan menyombongkan diri.
 
 ## 63:6
 
@@ -20803,7 +20803,7 @@ Dan Allah tidak akan menunda (kematian) seseorang apabila waktu kematiannya tela
 
 ## 64:1
 
-Apa yang ada di langit dan apa yang ada di bumi senantiasa bertasbih kepada Allah; milik-Nya semua kerajaan dan bagi-Nya (pula) segala puji; dan Dia Mahakuasa atas segala sesuatu.&#x20;
+Apa yang ada di langit dan apa yang ada di bumi senantiasa bertasbih kepada Allah; milik-Nya semua kerajaan dan bagi-Nya (pula) segala puji; dan Dia Mahakuasa atas segala sesuatu.
 
 ## 64:2
 
@@ -20811,23 +20811,23 @@ Dialah yang menciptakan kamu, lalu di antara kamu ada yang kafir dan di antara k
 
 ## 64:3
 
-Dia menciptakan langit dan bumi dengan (tujuan) yang benar, Dia membentuk rupamu lalu memperbagus rupamu, dan kepada-Nya tempat kembali.&#x20;
+Dia menciptakan langit dan bumi dengan (tujuan) yang benar, Dia membentuk rupamu lalu memperbagus rupamu, dan kepada-Nya tempat kembali.
 
 ## 64:4
 
-Dia mengetahui apa yang di langit dan di bumi, dan mengetahui apa yang kamu rahasiakan dan apa yang kamu nyatakan. Dan Allah Maha Mengetahui segala isi hati.&#x20;
+Dia mengetahui apa yang di langit dan di bumi, dan mengetahui apa yang kamu rahasiakan dan apa yang kamu nyatakan. Dan Allah Maha Mengetahui segala isi hati.
 
 ## 64:5
 
-Apakah belum sampai kepadamu (orang-orang kafir) berita orang-orang kafir dahulu? Maka mereka telah merasakan akibat buruk dari perbuatannya dan mereka memperoleh azab yang pedih.&#x20;
+Apakah belum sampai kepadamu (orang-orang kafir) berita orang-orang kafir dahulu? Maka mereka telah merasakan akibat buruk dari perbuatannya dan mereka memperoleh azab yang pedih.
 
 ## 64:6
 
-Yang demikian itu karena sesungguhnya ketika rasul-rasul datang kepada mereka (membawa) keterangan-ke-terangan lalu mereka berkata, “Apakah  (pantas) manusia yang memberi petunjuk kepada kami?” Lalu mereka ingkar dan berpaling; padahal Allah tidak memerlukan (mereka). Dan Allah Mahakaya, Maha Terpuji.&#x20;
+Yang demikian itu karena sesungguhnya ketika rasul-rasul datang kepada mereka (membawa) keterangan-ke-terangan lalu mereka berkata, “Apakah  (pantas) manusia yang memberi petunjuk kepada kami?” Lalu mereka ingkar dan berpaling; padahal Allah tidak memerlukan (mereka). Dan Allah Mahakaya, Maha Terpuji.
 
 ## 64:7
 
-Orang-orang yang kafir mengira, bahwa mereka tidak akan dibangkitkan. Katakanlah (Muhammad), “Tidak demikian, demi Tuhanku, kamu pasti dibangkitkan, kemudian diberitakan semua yang telah kamu kerjakan.” Dan yang demikian itu mudah bagi Allah.&#x20;
+Orang-orang yang kafir mengira, bahwa mereka tidak akan dibangkitkan. Katakanlah (Muhammad), “Tidak demikian, demi Tuhanku, kamu pasti dibangkitkan, kemudian diberitakan semua yang telah kamu kerjakan.” Dan yang demikian itu mudah bagi Allah.
 
 ## 64:8
 
@@ -20835,19 +20835,19 @@ Maka berimanlah kamu kepada Allah dan Rasul-Nya dan kepada cahaya (Al-Qur'an) ya
 
 ## 64:9
 
-(Ingatlah) pada hari (ketika) Allah mengumpulkan kamu pada hari berhimpun, itulah hari pengungkapan kesalahan-kesalahan. Dan barangsiapa beriman kepada Allah dan mengerjakan kebajikan niscaya Allah akan menghapus kesalahan-kesalahannya dan memasukkannya ke dalam surga yang mengalir di bawahnya sungai-sungai, mereka kekal di dalamnya selama-lamanya. Itulah kemenangan yang agung.&#x20;
+(Ingatlah) pada hari (ketika) Allah mengumpulkan kamu pada hari berhimpun, itulah hari pengungkapan kesalahan-kesalahan. Dan barangsiapa beriman kepada Allah dan mengerjakan kebajikan niscaya Allah akan menghapus kesalahan-kesalahannya dan memasukkannya ke dalam surga yang mengalir di bawahnya sungai-sungai, mereka kekal di dalamnya selama-lamanya. Itulah kemenangan yang agung.
 
 ## 64:10
 
-Dan orang-orang yang kafir dan mendustakan ayat-ayat Kami, mereka itulah penghuni neraka, mereka kekal di dalamnya. Dan itulah seburuk-buruk tempat kembali.&#x20;
+Dan orang-orang yang kafir dan mendustakan ayat-ayat Kami, mereka itulah penghuni neraka, mereka kekal di dalamnya. Dan itulah seburuk-buruk tempat kembali.
 
 ## 64:11
 
-Tidak ada sesuatu musibah yang menimpa (seseorang), kecuali dengan izin Allah; dan barangsiapa beriman kepada Allah, niscaya Allah akan memberi petunjuk kepada hatinya. Dan Allah Maha Mengetahui segala sesuatu.&#x20;
+Tidak ada sesuatu musibah yang menimpa (seseorang), kecuali dengan izin Allah; dan barangsiapa beriman kepada Allah, niscaya Allah akan memberi petunjuk kepada hatinya. Dan Allah Maha Mengetahui segala sesuatu.
 
 ## 64:12
 
-Dan taatlah kepada Allah dan taatlah kepada Rasul. Jika kamu berpaling maka sesungguhnya kewajiban Rasul Kami hanyalah menyampaikan (amanah Allah) dengan terang.&#x20;
+Dan taatlah kepada Allah dan taatlah kepada Rasul. Jika kamu berpaling maka sesungguhnya kewajiban Rasul Kami hanyalah menyampaikan (amanah Allah) dengan terang.
 
 ## 64:13
 
@@ -20859,11 +20859,11 @@ Wahai orang-orang yang beriman! Sesungguhnya di antara istri-istrimu dan anak-an
 
 ## 64:15
 
-Sesungguhnya hartamu dan anak-anakmu hanyalah cobaan (bagimu), dan di sisi Allah pahala yang besar.&#x20;
+Sesungguhnya hartamu dan anak-anakmu hanyalah cobaan (bagimu), dan di sisi Allah pahala yang besar.
 
 ## 64:16
 
-Maka bertakwalah kamu kepada Allah menurut kesanggupanmu dan dengarlah serta taatlah; dan infakkanlah harta yang baik untuk dirimu. Dan barang-siapa dijaga dirinya dari kekikiran, mereka itulah orang-orang yang beruntung.&#x20;
+Maka bertakwalah kamu kepada Allah menurut kesanggupanmu dan dengarlah serta taatlah; dan infakkanlah harta yang baik untuk dirimu. Dan barang-siapa dijaga dirinya dari kekikiran, mereka itulah orang-orang yang beruntung.
 
 ## 64:17
 
@@ -20875,31 +20875,31 @@ Yang Mengetahui yang gaib dan yang nyata. Yang Mahaperkasa, Mahabijaksana.
 
 ## 65:1
 
-Wahai Nabi! Apabila kamu menceraikan istri-istrimu maka hendaklah kamu ceraikan mereka pada waktu mereka dapat (menghadapi) idahnya (yang wajar), dan hitunglah waktu idah itu, serta bertakwalah kepada Allah Tuhanmu. Janganlah kamu keluarkan mereka dari rumahnya dan janganlah (diizinkan) keluar kecuali jika mereka mengerjakan perbuatan keji yang jelas. Itulah hukum-hukum Allah, dan barangsiapa melanggar hukum-hukum Allah, maka sungguh, dia telah berbuat zalim terhadap dirinya sendiri. Kamu tidak mengetahui barangkali setelah itu Allah mengadakan suatu ketentuan yang baru.&#x20;
+Wahai Nabi! Apabila kamu menceraikan istri-istrimu maka hendaklah kamu ceraikan mereka pada waktu mereka dapat (menghadapi) idahnya (yang wajar), dan hitunglah waktu idah itu, serta bertakwalah kepada Allah Tuhanmu. Janganlah kamu keluarkan mereka dari rumahnya dan janganlah (diizinkan) keluar kecuali jika mereka mengerjakan perbuatan keji yang jelas. Itulah hukum-hukum Allah, dan barangsiapa melanggar hukum-hukum Allah, maka sungguh, dia telah berbuat zalim terhadap dirinya sendiri. Kamu tidak mengetahui barangkali setelah itu Allah mengadakan suatu ketentuan yang baru.
 
 ## 65:2
 
-Maka apabila mereka telah mendekati akhir idahnya, maka rujuklah (kembali kepada) mereka dengan baik atau lepaskanlah mereka dengan baik dan persaksikanlah dengan dua orang saksi yang adil di antara kamu dan hendaklah kamu tegakkan kesaksian itu karena Allah. Demikianlah pengajaran itu diberikan bagi orang yang beriman kepada Allah dan hari akhirat. Barangsiapa bertakwa kepada Allah niscaya Dia akan membukakan jalan keluar baginya,&#x20;
+Maka apabila mereka telah mendekati akhir idahnya, maka rujuklah (kembali kepada) mereka dengan baik atau lepaskanlah mereka dengan baik dan persaksikanlah dengan dua orang saksi yang adil di antara kamu dan hendaklah kamu tegakkan kesaksian itu karena Allah. Demikianlah pengajaran itu diberikan bagi orang yang beriman kepada Allah dan hari akhirat. Barangsiapa bertakwa kepada Allah niscaya Dia akan membukakan jalan keluar baginya,
 
 ## 65:3
 
-dan Dia memberinya rezeki dari arah yang tidak disangka-sangkanya. Dan barangsiapa bertawakal kepada Allah, niscaya Allah akan mencukupkan (keperluan)nya. Sesungguhnya Allah melaksanakan urusan-Nya. Sungguh, Allah telah mengadakan ketentuan bagi setiap sesuatu.&#x20;
+dan Dia memberinya rezeki dari arah yang tidak disangka-sangkanya. Dan barangsiapa bertawakal kepada Allah, niscaya Allah akan mencukupkan (keperluan)nya. Sesungguhnya Allah melaksanakan urusan-Nya. Sungguh, Allah telah mengadakan ketentuan bagi setiap sesuatu.
 
 ## 65:4
 
-Perempuan-perempuan yang tidak haid lagi (menopause) di antara istri-istrimu jika kamu ragu-ragu (tentang masa idahnya) maka idahnya adalah tiga bulan; dan begitu (pula) perempuan-perempuan yang tidak haid. Sedangkan perempuan-perempuan yang hamil, waktu idah mereka itu ialah sampai mereka melahirkan kandungannya. Dan barangsiapa bertakwa kepada Allah, niscaya Dia menjadikan kemudahan baginya dalam urusannya.&#x20;
+Perempuan-perempuan yang tidak haid lagi (menopause) di antara istri-istrimu jika kamu ragu-ragu (tentang masa idahnya) maka idahnya adalah tiga bulan; dan begitu (pula) perempuan-perempuan yang tidak haid. Sedangkan perempuan-perempuan yang hamil, waktu idah mereka itu ialah sampai mereka melahirkan kandungannya. Dan barangsiapa bertakwa kepada Allah, niscaya Dia menjadikan kemudahan baginya dalam urusannya.
 
 ## 65:5
 
-Itulah perintah Allah yang diturunkan-Nya kepada kamu; barangsiapa bertakwa kepada Allah, niscaya Allah akan menghapus kesalahan-kesalahannya dan akan melipatgandakan pahala baginya.&#x20;
+Itulah perintah Allah yang diturunkan-Nya kepada kamu; barangsiapa bertakwa kepada Allah, niscaya Allah akan menghapus kesalahan-kesalahannya dan akan melipatgandakan pahala baginya.
 
 ## 65:6
 
-Tempatkanlah mereka (para istri) di mana kamu bertempat tinggal menurut kemampuanmu dan janganlah kamu menyusahkan mereka untuk menyempitkan (hati) mereka. Dan jika mereka (istri-istri yang sudah ditalak) itu sedang hamil, maka berikanlah kepada mereka nafkahnya sampai mereka melahirkan, kemudian jika mereka menyusukan (anak-anak)mu maka berikanlah imbalannya kepada mereka; dan musyawarahkanlah di antara kamu (segala sesuatu) dengan baik; dan jika kamu menemui kesulitan, maka perempuan lain boleh menyusukan (anak itu) untuknya.&#x20;
+Tempatkanlah mereka (para istri) di mana kamu bertempat tinggal menurut kemampuanmu dan janganlah kamu menyusahkan mereka untuk menyempitkan (hati) mereka. Dan jika mereka (istri-istri yang sudah ditalak) itu sedang hamil, maka berikanlah kepada mereka nafkahnya sampai mereka melahirkan, kemudian jika mereka menyusukan (anak-anak)mu maka berikanlah imbalannya kepada mereka; dan musyawarahkanlah di antara kamu (segala sesuatu) dengan baik; dan jika kamu menemui kesulitan, maka perempuan lain boleh menyusukan (anak itu) untuknya.
 
 ## 65:7
 
-Hendaklah orang yang mempunyai keluasan memberi nafkah menurut kemampuannya, dan orang yang terbatas rezekinya, hendaklah memberi nafkah dari harta yang diberikan Allah kepadanya. Allah tidak membebani kepada seseorang melainkan (sesuai) dengan apa yang diberikan Allah kepadanya. Allah kelak akan memberikan kelapangan setelah kesempitan.&#x20;
+Hendaklah orang yang mempunyai keluasan memberi nafkah menurut kemampuannya, dan orang yang terbatas rezekinya, hendaklah memberi nafkah dari harta yang diberikan Allah kepadanya. Allah tidak membebani kepada seseorang melainkan (sesuai) dengan apa yang diberikan Allah kepadanya. Allah kelak akan memberikan kelapangan setelah kesempitan.
 
 ## 65:8
 
@@ -20907,67 +20907,67 @@ Dan betapa banyak (penduduk) negeri yang mendurhakai perintah Tuhan mereka dan r
 
 ## 65:9
 
-sehingga mereka merasakan akibat yang buruk dari perbuatannya, dan akibat perbuatan mereka, itu adalah kerugian yang besar.&#x20;
+sehingga mereka merasakan akibat yang buruk dari perbuatannya, dan akibat perbuatan mereka, itu adalah kerugian yang besar.
 
 ## 65:10
 
-Allah menyediakan azab yang keras bagi mereka, maka bertakwalah kepada Allah wahai orang-orang yang mempunyai akal! (Yaitu) orang-orang yang beriman. Sungguh, Allah telah menurunkan peringatan kepadamu,&#x20;
+Allah menyediakan azab yang keras bagi mereka, maka bertakwalah kepada Allah wahai orang-orang yang mempunyai akal! (Yaitu) orang-orang yang beriman. Sungguh, Allah telah menurunkan peringatan kepadamu,
 
 ## 65:11
 
-(dengan mengutus) seorang Rasul yang membacakan ayat-ayat Allah kepadamu yang menerangkan (bermacam-macam hukum), agar Dia mengeluarkan orang-orang yang beriman dan mengerjakan kebajikan, dari kegelapan kepada cahaya. Dan barangsiapa beriman kepada Allah dan mengerjakan kebajikan, niscaya Dia akan memasukkannya ke dalam surga-surga yang mengalir di bawahnya sungai-sungai; mereka kekal di dalamnya selama-lamanya. Sungguh, Allah memberikan rezeki yang baik kepadanya.&#x20;
+(dengan mengutus) seorang Rasul yang membacakan ayat-ayat Allah kepadamu yang menerangkan (bermacam-macam hukum), agar Dia mengeluarkan orang-orang yang beriman dan mengerjakan kebajikan, dari kegelapan kepada cahaya. Dan barangsiapa beriman kepada Allah dan mengerjakan kebajikan, niscaya Dia akan memasukkannya ke dalam surga-surga yang mengalir di bawahnya sungai-sungai; mereka kekal di dalamnya selama-lamanya. Sungguh, Allah memberikan rezeki yang baik kepadanya.
 
 ## 65:12
 
-Allah yang menciptakan tujuh langit dan dari (penciptaan) bumi juga serupa. Perintah Allah berlaku padanya, agar kamu mengetahui bahwa Allah Mahakuasa atas segala sesuatu, dan ilmu Allah benar-benar meliputi segala sesuatu.&#x20;
+Allah yang menciptakan tujuh langit dan dari (penciptaan) bumi juga serupa. Perintah Allah berlaku padanya, agar kamu mengetahui bahwa Allah Mahakuasa atas segala sesuatu, dan ilmu Allah benar-benar meliputi segala sesuatu.
 
 ## 66:1
 
-Wahai Nabi! Mengapa engkau mengharamkan apa yang dihalalkan Allah bagimu? Engkau ingin menyenangkan hati istri-istrimu? Dan Allah Maha Pengampun, Maha Penyayang.&#x20;
+Wahai Nabi! Mengapa engkau mengharamkan apa yang dihalalkan Allah bagimu? Engkau ingin menyenangkan hati istri-istrimu? Dan Allah Maha Pengampun, Maha Penyayang.
 
 ## 66:2
 
-Sungguh, Allah telah mewajibkan kepadamu membebaskan diri dari sumpahmu; dan Allah adalah pelindungmu dan Dia Maha Mengetahui, Mahabijaksana.&#x20;
+Sungguh, Allah telah mewajibkan kepadamu membebaskan diri dari sumpahmu; dan Allah adalah pelindungmu dan Dia Maha Mengetahui, Mahabijaksana.
 
 ## 66:3
 
-Dan ingatlah ketika secara rahasia Nabi membicarakan suatu peristiwa kepada salah seorang istrinya (Hafsah). Lalu dia menceritakan peristiwa itu (kepada Aisyah) dan Allah memberitahukan peristiwa itu kepadanya (Nabi), lalu (Nabi) memberitahukan (kepada Hafsah) sebagian dan menyembunyikan sebagian yang lain. Maka ketika dia (Nabi) memberitahukan pembicaraan itu kepadanya (Hafsah), dia bertanya, “Siapa yang telah memberitahukan hal ini kepadamu?” Nabi menjawab, “Yang memberitahukan kepadaku adalah Allah Yang Maha Mengetahui, Mahateliti.”&#x20;
+Dan ingatlah ketika secara rahasia Nabi membicarakan suatu peristiwa kepada salah seorang istrinya (Hafsah). Lalu dia menceritakan peristiwa itu (kepada Aisyah) dan Allah memberitahukan peristiwa itu kepadanya (Nabi), lalu (Nabi) memberitahukan (kepada Hafsah) sebagian dan menyembunyikan sebagian yang lain. Maka ketika dia (Nabi) memberitahukan pembicaraan itu kepadanya (Hafsah), dia bertanya, “Siapa yang telah memberitahukan hal ini kepadamu?” Nabi menjawab, “Yang memberitahukan kepadaku adalah Allah Yang Maha Mengetahui, Mahateliti.”
 
 ## 66:4
 
-Jika kamu berdua bertobat kepada Allah, maka sungguh, hati kamu berdua telah condong (untuk menerima kebenaran); dan jika kamu berdua saling bantu-membantu menyusahkan Nabi, maka sungguh, Allah menjadi pelindungnya dan (juga) Jibril dan orang-orang mukmin yang baik; dan selain itu malaikat-malaikat adalah penolongnya.&#x20;
+Jika kamu berdua bertobat kepada Allah, maka sungguh, hati kamu berdua telah condong (untuk menerima kebenaran); dan jika kamu berdua saling bantu-membantu menyusahkan Nabi, maka sungguh, Allah menjadi pelindungnya dan (juga) Jibril dan orang-orang mukmin yang baik; dan selain itu malaikat-malaikat adalah penolongnya.
 
 ## 66:5
 
-Jika dia (Nabi) menceraikan kamu, boleh jadi Tuhan akan memberi ganti kepadanya dengan istri-istri yang lebih baik dari kamu, perempuan-perempuan yang patuh, yang beriman, yang taat, yang bertobat, yang beribadah, yang berpuasa, yang janda dan yang perawan.&#x20;
+Jika dia (Nabi) menceraikan kamu, boleh jadi Tuhan akan memberi ganti kepadanya dengan istri-istri yang lebih baik dari kamu, perempuan-perempuan yang patuh, yang beriman, yang taat, yang bertobat, yang beribadah, yang berpuasa, yang janda dan yang perawan.
 
 ## 66:6
 
-Wahai orang-orang yang beriman! Peliharalah dirimu dan keluargamu dari api neraka yang bahan bakarnya adalah manusia dan batu; penjaganya malaikat-malaikat yang kasar, dan keras, yang tidak durhaka kepada Allah terhadap apa yang Dia perintahkan kepada mereka dan selalu mengerjakan apa yang diperintahkan.&#x20;
+Wahai orang-orang yang beriman! Peliharalah dirimu dan keluargamu dari api neraka yang bahan bakarnya adalah manusia dan batu; penjaganya malaikat-malaikat yang kasar, dan keras, yang tidak durhaka kepada Allah terhadap apa yang Dia perintahkan kepada mereka dan selalu mengerjakan apa yang diperintahkan.
 
 ## 66:7
 
-Wahai orang-orang kafir! Janganlah kamu mengemukakan alasan pada hari ini. Sesungguhnya kamu hanya diberi balasan menurut apa yang telah kamu kerjakan.&#x20;
+Wahai orang-orang kafir! Janganlah kamu mengemukakan alasan pada hari ini. Sesungguhnya kamu hanya diberi balasan menurut apa yang telah kamu kerjakan.
 
 ## 66:8
 
-Wahai orang-orang yang beriman! Bertobatlah kepada Allah dengan tobat yang semurni-murninya, mudah-mudahan Tuhan kamu akan menghapus kesalahan-kesalahanmu dan memasukkan kamu ke dalam surga yang mengalir di bawahnya sungai-sungai, pada hari ketika Allah tidak mengecewakan Nabi dan orang-orang yang beriman bersama dengannya; sedang cahaya mereka memancar di hadapan dan di sebelah kanan mereka, sambil mereka berkata, “Ya Tuhan kami, sempurnakanlah untuk kami cahaya kami dan ampunilah kami; Sungguh, Engkau Mahakuasa atas segala sesuatu.”&#x20;
+Wahai orang-orang yang beriman! Bertobatlah kepada Allah dengan tobat yang semurni-murninya, mudah-mudahan Tuhan kamu akan menghapus kesalahan-kesalahanmu dan memasukkan kamu ke dalam surga yang mengalir di bawahnya sungai-sungai, pada hari ketika Allah tidak mengecewakan Nabi dan orang-orang yang beriman bersama dengannya; sedang cahaya mereka memancar di hadapan dan di sebelah kanan mereka, sambil mereka berkata, “Ya Tuhan kami, sempurnakanlah untuk kami cahaya kami dan ampunilah kami; Sungguh, Engkau Mahakuasa atas segala sesuatu.”
 
 ## 66:9
 
-Wahai Nabi! Perangilah orang-orang kafir dan orang-orang munafik dan bersikap keraslah terhadap mereka. Tempat mereka adalah neraka Jahanam dan itulah seburuk-buruk tempat kembali.&#x20;
+Wahai Nabi! Perangilah orang-orang kafir dan orang-orang munafik dan bersikap keraslah terhadap mereka. Tempat mereka adalah neraka Jahanam dan itulah seburuk-buruk tempat kembali.
 
 ## 66:10
 
-Allah membuat perumpamaan bagi orang-orang kafir, istri Nuh dan istri Lut. Keduanya berada di bawah pengawasan dua orang hamba yang saleh di antara hamba-hamba Kami; lalu kedua istri itu berkhianat kepada kedua suaminya, tetapi kedua suaminya itu tidak dapat membantu mereka sedikit pun dari (siksaan) Allah; dan dikatakan (kepada kedua istri itu), “Masuklah kamu berdua ke neraka bersama orang-orang yang masuk (neraka).”&#x20;
+Allah membuat perumpamaan bagi orang-orang kafir, istri Nuh dan istri Lut. Keduanya berada di bawah pengawasan dua orang hamba yang saleh di antara hamba-hamba Kami; lalu kedua istri itu berkhianat kepada kedua suaminya, tetapi kedua suaminya itu tidak dapat membantu mereka sedikit pun dari (siksaan) Allah; dan dikatakan (kepada kedua istri itu), “Masuklah kamu berdua ke neraka bersama orang-orang yang masuk (neraka).”
 
 ## 66:11
 
-Dan Allah membuat perumpamaan bagi orang-orang yang beriman, istri Fir‘aun, ketika dia berkata, “Ya Tuhanku, bangunkanlah untukku sebuah rumah di sisi-Mu dalam surga dan selamatkanlah aku dari Fir‘aun dan perbuatannya, dan selamatkanlah aku dari kaum yang zalim,”&#x20;
+Dan Allah membuat perumpamaan bagi orang-orang yang beriman, istri Fir‘aun, ketika dia berkata, “Ya Tuhanku, bangunkanlah untukku sebuah rumah di sisi-Mu dalam surga dan selamatkanlah aku dari Fir‘aun dan perbuatannya, dan selamatkanlah aku dari kaum yang zalim,”
 
 ## 66:12
 
-dan Maryam putri Imran yang memelihara kehormatannya, maka Kami tiupkan ke dalam rahimnya sebagian dari roh (ciptaan) Kami; dan dia membenarkan kalimat-kalimat Tuhannya dan kitab-kitab-Nya; dan dia termasuk orang-orang yang taat.&#x20;
+dan Maryam putri Imran yang memelihara kehormatannya, maka Kami tiupkan ke dalam rahimnya sebagian dari roh (ciptaan) Kami; dan dia membenarkan kalimat-kalimat Tuhannya dan kitab-kitab-Nya; dan dia termasuk orang-orang yang taat.
 
 ## 67:1
 
@@ -21015,11 +21015,11 @@ Maka mereka mengakui dosanya. Tetapi jauhlah (dari rahmat Allah) bagi penghuni n
 
 ## 67:12
 
-Sesungguhnya orang-orang yang takut kepada Tuhannya yang tidak terlihat oleh mereka, mereka memperoleh ampunan dan pahala yang besar.&#x20;
+Sesungguhnya orang-orang yang takut kepada Tuhannya yang tidak terlihat oleh mereka, mereka memperoleh ampunan dan pahala yang besar.
 
 ## 67:13
 
-Dan rahasiakanlah perkataanmu atau nyatakanlah. Sungguh, Dia Maha Mengetahui segala isi hati.&#x20;
+Dan rahasiakanlah perkataanmu atau nyatakanlah. Sungguh, Dia Maha Mengetahui segala isi hati.
 
 ## 67:14
 
@@ -21027,7 +21027,7 @@ Apakah (pantas) Allah yang menciptakan itu tidak mengetahui? Dan Dia Mahahalus, 
 
 ## 67:15
 
-Dialah yang menjadikan bumi untuk kamu yang mudah dijelajahi, maka jelajahilah di segala penjurunya dan makanlah sebagian dari rezeki-Nya. Dan hanya kepada-Nyalah kamu (kembali setelah) dibangkitkan.&#x20;
+Dialah yang menjadikan bumi untuk kamu yang mudah dijelajahi, maka jelajahilah di segala penjurunya dan makanlah sebagian dari rezeki-Nya. Dan hanya kepada-Nyalah kamu (kembali setelah) dibangkitkan.
 
 ## 67:16
 
@@ -21039,15 +21039,15 @@ Atau sudah merasa amankah kamu, bahwa Dia yang di langit tidak akan mengirimkan 
 
 ## 67:18
 
-Dan sungguh, orang-orang yang sebelum mereka pun telah mendustakan (rasul-rasul-Nya). Maka betapa hebatnya kemurkaan-Ku!&#x20;
+Dan sungguh, orang-orang yang sebelum mereka pun telah mendustakan (rasul-rasul-Nya). Maka betapa hebatnya kemurkaan-Ku!
 
 ## 67:19
 
-Tidakkah mereka memperhatikan burung-burung yang mengembangkan dan mengatupkan sayapnya di atas mereka? Tidak ada yang menahannya (di udara) selain Yang Maha Pengasih. Sungguh, Dia Maha Melihat segala sesuatu. &#x20;
+Tidakkah mereka memperhatikan burung-burung yang mengembangkan dan mengatupkan sayapnya di atas mereka? Tidak ada yang menahannya (di udara) selain Yang Maha Pengasih. Sungguh, Dia Maha Melihat segala sesuatu.
 
 ## 67:20
 
-Atau siapakah yang akan menjadi bala tentara bagimu yang dapat membelamu selain (Allah) Yang Maha Pengasih? Orang-orang kafir itu hanyalah dalam (keadaan) tertipu.&#x20;
+Atau siapakah yang akan menjadi bala tentara bagimu yang dapat membelamu selain (Allah) Yang Maha Pengasih? Orang-orang kafir itu hanyalah dalam (keadaan) tertipu.
 
 ## 67:21
 
@@ -21063,7 +21063,7 @@ Katakanlah, “Dialah yang menciptakan kamu dan menjadikan pendengaran, pengliha
 
 ## 67:24
 
-Katakanlah, “Dialah yang menjadikan kamu berkembang biak di muka bumi, dan hanya kepada-Nya kamu akan dikumpulkan.”&#x20;
+Katakanlah, “Dialah yang menjadikan kamu berkembang biak di muka bumi, dan hanya kepada-Nya kamu akan dikumpulkan.”
 
 ## 67:25
 
@@ -21071,11 +21071,11 @@ Dan mereka berkata, “Kapan (datangnya) ancaman itu jika kamu orang yang benar?
 
 ## 67:26
 
-Katakanlah (Muhammad), “Sesungguhnya ilmu (tentang hari Kiamat itu) hanya ada pada Allah. Dan aku hanyalah seorang pemberi peringatan yang menjelaskan.”&#x20;
+Katakanlah (Muhammad), “Sesungguhnya ilmu (tentang hari Kiamat itu) hanya ada pada Allah. Dan aku hanyalah seorang pemberi peringatan yang menjelaskan.”
 
 ## 67:27
 
-Maka ketika mereka melihat azab (pada hari Kiamat) sudah dekat, wajah orang-orang kafir itu menjadi muram. Dan dikatakan (kepada mereka), “Inilah (azab) yang dahulunya kamu minta.”&#x20;
+Maka ketika mereka melihat azab (pada hari Kiamat) sudah dekat, wajah orang-orang kafir itu menjadi muram. Dan dikatakan (kepada mereka), “Inilah (azab) yang dahulunya kamu minta.”
 
 ## 67:28
 
@@ -21083,7 +21083,7 @@ Katakanlah (Muhammad), “Tahukah kamu jika Allah mematikan aku dan orang-orang 
 
 ## 67:29
 
-Katakanlah, “Dialah Yang Maha Pengasih, kami beriman kepada-Nya dan kepada-Nya kami bertawakal. Maka kelak kamu akan tahu siapa yang berada dalam kesesatan yang nyata.”&#x20;
+Katakanlah, “Dialah Yang Maha Pengasih, kami beriman kepada-Nya dan kepada-Nya kami bertawakal. Maka kelak kamu akan tahu siapa yang berada dalam kesesatan yang nyata.”
 
 ## 67:30
 
@@ -21091,31 +21091,31 @@ Katakanlah (Muhammad), “Terangkanlah kepadaku jika sumber air kamu menjadi ker
 
 ## 68:1
 
-Nun. Demi pena dan apa yang mereka tuliskan,&#x20;
+Nun. Demi pena dan apa yang mereka tuliskan,
 
 ## 68:2
 
-dengan karunia Tuhanmu engkau (Muhammad) bukanlah orang gila.&#x20;
+dengan karunia Tuhanmu engkau (Muhammad) bukanlah orang gila.
 
 ## 68:3
 
-Dan sesungguhnya engkau pasti mendapat pahala yang besar yang tidak putus-putusnya.&#x20;
+Dan sesungguhnya engkau pasti mendapat pahala yang besar yang tidak putus-putusnya.
 
 ## 68:4
 
-Dan sesungguhnya engkau benar-benar berbudi pekerti yang luhur.&#x20;
+Dan sesungguhnya engkau benar-benar berbudi pekerti yang luhur.
 
 ## 68:5
 
-Maka kelak engkau akan melihat dan mereka (orang-orang kafir) pun akan melihat,&#x20;
+Maka kelak engkau akan melihat dan mereka (orang-orang kafir) pun akan melihat,
 
 ## 68:6
 
-siapa di antara kamu yang gila?&#x20;
+siapa di antara kamu yang gila?
 
 ## 68:7
 
-Sungguh, Tuhanmu, Dialah yang paling mengetahui siapa yang sesat dari jalan-Nya; dan Dialah yang paling mengetahui siapa orang yang mendapat petunjuk.&#x20;
+Sungguh, Tuhanmu, Dialah yang paling mengetahui siapa yang sesat dari jalan-Nya; dan Dialah yang paling mengetahui siapa orang yang mendapat petunjuk.
 
 ## 68:8
 
@@ -21123,7 +21123,7 @@ Maka janganlah engkau patuhi orang-orang yang mendustakan (ayat-ayat Allah).
 
 ## 68:9
 
-Mereka menginginkan agar engkau bersikap lunak maka mereka bersikap lunak (pula).&#x20;
+Mereka menginginkan agar engkau bersikap lunak maka mereka bersikap lunak (pula).
 
 ## 68:10
 
@@ -21131,11 +21131,11 @@ Dan janganlah engkau patuhi setiap orang yang suka bersumpah dan suka menghina,
 
 ## 68:11
 
-suka mencela, yang kian ke mari menyebarkan fitnah,&#x20;
+suka mencela, yang kian ke mari menyebarkan fitnah,
 
 ## 68:12
 
-yang merintangi segala yang baik, yang melampaui batas dan banyak dosa,&#x20;
+yang merintangi segala yang baik, yang melampaui batas dan banyak dosa,
 
 ## 68:13
 
@@ -21147,11 +21147,11 @@ karena dia kaya dan banyak anak.
 
 ## 68:15
 
-Apabila ayat-ayat Kami dibacakan kepadanya, dia berkata, “(Ini adalah) dongeng-dongeng orang dahulu.”&#x20;
+Apabila ayat-ayat Kami dibacakan kepadanya, dia berkata, “(Ini adalah) dongeng-dongeng orang dahulu.”
 
 ## 68:16
 
-Kelak dia akan Kami beri tanda pada belalai(nya).&#x20;
+Kelak dia akan Kami beri tanda pada belalai(nya).
 
 ## 68:17
 
@@ -21175,19 +21175,19 @@ lalu pada pagi hari mereka saling memanggil.
 
 ## 68:22
 
-”Pergilah pagi-pagi ke kebunmu jika kamu hendak memetik hasil.”&#x20;
+”Pergilah pagi-pagi ke kebunmu jika kamu hendak memetik hasil.”
 
 ## 68:23
 
-Maka mereka pun berangkat sambil berbisik-bisik.&#x20;
+Maka mereka pun berangkat sambil berbisik-bisik.
 
 ## 68:24
 
-”Pada hari ini jangan sampai ada orang miskin masuk ke dalam kebunmu.”&#x20;
+”Pada hari ini jangan sampai ada orang miskin masuk ke dalam kebunmu.”
 
 ## 68:25
 
-Dan berangkatlah mereka pada pagi hari dengan niat menghalangi (orang-orang miskin) padahal mereka mampu (menolongnya).&#x20;
+Dan berangkatlah mereka pada pagi hari dengan niat menghalangi (orang-orang miskin) padahal mereka mampu (menolongnya).
 
 ## 68:26
 
@@ -21203,7 +21203,7 @@ berkatalah seorang yang paling bijak di antara mereka, “Bukankah aku telah men
 
 ## 68:29
 
-Mereka mengucapkan, “Mahasuci Tuhan kami, sungguh, kami adalah orang-orang yang zalim.”&#x20;
+Mereka mengucapkan, “Mahasuci Tuhan kami, sungguh, kami adalah orang-orang yang zalim.”
 
 ## 68:30
 
@@ -21211,11 +21211,11 @@ Lalu mereka saling berhadapan dan saling menyalahkan.
 
 ## 68:31
 
-Mereka berkata, “Celaka kita! Sesungguhnya kita orang-orang yang melampaui batas.&#x20;
+Mereka berkata, “Celaka kita! Sesungguhnya kita orang-orang yang melampaui batas.
 
 ## 68:32
 
-Mudah-mudahan Tuhan memberikan ganti kepada kita dengan (kebun) yang lebih baik daripada yang ini, sungguh, kita mengharapkan ampunan dari Tuhan kita.”&#x20;
+Mudah-mudahan Tuhan memberikan ganti kepada kita dengan (kebun) yang lebih baik daripada yang ini, sungguh, kita mengharapkan ampunan dari Tuhan kita.”
 
 ## 68:33
 
@@ -21235,7 +21235,7 @@ Mengapa kamu (berbuat demikian)? Bagaimana kamu mengambil keputusan?
 
 ## 68:37
 
-Atau apakah kamu mempunyai kitab (yang diturunkan Allah) yang kamu pelajari? &#x20;
+Atau apakah kamu mempunyai kitab (yang diturunkan Allah) yang kamu pelajari?
 
 ## 68:38
 
@@ -21243,7 +21243,7 @@ sesungguhnya kamu dapat memilih apa saja yang ada di dalamnya.
 
 ## 68:39
 
-Atau apakah kamu memperoleh (janji-janji yang diperkuat dengan) sumpah dari Kami, yang tetap berlaku sampai hari Kiamat; bahwa kamu dapat mengambil keputusan (sekehendakmu)?&#x20;
+Atau apakah kamu memperoleh (janji-janji yang diperkuat dengan) sumpah dari Kami, yang tetap berlaku sampai hari Kiamat; bahwa kamu dapat mengambil keputusan (sekehendakmu)?
 
 ## 68:40
 
@@ -21259,15 +21259,15 @@ Atau apakah mereka mempunyai sekutu-sekutu? Kalau begitu hendaklah mereka mendat
 
 ## 68:43
 
-pandangan mereka tertunduk ke bawah, diliputi kehinaan. Dan sungguh, dahulu (di dunia) mereka telah diseru untuk bersujud pada waktu mereka sehat (tetapi mereka tidak melakukan).&#x20;
+pandangan mereka tertunduk ke bawah, diliputi kehinaan. Dan sungguh, dahulu (di dunia) mereka telah diseru untuk bersujud pada waktu mereka sehat (tetapi mereka tidak melakukan).
 
 ## 68:44
 
-Maka serahkanlah kepada-Ku (urusannya) dan orang-orang yang mendustakan perkataan ini (Al-Qur'an). Kelak akan Kami hukum mereka berangsur-angsur dari arah yang tidak mereka ketahui,&#x20;
+Maka serahkanlah kepada-Ku (urusannya) dan orang-orang yang mendustakan perkataan ini (Al-Qur'an). Kelak akan Kami hukum mereka berangsur-angsur dari arah yang tidak mereka ketahui,
 
 ## 68:45
 
-dan Aku memberi tenggang waktu kepada mereka. Sungguh, rencana-Ku sangat teguh.&#x20;
+dan Aku memberi tenggang waktu kepada mereka. Sungguh, rencana-Ku sangat teguh.
 
 ## 68:46
 
@@ -21283,11 +21283,11 @@ Maka bersabarlah engkau (Muhammad) terhadap ketetapan Tuhanmu, dan janganlah eng
 
 ## 68:49
 
-Sekiranya dia tidak segera mendapat nikmat dari Tuhannya, pastilah dia dicampakkan ke tanah tandus dalam keadaan tercela.&#x20;
+Sekiranya dia tidak segera mendapat nikmat dari Tuhannya, pastilah dia dicampakkan ke tanah tandus dalam keadaan tercela.
 
 ## 68:50
 
-Lalu Tuhannya memilihnya dan menjadikannya termasuk orang yang saleh.&#x20;
+Lalu Tuhannya memilihnya dan menjadikannya termasuk orang yang saleh.
 
 ## 68:51
 
@@ -21335,15 +21335,15 @@ Kemudian datang Fir‘aun dan orang-orang yang sebelumnya dan (penduduk) negeri-
 
 ## 69:10
 
-Maka mereka mendurhakai utusan Tuhannya, Allah menyiksa mereka dengan siksaan yang sangat keras.&#x20;
+Maka mereka mendurhakai utusan Tuhannya, Allah menyiksa mereka dengan siksaan yang sangat keras.
 
 ## 69:11
 
-Sesungguhnya ketika air naik (sampai ke gunung), Kami membawa (nenek moyang) kamu ke dalam kapal,&#x20;
+Sesungguhnya ketika air naik (sampai ke gunung), Kami membawa (nenek moyang) kamu ke dalam kapal,
 
 ## 69:12
 
-agar Kami jadikan (peristiwa itu) sebagai peringatan bagi kamu dan agar diperhatikan oleh telinga yang mau mendengar.&#x20;
+agar Kami jadikan (peristiwa itu) sebagai peringatan bagi kamu dan agar diperhatikan oleh telinga yang mau mendengar.
 
 ## 69:13
 
@@ -21355,7 +21355,7 @@ dan diangkatlah bumi dan gunung-gunung, lalu dibenturkan keduanya sekali bentura
 
 ## 69:15
 
-Maka pada hari itu terjadilah hari Kiamat,&#x20;
+Maka pada hari itu terjadilah hari Kiamat,
 
 ## 69:16
 
@@ -21363,19 +21363,19 @@ dan terbelahlah langit, karena pada hari itu langit menjadi rapuh.
 
 ## 69:17
 
-Dan para malaikat berada di berbagai penjuru langit. Pada hari itu delapan malaikat menjunjung ‘Arsy (singgasana) Tuhanmu di atas (kepala) mereka.&#x20;
+Dan para malaikat berada di berbagai penjuru langit. Pada hari itu delapan malaikat menjunjung ‘Arsy (singgasana) Tuhanmu di atas (kepala) mereka.
 
 ## 69:18
 
-Pada hari itu kamu dihadapkan (kepada Tuhanmu), tidak ada sesuatu pun dari kamu yang tersembunyi (bagi Allah).&#x20;
+Pada hari itu kamu dihadapkan (kepada Tuhanmu), tidak ada sesuatu pun dari kamu yang tersembunyi (bagi Allah).
 
 ## 69:19
 
-Adapun orang yang kitabnya  diberikan di tangan kanannya, maka dia berkata, “Ambillah, bacalah kitabku (ini).”&#x20;
+Adapun orang yang kitabnya  diberikan di tangan kanannya, maka dia berkata, “Ambillah, bacalah kitabku (ini).”
 
 ## 69:20
 
-Sesungguhnya aku yakin, bahwa (suatu saat) aku akan menerima perhitungan terhadap diriku.&#x20;
+Sesungguhnya aku yakin, bahwa (suatu saat) aku akan menerima perhitungan terhadap diriku.
 
 ## 69:21
 
@@ -21383,7 +21383,7 @@ Maka orang itu berada dalam kehidupan yang diridai,
 
 ## 69:22
 
-dalam surga yang tinggi,&#x20;
+dalam surga yang tinggi,
 
 ## 69:23
 
@@ -21391,7 +21391,7 @@ buah-buahannya dekat,
 
 ## 69:24
 
-(kepada mereka dikatakan), “Makan dan minumlah dengan nikmat karena amal yang telah kamu kerjakan pada hari-hari yang telah lalu.”&#x20;
+(kepada mereka dikatakan), “Makan dan minumlah dengan nikmat karena amal yang telah kamu kerjakan pada hari-hari yang telah lalu.”
 
 ## 69:25
 
@@ -21399,15 +21399,15 @@ Dan adapun orang yang kitabnya diberikan di tangan kirinya, maka dia berkata, �
 
 ## 69:26
 
-Sehingga aku tidak mengetahui bagaimana perhitunganku.&#x20;
+Sehingga aku tidak mengetahui bagaimana perhitunganku.
 
 ## 69:27
 
-Wahai, kiranya (kematian) itulah yang menyudahi segala sesuatu.&#x20;
+Wahai, kiranya (kematian) itulah yang menyudahi segala sesuatu.
 
 ## 69:28
 
-Hartaku sama sekali tidak berguna bagiku.&#x20;
+Hartaku sama sekali tidak berguna bagiku.
 
 ## 69:29
 
@@ -21415,39 +21415,39 @@ Kekuasaanku telah hilang dariku.”
 
 ## 69:30
 
-(Allah berfirman), “Tangkaplah dia lalu belenggulah tangannya ke lehernya.”&#x20;
+(Allah berfirman), “Tangkaplah dia lalu belenggulah tangannya ke lehernya.”
 
 ## 69:31
 
-Kemudian masukkanlah dia ke dalam api neraka yang menyala-nyala.&#x20;
+Kemudian masukkanlah dia ke dalam api neraka yang menyala-nyala.
 
 ## 69:32
 
-Kemudian belitlah dia dengan rantai yang panjangnya tujuh puluh hasta.&#x20;
+Kemudian belitlah dia dengan rantai yang panjangnya tujuh puluh hasta.
 
 ## 69:33
 
-Sesungguhnya dialah orang yang tidak beriman kepada Allah Yang Mahabesar.&#x20;
+Sesungguhnya dialah orang yang tidak beriman kepada Allah Yang Mahabesar.
 
 ## 69:34
 
-Dan juga dia tidak mendorong (orang lain) untuk memberi makan orang miskin.&#x20;
+Dan juga dia tidak mendorong (orang lain) untuk memberi makan orang miskin.
 
 ## 69:35
 
-Maka pada hari ini di sini tidak ada seorang teman pun baginya.&#x20;
+Maka pada hari ini di sini tidak ada seorang teman pun baginya.
 
 ## 69:36
 
-Dan tidak ada makanan (baginya) kecuali dari darah dan nanah.&#x20;
+Dan tidak ada makanan (baginya) kecuali dari darah dan nanah.
 
 ## 69:37
 
-Tidak ada yang memakannya kecuali orang-orang yang berdosa.&#x20;
+Tidak ada yang memakannya kecuali orang-orang yang berdosa.
 
 ## 69:38
 
-Maka Aku bersumpah demi apa yang kamu lihat,&#x20;
+Maka Aku bersumpah demi apa yang kamu lihat,
 
 ## 69:39
 
@@ -21459,35 +21459,35 @@ Sesungguhnya ia (Al-Qur'an) itu benar-benar wahyu (yang diturunkan kepada) Rasul
 
 ## 69:41
 
-dan ia (Al-Qur'an) bukanlah perkataan seorang penyair. Sedikit sekali kamu beriman kepadanya.&#x20;
+dan ia (Al-Qur'an) bukanlah perkataan seorang penyair. Sedikit sekali kamu beriman kepadanya.
 
 ## 69:42
 
-Dan bukan pula perkataan tukang tenung. Sedikit sekali kamu mengambil pelajaran darinya.&#x20;
+Dan bukan pula perkataan tukang tenung. Sedikit sekali kamu mengambil pelajaran darinya.
 
 ## 69:43
 
-Ia (Al-Qur'an) adalah wahyu yang diturunkan dari Tuhan seluruh alam.&#x20;
+Ia (Al-Qur'an) adalah wahyu yang diturunkan dari Tuhan seluruh alam.
 
 ## 69:44
 
-Dan sekiranya dia (Muhammad) mengada-adakan sebagian perkataan atas (nama) Kami,&#x20;
+Dan sekiranya dia (Muhammad) mengada-adakan sebagian perkataan atas (nama) Kami,
 
 ## 69:45
 
-pasti Kami pegang dia pada tangan kanannya.&#x20;
+pasti Kami pegang dia pada tangan kanannya.
 
 ## 69:46
 
-Kemudian Kami potong pembuluh jantungnya.&#x20;
+Kemudian Kami potong pembuluh jantungnya.
 
 ## 69:47
 
-Maka tidak seorang pun dari kamu yang dapat menghalangi (Kami untuk menghukumnya).&#x20;
+Maka tidak seorang pun dari kamu yang dapat menghalangi (Kami untuk menghukumnya).
 
 ## 69:48
 
-Dan sungguh, (Al-Qur'an) itu pelajaran bagi orang-orang yang bertakwa.&#x20;
+Dan sungguh, (Al-Qur'an) itu pelajaran bagi orang-orang yang bertakwa.
 
 ## 69:49
 
@@ -21499,15 +21499,15 @@ Dan sungguh, (Al-Qur'an) itu akan menimbulkan penyesalan bagi orang-orang kafir 
 
 ## 69:51
 
-Dan Sungguh, (Al-Qur'an) itu kebenaran yang meyakinkan.&#x20;
+Dan Sungguh, (Al-Qur'an) itu kebenaran yang meyakinkan.
 
 ## 69:52
 
-Maka bertasbihlah dengan (menyebut) nama Tuhanmu Yang Mahaagung.&#x20;
+Maka bertasbihlah dengan (menyebut) nama Tuhanmu Yang Mahaagung.
 
 ## 70:1
 
-Seseorang bertanya tentang azab yang pasti terjadi,&#x20;
+Seseorang bertanya tentang azab yang pasti terjadi,
 
 ## 70:2
 
@@ -21527,19 +21527,19 @@ Maka bersabarlah engkau (Muhammad) dengan kesabaran yang baik.
 
 ## 70:6
 
-Mereka memandang (azab) itu jauh (mustahil).&#x20;
+Mereka memandang (azab) itu jauh (mustahil).
 
 ## 70:7
 
-Sedangkan Kami memandangnya dekat (pasti terjadi).&#x20;
+Sedangkan Kami memandangnya dekat (pasti terjadi).
 
 ## 70:8
 
-(Ingatlah) pada hari ketika langit men-jadi bagaikan cairan tembaga,&#x20;
+(Ingatlah) pada hari ketika langit men-jadi bagaikan cairan tembaga,
 
 ## 70:9
 
-dan gunung-gunung bagaikan bulu (yang beterbangan),&#x20;
+dan gunung-gunung bagaikan bulu (yang beterbangan),
 
 ## 70:10
 
@@ -21547,11 +21547,11 @@ dan tidak ada seorang teman karib pun menanyakan temannya,
 
 ## 70:11
 
-sedang mereka saling melihat. Pada hari itu, orang yang berdosa ingin sekiranya dia dapat menebus (dirinya) dari azab dengan anak-anaknya,&#x20;
+sedang mereka saling melihat. Pada hari itu, orang yang berdosa ingin sekiranya dia dapat menebus (dirinya) dari azab dengan anak-anaknya,
 
 ## 70:12
 
-dan istrinya dan saudaranya,&#x20;
+dan istrinya dan saudaranya,
 
 ## 70:13
 
@@ -21567,7 +21567,7 @@ Sama sekali tidak! Sungguh, neraka itu api yang bergejolak,
 
 ## 70:16
 
-yang mengelupaskan kulit kepala.&#x20;
+yang mengelupaskan kulit kepala.
 
 ## 70:17
 
@@ -21575,67 +21575,67 @@ Yang memanggil orang yang membelakangi dan yang berpaling (dari agama),
 
 ## 70:18
 
-dan orang yang mengumpulkan (harta benda) lalu menyimpannya.&#x20;
+dan orang yang mengumpulkan (harta benda) lalu menyimpannya.
 
 ## 70:19
 
-Sungguh, manusia diciptakan bersifat suka mengeluh.&#x20;
+Sungguh, manusia diciptakan bersifat suka mengeluh.
 
 ## 70:20
 
-Apabila dia ditimpa kesusahan dia berkeluh kesah,&#x20;
+Apabila dia ditimpa kesusahan dia berkeluh kesah,
 
 ## 70:21
 
-dan apabila mendapat kebaikan (harta) dia jadi kikir,&#x20;
+dan apabila mendapat kebaikan (harta) dia jadi kikir,
 
 ## 70:22
 
-kecuali orang-orang yang melaksanakan salat,&#x20;
+kecuali orang-orang yang melaksanakan salat,
 
 ## 70:23
 
-mereka yang tetap setia melaksanakan salatnya,&#x20;
+mereka yang tetap setia melaksanakan salatnya,
 
 ## 70:24
 
-dan orang-orang yang dalam hartanya disiapkan bagian tertentu,&#x20;
+dan orang-orang yang dalam hartanya disiapkan bagian tertentu,
 
 ## 70:25
 
-bagi orang (miskin) yang meminta dan yang tidak meminta,&#x20;
+bagi orang (miskin) yang meminta dan yang tidak meminta,
 
 ## 70:26
 
-dan orang-orang yang mempercayai hari pembalasan,&#x20;
+dan orang-orang yang mempercayai hari pembalasan,
 
 ## 70:27
 
-dan orang-orang yang takut terhadap azab Tuhannya,&#x20;
+dan orang-orang yang takut terhadap azab Tuhannya,
 
 ## 70:28
 
-sesungguhnya terhadap azab Tuhan mereka, tidak ada seseorang yang merasa aman (dari kedatangannya),&#x20;
+sesungguhnya terhadap azab Tuhan mereka, tidak ada seseorang yang merasa aman (dari kedatangannya),
 
 ## 70:29
 
-dan orang-orang yang memelihara kemaluannya,&#x20;
+dan orang-orang yang memelihara kemaluannya,
 
 ## 70:30
 
-kecuali terhadap istri-istri mereka atau hamba sahaya yang mereka miliki maka sesungguhnya mereka tidak tercela.&#x20;
+kecuali terhadap istri-istri mereka atau hamba sahaya yang mereka miliki maka sesungguhnya mereka tidak tercela.
 
 ## 70:31
 
-Maka barangsiapa mencari di luar itu (seperti zina, homoseks dan lesbian), mereka itulah orang-orang yang melampaui batas.&#x20;
+Maka barangsiapa mencari di luar itu (seperti zina, homoseks dan lesbian), mereka itulah orang-orang yang melampaui batas.
 
 ## 70:32
 
-Dan orang-orang yang memelihara amanat dan janjinya,&#x20;
+Dan orang-orang yang memelihara amanat dan janjinya,
 
 ## 70:33
 
-dan orang-orang yang berpegang teguh pada kesaksiannya,&#x20;
+dan orang-orang yang berpegang teguh pada kesaksiannya,
 
 ## 70:34
 
@@ -21643,11 +21643,11 @@ dan orang-orang yang memelihara salatnya.
 
 ## 70:35
 
-Mereka itu dimuliakan di dalam surga.&#x20;
+Mereka itu dimuliakan di dalam surga.
 
 ## 70:36
 
-Maka mengapa orang-orang kafir itu datang bergegas ke hadapanmu (Muhammad),&#x20;
+Maka mengapa orang-orang kafir itu datang bergegas ke hadapanmu (Muhammad),
 
 ## 70:37
 
@@ -21663,15 +21663,15 @@ Tidak mungkin! Sesungguhnya Kami menciptakan mereka dari apa yang mereka ketahui
 
 ## 70:40
 
-Maka Aku bersumpah demi Tuhan yang mengatur tempat-tempat terbit dan terbenamnya  (matahari, bulan dan bintang), sungguh, Kami pasti mampu,&#x20;
+Maka Aku bersumpah demi Tuhan yang mengatur tempat-tempat terbit dan terbenamnya  (matahari, bulan dan bintang), sungguh, Kami pasti mampu,
 
 ## 70:41
 
-untuk mengganti (mereka) dengan kaum yang lebih baik dari mereka, dan Kami tidak dapat dikalahkan.&#x20;
+untuk mengganti (mereka) dengan kaum yang lebih baik dari mereka, dan Kami tidak dapat dikalahkan.
 
 ## 70:42
 
-Maka biarkanlah mereka tenggelam dan bermain-main (dalam kesesatan) sampai mereka menjumpai hari yang diancamkan kepada mereka,&#x20;
+Maka biarkanlah mereka tenggelam dan bermain-main (dalam kesesatan) sampai mereka menjumpai hari yang diancamkan kepada mereka,
 
 ## 70:43
 
@@ -21683,19 +21683,19 @@ pandangan mereka tertunduk ke bawah diliputi kehinaan. Itulah hari yang diancamk
 
 ## 71:1
 
-Sesungguhnya Kami telah mengutus Nuh kepada kaumnya (dengan perintah), “Berilah kaummu peringatan sebelum datang kepadanya azab yang pedih.”&#x20;
+Sesungguhnya Kami telah mengutus Nuh kepada kaumnya (dengan perintah), “Berilah kaummu peringatan sebelum datang kepadanya azab yang pedih.”
 
 ## 71:2
 
-Dia (Nuh) berkata, “Wahai kaumku! Sesungguhnya aku ini seorang pemberi peringatan yang menjelaskan kepada kamu,&#x20;
+Dia (Nuh) berkata, “Wahai kaumku! Sesungguhnya aku ini seorang pemberi peringatan yang menjelaskan kepada kamu,
 
 ## 71:3
 
-(yaitu) sembahlah Allah, bertakwalah kepada-Nya dan taatlah kepadaku,&#x20;
+(yaitu) sembahlah Allah, bertakwalah kepada-Nya dan taatlah kepadaku,
 
 ## 71:4
 
-niscaya Dia mengampuni sebagian dosa-dosamu dan menangguhkan kamu (memanjangkan umurmu) sampai pada batas waktu yang ditentukan. Sungguh, ketetapan Allah itu apabila telah datang tidak dapat ditunda, seandainya kamu mengetahui.”&#x20;
+niscaya Dia mengampuni sebagian dosa-dosamu dan menangguhkan kamu (memanjangkan umurmu) sampai pada batas waktu yang ditentukan. Sungguh, ketetapan Allah itu apabila telah datang tidak dapat ditunda, seandainya kamu mengetahui.”
 
 ## 71:5
 
@@ -21719,23 +21719,23 @@ Kemudian aku menyeru mereka secara terbuka dan dengan diam-diam,
 
 ## 71:10
 
-maka aku berkata (kepada mereka), “Mohonlah ampunan kepada Tuhanmu, Sungguh, Dia Maha Pengampun,&#x20;
+maka aku berkata (kepada mereka), “Mohonlah ampunan kepada Tuhanmu, Sungguh, Dia Maha Pengampun,
 
 ## 71:11
 
-niscaya Dia akan menurunkan hujan yang lebat dari langit kepadamu,&#x20;
+niscaya Dia akan menurunkan hujan yang lebat dari langit kepadamu,
 
 ## 71:12
 
-dan Dia memperbanyak harta dan anak-anakmu, dan mengadakan kebun-kebun untukmu dan mengadakan sungai-sungai untukmu.”&#x20;
+dan Dia memperbanyak harta dan anak-anakmu, dan mengadakan kebun-kebun untukmu dan mengadakan sungai-sungai untukmu.”
 
 ## 71:13
 
-Mengapa kamu tidak takut akan kebesaran Allah?&#x20;
+Mengapa kamu tidak takut akan kebesaran Allah?
 
 ## 71:14
 
-Dan sungguh, Dia telah menciptakan kamu dalam beberapa tingkatan (kejadian).&#x20;
+Dan sungguh, Dia telah menciptakan kamu dalam beberapa tingkatan (kejadian).
 
 ## 71:15
 
@@ -21747,35 +21747,35 @@ Dan di sana Dia menciptakan bulan yang bercahaya dan menjadikan matahari sebagai
 
 ## 71:17
 
-Dan Allah menumbuhkan kamu dari tanah, tumbuh (berangsur-angsur),&#x20;
+Dan Allah menumbuhkan kamu dari tanah, tumbuh (berangsur-angsur),
 
 ## 71:18
 
-kemudian Dia akan mengembalikan kamu ke dalamnya (tanah) dan mengeluarkan kamu (pada hari Kiamat) dengan pasti.&#x20;
+kemudian Dia akan mengembalikan kamu ke dalamnya (tanah) dan mengeluarkan kamu (pada hari Kiamat) dengan pasti.
 
 ## 71:19
 
-Dan Allah menjadikan bumi untukmu sebagai hamparan,&#x20;
+Dan Allah menjadikan bumi untukmu sebagai hamparan,
 
 ## 71:20
 
-agar kamu dapat pergi kian kemari di jalan-jalan yang luas.&#x20;
+agar kamu dapat pergi kian kemari di jalan-jalan yang luas.
 
 ## 71:21
 
-Nuh berkata, “Ya Tuhanku, sesungguhnya mereka durhaka kepadaku, dan mereka mengikuti orang-orang yang harta dan anak-anaknya hanya menambah kerugian baginya,&#x20;
+Nuh berkata, “Ya Tuhanku, sesungguhnya mereka durhaka kepadaku, dan mereka mengikuti orang-orang yang harta dan anak-anaknya hanya menambah kerugian baginya,
 
 ## 71:22
 
-dan mereka melakukan tipu daya yang sangat besar.”&#x20;
+dan mereka melakukan tipu daya yang sangat besar.”
 
 ## 71:23
 
-Dan mereka berkata, “Jangan sekali-kali kamu meninggalkan (penyembahan) tuhan-tuhan kamu dan jangan pula sekali-kali kamu meninggalkan (penyembahan) Wadd, dan jangan pula Suwa‘, Yagus, Ya‘uq dan Nasr.”&#x20;
+Dan mereka berkata, “Jangan sekali-kali kamu meninggalkan (penyembahan) tuhan-tuhan kamu dan jangan pula sekali-kali kamu meninggalkan (penyembahan) Wadd, dan jangan pula Suwa‘, Yagus, Ya‘uq dan Nasr.”
 
 ## 71:24
 
-Dan sungguh, mereka telah menyesatkan banyak orang; dan janganlah Engkau tambahkan bagi orang-orang yang zalim itu selain kesesatan.&#x20;
+Dan sungguh, mereka telah menyesatkan banyak orang; dan janganlah Engkau tambahkan bagi orang-orang yang zalim itu selain kesesatan.
 
 ## 71:25
 
@@ -21787,7 +21787,7 @@ Dan Nuh berkata, “Ya Tuhanku, janganlah Engkau biarkan seorang pun di antara o
 
 ## 71:27
 
-Sesungguhnya jika Engkau biarkan mereka tinggal, niscaya mereka akan menyesatkan hamba-hamba-Mu, dan mereka hanya akan melahirkan anak-anak yang jahat dan tidak tahu bersyukur.&#x20;
+Sesungguhnya jika Engkau biarkan mereka tinggal, niscaya mereka akan menyesatkan hamba-hamba-Mu, dan mereka hanya akan melahirkan anak-anak yang jahat dan tidak tahu bersyukur.
 
 ## 71:28
 
@@ -21799,7 +21799,7 @@ Katakanlah (Muhammad), “Telah diwahyukan kepadaku bahwa sekumpulan jin telah m
 
 ## 72:2
 
-(yang) memberi petunjuk kepada jalan yang benar, lalu kami beriman kepadanya. Dan kami sekali-kali tidak akan mempersekutukan sesuatu pun dengan Tuhan kami,&#x20;
+(yang) memberi petunjuk kepada jalan yang benar, lalu kami beriman kepadanya. Dan kami sekali-kali tidak akan mempersekutukan sesuatu pun dengan Tuhan kami,
 
 ## 72:3
 
@@ -21811,19 +21811,19 @@ Dan sesungguhnya orang yang bodoh di antara kami dahulu selalu mengucapkan (perk
 
 ## 72:5
 
-dan sesungguhnya kami mengira, bahwa manusia dan jin itu tidak akan mengatakan perkataan yang dusta terhadap Allah,&#x20;
+dan sesungguhnya kami mengira, bahwa manusia dan jin itu tidak akan mengatakan perkataan yang dusta terhadap Allah,
 
 ## 72:6
 
-dan sesungguhnya ada beberapa orang laki-laki dari kalangan manusia yang meminta perlindungan kepada beberapa laki-laki dari jin, tetapi mereka (jin) menjadikan mereka (manusia) bertambah sesat.&#x20;
+dan sesungguhnya ada beberapa orang laki-laki dari kalangan manusia yang meminta perlindungan kepada beberapa laki-laki dari jin, tetapi mereka (jin) menjadikan mereka (manusia) bertambah sesat.
 
 ## 72:7
 
-Dan sesungguhnya mereka (jin) mengira seperti kamu (orang musyrik Mekah) yang juga mengira bahwa Allah tidak akan membangkitkan kembali siapa pun (pada hari Kiamat).&#x20;
+Dan sesungguhnya mereka (jin) mengira seperti kamu (orang musyrik Mekah) yang juga mengira bahwa Allah tidak akan membangkitkan kembali siapa pun (pada hari Kiamat).
 
 ## 72:8
 
-Dan sesungguhnya kami (jin) telah mencoba mengetahui (rahasia) langit, maka kami mendapatinya penuh dengan penjagaan yang kuat dan panah-panah api,&#x20;
+Dan sesungguhnya kami (jin) telah mencoba mengetahui (rahasia) langit, maka kami mendapatinya penuh dengan penjagaan yang kuat dan panah-panah api,
 
 ## 72:9
 
@@ -21831,27 +21831,27 @@ dan sesungguhnya kami (jin) dahulu dapat menduduki beberapa tempat di langit itu
 
 ## 72:10
 
-Dan sesungguhnya kami (jin) tidak mengetahui (adanya penjagaan itu) apakah keburukan yang dikehendaki orang yang di bumi ataukah Tuhan mereka menghendaki kebaikan baginya.&#x20;
+Dan sesungguhnya kami (jin) tidak mengetahui (adanya penjagaan itu) apakah keburukan yang dikehendaki orang yang di bumi ataukah Tuhan mereka menghendaki kebaikan baginya.
 
 ## 72:11
 
-Dan sesungguhnya di antara kami (jin) ada yang saleh dan ada (pula) kebalikannya. Kami menempuh jalan yang berbeda-beda.&#x20;
+Dan sesungguhnya di antara kami (jin) ada yang saleh dan ada (pula) kebalikannya. Kami menempuh jalan yang berbeda-beda.
 
 ## 72:12
 
-Dan sesungguhnya kami (jin) telah menduga, bahwa kami tidak akan mampu melepaskan diri (dari kekuasaan) Allah di bumi dan tidak (pula) dapat lari melepaskan diri (dari)-Nya.&#x20;
+Dan sesungguhnya kami (jin) telah menduga, bahwa kami tidak akan mampu melepaskan diri (dari kekuasaan) Allah di bumi dan tidak (pula) dapat lari melepaskan diri (dari)-Nya.
 
 ## 72:13
 
-Dan sesungguhnya ketika kami (jin) mendengar petunjuk (Al-Qur'an), kami beriman kepadanya. Maka barangsiapa beriman kepada Tuhan, maka tidak perlu ia takut rugi atau berdosa.&#x20;
+Dan sesungguhnya ketika kami (jin) mendengar petunjuk (Al-Qur'an), kami beriman kepadanya. Maka barangsiapa beriman kepada Tuhan, maka tidak perlu ia takut rugi atau berdosa.
 
 ## 72:14
 
-Dan di antara kami ada yang Islam dan ada yang menyimpang dari kebenaran. Siapa yang Islam, maka mereka itu telah memilih jalan yang lurus.&#x20;
+Dan di antara kami ada yang Islam dan ada yang menyimpang dari kebenaran. Siapa yang Islam, maka mereka itu telah memilih jalan yang lurus.
 
 ## 72:15
 
-Dan adapun yang menyimpang dari kebenaran, maka mereka menjadi bahan bakar bagi neraka Jahanam.”&#x20;
+Dan adapun yang menyimpang dari kebenaran, maka mereka menjadi bahan bakar bagi neraka Jahanam.”
 
 ## 72:16
 
@@ -21859,11 +21859,11 @@ Dan sekiranya mereka tetap berjalan lurus di atas jalan itu (agama Islam), nisca
 
 ## 72:17
 
-Dengan (cara) itu Kami hendak menguji mereka. Dan barangsiapa berpaling dari peringatan Tuhannya, niscaya akan dimasukkan-Nya ke dalam azab yang sangat berat.&#x20;
+Dengan (cara) itu Kami hendak menguji mereka. Dan barangsiapa berpaling dari peringatan Tuhannya, niscaya akan dimasukkan-Nya ke dalam azab yang sangat berat.
 
 ## 72:18
 
-Dan sesungguhnya masjid-masjid itu adalah untuk Allah. Maka janganlah kamu menyembah apa pun di dalamnya selain Allah.&#x20;
+Dan sesungguhnya masjid-masjid itu adalah untuk Allah. Maka janganlah kamu menyembah apa pun di dalamnya selain Allah.
 
 ## 72:19
 
@@ -21871,39 +21871,39 @@ Dan sesungguhnya ketika hamba Allah (Muhammad) berdiri menyembah-Nya (melaksanak
 
 ## 72:20
 
-Katakanlah (Muhammad), “Sesungguhnya aku hanya menyembah Tuhanku dan aku tidak mempersekutukan sesuatu pun dengan-Nya.”&#x20;
+Katakanlah (Muhammad), “Sesungguhnya aku hanya menyembah Tuhanku dan aku tidak mempersekutukan sesuatu pun dengan-Nya.”
 
 ## 72:21
 
-Katakanlah (Muhammad), “Aku tidak kuasa menolak mudarat maupun mendatangkan kebaikan kepadamu.”&#x20;
+Katakanlah (Muhammad), “Aku tidak kuasa menolak mudarat maupun mendatangkan kebaikan kepadamu.”
 
 ## 72:22
 
-Katakanlah (Muhammad), “Sesungguhnya tidak ada sesuatu pun yang dapat melindungiku dari (azab) Allah dan aku tidak akan memperoleh tempat berlindung selain dari-Nya.&#x20;
+Katakanlah (Muhammad), “Sesungguhnya tidak ada sesuatu pun yang dapat melindungiku dari (azab) Allah dan aku tidak akan memperoleh tempat berlindung selain dari-Nya.
 
 ## 72:23
 
-(Aku hanya) menyampaikan (peringatan) dari Allah dan risalah-Nya. Dan barangsiapa mendurhakai Allah dan Rasul-Nya maka sesungguhnya dia akan mendapat (azab) neraka Jahanam, mereka kekal di dalamnya selama-lamanya.”&#x20;
+(Aku hanya) menyampaikan (peringatan) dari Allah dan risalah-Nya. Dan barangsiapa mendurhakai Allah dan Rasul-Nya maka sesungguhnya dia akan mendapat (azab) neraka Jahanam, mereka kekal di dalamnya selama-lamanya.”
 
 ## 72:24
 
-Sehingga apabila mereka melihat (azab) yang diancamkan kepadanya, maka mereka akan mengetahui siapakah yang lebih lemah penolongnya dan lebih sedikit jumlahnya.&#x20;
+Sehingga apabila mereka melihat (azab) yang diancamkan kepadanya, maka mereka akan mengetahui siapakah yang lebih lemah penolongnya dan lebih sedikit jumlahnya.
 
 ## 72:25
 
-Katakanlah (Muhammad), “Aku tidak mengetahui, apakah azab yang diancamkan kepadamu itu sudah dekat ataukah Tuhanku menetapkan waktunya masih lama.”&#x20;
+Katakanlah (Muhammad), “Aku tidak mengetahui, apakah azab yang diancamkan kepadamu itu sudah dekat ataukah Tuhanku menetapkan waktunya masih lama.”
 
 ## 72:26
 
-Dia Mengetahui yang gaib, tetapi Dia tidak memperlihatkan kepada siapa pun tentang yang gaib itu.&#x20;
+Dia Mengetahui yang gaib, tetapi Dia tidak memperlihatkan kepada siapa pun tentang yang gaib itu.
 
 ## 72:27
 
-Kecuali kepada rasul yang diridai-Nya, maka sesungguhnya Dia mengadakan penjaga-penjaga (malaikat) di depan dan di belakangnya.&#x20;
+Kecuali kepada rasul yang diridai-Nya, maka sesungguhnya Dia mengadakan penjaga-penjaga (malaikat) di depan dan di belakangnya.
 
 ## 72:28
 
-Agar Dia mengetahui bahwa rasul-rasul itu sungguh telah menyampaikan risalah Tuhannya, sedang (ilmu-Nya) meliputi apa yang ada pada mereka, dan Dia menghitung segala sesuatu satu persatu.&#x20;
+Agar Dia mengetahui bahwa rasul-rasul itu sungguh telah menyampaikan risalah Tuhannya, sedang (ilmu-Nya) meliputi apa yang ada pada mereka, dan Dia menghitung segala sesuatu satu persatu.
 
 ## 73:1
 
@@ -21927,7 +21927,7 @@ Sesungguhnya Kami akan menurunkan perkataan yang berat kepadamu.
 
 ## 73:6
 
-Sungguh, bangun malam itu lebih kuat (mengisi jiwa); dan (bacaan pada waktu itu) lebih berkesan.&#x20;
+Sungguh, bangun malam itu lebih kuat (mengisi jiwa); dan (bacaan pada waktu itu) lebih berkesan.
 
 ## 73:7
 
@@ -22119,7 +22119,7 @@ dan demi malam ketika telah berlalu,
 
 ## 74:34
 
-dan demi subuh apabila mulai terang,&#x20;
+dan demi subuh apabila mulai terang,
 
 ## 74:35
 
@@ -22127,7 +22127,7 @@ sesunggunya (Saqar itu) adalah salah satu (bencana) yang sangat besar,
 
 ## 74:36
 
-sebagai peringatan bagi manusia,&#x20;
+sebagai peringatan bagi manusia,
 
 ## 74:37
 
@@ -22147,7 +22147,7 @@ berada di dalam surga, mereka saling menanyakan,
 
 ## 74:41
 
-tentang (keadaan) orang-orang yang berdosa,&#x20;
+tentang (keadaan) orang-orang yang berdosa,
 
 ## 74:42
 
@@ -22155,27 +22155,27 @@ tentang (keadaan) orang-orang yang berdosa,&#x20;
 
 ## 74:43
 
-Mereka menjawab, “Dahulu kami tidak termasuk orang-orang yang me-laksanakan salat,&#x20;
+Mereka menjawab, “Dahulu kami tidak termasuk orang-orang yang me-laksanakan salat,
 
 ## 74:44
 
-dan kami (juga) tidak memberi makan orang miskin,&#x20;
+dan kami (juga) tidak memberi makan orang miskin,
 
 ## 74:45
 
-bahkan kami biasa berbincang (untuk tujuan yang batil), bersama orang-orang yang membicarakannya,&#x20;
+bahkan kami biasa berbincang (untuk tujuan yang batil), bersama orang-orang yang membicarakannya,
 
 ## 74:46
 
-dan kami mendustakan hari pembalasan,&#x20;
+dan kami mendustakan hari pembalasan,
 
 ## 74:47
 
-sampai datang kepada kami kematian.”&#x20;
+sampai datang kepada kami kematian.”
 
 ## 74:48
 
-Maka tidak berguna lagi bagi mereka syafaat (pertolongan) dari orang-orang yang memberikan syafaat.&#x20;
+Maka tidak berguna lagi bagi mereka syafaat (pertolongan) dari orang-orang yang memberikan syafaat.
 
 ## 74:49
 
@@ -22187,11 +22187,11 @@ seakan-akan mereka keledai liar yang lari terkejut,
 
 ## 74:51
 
-lari dari singa.&#x20;
+lari dari singa.
 
 ## 74:52
 
-Bahkan setiap orang dari mereka ingin agar diberikan kepadanya lembaran-lembaran (kitab) yang terbuka.&#x20;
+Bahkan setiap orang dari mereka ingin agar diberikan kepadanya lembaran-lembaran (kitab) yang terbuka.
 
 ## 74:53
 
@@ -22199,15 +22199,15 @@ Tidak! Sebenarnya mereka tidak takut kepada akhirat.
 
 ## 74:54
 
-Tidak! Sesungguhnya (Al-Qur'an) itu benar-benar suatu peringatan.&#x20;
+Tidak! Sesungguhnya (Al-Qur'an) itu benar-benar suatu peringatan.
 
 ## 74:55
 
-Maka barangsiapa menghendaki, tentu dia mengambil pelajaran darinya.&#x20;
+Maka barangsiapa menghendaki, tentu dia mengambil pelajaran darinya.
 
 ## 74:56
 
-Dan mereka tidak akan mengambil pelajaran darinya (Al-Qur'an) kecuali (jika) Allah menghendakinya. Dialah Tuhan yang patut (kita) bertakwa kepada-Nya dan yang berhak memberi ampunan.&#x20;
+Dan mereka tidak akan mengambil pelajaran darinya (Al-Qur'an) kecuali (jika) Allah menghendakinya. Dialah Tuhan yang patut (kita) bertakwa kepada-Nya dan yang berhak memberi ampunan.
 
 ## 75:1
 
@@ -22223,11 +22223,11 @@ Apakah manusia mengira bahwa Kami tidak akan mengumpulkan (kembali) tulang-belul
 
 ## 75:4
 
-(Bahkan) Kami mampu menyusun (kembali) jari-jemarinya dengan sempurna.&#x20;
+(Bahkan) Kami mampu menyusun (kembali) jari-jemarinya dengan sempurna.
 
 ## 75:5
 
-Tetapi manusia hendak membuat maksiat terus-menerus.&#x20;
+Tetapi manusia hendak membuat maksiat terus-menerus.
 
 ## 75:6
 
@@ -22235,7 +22235,7 @@ Dia bertanya, “Kapankah hari Kiamat itu?”
 
 ## 75:7
 
-Maka apabila mata terbelalak (ketakutan),&#x20;
+Maka apabila mata terbelalak (ketakutan),
 
 ## 75:8
 
@@ -22243,7 +22243,7 @@ dan bulan pun telah hilang cahayanya,
 
 ## 75:9
 
-lalu matahari dan bulan dikumpulkan,&#x20;
+lalu matahari dan bulan dikumpulkan,
 
 ## 75:10
 
@@ -22275,23 +22275,23 @@ Jangan engkau (Muhammad) gerakkan lidahmu (untuk membaca Al-Qur'an) karena henda
 
 ## 75:17
 
-Sesungguhnya Kami yang akan mengumpulkannya (di dadamu) dan membacakannya.&#x20;
+Sesungguhnya Kami yang akan mengumpulkannya (di dadamu) dan membacakannya.
 
 ## 75:18
 
-Apabila Kami telah selesai membacakannya maka ikutilah bacaannya itu.&#x20;
+Apabila Kami telah selesai membacakannya maka ikutilah bacaannya itu.
 
 ## 75:19
 
-Kemudian sesungguhnya Kami yang akan menjelaskannya.&#x20;
+Kemudian sesungguhnya Kami yang akan menjelaskannya.
 
 ## 75:20
 
-Tidak! Bahkan kamu mencintai kehidupan dunia,&#x20;
+Tidak! Bahkan kamu mencintai kehidupan dunia,
 
 ## 75:21
 
-dan mengabaikan (kehidupan) akhirat.&#x20;
+dan mengabaikan (kehidupan) akhirat.
 
 ## 75:22
 
@@ -22299,11 +22299,11 @@ Wajah-wajah (orang mukmin) pada hari itu berseri-seri,
 
 ## 75:23
 
-memandang Tuhannya.&#x20;
+memandang Tuhannya.
 
 ## 75:24
 
-Dan wajah-wajah (orang kafir) pada hari itu muram,&#x20;
+Dan wajah-wajah (orang kafir) pada hari itu muram,
 
 ## 75:25
 
@@ -22319,7 +22319,7 @@ dan dikatakan (kepadanya), “Siapa yang dapat menyembuhkan?”
 
 ## 75:28
 
-Dan dia yakin bahwa itulah waktu perpisahan (dengan dunia),&#x20;
+Dan dia yakin bahwa itulah waktu perpisahan (dengan dunia),
 
 ## 75:29
 
@@ -22327,15 +22327,15 @@ dan bertaut betis (kiri) dengan betis (kanan),
 
 ## 75:30
 
-kepada Tuhanmulah pada hari itu kamu dihalau.&#x20;
+kepada Tuhanmulah pada hari itu kamu dihalau.
 
 ## 75:31
 
-Karena dia (dahulu) tidak mau membenarkan (Al-Qur'an dan Rasul) dan tidak mau melaksanakan salat,&#x20;
+Karena dia (dahulu) tidak mau membenarkan (Al-Qur'an dan Rasul) dan tidak mau melaksanakan salat,
 
 ## 75:32
 
-tetapi justru dia mendustakan (Rasul) dan berpaling (dari kebenaran),&#x20;
+tetapi justru dia mendustakan (Rasul) dan berpaling (dari kebenaran),
 
 ## 75:33
 
@@ -22343,11 +22343,11 @@ kemudian dia pergi kepada keluarganya dengan sombong.
 
 ## 75:34
 
-Celakalah kamu! Maka celakalah!&#x20;
+Celakalah kamu! Maka celakalah!
 
 ## 75:35
 
-Sekali lagi, celakalah kamu (manusia)! Maka celakalah!&#x20;
+Sekali lagi, celakalah kamu (manusia)! Maka celakalah!
 
 ## 75:36
 
@@ -22355,15 +22355,15 @@ Apakah manusia mengira, dia akan dibiarkan begitu saja (tanpa pertanggungjawaban
 
 ## 75:37
 
-Bukankah dia mulanya hanya setetes mani yang ditumpahkan (ke dalam rahim),&#x20;
+Bukankah dia mulanya hanya setetes mani yang ditumpahkan (ke dalam rahim),
 
 ## 75:38
 
-kemudian (mani itu) menjadi sesuatu yang melekat, lalu Allah menciptakannya dan menyempurnakannya,&#x20;
+kemudian (mani itu) menjadi sesuatu yang melekat, lalu Allah menciptakannya dan menyempurnakannya,
 
 ## 75:39
 
-lalu Dia menjadikan darinya sepasang laki-laki dan perempuan.&#x20;
+lalu Dia menjadikan darinya sepasang laki-laki dan perempuan.
 
 ## 75:40
 
@@ -22379,15 +22379,15 @@ Sungguh, Kami telah menciptakan manusia dari setetes mani yang bercampur yang Ka
 
 ## 76:3
 
-Sungguh, Kami telah menunjukkan kepadanya jalan yang lurus; ada yang bersyukur dan ada pula yang kufur.&#x20;
+Sungguh, Kami telah menunjukkan kepadanya jalan yang lurus; ada yang bersyukur dan ada pula yang kufur.
 
 ## 76:4
 
-Sungguh, Kami telah menyediakan bagi orang-orang kafir rantai, belenggu dan neraka yang menyala-nyala.&#x20;
+Sungguh, Kami telah menyediakan bagi orang-orang kafir rantai, belenggu dan neraka yang menyala-nyala.
 
 ## 76:5
 
-Sungguh, orang-orang yang berbuat kebajikan akan minum dari gelas (berisi minuman) yang campurannya adalah air kafur,&#x20;
+Sungguh, orang-orang yang berbuat kebajikan akan minum dari gelas (berisi minuman) yang campurannya adalah air kafur,
 
 ## 76:6
 
@@ -22395,11 +22395,11 @@ Sungguh, orang-orang yang berbuat kebajikan akan minum dari gelas (berisi minuma
 
 ## 76:7
 
-Mereka memenuhi nazar dan takut akan suatu hari yang azabnya merata di mana-mana.&#x20;
+Mereka memenuhi nazar dan takut akan suatu hari yang azabnya merata di mana-mana.
 
 ## 76:8
 
-Dan mereka memberikan makanan yang disukainya kepada orang miskin, anak yatim dan orang yang ditawan,&#x20;
+Dan mereka memberikan makanan yang disukainya kepada orang miskin, anak yatim dan orang yang ditawan,
 
 ## 76:9
 
@@ -22431,7 +22431,7 @@ Dan kepada mereka diedarkan bejana-bejana dari perak dan piala-piala yang bening
 
 ## 76:16
 
-kristal yang jernih terbuat dari perak, mereka tentukan ukurannya yang sesuai (dengan kehendak mereka).&#x20;
+kristal yang jernih terbuat dari perak, mereka tentukan ukurannya yang sesuai (dengan kehendak mereka).
 
 ## 76:17
 
@@ -22487,7 +22487,7 @@ Sungguh, (ayat-ayat) ini adalah peringatan, maka barangsiapa menghendaki (kebaik
 
 ## 76:30
 
-Tetapi kamu tidak mampu (menempuh jalan itu), kecuali apabila Allah kehendaki Allah. Sungguh, Allah Maha Mengetahui, Mahabijaksana.&#x20;
+Tetapi kamu tidak mampu (menempuh jalan itu), kecuali apabila Allah kehendaki Allah. Sungguh, Allah Maha Mengetahui, Mahabijaksana.
 
 ## 76:31
 
@@ -22611,15 +22611,15 @@ Celakalah pada hari itu, bagi mereka yang mendustakan (kebenaran).
 
 ## 77:30
 
-Pergilah kamu mendapatkan naungan (asap api neraka) yang mempunyai tiga cabang,&#x20;
+Pergilah kamu mendapatkan naungan (asap api neraka) yang mempunyai tiga cabang,
 
 ## 77:31
 
-yang tidak melindungi dan tidak pula menolak nyala api neraka.”&#x20;
+yang tidak melindungi dan tidak pula menolak nyala api neraka.”
 
 ## 77:32
 
-Sungguh, (neraka) itu menyemburkan bunga api (sebesar dan setinggi) istana,&#x20;
+Sungguh, (neraka) itu menyemburkan bunga api (sebesar dan setinggi) istana,
 
 ## 77:33
 
@@ -22627,27 +22627,27 @@ seakan-akan iring-iringan unta yang kuning.
 
 ## 77:34
 
-Celakalah pada hari itu, bagi mereka yang mendustakan (kebenaran).&#x20;
+Celakalah pada hari itu, bagi mereka yang mendustakan (kebenaran).
 
 ## 77:35
 
-Inilah hari, saat mereka tidak dapat berbicara,&#x20;
+Inilah hari, saat mereka tidak dapat berbicara,
 
 ## 77:36
 
-dan tidak diizinkan kepada mereka mengemukakan alasan agar mereka dimaafkan.&#x20;
+dan tidak diizinkan kepada mereka mengemukakan alasan agar mereka dimaafkan.
 
 ## 77:37
 
-Celakalah pada hari itu, bagi mereka yang mendustakan (kebenaran).&#x20;
+Celakalah pada hari itu, bagi mereka yang mendustakan (kebenaran).
 
 ## 77:38
 
-Inilah hari keputusan; (pada hari ini) Kami kumpulkan kamu dan orang-orang yang terdahulu.&#x20;
+Inilah hari keputusan; (pada hari ini) Kami kumpulkan kamu dan orang-orang yang terdahulu.
 
 ## 77:39
 
-Maka jika kamu punya tipu daya, maka lakukanlah (tipu daya) itu terhadap-Ku.&#x20;
+Maka jika kamu punya tipu daya, maka lakukanlah (tipu daya) itu terhadap-Ku.
 
 ## 77:40
 
@@ -22655,23 +22655,23 @@ Celakalah pada hari itu, bagi mereka yang mendustakan (kebenaran).
 
 ## 77:41
 
-Sungguh, orang-orang yang bertakwa berada dalam naungan (pepohonan surga yang teduh) dan (di sekitar) mata air,&#x20;
+Sungguh, orang-orang yang bertakwa berada dalam naungan (pepohonan surga yang teduh) dan (di sekitar) mata air,
 
 ## 77:42
 
-dan buah-buahan yang mereka sukai.&#x20;
+dan buah-buahan yang mereka sukai.
 
 ## 77:43
 
-(Katakan kepada mereka), “Makan dan minumlah dengan rasa nikmat sebagai balasan dari apa yang telah kamu kerjakan.”&#x20;
+(Katakan kepada mereka), “Makan dan minumlah dengan rasa nikmat sebagai balasan dari apa yang telah kamu kerjakan.”
 
 ## 77:44
 
-Sungguh, demikianlah Kami memberi balasan kepada orang-orang yang berbuat baik.&#x20;
+Sungguh, demikianlah Kami memberi balasan kepada orang-orang yang berbuat baik.
 
 ## 77:45
 
-Celakalah pada hari itu, bagi mereka yang mendustakan (kebenaran).&#x20;
+Celakalah pada hari itu, bagi mereka yang mendustakan (kebenaran).
 
 ## 77:46
 
@@ -22679,7 +22679,7 @@ Celakalah pada hari itu, bagi mereka yang mendustakan (kebenaran).&#x20;
 
 ## 77:47
 
-Celakalah pada hari itu, bagi mereka yang mendustakan (kebenaran).&#x20;
+Celakalah pada hari itu, bagi mereka yang mendustakan (kebenaran).
 
 ## 77:48
 
@@ -22687,7 +22687,7 @@ Dan apabila dikatakan kepada mereka, “Rukuklah,” mereka tidak mau rukuk.
 
 ## 77:49
 
-Celakalah pada hari itu, bagi mereka yang mendustakan (kebenaran)!&#x20;
+Celakalah pada hari itu, bagi mereka yang mendustakan (kebenaran)!
 
 ## 77:50
 
@@ -22711,11 +22711,11 @@ Tidak! Kelak mereka akan mengetahui,
 
 ## 78:5
 
-sekali lagi tidak! Kelak mereka akan mengetahui.&#x20;
+sekali lagi tidak! Kelak mereka akan mengetahui.
 
 ## 78:6
 
-Bukankah Kami telah menjadikan bumi sebagai hamparan,&#x20;
+Bukankah Kami telah menjadikan bumi sebagai hamparan,
 
 ## 78:7
 
@@ -22775,7 +22775,7 @@ dan gunung-gunung pun dijalankan sehingga menjadi fatamorgana.
 
 ## 78:21
 
-Sungguh, (neraka) Jahanam itu (sebagai) tempat mengintai (bagi penjaga yang mengawasi isi neraka),&#x20;
+Sungguh, (neraka) Jahanam itu (sebagai) tempat mengintai (bagi penjaga yang mengawasi isi neraka),
 
 ## 78:22
 
@@ -22807,7 +22807,7 @@ Dan mereka benar-benar mendustakan ayat-ayat Kami.
 
 ## 78:29
 
-Dan segala sesuatu telah Kami catat dalam suatu Kitab (buku catatan amalan manusia).&#x20;
+Dan segala sesuatu telah Kami catat dalam suatu Kitab (buku catatan amalan manusia).
 
 ## 78:30
 
@@ -22891,7 +22891,7 @@ pandangannya tunduk.
 
 ## 79:10
 
-(Orang-orang kafir) berkata, “Apakah kita benar-benar akan dikembalikan kepada kehidupan yang semula?  &#x20;
+(Orang-orang kafir) berkata, “Apakah kita benar-benar akan dikembalikan kepada kehidupan yang semula?
 
 ## 79:11
 
@@ -22971,7 +22971,7 @@ dan Dia menjadikan malamnya (gelap gulita), dan menjadikan siangnya (terang bend
 
 ## 79:30
 
-Dan setelah itu bumi Dia hamparkan.&#x20;
+Dan setelah itu bumi Dia hamparkan.
 
 ## 79:31
 
@@ -23019,7 +23019,7 @@ maka sungguh, surgalah tempat tinggal(nya).
 
 ## 79:42
 
-Mereka (orang-orang kafir) bertanya kepadamu (Muhammad) tentang hari Kiamat, “Kapankah terjadinya?”&#x20;
+Mereka (orang-orang kafir) bertanya kepadamu (Muhammad) tentang hari Kiamat, “Kapankah terjadinya?”
 
 ## 79:43
 
@@ -23231,35 +23231,35 @@ dan apabila lautan dipanaskan,
 
 ## 81:7
 
-dan apabila roh-roh dipertemukan (dengan tubuh),&#x20;
+dan apabila roh-roh dipertemukan (dengan tubuh),
 
 ## 81:8
 
-dan apabila bayi-bayi perempuan yang dikubur hidup-hidup ditanya,&#x20;
+dan apabila bayi-bayi perempuan yang dikubur hidup-hidup ditanya,
 
 ## 81:9
 
-karena dosa apa dia dibunuh?&#x20;
+karena dosa apa dia dibunuh?
 
 ## 81:10
 
-Dan apabila lembaran-lembaran (catatan amal) telah dibuka lebar-lebar,&#x20;
+Dan apabila lembaran-lembaran (catatan amal) telah dibuka lebar-lebar,
 
 ## 81:11
 
-dan apabila langit dilenyapkan,&#x20;
+dan apabila langit dilenyapkan,
 
 ## 81:12
 
-dan apabila neraka Jahim dinyalakan,&#x20;
+dan apabila neraka Jahim dinyalakan,
 
 ## 81:13
 
-dan apabila surga didekatkan,&#x20;
+dan apabila surga didekatkan,
 
 ## 81:14
 
-setiap jiwa akan mengetahui apa yang telah dikerjakannya.&#x20;
+setiap jiwa akan mengetahui apa yang telah dikerjakannya.
 
 ## 81:15
 
@@ -23267,15 +23267,15 @@ Aku bersumpah demi bintang-bintang,
 
 ## 81:16
 
-yang beredar dan terbenam,&#x20;
+yang beredar dan terbenam,
 
 ## 81:17
 
-demi malam apabila telah larut,&#x20;
+demi malam apabila telah larut,
 
 ## 81:18
 
-dan demi subuh apabila fajar telah menyingsing,&#x20;
+dan demi subuh apabila fajar telah menyingsing,
 
 ## 81:19
 
@@ -23291,11 +23291,11 @@ yang di sana (di alam malaikat) ditaati dan dipercaya.
 
 ## 81:22
 
-Dan temanmu (Muhammad) itu bukanlah orang gila.&#x20;
+Dan temanmu (Muhammad) itu bukanlah orang gila.
 
 ## 81:23
 
-Dan sungguh, dia (Muhammad) telah melihatnya (Jibril) di ufuk yang terang.&#x20;
+Dan sungguh, dia (Muhammad) telah melihatnya (Jibril) di ufuk yang terang.
 
 ## 81:24
 
@@ -23311,11 +23311,11 @@ maka ke manakah kamu akan pergi?
 
 ## 81:27
 
-(Al-Qur'an) itu tidak lain adalah peringatan bagi seluruh alam,&#x20;
+(Al-Qur'an) itu tidak lain adalah peringatan bagi seluruh alam,
 
 ## 81:28
 
-(yaitu) bagi siapa di antara kamu yang menghendaki menempuh jalan yang lurus.&#x20;
+(yaitu) bagi siapa di antara kamu yang menghendaki menempuh jalan yang lurus.
 
 ## 81:29
 
@@ -23323,15 +23323,15 @@ Dan kamu tidak dapat menghendaki (menempuh jalan itu) kecuali apabila dikehendak
 
 ## 82:1
 
-Apabila langit terbelah,&#x20;
+Apabila langit terbelah,
 
 ## 82:2
 
-dan apabila bintang-bintang jatuh berserakan,&#x20;
+dan apabila bintang-bintang jatuh berserakan,
 
 ## 82:3
 
-dan apabila lautan dijadikan meluap,&#x20;
+dan apabila lautan dijadikan meluap,
 
 ## 82:4
 
@@ -23343,15 +23343,15 @@ dan apabila kuburan-kuburan dibongkar,
 
 ## 82:6
 
-Wahai manusia! Apakah yang telah memperdayakan kamu (berbuat durhaka) terhadap Tuhanmu Yang Mahamulia,&#x20;
+Wahai manusia! Apakah yang telah memperdayakan kamu (berbuat durhaka) terhadap Tuhanmu Yang Mahamulia,
 
 ## 82:7
 
-yang telah menciptakanmu lalu menyempurnakan kejadianmu dan menjadikan (susunan tubuh)mu seimbang,&#x20;
+yang telah menciptakanmu lalu menyempurnakan kejadianmu dan menjadikan (susunan tubuh)mu seimbang,
 
 ## 82:8
 
-dalam bentuk apa saja yang dikehendaki, Dia menyusun tubuhmu.&#x20;
+dalam bentuk apa saja yang dikehendaki, Dia menyusun tubuhmu.
 
 ## 82:9
 
@@ -23359,23 +23359,23 @@ Sekali-kali jangan begitu! Bahkan kamu mendustakan hari pembalasan.
 
 ## 82:10
 
-Dan sesungguhnya bagi kamu ada (malaikat-malaikat) yang mengawasi (pekerjaanmu),&#x20;
+Dan sesungguhnya bagi kamu ada (malaikat-malaikat) yang mengawasi (pekerjaanmu),
 
 ## 82:11
 
-yang mulia (di sisi Allah) dan yang mencatat (amal perbuatanmu),&#x20;
+yang mulia (di sisi Allah) dan yang mencatat (amal perbuatanmu),
 
 ## 82:12
 
-mereka mengetahui apa yang kamu kerjakan.&#x20;
+mereka mengetahui apa yang kamu kerjakan.
 
 ## 82:13
 
-Sesungguhnya orang-orang yang berbakti benar-benar berada dalam (surga yang penuh) kenikmatan,&#x20;
+Sesungguhnya orang-orang yang berbakti benar-benar berada dalam (surga yang penuh) kenikmatan,
 
 ## 82:14
 
-dan sesungguhnya orang-orang yang durhaka benar-benar berada dalam neraka.&#x20;
+dan sesungguhnya orang-orang yang durhaka benar-benar berada dalam neraka.
 
 ## 82:15
 
@@ -23383,39 +23383,39 @@ Mereka masuk ke dalamnya pada hari pembalasan.
 
 ## 82:16
 
-Dan mereka tidak mungkin keluar dari neraka itu.&#x20;
+Dan mereka tidak mungkin keluar dari neraka itu.
 
 ## 82:17
 
-Dan tahukah kamu apakah hari pembalasan itu?&#x20;
+Dan tahukah kamu apakah hari pembalasan itu?
 
 ## 82:18
 
-Sekali lagi, tahukah kamu apakah hari pembalasan itu?&#x20;
+Sekali lagi, tahukah kamu apakah hari pembalasan itu?
 
 ## 82:19
 
-(Yaitu) pada hari (ketika) seseorang sama sekali tidak berdaya (menolong) orang lain. Dan segala urusan pada hari itu dalam kekuasaan Allah.&#x20;
+(Yaitu) pada hari (ketika) seseorang sama sekali tidak berdaya (menolong) orang lain. Dan segala urusan pada hari itu dalam kekuasaan Allah.
 
 ## 83:1
 
-Celakalah bagi orang-orang yang curang (dalam menakar dan menimbang)!&#x20;
+Celakalah bagi orang-orang yang curang (dalam menakar dan menimbang)!
 
 ## 83:2
 
-(Yaitu) orang-orang yang apabila menerima takaran dari orang lain mereka minta dicukupkan,&#x20;
+(Yaitu) orang-orang yang apabila menerima takaran dari orang lain mereka minta dicukupkan,
 
 ## 83:3
 
-dan apabila mereka menakar atau menimbang (untuk orang lain), mereka mengurangi.&#x20;
+dan apabila mereka menakar atau menimbang (untuk orang lain), mereka mengurangi.
 
 ## 83:4
 
-Tidakkah mereka itu mengira, bahwa sesungguhnya mereka akan dibangkitkan,&#x20;
+Tidakkah mereka itu mengira, bahwa sesungguhnya mereka akan dibangkitkan,
 
 ## 83:5
 
-pada suatu hari yang besar,&#x20;
+pada suatu hari yang besar,
 
 ## 83:6
 
@@ -23423,11 +23423,11 @@ pada suatu hari yang besar,&#x20;
 
 ## 83:7
 
-Sekali-kali jangan begitu! Sesungguhnya catatan orang yang durhaka benar-benar tersimpan dalam Sijjin.&#x20;
+Sekali-kali jangan begitu! Sesungguhnya catatan orang yang durhaka benar-benar tersimpan dalam Sijjin.
 
 ## 83:8
 
-Dan tahukah engkau apakah Sijjin itu?&#x20;
+Dan tahukah engkau apakah Sijjin itu?
 
 ## 83:9
 
@@ -23435,7 +23435,7 @@ Dan tahukah engkau apakah Sijjin itu?&#x20;
 
 ## 83:10
 
-Celakalah pada hari itu, bagi orang-orang yang mendustakan!&#x20;
+Celakalah pada hari itu, bagi orang-orang yang mendustakan!
 
 ## 83:11
 
@@ -23447,19 +23447,19 @@ Dan tidak ada yang mendustakannya (hari pembalasan) kecuali setiap orang yang me
 
 ## 83:13
 
-yang apabila dibacakan kepadanya ayat-ayat Kami, dia berkata, “Itu adalah dongeng orang-orang dahulu.”&#x20;
+yang apabila dibacakan kepadanya ayat-ayat Kami, dia berkata, “Itu adalah dongeng orang-orang dahulu.”
 
 ## 83:14
 
-Sekali-kali tidak! Bahkan apa yang mereka kerjakan itu telah menutupi hati mereka.&#x20;
+Sekali-kali tidak! Bahkan apa yang mereka kerjakan itu telah menutupi hati mereka.
 
 ## 83:15
 
-Sekali-kali tidak! Sesungguhnya mereka pada hari itu benar-benar terhalang dari (melihat) Tuhannya.&#x20;
+Sekali-kali tidak! Sesungguhnya mereka pada hari itu benar-benar terhalang dari (melihat) Tuhannya.
 
 ## 83:16
 
-Kemudian, sesungguhnya mereka benar-benar masuk neraka.&#x20;
+Kemudian, sesungguhnya mereka benar-benar masuk neraka.
 
 ## 83:17
 
@@ -23467,7 +23467,7 @@ Kemudian, dikatakan (kepada mereka), “Inilah (azab) yang dahulu kamu dustakan.
 
 ## 83:18
 
-Sekali-kali tidak! Sesungguhnya catatan orang-orang yang berbakti benar-benar tersimpan dalam ’Illiyyin.&#x20;
+Sekali-kali tidak! Sesungguhnya catatan orang-orang yang berbakti benar-benar tersimpan dalam ’Illiyyin.
 
 ## 83:19
 
@@ -23479,7 +23479,7 @@ Dan tahukah engkau apakah ’Illiyyin itu?
 
 ## 83:21
 
-yang disaksikan oleh (malaikat-malaikat) yang didekatkan (kepada Allah).&#x20;
+yang disaksikan oleh (malaikat-malaikat) yang didekatkan (kepada Allah).
 
 ## 83:22
 
@@ -23487,7 +23487,7 @@ Sesungguhnya orang-orang yang berbakti benar-benar berada dalam (surga yang penu
 
 ## 83:23
 
-mereka (duduk) di atas dipan-dipan melepas pandangan.&#x20;
+mereka (duduk) di atas dipan-dipan melepas pandangan.
 
 ## 83:24
 
@@ -23495,19 +23495,19 @@ Kamu dapat mengetahui dari wajah mereka kesenangan hidup yang penuh kenikmatan.
 
 ## 83:25
 
-Mereka diberi minum dari khamar murni (tidak memabukkan) yang (tempatnya) masih dilak (disegel),&#x20;
+Mereka diberi minum dari khamar murni (tidak memabukkan) yang (tempatnya) masih dilak (disegel),
 
 ## 83:26
 
-laknya dari kasturi. Dan untuk yang demikian itu hendaknya orang berlomba-lomba.&#x20;
+laknya dari kasturi. Dan untuk yang demikian itu hendaknya orang berlomba-lomba.
 
 ## 83:27
 
-Dan campurannya dari tasnim,&#x20;
+Dan campurannya dari tasnim,
 
 ## 83:28
 
-(yaitu) mata air yang diminum oleh mereka yang dekat (kepada Allah).&#x20;
+(yaitu) mata air yang diminum oleh mereka yang dekat (kepada Allah).
 
 ## 83:29
 
@@ -23519,7 +23519,7 @@ Dan apabila mereka (orang-orang yang beriman) melintas di hadapan mereka, mereka
 
 ## 83:31
 
-dan apabila kembali kepada kaumnya, mereka kembali dengan gembira ria.&#x20;
+dan apabila kembali kepada kaumnya, mereka kembali dengan gembira ria.
 
 ## 83:32
 
@@ -23527,11 +23527,11 @@ Dan apabila mereka melihat (orang-orang mukmin), mereka mengatakan, “Sesungguh
 
 ## 83:33
 
-padahal (orang-orang yang berdosa itu), mereka tidak diutus sebagai penjaga (orang-orang mukmin).&#x20;
+padahal (orang-orang yang berdosa itu), mereka tidak diutus sebagai penjaga (orang-orang mukmin).
 
 ## 83:34
 
-Maka pada hari ini, orang-orang yang beriman yang menertawakan orang-orang kafir,&#x20;
+Maka pada hari ini, orang-orang yang beriman yang menertawakan orang-orang kafir,
 
 ## 83:35
 
@@ -23539,7 +23539,7 @@ mereka (duduk) di atas dipan-dipan melepas pandangan.
 
 ## 83:36
 
-Apakah orang-orang kafir itu diberi balasan (hukuman) terhadap apa yang telah mereka perbuat?&#x20;
+Apakah orang-orang kafir itu diberi balasan (hukuman) terhadap apa yang telah mereka perbuat?
 
 ## 84:1
 
@@ -23547,11 +23547,11 @@ Apabila langit terbelah,
 
 ## 84:2
 
-dan patuh kepada Tuhannya, dan sudah semestinya patuh,&#x20;
+dan patuh kepada Tuhannya, dan sudah semestinya patuh,
 
 ## 84:3
 
-dan apabila bumi diratakan,&#x20;
+dan apabila bumi diratakan,
 
 ## 84:4
 
@@ -23567,11 +23567,11 @@ Wahai manusia! Sesungguhnya kamu telah bekerja keras menuju Tuhanmu, maka kamu a
 
 ## 84:7
 
-Maka adapun orang yang catatannya diberikan dari sebelah kanannya,&#x20;
+Maka adapun orang yang catatannya diberikan dari sebelah kanannya,
 
 ## 84:8
 
-maka dia akan diperiksa dengan pemeriksaan yang mudah,&#x20;
+maka dia akan diperiksa dengan pemeriksaan yang mudah,
 
 ## 84:9
 
@@ -23579,11 +23579,11 @@ dan dia akan kembali kepada keluarganya (yang sama-sama beriman) dengan gembira.
 
 ## 84:10
 
-Dan adapun orang yang catatannya diberikan dari sebelah belakang,&#x20;
+Dan adapun orang yang catatannya diberikan dari sebelah belakang,
 
 ## 84:11
 
-maka dia akan berteriak, “Celakalah aku!”&#x20;
+maka dia akan berteriak, “Celakalah aku!”
 
 ## 84:12
 
@@ -23591,19 +23591,19 @@ Dan dia akan masuk ke dalam api yang menyala-nyala (neraka).
 
 ## 84:13
 
-Sungguh, dia dahulu (di dunia) bergembira di kalangan keluarganya (yang sama-sama kafir).&#x20;
+Sungguh, dia dahulu (di dunia) bergembira di kalangan keluarganya (yang sama-sama kafir).
 
 ## 84:14
 
-Sesungguhnya dia mengira bahwa dia tidak akan kembali (kepada Tuhannya).&#x20;
+Sesungguhnya dia mengira bahwa dia tidak akan kembali (kepada Tuhannya).
 
 ## 84:15
 
-Tidak demikian, sesungguhnya Tuhannya selalu melihatnya.&#x20;
+Tidak demikian, sesungguhnya Tuhannya selalu melihatnya.
 
 ## 84:16
 
-Maka Aku bersumpah demi cahaya merah pada waktu senja,&#x20;
+Maka Aku bersumpah demi cahaya merah pada waktu senja,
 
 ## 84:17
 
@@ -23663,7 +23663,7 @@ yang berapi (yang mempunyai) kayu bakar,
 
 ## 85:6
 
-ketika mereka duduk di sekitarnya,&#x20;
+ketika mereka duduk di sekitarnya,
 
 ## 85:7
 
@@ -23699,11 +23699,11 @@ Dan Dialah Yang Maha Pengampun, Maha Pengasih,
 
 ## 85:15
 
-yang memiliki ‘Arsy, lagi Mahamulia,&#x20;
+yang memiliki ‘Arsy, lagi Mahamulia,
 
 ## 85:16
 
-Mahakuasa berbuat apa yang Dia kehendaki.&#x20;
+Mahakuasa berbuat apa yang Dia kehendaki.
 
 ## 85:17
 
@@ -23871,7 +23871,7 @@ Sesungguhnya ini terdapat dalam kitab-kitab yang dahulu,
 
 ## 87:19
 
-(yaitu) kitab-kitab Ibrahim dan Musa.&#x20;
+(yaitu) kitab-kitab Ibrahim dan Musa.
 
 ## 88:1
 
@@ -23911,7 +23911,7 @@ merasa senang karena usahanya (sendiri),
 
 ## 88:10
 
-(mereka) dalam surga yang tinggi,&#x20;
+(mereka) dalam surga yang tinggi,
 
 ## 88:11
 
@@ -24119,7 +24119,7 @@ Apakah dia (manusia) itu mengira bahwa tidak ada sesuatu pun yang berkuasa atasn
 
 ## 90:6
 
-Dia mengatakan, “Aku telah menghabiskan harta yang banyak.”&#x20;
+Dia mengatakan, “Aku telah menghabiskan harta yang banyak.”
 
 ## 90:7
 
@@ -24303,7 +24303,7 @@ yang mendustakan (kebenaran) dan berpaling (dari iman).
 
 ## 92:17
 
-Dan akan dijauhkan darinya (neraka) orang yang paling bertakwa,&#x20;
+Dan akan dijauhkan darinya (neraka) orang yang paling bertakwa,
 
 ## 92:18
 
@@ -24375,7 +24375,7 @@ dan Kami pun telah menurunkan bebanmu darimu,
 
 ## 94:3
 
-yang memberatkan punggungmu,&#x20;
+yang memberatkan punggungmu,
 
 ## 94:4
 
@@ -24499,7 +24499,7 @@ Maka biarlah dia memanggil golongannya (untuk menolongnya),
 
 ## 96:18
 
-Kelak Kami akan memanggil Malaikat Zabaniyah, (penyiksa orang-orang yang berdosa),&#x20;
+Kelak Kami akan memanggil Malaikat Zabaniyah, (penyiksa orang-orang yang berdosa),
 
 ## 96:19
 
@@ -24555,7 +24555,7 @@ Sungguh, orang-orang yang beriman dan mengerjakan kebajikan, mereka itu adalah s
 
 ## 98:8
 
-Balasan mereka di sisi Tuhan mereka ialah surga ’Adn yang mengalir di bawahnya sungai-sungai; mereka kekal di dalamnya selama-lamanya. Allah rida terhadap mereka dan mereka pun rida kepada-Nya. Yang demikian itu adalah (balasan) bagi orang yang takut kepada Tuhannya.&#x20;
+Balasan mereka di sisi Tuhan mereka ialah surga ’Adn yang mengalir di bawahnya sungai-sungai; mereka kekal di dalamnya selama-lamanya. Allah rida terhadap mereka dan mereka pun rida kepada-Nya. Yang demikian itu adalah (balasan) bagi orang yang takut kepada Tuhannya.
 
 ## 99:1
 
@@ -24883,7 +24883,7 @@ Kelak dia akan masuk ke dalam api yang bergejolak (neraka).
 
 ## 111:4
 
-Dan (begitu pula) istrinya, pembawa kayu bakar (penyebar fitnah).&#x20;
+Dan (begitu pula) istrinya, pembawa kayu bakar (penyebar fitnah).
 
 ## 111:5
 

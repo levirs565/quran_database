@@ -4,30 +4,41 @@ import { ensureDir } from "@std/fs"
 import { Document, IsyaratMetadata, Metadata } from "./types.ts";
 import { htmlToMdast } from "./engine.ts";
 import { plainToMdast } from "./engine.ts";
-import { Heading, Paragraph, Root, RootContent } from "https://esm.sh/@types/mdast@4.0.4";
+import { Heading, Paragraph, PhrasingContent, Root, RootContent, Text } from "https://esm.sh/@types/mdast@4.0.4";
 import { u } from 'https://esm.sh/unist-builder@4'
 import 'https://esm.sh/remark-gfm@4'
+import { paragraph } from "https://esm.sh/mdast-util-to-markdown@2.1.2/lib/handle/paragraph.js";
 
 const databaseDir = join(import.meta.dirname!, "database")
 
-const parseKemenag = async (text: string): Promise<Root> => {
+const mapKemenagTranslationText = (text: Text): PhrasingContent[] => {
     let lastIndex = 0;
 
-    const paragraph: Paragraph = u("paragraph", []);
-    for (const match of text.matchAll(/(\d+)\)/g)) {
-        paragraph.children.push(u("text", { value: text.substring(lastIndex, match.index) }));
-        paragraph.children.push(u('footnoteReference', {
+    const result: PhrasingContent[] = []
+    for (const match of text.value.matchAll(/(\d+)\)/g)) {
+        result.push(u("text", { value: text.value.substring(lastIndex, match.index) }));
+        result.push(u('footnoteReference', {
             identifier: match[1],
         }))
         lastIndex = match.index + match[0].length;
     }
 
-    if (lastIndex != text.length) {
-        paragraph.children.push(u("text", { value: text.substring(lastIndex, text.length) }));
+    if (lastIndex != text.value.length) {
+        result.push(u("text", { value: text.value.substring(lastIndex, text.value.length) }));
     }
 
-    return u("root", [paragraph]);
+    return result;
 }
+
+const mapKemenagTranslationParagraph = ({children, ...rest}: Paragraph): Paragraph => ({
+    ...rest,
+    children: children.flatMap((child) => child.type == "text" ? mapKemenagTranslationText(child) : [child])
+}) 
+
+const mapKemenagMdast = ({ children, ...rest }: Root): Root => ({
+    ...rest,
+    children: children.map((child) => child.type == "paragraph" ? mapKemenagTranslationParagraph(child) : child)
+}) 
 
 for await (const child of Deno.readDir(databaseDir)) {
     if (!child.isFile) continue;
@@ -61,27 +72,29 @@ for await (const child of Deno.readDir(databaseDir)) {
         verseList: [],
         footnoteList: []
     }
-    const parseBase = parsedName.name == "tanzil.latin.en" ? htmlToMdast
+    const parseText = parsedName.name == "tanzil.latin.en" ? htmlToMdast
         : async (text: string) => plainToMdast(text);
 
-    const parseText = source == "kemenag" && type == "translation" ? parseKemenag
-        : parseBase;
-
     for (const { sura, verse, text } of data.verse) {
+        let mdast = await parseText(text);
+        if ( source == "kemenag" && type == "translation") {
+            mdast = mapKemenagMdast(mdast);
+        }
         document.verseList.push(
             {
                 sura,
                 verse,
-                text: await parseText(text),
+                text: mdast,
             }
         )
+
     }
 
     if (data.footnote)
         for (const { index, text } of data.footnote) {
             document.footnoteList.push({
                 index: index,
-                text: await parseBase(text)
+                text: await parseText(text)
             })
         }
 

@@ -3183,7 +3183,8 @@ Selesernyo,, wong-wong niku mudike keleseran Al-Qur’an waktu sampê kepado won
 
 ## 6:6
 
-Napi nano wong-wong niku pratike, pinten kata generasi sedêrêngnyo yên sampun kame' binasoke, padohal sampûn kame' teguke (mantepke) kelînggîannyo di bumi, yên dêrêng kalo Kame’ esûngke kepado niko. &#x20;
+Napi nano wong-wong niku pratike, pinten kata generasi sedêrêngnyo yên sampun kame' binasoke, padohal sampûn kame' teguke (mantepke) kelînggîannyo di bumi, yên dêrêng kalo Kame’ esûngke kepado niko.
+
 Kame’ turunke ujan yên deres peranti  wong-wong niku serto Kame’ dadeske sungi-sungi ngalir di bawanyo, dades kerno doso-doso wong-wong niku, Kame’ tûmbûke /ciptake sesampûnnyo, generasi yên lian
 
 ## 6:7
@@ -24825,6 +24826,7 @@ serto sungkan ngesûng petȗlȗngan [^1136]
 ## 108:1
 
 Selesernyo Kame’ sampûn ngesûngke
+
 kepado niko (Muhammad) ni’mat yen kata.
 
 ## 108:2
@@ -25945,6 +25947,8 @@ Dari (golongan) jin serto wong.
 
 [^497]: Diantaro nikmat Allah kepado wong-wong niku wêntenla : wong-wong niku  kerep dinaungi awan waktu wong-wong niku bejalan saat panas terik matoari padang pasir.
 
+
+
     Manna wêntenla tedoan manis ca’ madu. Salwa wêntenla burung mirip puyuh
 
 [^498]: Wêntenla damelan yên sa’i yên dikegkeke agama Islam, yên wênten kaitannnyo dengen igamo napi yên nano  wênten kaitannyo.
@@ -26002,19 +26006,29 @@ Dari (golongan) jin serto wong.
 [^524]: Yên dimaksud dengen rampasan perang (ghonimah) wêntenla harto yên berasal dari wong-wong kaper yên diembek dengen caro beperang, kalu harto yên diembek nano dengen peperangan dinamai fa’i. Caro pembagian yên wênten pado ayat niki wêntenla yên wênten hubungan dengen ghanima
 
 
+
 [^525]: Maksudnyo: seperlimo dari ghonimah niku dibage kepado:
+
     a. Allah serto Rasul=Nyo
+
     b. Kerabat Rasul, (Banu Hasyim jugo Banu Mutholib}
+
     c. Budak-budak yatim
+
     d. Wong miskin
+
     e. Ibnusabil
+
     yên empat perlimo dari ghonima dibageke kepado yên melok perang
+
 
 
 [^526]: Yên dimaksud dengen napi wêntenla ayat-ayat al-Qur’an, Malaikat serto petolongan
 
 
+
 [^527]: Furqon wêntenla yên misake antaro yên haq dengen yên batil.
+
     Maksud dinten al-furqon wêntenla dinten nyatonyo wong-wong islam yên menang  serto wong-wong kaper kala. Dinten niku wêntenla pangginyo  duo pasukan waktu perang Badar, pado dinten Jum’at 17 Romadon tahun duo Hijrrah, Separo dari wong ahli tafsir bekelap kalu ayat niki meng-isyaratke ari  petamo kali diturunke nyo al-qur’an pado malem 17 Romadhon
 
 [^528]: Maksudnyo: kaum Muslimin saat niku wênten di pinggir lembah yên nano tebi ke Madinah, dan wong-wong kaper wênten di pinggir lembah yên tebi dari Madinah. Kafila yên dipimpin Abu Sufyan niku wênten di tepi pantai kiro-kiro 5 mil dari Badar

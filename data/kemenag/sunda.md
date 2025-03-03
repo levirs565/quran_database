@@ -10263,7 +10263,8 @@ Kami ngajarkeun ogé ka Dawud cara nyieun baju beusi pikeun maranéh sangkan nan
 
 ## 21:82
 
-(Kami geus nundukkeun deui keur Sulaéman) sagolongan sétan nu sok&#x20;
+(Kami geus nundukkeun deui keur Sulaéman) sagolongan sétan nu sok
+
 teuleum (ka jero laut) keur anjeunna jeung sok milampah pagawéan lianna. Nya Kami nu ngajaga maranéhna.
 
 ## 21:83
@@ -18304,7 +18305,8 @@ Atawa naha jalma-jalma anu dina jero haténa aya panyakitan nyangka yén Allah m
 
 ## 47:30
 
-Lamun seug ngersakeun, pasti Kami némbongkeun maranéhna ka hidep&#x20;
+Lamun seug ngersakeun, pasti Kami némbongkeun maranéhna ka hidep
+
 (Muhammad) nepi ka hidep bener-bener wanoh ka maranéhna ku tanda-tandana. Ogé nepi ka hidep bener-bener wanoh ku cara ngomongna. Apan Allah mah uningaeun kana tingkah paripolah maranéhna.
 
 ## 47:31
@@ -18313,7 +18315,8 @@ Sabenerna Kami bakal nguji maranéh nepi ka Kami nyaho saha jalma-jalma anu bene
 
 ## 47:32
 
-Sabenerna jalma-jalma anu kupur jeung ngahalang-halang (batur) tina jalan Allah&#x20;
+Sabenerna jalma-jalma anu kupur jeung ngahalang-halang (batur) tina jalan Allah
+
 sarta ngamusuhan Rasul sanggeus aya pituduh anu jelas keur maranéhna, maranéhna moal pisan bisa ngamadaratkeun Allah saeutik ogé. Jaga Mantenna bakal mupus (ganjaran) sakabéh amal maranéhna.
 
 ## 47:33
@@ -25929,8 +25932,11 @@ ti (golongan) jin jeung manusa.”
 [^488]: Nyaéta urang Yahudi nu geus asup Islam saperti Abdullah bin Salam jeung urang Nasrani nu geus asup Islam.
 
 [^489]: Kautamaan basa Arab téh ti antarana:
+
     a. Ti baheula nepi ka ayeuna basa Arab tetep hirup, dina harti terus dipaké ku loba manusa.
+
     b. Basa Arab cocok tur beunghar ku kecap-kecap anu bisa ngajelaskeun rupa-rupa perkara ngeunaan Pangeran jeung ahérat.
+
     c. Hiji kecap dina basa Arab bisa diobah jadi sababaraha kecap nepi ka 3000 kecap. Nu saperti kitu téh teu aya dina basa séjén mah.
 
 [^490]: Tujuan ieu ayat téh keur ngabantah anu sok ngahina ka Nabi Muhammad Saw. Ti antarana nyaéta pikeun ngabantah pamadegan maranéhna yén rasul téh bisa ngadatangkeun mujijat sakahayangna. Padahal mujijat mah mung dipasihkeun ku Allah ka rasul-Na dina waktu diperlukeun wungkul, lain keur kaulinan. Pikeun unggal-unggal rasul aya kitabna séwang-séwangan nu luyu jeung kaayaan waktu harita.

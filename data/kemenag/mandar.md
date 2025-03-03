@@ -11,15 +11,15 @@ Sawa’ sangana Puang Allah Taala, (Puang Iya) Masarro Masayang na Makkesayang.
 
 ## 1:2
 
-Inggannana pappuyi  appunnanna Puang Allah Taala, Puang  inggannana alang,&#x20;
+Inggannana pappuyi  appunnanna Puang Allah Taala, Puang  inggannana alang,
 
 ## 1:3
 
-(Puang Iya) Masarro Masayang na Makkesayang,&#x20;
+(Puang Iya) Masarro Masayang na Makkesayang,
 
 ## 1:4
 
-(Puang Iya)  Makkuasai (maappunnai) allo di boe’.&#x20;
+(Puang Iya)  Makkuasai (maappunnai) allo di boe’.
 
 ## 1:5
 
@@ -27,7 +27,7 @@ Sangga’ di sese-Mu (Puang) iyami’ massomba, anna sangga’  di sese-Mu (Puan
 
 ## 1:6
 
-Patiroi iyami’ tangalalang iya maroro,&#x20;
+Patiroi iyami’ tangalalang iya maroro,
 
 ## 1:7
 
@@ -63,7 +63,7 @@ Puang Allah Taala makkocci atena ise’iya anna pa’irranginna, anna pe’itann
 
 ## 2:8
 
-Anna pole di bassa tau diang ma’uang: “iyami’ matappa’ lao di Puang Allah Taala anna allo di boe’”, padahal ise’iya taniai to matappa.&#x20;
+Anna pole di bassa tau diang ma’uang: “iyami’ matappa’ lao di Puang Allah Taala anna allo di boe’”, padahal ise’iya taniai to matappa.
 
 ## 2:9
 
@@ -435,7 +435,7 @@ Mangapai ise’iya tungga-tungga’i mappapia assital­liang, samba­reangi ise�
 
 ## 2:101
 
-Anna di wattu polena lao ise’iya mesa suro (Muhammad), pole di Puang Allah Taala iya mappattongang (kitta’) iya diang di sesena, sambareangi to di bei kitta’ (Taurat), napillaccarangi kitta’ (Taurat) lao di peppondoangna, ingga’na le’ba’ ise’iya andiang ma’issang&#x20;
+Anna di wattu polena lao ise’iya mesa suro (Muhammad), pole di Puang Allah Taala iya mappattongang (kitta’) iya diang di sesena, sambareangi to di bei kitta’ (Taurat), napillaccarangi kitta’ (Taurat) lao di peppondoangna, ingga’na le’ba’ ise’iya andiang ma’issang
 
 ## 2:102
 
@@ -967,7 +967,7 @@ Anna iya indo sitinayannai mappasusu ana’-ana’na duattaung  kalepu  (saena) 
 
 ## 2:234
 
-Anna to matemo iya mappelei (mappamottong) pa’baliang (baine sitinayai) baine di’o  na jagai alawena  (ma-iddah) patambulan sappulo allona. Anna mua’ cappu’mi iddahna, jari andiang-diang dosa di sesemu mie’ (walli) mappaso’nai mappogau’ lao di alawena me’apa iya sitinaya. Anna Puang Allah Taala Masarro Ma’issang di anu iya mupogau’.&#x20;
+Anna to matemo iya mappelei (mappamottong) pa’baliang (baine sitinayai) baine di’o  na jagai alawena  (ma-iddah) patambulan sappulo allona. Anna mua’ cappu’mi iddahna, jari andiang-diang dosa di sesemu mie’ (walli) mappaso’nai mappogau’ lao di alawena me’apa iya sitinaya. Anna Puang Allah Taala Masarro Ma’issang di anu iya mupogau’.
 
 ## 2:235
 
@@ -1011,7 +1011,7 @@ Anna pammusu’o mie’ di tangalalangna Puang Allah Taala, anna issangi mie’,
 
 ## 2:245
 
-Inai melo’ mappepinrang  lao di Puang Allah Taala, pappepinrang macoa (mappasulakkang barangna lao di tangalalangna Puang). Jari Puang Allah Taala na mappalappi-lappi bayarang di sesena  mallappi-lappi mae’di. Anna Puang Allah Taala mappasippi’  anna mappamaloang  (dalle’)  anna di sese-Nai  di pepembali’o mie’.&#x20;
+Inai melo’ mappepinrang  lao di Puang Allah Taala, pappepinrang macoa (mappasulakkang barangna lao di tangalalangna Puang). Jari Puang Allah Taala na mappalappi-lappi bayarang di sesena  mallappi-lappi mae’di. Anna Puang Allah Taala mappasippi’  anna mappamaloang  (dalle’)  anna di sese-Nai  di pepembali’o mie’.
 
 ## 2:246
 
@@ -1219,7 +1219,7 @@ Sitongangna to kaper, barang-barangna anna ana’-ana’na, andiangi mala massu�
 
 ## 3:11
 
-Sitteng  taunna Fir’aun anna to diolo’na ise’iya. Ise’iya malloso-losongan aya’-aya’-I, jari Puang Allah Taala massessai  ise’iya sawa’ dosa-dosana. Anna Puang Allah Taala makarras sanna’ passessa-Na.&#x20;
+Sitteng  taunna Fir’aun anna to diolo’na ise’iya. Ise’iya malloso-losongan aya’-aya’-I, jari Puang Allah Taala massessai  ise’iya sawa’ dosa-dosana. Anna Puang Allah Taala makarras sanna’ passessa-Na.
 
 ## 3:12
 
@@ -1323,7 +1323,7 @@ Jari di wattu bainena Imran mappeanangi ana’na, ma’uangi: ”E Puangngu, sit
 
 ## 3:37
 
-Jari Puangna mattarimai siola natarima macoa, anna Puang napaba’ari  siola ba’ar macoa anna mappajari Zakaria parroambi’na, tuttu messitai Zakaria lao di Maryam dio di Mihrab, samata marruppa’i ande-ande di se’dena. Zakaria ma’uang: “E Maryam! inna muengei maala  di’e ande-e?” Maryam ma’uang: “Iya di’o ande-o polei  di Puang Allah Taala.” Sitongangna Puang Allah Taala Mambei dalle’ di to napoelo’ andiang direkeng.&#x20;
+Jari Puangna mattarimai siola natarima macoa, anna Puang napaba’ari  siola ba’ar macoa anna mappajari Zakaria parroambi’na, tuttu messitai Zakaria lao di Maryam dio di Mihrab, samata marruppa’i ande-ande di se’dena. Zakaria ma’uang: “E Maryam! inna muengei maala  di’e ande-e?” Maryam ma’uang: “Iya di’o ande-o polei  di Puang Allah Taala.” Sitongangna Puang Allah Taala Mambei dalle’ di to napoelo’ andiang direkeng.
 
 ## 3:38
 
@@ -2395,7 +2395,7 @@ Anna da mie’ pe’ate malamma di lalang  mattinro’i (balimmu). Mua’ diango
 
 ## 4:105
 
-Sitongangna Iyami’ pura mappaturungano’o  Kitta’ (Koroang) mambawa atongangan, malaao maadili rupa tau me’apa  iya napaturungano’o Puang Allah Taala, anna da menjari bali (di to andiang pasalah), sawa’ mattunduango’o to hiana’ (bali’ balla’),&#x20;
+Sitongangna Iyami’ pura mappaturungano’o  Kitta’ (Koroang) mambawa atongangan, malaao maadili rupa tau me’apa  iya napaturungano’o Puang Allah Taala, anna da menjari bali (di to andiang pasalah), sawa’ mattunduango’o to hiana’ (bali’ balla’),
 
 ## 4:106
 
@@ -3219,7 +3219,7 @@ Pa’uango’o (Muhammad): “Apa’ na upajaridi petturun­dungan selaengna Pua
 
 ## 6:15
 
-Pa’uango’o (Muhammad): “Sitongangna marakkea’ di abala’ kaiyang (allo keama’), mua’ pabali-balia’ lao di Puangngu.”&#x20;
+Pa’uango’o (Muhammad): “Sitongangna marakkea’ di abala’ kaiyang (allo keama’), mua’ pabali-balia’ lao di Puangngu.”
 
 ## 6:16
 
@@ -3747,7 +3747,7 @@ Anna lao di to  Yahudi, Iyami’ mahharangan inggannana  olo’-olo’ mekkanuku
 
 ## 6:147
 
-Jari mua’ ise’iya malloso-losongano’o, jari pa'uango’o: “Puangmu  mie’ maappunnai Pammase iya Maloang, anna passessa andiang mala disu’eang pole di kaum iya madosa.”&#x20;
+Jari mua’ ise’iya malloso-losongano’o, jari pa'uango’o: “Puangmu  mie’ maappunnai Pammase iya Maloang, anna passessa andiang mala disu’eang pole di kaum iya madosa.”
 
 ## 6:148
 
@@ -3899,7 +3899,7 @@ anna (Puang Allah Taala ma’uang): “E Adam mottongmo’o anna bainemu di suru
 
 ## 7:20
 
-Mane setang mambisi’i pikkirang adae’ lao di (Adam anna bainena)  iya na mappepelattoang anu iya ma’oppo’i alawena (aura’na) anna setang ma’uang: “Puangmu andiangi  mappusarao maakadep­pu’i di’e ponna ayue, selaengna malaao da’dua siola andiang menjari malaika’ iyade’ andiango’o menjari to mannannungan (lalang di suruga).”&#x20;
+Mane setang mambisi’i pikkirang adae’ lao di (Adam anna bainena)  iya na mappepelattoang anu iya ma’oppo’i alawena (aura’na) anna setang ma’uang: “Puangmu andiangi  mappusarao maakadep­pu’i di’e ponna ayue, selaengna malaao da’dua siola andiang menjari malaika’ iyade’ andiango’o menjari to mannannungan (lalang di suruga).”
 
 ## 7:21
 
@@ -4027,7 +4027,7 @@ Anna pa’engei naraka me’illong lao di pa’engei suruga: “Tolloangi di iya
 
 ## 7:52
 
-Anna Iyami’  tongang pura mappapoleangi ise’iya mesa Kitta’ (Koroang), Iyami’ mappannassaiangi sawa’ paissanga’-I, menjari patiroang  anna pamma­se di sesena kaum iya matappa’. &#x20;
+Anna Iyami’  tongang pura mappapoleangi ise’iya mesa Kitta’ (Koroang), Iyami’ mappannassaiangi sawa’ paissanga’-I, menjari patiroang  anna pamma­se di sesena kaum iya matappa’.
 
 ## 7:53
 
@@ -4271,7 +4271,7 @@ Malaai ise’iya mambawangano’o inggannana passeher iya manarang.”
 
 ## 7:113
 
-Anna sisaapa  passeher mappolei Fir’aun  na ma’uang: “Na diang bandi iyami’ na mallolongan tambo (gaji), mua’  iyami’ pakala?”&#x20;
+Anna sisaapa  passeher mappolei Fir’aun  na ma’uang: “Na diang bandi iyami’ na mallolongan tambo (gaji), mua’  iyami’ pakala?”
 
 ## 7:114
 
@@ -4939,7 +4939,7 @@ Anna to kaper, sambareangi menjari petturun­dungannai  di sambareang laengna. M
 
 ## 8:74
 
-Anna to matappa’ anna hijrah (mellenggu’) anna manjiha’ di tangalalangna Puang Allah Taala, anna to mambei engeang  anna mattulung (Muhajirin), ise’iyamo di’o to tongang matappa’. Ise’iya mallo­longan pa’dappang anna dalle’ (pappenyamang) iya mala’bi’. &#x20;
+Anna to matappa’ anna hijrah (mellenggu’) anna manjiha’ di tangalalangna Puang Allah Taala, anna to mambei engeang  anna mattulung (Muhajirin), ise’iyamo di’o to tongang matappa’. Ise’iya mallo­longan pa’dappang anna dalle’ (pappenyamang) iya mala’bi’.
 
 ## 8:75
 
@@ -5679,7 +5679,7 @@ Anna mua’ tungga-tungga’ alawe to pagau’ bawang (mappa’dua) di’o  maap
 
 ## 10:55
 
-Ingarangi, sitongangna appunnanna Puang Allah Taala anu di langi’ anna di lino. Ingarangi, sitongangna janjinna  Puang Allah Taala di’o tongangi, anna iya tia mae’diangi ise’iya andiang ma’issang.&#x20;
+Ingarangi, sitongangna appunnanna Puang Allah Taala anu di langi’ anna di lino. Ingarangi, sitongangna janjinna  Puang Allah Taala di’o tongangi, anna iya tia mae’diangi ise’iya andiang ma’issang.
 
 ## 10:56
 
@@ -6275,7 +6275,7 @@ Anna di wattu polena passessa-I (awala’-I), Iyami’ mappasalama’ Syuaib ann
 
 ## 11:95
 
-Ingga’na le’bai ise’iya  andiangpa rua mottong di engeang di’o. Ingarangi, abinasang di sesena to mottong dio di  Madyan me’apa kaumna Tsamud binasa.&#x20;
+Ingga’na le’bai ise’iya  andiangpa rua mottong di engeang di’o. Ingarangi, abinasang di sesena to mottong dio di  Madyan me’apa kaumna Tsamud binasa.
 
 ## 11:96
 
@@ -9023,7 +9023,7 @@ Iyamo di wattunnai mando’a (merau) lao di Puangna sawa’ bamba iya malumu (ke
 
 ## 19:5
 
-Anna sitongangna upaarakkeangi walli’u di amatea’u (di peppondoa’u), anna baineu mesa to tamanang, jari ammaseia’ (annaia’) pole di sese-Mu, &#x20;
+Anna sitongangna upaarakkeangi walli’u di amatea’u (di peppondoa’u), anna baineu mesa to tamanang, jari ammaseia’ (annaia’) pole di sese-Mu,
 
 ## 19:6
 
@@ -11247,7 +11247,7 @@ Sitongangna to mappoelo’ malaai (karewa)  pappo­gauang iya adae’ sanna’ d
 
 ## 24:20
 
-Anna tenna’ tania sawa’ palla’birangna Puang Allah  Taala anna pammase-Na di sesemu mie’, anna Puang Allah  Taala Masarro Pappelomo-lomo na Makkesayang.&#x20;
+Anna tenna’ tania sawa’ palla’birangna Puang Allah  Taala anna pammase-Na di sesemu mie’, anna Puang Allah  Taala Masarro Pappelomo-lomo na Makkesayang.
 
 ## 24:21
 
@@ -12047,7 +12047,7 @@ jari sitongangna  ise’iya (iya anu musomba) di’o bali’u, sangadinna Puang 
 
 ## 26:79
 
-anna (Puangngu), Iya mappandea’ na mappadundua’.&#x20;
+anna (Puangngu), Iya mappandea’ na mappadundua’.
 
 ## 26:80
 
@@ -13195,7 +13195,7 @@ anna iya tia iyami’ pura mappajari sisaapa umma’, anna lalomi lao ise’iya 
 
 ## 28:46
 
-Anna andiango’o (Muhammad) dio sikadeppu’ buttu Thur di wattunna Iyami’ me’illong (lao di Musa),  anna iya tia (Iyami’  mappissangngio pammase pole di Puangmu, mamoare’o  mappaingarang (kaum Kuraisy)  iya tongang andiangpa napolei pappaingarang di andiangmupa, mamoare’i ise’iya paingarang.&#x20;
+Anna andiango’o (Muhammad) dio sikadeppu’ buttu Thur di wattunna Iyami’ me’illong (lao di Musa),  anna iya tia (Iyami’  mappissangngio pammase pole di Puangmu, mamoare’o  mappaingarang (kaum Kuraisy)  iya tongang andiangpa napolei pappaingarang di andiangmupa, mamoare’i ise’iya paingarang.
 
 ## 28:47
 
@@ -13415,7 +13415,7 @@ Anna to kaper ma’uang lao di to matappa’: “Peccoe’i mie’ tangalala’i
 
 ## 29:13
 
-Anna sitongangna ise’iya na mambullei bawang (dosa)na toi tia, anna dosa-dosa  laengna siola dosa-dosana ise’iya. Anna ise’iya tongang na dipatule’ di allo keama’  di anu iya tulu napapi-papia ise’iya.&#x20;
+Anna sitongangna ise’iya na mambullei bawang (dosa)na toi tia, anna dosa-dosa  laengna siola dosa-dosana ise’iya. Anna ise’iya tongang na dipatule’ di allo keama’  di anu iya tulu napapi-papia ise’iya.
 
 ## 29:14
 
@@ -14255,7 +14255,7 @@ Anna mua’ diango’o mie’ mappoelo’ (riona) Puang Allah Taala anna suro-Na
 
 ## 33:30
 
-E para bainena nabi, inai-inai di antaramu mie’ mappogau’ panggauang  adae’ (merissi-rissi’) iya ma’nyata, tongang na dipalliccu-liccungi passessana di sesemu dualliccung. Anna iya bassa di’o diangi malammor di sesena Puang Allah Taala.&#x20;
+E para bainena nabi, inai-inai di antaramu mie’ mappogau’ panggauang  adae’ (merissi-rissi’) iya ma’nyata, tongang na dipalliccu-liccungi passessana di sesemu dualliccung. Anna iya bassa di’o diangi malammor di sesena Puang Allah Taala.
 
 ## 33:31
 
@@ -14635,7 +14635,7 @@ Anna (tongang  merakke-rakke’i) mua’ muitai ise’iya (to kaper) tiwikke’ 
 
 ## 34:52
 
-Anna (di wattu di’o) ise’iya ma’uang: “Iyami’ matappa’ lao (di Puang Allah Taala),” Na me’apai ise’iya na mala mallolongan (amatappang) pole di engeang karao.&#x20;
+Anna (di wattu di’o) ise’iya ma’uang: “Iyami’ matappa’ lao (di Puang Allah Taala),” Na me’apai ise’iya na mala mallolongan (amatappang) pole di engeang karao.
 
 ## 34:53
 
@@ -15139,7 +15139,7 @@ Anna iya mappapia akkalarapangan di Iyami’, anna iya maaluppei pappadianganna,
 
 ## 36:79
 
-Pa’uango’o (Muhammad): “Iya na mappatuoi iyamo (Puang) iya mappadiangi di ammula-mulanna. Anna Iyamo (Puang) Masarro Paissang di inggannana anu dipadiang,&#x20;
+Pa’uango’o (Muhammad): “Iya na mappatuoi iyamo (Puang) iya mappadiangi di ammula-mulanna. Anna Iyamo (Puang) Masarro Paissang di inggannana anu dipadiang,
 
 ## 36:80
 
@@ -15291,7 +15291,7 @@ Jari sitongangna ise’iya di allo di’o siola-olai lalang di paccallang (passe
 
 ## 37:34
 
-Sitongangna bassami  di’o Iyami’ mappogau’ lao di to ta’lalo pagau’ bawang.&#x20;
+Sitongangna bassami  di’o Iyami’ mappogau’ lao di to ta’lalo pagau’ bawang.
 
 ## 37:35
 
@@ -16115,7 +16115,7 @@ Iyamo di’e (passessa naraka), jari paso’nami  ise’iya marrasai-i, (inungan
 
 ## 38:58
 
-Anna maragi-ragi (passessa) laeng iya sitteng di’o.&#x20;
+Anna maragi-ragi (passessa) laeng iya sitteng di’o.
 
 ## 38:59
 
@@ -16799,7 +16799,7 @@ Iyamo (Puang), iya tuo (mannannungan), andiang diang puang (iya maka disomba) sa
 
 ## 40:66
 
-Pa’uango’o (Muhammad): S »itongangna diposara’ massomba sombang iya musomba saliwangna Puang Allah Taala, dipolenamo mai di seseu katarangan mannassa pole di Puangngu. Anna diparentaia’ mamoarea’ tunru’ lao di Puang inggannana alang." 
+Pa’uango’o (Muhammad): S »itongangna diposara’ massomba sombang iya musomba saliwangna Puang Allah Taala, dipolenamo mai di seseu katarangan mannassa pole di Puangngu. Anna diparentaia’ mamoarea’ tunru’ lao di Puang inggannana alang."
 
 ## 40:67
 
@@ -18287,7 +18287,7 @@ Sitongangna to membali’ lao di (akaperang) dipurana patiroang mannassa di sese
 
 ## 47:26
 
-Iya bassa di’o sawa’ sitongangna ise’iya (to munape’)   ma’uang lao di to  maccalla anu napaturung Puang Allah Taala (Yahudi): “Iyami’ na me’atunru’ mating di sesemu mie’ di sisaapa urusan,” anna Puang Allah Taala ma’issang rahasiana ise’iya.&#x20;
+Iya bassa di’o sawa’ sitongangna ise’iya (to munape’)   ma’uang lao di to  maccalla anu napaturung Puang Allah Taala (Yahudi): “Iyami’ na me’atunru’ mating di sesemu mie’ di sisaapa urusan,” anna Puang Allah Taala ma’issang rahasiana ise’iya.
 
 ## 47:27
 
@@ -21643,7 +21643,7 @@ anna to mappiara sambayangna.
 
 ## 70:35
 
-Ise’iya  di’o dipakaraya  lalang di suruga.&#x20;
+Ise’iya  di’o dipakaraya  lalang di suruga.
 
 ## 70:36
 
@@ -22663,7 +22663,7 @@ Anna ise’iya (mallolongan) bua-bua iya naelo’i.
 
 ## 77:43
 
-(Dip’auangngi ise’iya): “Ande anna pandundumo’o mie’ siola nyamang, sawa’ anu iya pura mupogau’.&#x20;
+(Dip’auangngi ise’iya): “Ande anna pandundumo’o mie’ siola nyamang, sawa’ anu iya pura mupogau’.
 
 ## 77:44
 
@@ -23035,7 +23035,7 @@ I’o  (Muhammad) sangga’  mappaingarang tappa’ do’o di sesena inai to mar
 
 ## 79:46
 
-Di allo naitanna ise’iya allo dipatiwa’as, nasa’dingi ingga’na le’ba’  andiangi mottong (di lino) selaengna (cinappa’ le’ba’), sitteng wattu arawiang iyade’ malimang.  &#x20;
+Di allo naitanna ise’iya allo dipatiwa’as, nasa’dingi ingga’na le’ba’  andiangi mottong (di lino) selaengna (cinappa’ le’ba’), sitteng wattu arawiang iyade’ malimang.
 
 ## 80:1
 
@@ -23115,7 +23115,7 @@ Pole di satti’diang (uai) manning, Puang mappadiangi mane  napattantui.
 
 ## 80:20
 
-Mane tangalalangna, Iya (Puang) pamalammori,&#x20;
+Mane tangalalangna, Iya (Puang) pamalammori,
 
 ## 80:21
 
@@ -23559,7 +23559,7 @@ anna natiluangmi anu iya diang di lalangna (issinna) anna menjari  lo’bang,
 
 ## 84:5
 
-anna tunru’ lao di Puangna, anna (sitinayannai) tunru’,&#x20;
+anna tunru’ lao di Puangna, anna (sitinayannai) tunru’,
 
 ## 84:6
 
@@ -23947,7 +23947,7 @@ anna langi’, me'apai dipadai’ (dipamalinggato’) ?
 
 ## 88:19
 
-Anna inggannana buttu, me'apai dipake’de’?&#x20;
+Anna inggannana buttu, me'apai dipake’de’?
 
 ## 88:20
 
@@ -24035,7 +24035,7 @@ sitongangna Puangmu  tongang manjagai.
 
 ## 89:15
 
-Anna iya rupa tau mua’ nauyi’i Puangna, anna  mane napakarayai, anna nabei pappenyamang, jari ma’uangi: “Napakaraya’ Puangngu.”&#x20;
+Anna iya rupa tau mua’ nauyi’i Puangna, anna  mane napakarayai, anna nabei pappenyamang, jari ma’uangi: “Napakaraya’ Puangngu.”
 
 ## 89:16
 
@@ -24595,7 +24595,7 @@ Sawa’ saiyang pammusuang iya  maindong mamota’ na poso,
 
 ## 100:2
 
-jari saiyang  mappessopang api (sawa’ makarrasna ka’luppang lette’na),&#x20;
+jari saiyang  mappessopang api (sawa’ makarrasna ka’luppang lette’na),
 
 ## 100:3
 

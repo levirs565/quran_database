@@ -1040,7 +1040,9 @@ Wong-wong (tentarane Thalut) ngalahno tentarane Jalut kambi ijine Alloh lan (jer
 ## 2:252
 
 Iku ayat-ayate Alloh. Isun (Gusti Alloh)
+
 macakaken kanggo riko, kambi hak (bener)
+
 lan saktemene riko (Muhamnad) benerbener salah sijine tekan pirang pirang Rosul.
 
 ## 2:253
@@ -10886,6 +10888,7 @@ Nong Fir’aun lan penggeden-penggedene kaume, mongko iyan-iyane iki takabur lan
 ## 23:47
 
 Lan iyan-iyane ngomong: “Opo (patut) kito percoyo nang wong loro menuso koyo kito dewek, padahal kaume iyane (Bani Isroil) iku wong-wong kan ngabdekaken awake
+
 nong awake kito?”
 
 ## 23:48
@@ -11403,6 +11406,7 @@ Ojo siro ngiro kadung wong-wong kang kafir iku biso ngelemahaken (Gusti Alloh te
 ## 24:58
 
 Hei wong-wong kang podo iman, apike budak-budak (lanang utowo wadon) kang duwine siro, lan wong-wong kang durung beligh reng antarane siro kabeh, njaluk izin nong siro ping telu (reng siji dino) yoiku: sedurunge sembahyang subuh, waktu siro ngotak kelkambi (njobone) siro reng tengahe raino lan sakmarine sembahyang Isya’. (gedikon iku) telong aurat kanggo siro [^641]. Osing ono duso nong siro lan osing (ugo) nong iyan-iyane sakliyane teko
+
 (waktu telu) iku. [^642] Iyan-iyane ngelayani siro, sebagiane siro (ono perlu) nong sebagiane (kang liyo). Gedigu iku Gusti Alloh Maha weruh tur Maha wicaksono.
 
 ## 24:59
@@ -13075,7 +13079,8 @@ Lan pas Musa wes cukup umur lan sempurno akale, kene uweni neng larene hikmah (k
 
 ## 28:15
 
-Lan Musa melebu neng kota (Mempish) pas warganek podo mumet. Makan di temokaken neng kota iku loro uwong lanang hang tukaran; hang siti teko golongane Bani Isra’il hang sijine maning teko musehe (kaum Fir’aun). Makane wong hang teko golongane Musa njaluk tulung neng golonhane&#x20;
+Lan Musa melebu neng kota (Mempish) pas warganek podo mumet. Makan di temokaken neng kota iku loro uwong lanang hang tukaran; hang siti teko golongane Bani Isra’il hang sijine maning teko musehe (kaum Fir’aun). Makane wong hang teko golongane Musa njaluk tulung neng golonhane
+
 Musa, kanggo ngalahaken uwong hag teko musuh-musuhe iku. Musa ngomong: “iki iku penggaweane setan, Sakbenere setan iku musuh hang nyesataken lan katon (ketambengane).
 
 ## 28:16
@@ -13361,6 +13366,7 @@ Sakbenere hang nguwajibaken neng riko (ngelakoni hukum hukum) Al-Qur’an bener 
 ## 28:86
 
 Lan riko seng tau ngarep myane Al-Qur'an di dunak.en neng riko, tapi ia (didunak
+
 en) kerono rahmate hang gedi teko pengeransiro. Sebyab iku ojo sepisan pisan riko dyadi penolung kanggo wong wong kapir.
 
 ## 28:87
@@ -13401,7 +13407,8 @@ Lan wong-wong kang iman lan ngelakoni amal apik, bener-bener arep isun busek tek
 
 ## 29:8
 
-Lan isun wajibaken menungso (gawe) keapikan neng wong tuwek loro, lan kadung karo-karone mokso riko kanggo nyekutukaken isun kambi paranbyaen hang hengono pengaweruh riko perkoro iku,&#x20;
+Lan isun wajibaken menungso (gawe) keapikan neng wong tuwek loro, lan kadung karo-karone mokso riko kanggo nyekutukaken isun kambi paranbyaen hang hengono pengaweruh riko perkoro iku,
+
 makan ojo riko nuruti karo-karone, mung neng isun balik riko, terus isun kabaraken neng riko paren kang wes riko lakoni.
 
 ## 29:9
@@ -26329,6 +26336,7 @@ Teka golongane Jin lan Menungso.
 [^686]: Karepe: iane kabeh osing turu nyang wayah biasane uwong turu, kanggo ngelakoni sembahyang bengi.
 
 [^687]: Karepe: koyokdene wes diwenekaen nyang Musa, Taurot, gedigu pisan diwenekaen nyang Muhammad SAW.
+
     Al-Qur’an. Lan koyok dene Taurot didadekaen pituduh kanggo Bani Isroil, mulokno didadekaen Al-Qur’an pituduh kanggo umat riko.
 
 [^688]: Hang dikarepaen ambi “sabar” yoiku sabar nyang jeroni ngedekaen perkoro hang bener
@@ -26528,6 +26536,7 @@ Teka golongane Jin lan Menungso.
 [^785]: Kebeneran berita berita Al-Qur’an iku ana hang kedaden nyata reng dunya lan ana pisan hang kedaden nyata reng akhirat. Hang kedaden nyata reng dunya kaya kebeneran janji Gusti Alloh nang wong wong mukmin setemene wong wong iku arep menang reng peperangan ngelawan kaum musyrikin, lan hang kedaden nyata reng akhirat kaya kebenaran janji Alloh perkara walesan utawa peritungan hang arep dilaksanaken nang manugsa
 
 [^786]: Maksut pandangan moto hang suloyo yoiku pendelangane moto, pendelengan hang di larang koyo dene
+
     ndeleng wong wadon hang heng muhrime.
 
 [^787]: Maksute bangunan bangunan lan benteng-benteng istana

@@ -26,11 +26,11 @@ export function mdToMdast(text: string): Root {
 
 export function plainToMdast(text: string) {
     return u("root", [
-        u("paragraph", [
+        ...text.split("\n").map((line) => u("paragraph", [
             u("text", {
-                value: text
+                value: line.trimEnd()
             })
-        ])
+        ]))
     ]);
 }
 

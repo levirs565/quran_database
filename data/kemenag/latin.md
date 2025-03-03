@@ -7,99 +7,99 @@ type: latin
 
 ## 1:1
 
-Bismillāhir-raḥmānir-raḥīm(i).&#x20;
+Bismillāhir-raḥmānir-raḥīm(i).
 
 ## 1:2
 
-Al-ḥamdu lillāhi rabbil-‘ālamīn(a).&#x20;
+Al-ḥamdu lillāhi rabbil-‘ālamīn(a).
 
 ## 1:3
 
-Ar-raḥmānir-raḥīm(i).&#x20;
+Ar-raḥmānir-raḥīm(i).
 
 ## 1:4
 
-Māliki yaumid-dīn(i).&#x20;
+Māliki yaumid-dīn(i).
 
 ## 1:5
 
-Iyyāka na‘budu wa iyyāka nasta‘īn(u),&#x20;
+Iyyāka na‘budu wa iyyāka nasta‘īn(u),
 
 ## 1:6
 
-Ihdinaṣ-ṣirāṭal-mustaqīm(a).&#x20;
+Ihdinaṣ-ṣirāṭal-mustaqīm(a).
 
 ## 1:7
 
-Ṣirāṭal-lażīna an‘amta ‘alaihim, gairil-magḍūbi ‘alaihim wa laḍ-ḍāllīn(a).&#x20;
+Ṣirāṭal-lażīna an‘amta ‘alaihim, gairil-magḍūbi ‘alaihim wa laḍ-ḍāllīn(a).
 
 ## 2:1
 
-Alif lām mīm.&#x20;
+Alif lām mīm.
 
 ## 2:2
 
-Żālikal-kitābu lā raiba fīh(i), hudal lil-muttaqīn(a).&#x20;
+Żālikal-kitābu lā raiba fīh(i), hudal lil-muttaqīn(a).
 
 ## 2:3
 
-Al-lażīna yu'minūna bil-gaibi wa yuqīmūnaṣ-ṣalāta wa mimmā razaqnāhum yunfiqūn(a).&#x20;
+Al-lażīna yu'minūna bil-gaibi wa yuqīmūnaṣ-ṣalāta wa mimmā razaqnāhum yunfiqūn(a).
 
 ## 2:4
 
-Wal-lażīna yu'minūna bimā unzila ilaika wa mā unzila min qablik(a), wabil-ākhirati hum yūqinūn(a).&#x20;
+Wal-lażīna yu'minūna bimā unzila ilaika wa mā unzila min qablik(a), wabil-ākhirati hum yūqinūn(a).
 
 ## 2:5
 
-Ulā'ika ‘alā hudam mir rabbihim wa ulā'ika humul-mufliḥūn(a).&#x20;
+Ulā'ika ‘alā hudam mir rabbihim wa ulā'ika humul-mufliḥūn(a).
 
 ## 2:6
 
-Innal-lażīna kafarū sawā'un ‘alaihim a'anżartahum am lam tunżirhum lā yu'minūn(a).&#x20;
+Innal-lażīna kafarū sawā'un ‘alaihim a'anżartahum am lam tunżirhum lā yu'minūn(a).
 
 ## 2:7
 
-Khatamallāhu ‘alā qulūbihim wa ‘alā sam‘ihim wa ‘alā abṣārihim gisyāwatuw wa lahum ‘ażābun ‘aẓīm(un).&#x20;
+Khatamallāhu ‘alā qulūbihim wa ‘alā sam‘ihim wa ‘alā abṣārihim gisyāwatuw wa lahum ‘ażābun ‘aẓīm(un).
 
 ## 2:8
 
-Wa minan-nāsi may yaqūlu āmannā billāhi wa bil-yaumil-ākhiri wa mā hum bimu'minīn(a).&#x20;
+Wa minan-nāsi may yaqūlu āmannā billāhi wa bil-yaumil-ākhiri wa mā hum bimu'minīn(a).
 
 ## 2:9
 
-Yukhādi‘ūnallāha wal-lażīna āmanū wa mā yakhda‘ūna illā anfusahum wa mā yasy‘urūn(a).&#x20;
+Yukhādi‘ūnallāha wal-lażīna āmanū wa mā yakhda‘ūna illā anfusahum wa mā yasy‘urūn(a).
 
 ## 2:10
 
-Fī qulūbihim maraḍun fa zādahumullāhu maraḍā(n), wa lahum ‘ażābun alīmum bimā kānū yakżibūn(a).&#x20;
+Fī qulūbihim maraḍun fa zādahumullāhu maraḍā(n), wa lahum ‘ażābun alīmum bimā kānū yakżibūn(a).
 
 ## 2:11
 
-Wa iżā qīla lahum lā tufsidū fil-arḍ(i), qālū innamā naḥnu muṣliḥūn(a).&#x20;
+Wa iżā qīla lahum lā tufsidū fil-arḍ(i), qālū innamā naḥnu muṣliḥūn(a).
 
 ## 2:12
 
-Alā innahum humul-mufsidūna wa lākil lā yasy‘urūn(a).&#x20;
+Alā innahum humul-mufsidūna wa lākil lā yasy‘urūn(a).
 
 ## 2:13
 
-Wa iżā qīla lahum āminū kamā āmanan nāsu qālū anu'minu kamā āmanas-sufahā'(u), alā innahum humus-sufahā'u wa lākil lā ya‘lamūn(a).&#x20;
+Wa iżā qīla lahum āminū kamā āmanan nāsu qālū anu'minu kamā āmanas-sufahā'(u), alā innahum humus-sufahā'u wa lākil lā ya‘lamūn(a).
 
 ## 2:14
 
-Wa iżā laqul-lażīna āmanū qālū āmannā, wa iżā khalau ilā syayāṭīnihim qālū innā ma‘akum, innamā naḥnu mustahzi'ūn(a).&#x20;
+Wa iżā laqul-lażīna āmanū qālū āmannā, wa iżā khalau ilā syayāṭīnihim qālū innā ma‘akum, innamā naḥnu mustahzi'ūn(a).
 
 ## 2:15
 
-Allāhu yastahzi'u bihim wa yamudduhum fī ṭugyānihim ya‘mahūn(a).&#x20;
+Allāhu yastahzi'u bihim wa yamudduhum fī ṭugyānihim ya‘mahūn(a).
 
 ## 2:16
 
-Ulā'ikal-lażīnasytarawuḍ-ḍalālata bil-hudā, famā rabiḥat tijāratuhum wa mā kānū muhtadīn(a).&#x20;
+Ulā'ikal-lażīnasytarawuḍ-ḍalālata bil-hudā, famā rabiḥat tijāratuhum wa mā kānū muhtadīn(a).
 
 ## 2:17
 
-Maṡaluhum kamaṡalil-lażistauqada nārā(n), falammā aḍā'at mā ḥaulahūū  żahaballāhu binūrihim wa tarakahum fī ẓulumātil lā yubṣirūn(a).&#x20;
+Maṡaluhum kamaṡalil-lażistauqada nārā(n), falammā aḍā'at mā ḥaulahūū  żahaballāhu binūrihim wa tarakahum fī ẓulumātil lā yubṣirūn(a).
 
 ## 2:18
 
@@ -107,243 +107,243 @@ Maṡaluhum kamaṡalil-lażistauqada nārā(n), falammā aḍā'at mā ḥaulah
 
 ## 2:19
 
-Au kaṣayyibim minas-samā'i fīhi ẓulumātuw wa ra‘duw wa barq(un), yaj‘alūna aṣābi‘ahum fī āżānihim minaṣ-ṣawā‘iqi ḥażaral-maut(i), wallāhu muḥīṭum bil- kāfirīn(a).&#x20;
+Au kaṣayyibim minas-samā'i fīhi ẓulumātuw wa ra‘duw wa barq(un), yaj‘alūna aṣābi‘ahum fī āżānihim minaṣ-ṣawā‘iqi ḥażaral-maut(i), wallāhu muḥīṭum bil- kāfirīn(a).
 
 ## 2:20
 
-Yakādul-barqu yakhṭafu abṣārahum, kullamā aḍā'a lahum masyau fīh(i), wa iżā aẓlama ‘alaihim qāmū, wa lau syā'allāhu lażahaba bisam‘ihim wa abṣārihim, innallāha ‘alā kulli syai'in qadīr(un). &#x20;
+Yakādul-barqu yakhṭafu abṣārahum, kullamā aḍā'a lahum masyau fīh(i), wa iżā aẓlama ‘alaihim qāmū, wa lau syā'allāhu lażahaba bisam‘ihim wa abṣārihim, innallāha ‘alā kulli syai'in qadīr(un).
 
 ## 2:21
 
-Yā ayyuhan-nāsu‘budū rabbakumul-lażī khalaqakum wal-lażīna min qablikum la‘allakum tattaqūn(a).&#x20;
+Yā ayyuhan-nāsu‘budū rabbakumul-lażī khalaqakum wal-lażīna min qablikum la‘allakum tattaqūn(a).
 
 ## 2:22
 
-Allażī ja‘ala lakumul-arḍa firāsyaw was-samā'a binā'ā(n), wa anzala minas-samā'i mā'an fa akhraja bihī minaṡ-ṡamarāti rizqal lakum, falā taj‘alū lillāhi andādaw wa antum ta‘lamūn(a).&#x20;
+Allażī ja‘ala lakumul-arḍa firāsyaw was-samā'a binā'ā(n), wa anzala minas-samā'i mā'an fa akhraja bihī minaṡ-ṡamarāti rizqal lakum, falā taj‘alū lillāhi andādaw wa antum ta‘lamūn(a).
 
 ## 2:23
 
-Wa in kuntum fī raibim mimmā nazzalnā ‘alā ‘abdinā fa'tū bisūratim mim miṡlih(ī), wad‘ū syuhadā'akum min dūnillāhi in kuntum ṣādiqīn(a). &#x20;
+Wa in kuntum fī raibim mimmā nazzalnā ‘alā ‘abdinā fa'tū bisūratim mim miṡlih(ī), wad‘ū syuhadā'akum min dūnillāhi in kuntum ṣādiqīn(a).
 
 ## 2:24
 
-Fa'illam taf‘alū wa lan taf‘alū fattaqun-nāral-latī waqūduhan-nāsu wal-ḥijārah(tu), u‘iddat lil-kāfirīn(a).&#x20;
+Fa'illam taf‘alū wa lan taf‘alū fattaqun-nāral-latī waqūduhan-nāsu wal-ḥijārah(tu), u‘iddat lil-kāfirīn(a).
 
 ## 2:25
 
-Wa basysyiril-lażīna āmanū wa ‘amiluṣ-ṣāliḥāti anna lahum jannātin tajrī min taḥtihal- anhār(u), kullamā ruziqū minhā min ṡamaratir rizqā(n), qālū hāżal-lażī ruziqnā min qablu wa utū bihī mutasyābihā(n), wa lahum fīhā azwājum muṭahharatuw wa hum fīhā khālidūn(a).&#x20;
+Wa basysyiril-lażīna āmanū wa ‘amiluṣ-ṣāliḥāti anna lahum jannātin tajrī min taḥtihal- anhār(u), kullamā ruziqū minhā min ṡamaratir rizqā(n), qālū hāżal-lażī ruziqnā min qablu wa utū bihī mutasyābihā(n), wa lahum fīhā azwājum muṭahharatuw wa hum fīhā khālidūn(a).
 
 ## 2:26
 
-Innallāha lā yastaḥyī ay yaḍriba maṡalam mā ba‘ūḍatan famā fauqahā, fa'ammal- lażīna āmanū faya‘lamūna annahul-ḥaqqu mir rabbihim, wa ammal-lażīna kafarū fayaqūlūna māżā arādallāhu bihāżā maṡalā(n), yuḍillu bihī kaṡīraw wa yahdī bihī kaṡīrā(n), wa mā yuḍillu bihī illal-fāsiqīn(a).&#x20;
+Innallāha lā yastaḥyī ay yaḍriba maṡalam mā ba‘ūḍatan famā fauqahā, fa'ammal- lażīna āmanū faya‘lamūna annahul-ḥaqqu mir rabbihim, wa ammal-lażīna kafarū fayaqūlūna māżā arādallāhu bihāżā maṡalā(n), yuḍillu bihī kaṡīraw wa yahdī bihī kaṡīrā(n), wa mā yuḍillu bihī illal-fāsiqīn(a).
 
 ## 2:27
 
-Allażīna yanquḍūna ‘ahdallāhi mim ba‘di mīṡāqih(ī), wa yaqṭa‘ūna mā amarallāhu bihī ay yūṣala wa yufsidūna fil-arḍ(i), ulā'ika humul-khāsirūn(a).&#x20;
+Allażīna yanquḍūna ‘ahdallāhi mim ba‘di mīṡāqih(ī), wa yaqṭa‘ūna mā amarallāhu bihī ay yūṣala wa yufsidūna fil-arḍ(i), ulā'ika humul-khāsirūn(a).
 
 ## 2:28
 
-Kaifa takfurūna billāhi wa kuntum amwātan fa'aḥyākum, ṡumma yumītukum ṡumma yuḥyīkum ṡumma ilaihi turja‘ūn(a). &#x20;
+Kaifa takfurūna billāhi wa kuntum amwātan fa'aḥyākum, ṡumma yumītukum ṡumma yuḥyīkum ṡumma ilaihi turja‘ūn(a).
 
 ## 2:29
 
-Huwal-lażī khalaqa lakum mā fil-arḍi jamī‘ā(n), ṡummastawā ilas-samā'i fasawwāhunna sab‘a samāwāt(in), wa huwa bikulli syai'in ‘alīm(un).&#x20;
+Huwal-lażī khalaqa lakum mā fil-arḍi jamī‘ā(n), ṡummastawā ilas-samā'i fasawwāhunna sab‘a samāwāt(in), wa huwa bikulli syai'in ‘alīm(un).
 
 ## 2:30
 
-Wa iż qāla rabbuka lil-malā'ikati innī jā‘ilun fil-arḍi khalīfah(tan), qālū ataj‘alu fīhā may yufsidu fīhā wa yasfikud-dimā'(a), wa naḥnu nusabbiḥu biḥamdika wa nuqaddisu lak(a), qāla innī a‘lamu mā lā ta‘lamūn(a).&#x20;
+Wa iż qāla rabbuka lil-malā'ikati innī jā‘ilun fil-arḍi khalīfah(tan), qālū ataj‘alu fīhā may yufsidu fīhā wa yasfikud-dimā'(a), wa naḥnu nusabbiḥu biḥamdika wa nuqaddisu lak(a), qāla innī a‘lamu mā lā ta‘lamūn(a).
 
 ## 2:31
 
-Wa ‘allama ādamal-asmā'a kullahā ṡumma ‘araḍahum ‘alal-malā'ikati faqāla ambi'ūnī bi'asmā'i hā'ulā'i in kuntum ṣādiqīn(a).&#x20;
+Wa ‘allama ādamal-asmā'a kullahā ṡumma ‘araḍahum ‘alal-malā'ikati faqāla ambi'ūnī bi'asmā'i hā'ulā'i in kuntum ṣādiqīn(a).
 
 ## 2:32
 
-Qālū subḥānaka lā ‘ilma lanā illā mā ‘allamtanā, innaka antal-‘alīmul-ḥakīm(u).&#x20;
+Qālū subḥānaka lā ‘ilma lanā illā mā ‘allamtanā, innaka antal-‘alīmul-ḥakīm(u).
 
 ## 2:33
 
-Qāla yā ādamu ambi'hum bi'asmā'ihim, falammā amba'ahum bi'asmā'ihim, qāla alam aqul lakum innī a‘lamu gaibas-samāwāti wal-arḍ(i), wa a‘lamu mā tubdūna wa mā kuntum taktumūn(a).&#x20;
+Qāla yā ādamu ambi'hum bi'asmā'ihim, falammā amba'ahum bi'asmā'ihim, qāla alam aqul lakum innī a‘lamu gaibas-samāwāti wal-arḍ(i), wa a‘lamu mā tubdūna wa mā kuntum taktumūn(a).
 
 ## 2:34
 
-Wa iż qulnā lil-malā'ikatisjudū li ādama fasajadū illā iblīs(a), abā wastakbara wa kāna minal-kāfirīn(a).&#x20;
+Wa iż qulnā lil-malā'ikatisjudū li ādama fasajadū illā iblīs(a), abā wastakbara wa kāna minal-kāfirīn(a).
 
 ## 2:35
 
-Wa qulnā yā ādamuskun anta wa zaujukal-jannata wa kulā minhā ragadan ḥaiṡu syi'tumā,  wa lā taqrabā hāżihisy-syajarata fa takūnā minaẓ-ẓālimīn(a).&#x20;
+Wa qulnā yā ādamuskun anta wa zaujukal-jannata wa kulā minhā ragadan ḥaiṡu syi'tumā,  wa lā taqrabā hāżihisy-syajarata fa takūnā minaẓ-ẓālimīn(a).
 
 ## 2:36
 
-Fa'azallahumasy-syaiṭānu ‘anhā fa akhrajahumā mimmā kānā fīh(i), wa qulnahbiṭū ba‘ḍukum liba‘ḍin ‘aduww(un), wa lakum fil-arḍi mustaqarruw wa matā‘un ilā ḥīn(in).&#x20;
+Fa'azallahumasy-syaiṭānu ‘anhā fa akhrajahumā mimmā kānā fīh(i), wa qulnahbiṭū ba‘ḍukum liba‘ḍin ‘aduww(un), wa lakum fil-arḍi mustaqarruw wa matā‘un ilā ḥīn(in).
 
 ## 2:37
 
-Fatalaqqā ādamu mir rabbihī kalimātin fatāba ‘alaih(i), innahū huwat-tawwābur- raḥīm(u).&#x20;
+Fatalaqqā ādamu mir rabbihī kalimātin fatāba ‘alaih(i), innahū huwat-tawwābur- raḥīm(u).
 
 ## 2:38
 
-Qulnahbiṭū minhā jamī‘ā(n), fa'immā ya'tiyannakum minnī hudan faman tabi‘a hudāya falā khaufun ‘alaihim wa lā hum yaḥzanūn(a). &#x20;
+Qulnahbiṭū minhā jamī‘ā(n), fa'immā ya'tiyannakum minnī hudan faman tabi‘a hudāya falā khaufun ‘alaihim wa lā hum yaḥzanūn(a).
 
 ## 2:39
 
-Wal-lażīna kafarū wa każżabū bi'āyātinā ulā'ika aṣḥābun-nār(i), hum fīhā khālidūn(a). &#x20;
+Wal-lażīna kafarū wa każżabū bi'āyātinā ulā'ika aṣḥābun-nār(i), hum fīhā khālidūn(a).
 
 ## 2:40
 
-Yā banī isrā'īlażkurū ni‘matiyal-latī an‘amtu ‘alaikum wa aufū bi‘ahdī ūfi bi‘ahdikum, wa iyyāya farhabūn(i). &#x20;
+Yā banī isrā'īlażkurū ni‘matiyal-latī an‘amtu ‘alaikum wa aufū bi‘ahdī ūfi bi‘ahdikum, wa iyyāya farhabūn(i).
 
 ## 2:41
 
-Wa āminū bimā anzaltu muṣaddiqal limā ma‘akum wa lā takūnū awwala kāfirim bih(ī), wa lā tasytarū bi'āyātī ṡamanan qalīlā(n), wa iyyāya fattaqūn(i).&#x20;
+Wa āminū bimā anzaltu muṣaddiqal limā ma‘akum wa lā takūnū awwala kāfirim bih(ī), wa lā tasytarū bi'āyātī ṡamanan qalīlā(n), wa iyyāya fattaqūn(i).
 
 ## 2:42
 
-Wa lā talbisul-ḥaqqa bil-bāṭili wa taktumul-ḥaqqa wa antum ta‘lamūn(a). &#x20;
+Wa lā talbisul-ḥaqqa bil-bāṭili wa taktumul-ḥaqqa wa antum ta‘lamūn(a).
 
 ## 2:43
 
-Wa aqīmuṣ-ṣalāta wa ātuz-zakāta warka‘ū ma‘ar-rāki‘īn(a).&#x20;
+Wa aqīmuṣ-ṣalāta wa ātuz-zakāta warka‘ū ma‘ar-rāki‘īn(a).
 
 ## 2:44
 
-Ata'murūnan-nāsa bil-birri wa tansauna anfusakum wa antum tatlūnal-kitāb(a), afalā ta‘qilūn(a). &#x20;
+Ata'murūnan-nāsa bil-birri wa tansauna anfusakum wa antum tatlūnal-kitāb(a), afalā ta‘qilūn(a).
 
 ## 2:45
 
-Wasta‘īnū biṣ-ṣabri waṣ-ṣalāh(ti), wa innahā lakabīratun illā ‘alal-khāsyi‘īn(a).&#x20;
+Wasta‘īnū biṣ-ṣabri waṣ-ṣalāh(ti), wa innahā lakabīratun illā ‘alal-khāsyi‘īn(a).
 
 ## 2:46
 
-Allażīna yaẓunnūna annahum mulāqū rabbihim wa annahum ilaihi rāji‘ūn(a). &#x20;
+Allażīna yaẓunnūna annahum mulāqū rabbihim wa annahum ilaihi rāji‘ūn(a).
 
 ## 2:47
 
-Yā banī isrā'īlażkurū ni‘matiyal-latī an‘amtu ‘alaikum wa annī faḍḍaltukum ‘alal- ‘ālamīn(a).&#x20;
+Yā banī isrā'īlażkurū ni‘matiyal-latī an‘amtu ‘alaikum wa annī faḍḍaltukum ‘alal- ‘ālamīn(a).
 
 ## 2:48
 
-Wattaqū yaumal lā tajzī nafsun ‘an nafsin syai'aw wa lā yuqbalu minhā syafā‘atuw wa lā yu'khażu minhā ‘adluw wa lā hum yunṣarūn(a).&#x20;
+Wattaqū yaumal lā tajzī nafsun ‘an nafsin syai'aw wa lā yuqbalu minhā syafā‘atuw wa lā yu'khażu minhā ‘adluw wa lā hum yunṣarūn(a).
 
 ## 2:49
 
-Wa iż najjainākum min āli fir‘auna yasūmūnakum sū'al-‘ażābi yużabbiḥūna abnā'akum wa yastaḥyūna nisā'akum, wa fī żālikum balā'um mir rabbikum ‘aẓīm(un). &#x20;
+Wa iż najjainākum min āli fir‘auna yasūmūnakum sū'al-‘ażābi yużabbiḥūna abnā'akum wa yastaḥyūna nisā'akum, wa fī żālikum balā'um mir rabbikum ‘aẓīm(un).
 
 ## 2:50
 
-Wa iż faraqnā bikumul-baḥra fa'anjainākum wa agraqnā āla fir‘auna wa antum tanẓurūn(a). &#x20;
+Wa iż faraqnā bikumul-baḥra fa'anjainākum wa agraqnā āla fir‘auna wa antum tanẓurūn(a).
 
 ## 2:51
 
-Wa iż wā‘adnā mūsā arba‘īna lailatan ṡummattakhażtumul-‘ijla mim ba‘dihī wa antum ẓālimūn(a).&#x20;
+Wa iż wā‘adnā mūsā arba‘īna lailatan ṡummattakhażtumul-‘ijla mim ba‘dihī wa antum ẓālimūn(a).
 
 ## 2:52
 
-Ṡumma ‘afaunā ‘ankum mim ba‘di żālika la‘allakum tasykurūn(a). &#x20;
+Ṡumma ‘afaunā ‘ankum mim ba‘di żālika la‘allakum tasykurūn(a).
 
 ## 2:53
 
-Wa iż ātainā mūsal-kitāba wal-furqāna la‘allakum tahtadūn(a).&#x20;
+Wa iż ātainā mūsal-kitāba wal-furqāna la‘allakum tahtadūn(a).
 
 ## 2:54
 
-Wa iż qāla mūsā liqaumihī yā qaumi innakum ẓalamtum anfusakum bittikhāżikumul- ‘ijla fatūbū ilā bāri'ikum faqtulū anfusakum, żālikum khairul lakum ‘inda bāri'ikum, fatāba ‘alaikum, innahū huwat-tawwābur-raḥīm(u). &#x20;
+Wa iż qāla mūsā liqaumihī yā qaumi innakum ẓalamtum anfusakum bittikhāżikumul- ‘ijla fatūbū ilā bāri'ikum faqtulū anfusakum, żālikum khairul lakum ‘inda bāri'ikum, fatāba ‘alaikum, innahū huwat-tawwābur-raḥīm(u).
 
 ## 2:55
 
-Wa iż qultum yā mūsā lan nu'mina laka ḥattā narallāha jahratan fa'akhażatkumuṣ-ṣā‘iqatu wa antum tanẓurūn(a).&#x20;
+Wa iż qultum yā mūsā lan nu'mina laka ḥattā narallāha jahratan fa'akhażatkumuṣ-ṣā‘iqatu wa antum tanẓurūn(a).
 
 ## 2:56
 
-Ṡumma ba‘aṡnākum mim ba‘di mautikum la‘allakum tasykurūn(a).&#x20;
+Ṡumma ba‘aṡnākum mim ba‘di mautikum la‘allakum tasykurūn(a).
 
 ## 2:57
 
-Wa ẓallalnā ‘alaikumul-gamāma wa anzalnā ‘alaikumul-manna was-salwā, kulū min ṭayyibāti mā razaqnākum, wa mā ẓalamūnā wa lākin kānū anfusahum yaẓlimūn(a).&#x20;
+Wa ẓallalnā ‘alaikumul-gamāma wa anzalnā ‘alaikumul-manna was-salwā, kulū min ṭayyibāti mā razaqnākum, wa mā ẓalamūnā wa lākin kānū anfusahum yaẓlimūn(a).
 
 ## 2:58
 
-Wa iż qulnadkhulū hāżihil-qaryata fakulū minhā ḥaiṡu syi'tum ragadaw wadkhulul- bāba sujjadaw wa qūlū ḥiṭṭatun nagfir lakum khaṭāyākum, wa sanazīdul-muḥsinīn(a). &#x20;
+Wa iż qulnadkhulū hāżihil-qaryata fakulū minhā ḥaiṡu syi'tum ragadaw wadkhulul- bāba sujjadaw wa qūlū ḥiṭṭatun nagfir lakum khaṭāyākum, wa sanazīdul-muḥsinīn(a).
 
 ## 2:59
 
-Fabaddalal-lażīna ẓalamū qaulan gairal-lażī qīla lahum fa anzalnā ‘alal-lażīna ẓalamū rijzam minas-samā'i bimā kānū yafsuqūn(a).&#x20;
+Fabaddalal-lażīna ẓalamū qaulan gairal-lażī qīla lahum fa anzalnā ‘alal-lażīna ẓalamū rijzam minas-samā'i bimā kānū yafsuqūn(a).
 
 ## 2:60
 
-Wa iżistasqā mūsā liqaumihī faqulnaḍrib bi‘aṣākal-ḥajar(a), fanfajarat minhuṡnatā ‘asyrata ‘ainā(n), qad ‘alima kullu unāsim masyrabahum, kulū wasyrabū mir rizqillāhi wa lā ta‘ṡau fil-arḍi mufsidīn(a). &#x20;
+Wa iżistasqā mūsā liqaumihī faqulnaḍrib bi‘aṣākal-ḥajar(a), fanfajarat minhuṡnatā ‘asyrata ‘ainā(n), qad ‘alima kullu unāsim masyrabahum, kulū wasyrabū mir rizqillāhi wa lā ta‘ṡau fil-arḍi mufsidīn(a).
 
 ## 2:61
 
-Wa iż qultum yā mūsā lan naṣbira ‘alā ṭa‘āmiw wāḥidin fad‘u lanā rabbaka yukhrij lanā mimmā tumbitul-arḍu mim baqlihā wa qiṡṡā'ihā wa fūmihā wa ‘adasihā wa baṣalihā, qāla atastabdilūnal-lażī huwa adnā bil-lażī huwa khair(un), ihbiṭū miṣran fa inna lakum mā sa'altum, wa ḍuribat ‘alaihimuż-żillatu wal-maskanatu wa bā'ū bigaḍabim minallāh(i), żālika bi'annahum kānū yakfurūna bi'āyātillāhi wa yaqtulūnan- nabiyyīna bi gairil-ḥaqq(i), żālika bimā ‘aṣaw wa kānū ya‘tadūn(a).&#x20;
+Wa iż qultum yā mūsā lan naṣbira ‘alā ṭa‘āmiw wāḥidin fad‘u lanā rabbaka yukhrij lanā mimmā tumbitul-arḍu mim baqlihā wa qiṡṡā'ihā wa fūmihā wa ‘adasihā wa baṣalihā, qāla atastabdilūnal-lażī huwa adnā bil-lażī huwa khair(un), ihbiṭū miṣran fa inna lakum mā sa'altum, wa ḍuribat ‘alaihimuż-żillatu wal-maskanatu wa bā'ū bigaḍabim minallāh(i), żālika bi'annahum kānū yakfurūna bi'āyātillāhi wa yaqtulūnan- nabiyyīna bi gairil-ḥaqq(i), żālika bimā ‘aṣaw wa kānū ya‘tadūn(a).
 
 ## 2:62
 
-Innal-lażīna āmanū wal-lażīna hādū wan-naṣārā waṣ-ṣābi'īna man āmana billāhi wal- yaumil-ākhiri wa ‘amila ṣāliḥan fa lahum ajruhum ‘inda rabbihim, wa lā khaufun ‘alaihim wa lā hum yaḥzanūn(a).&#x20;
+Innal-lażīna āmanū wal-lażīna hādū wan-naṣārā waṣ-ṣābi'īna man āmana billāhi wal- yaumil-ākhiri wa ‘amila ṣāliḥan fa lahum ajruhum ‘inda rabbihim, wa lā khaufun ‘alaihim wa lā hum yaḥzanūn(a).
 
 ## 2:63
 
-Wa iż akhażnā mīṡāqakum wa rafa‘nā fauqakumuṭ-ṭūr(a), khużū mā ātainākum biquwwatiw ważkurū mā fīhi la‘allakum tattaqūn(a).&#x20;
+Wa iż akhażnā mīṡāqakum wa rafa‘nā fauqakumuṭ-ṭūr(a), khużū mā ātainākum biquwwatiw ważkurū mā fīhi la‘allakum tattaqūn(a).
 
 ## 2:64
 
-Ṡumma tawallaitum mim ba‘di żālika falau lā faḍlullāhi ‘alaikum wa raḥmatuhū lakuntum minal-khāsirīn(a). &#x20;
+Ṡumma tawallaitum mim ba‘di żālika falau lā faḍlullāhi ‘alaikum wa raḥmatuhū lakuntum minal-khāsirīn(a).
 
 ## 2:65
 
-Wa laqad ‘alimtumul-lażīna‘tadau minkum fis-sabti faqulnā lahum kūnū qiradatan khāsi'īn(a). &#x20;
+Wa laqad ‘alimtumul-lażīna‘tadau minkum fis-sabti faqulnā lahum kūnū qiradatan khāsi'īn(a).
 
 ## 2:66
 
-Faja‘alnāhā nakālal limā baina yadaihā wa mā khalfahā wa mau‘iẓatal lil-muttaqīn(a).&#x20;
+Faja‘alnāhā nakālal limā baina yadaihā wa mā khalfahā wa mau‘iẓatal lil-muttaqīn(a).
 
 ## 2:67
 
-Wa iż qāla mūsā liqaumihī innallāha ya'murukum an tażbaḥū baqarah(tan), qālū atattakhiżunā huzuwā(n), qāla a‘ūżu billāhi an akūna minal-jāhilīn(a).&#x20;
+Wa iż qāla mūsā liqaumihī innallāha ya'murukum an tażbaḥū baqarah(tan), qālū atattakhiżunā huzuwā(n), qāla a‘ūżu billāhi an akūna minal-jāhilīn(a).
 
 ## 2:68
 
-Qālud‘u lanā rabbaka yubayyil lanā mā hiy(a), qāla innahū yaqūlu innahā baqaratul lā fāriḍuw wa lā bikr(un), ‘awānum baina żālik(a), faf‘alū mā tu'marūn(a). &#x20;
+Qālud‘u lanā rabbaka yubayyil lanā mā hiy(a), qāla innahū yaqūlu innahā baqaratul lā fāriḍuw wa lā bikr(un), ‘awānum baina żālik(a), faf‘alū mā tu'marūn(a).
 
 ## 2:69
 
-Qālud‘u lanā rabbaka yubayyil lanā mā launuhā, qāla innahū yaqūlu innahā baqaratun ṣafrā'u fāqi‘ul launuhā tasurrun-nāẓirīn(a).&#x20;
+Qālud‘u lanā rabbaka yubayyil lanā mā launuhā, qāla innahū yaqūlu innahā baqaratun ṣafrā'u fāqi‘ul launuhā tasurrun-nāẓirīn(a).
 
 ## 2:70
 
-Qālud‘u lanā rabbaka yubayyil lanā mā hiy(a), innal-baqara tasyābaha ‘alainā, wa innā in syā'allāhu lamuhtadūn(a).&#x20;
+Qālud‘u lanā rabbaka yubayyil lanā mā hiy(a), innal-baqara tasyābaha ‘alainā, wa innā in syā'allāhu lamuhtadūn(a).
 
 ## 2:71
 
-Qāla innahū yaqūlu innahā baqaratul lā żalūlun tuṡīrul-arḍa wa lā tasqil-ḥarṡ(a), musallamatul lā syiyata fīhā, qālul-'āna ji'ta bil-ḥaqqi fażabaḥūhā wa mā kādū yaf‘alūn(a).&#x20;
+Qāla innahū yaqūlu innahā baqaratul lā żalūlun tuṡīrul-arḍa wa lā tasqil-ḥarṡ(a), musallamatul lā syiyata fīhā, qālul-'āna ji'ta bil-ḥaqqi fażabaḥūhā wa mā kādū yaf‘alūn(a).
 
 ## 2:72
 
-Wa iż qultum nafsan faddāra'tum fīhā, wallāhu mukhrijum mā kuntum taktumūn(a).&#x20;
+Wa iż qultum nafsan faddāra'tum fīhā, wallāhu mukhrijum mā kuntum taktumūn(a).
 
 ## 2:73
 
-Faqulnaḍribūhu biba‘ḍihā, każālika yuḥyillāhul-mautā wa yurīkum āyātihī la‘allakum ta‘qilūn(a).&#x20;
+Faqulnaḍribūhu biba‘ḍihā, każālika yuḥyillāhul-mautā wa yurīkum āyātihī la‘allakum ta‘qilūn(a).
 
 ## 2:74
 
-Ṡumma qasat qulūbukum mim ba‘di żālika fahiya kal-ḥijārati au asyaddu qaswah(tan), wa inna minal-ḥijārati lamā yatafajjaru minhul-anhār(u), wa inna minhā lamā yasysyaqqaqu fayakhruju minhul-mā'(u), wa inna minhā lamā yahbiṭu min khasy-yatillāh(i), wa mallāhu bigāfilin ‘ammā ta‘malūn(a).&#x20;
+Ṡumma qasat qulūbukum mim ba‘di żālika fahiya kal-ḥijārati au asyaddu qaswah(tan), wa inna minal-ḥijārati lamā yatafajjaru minhul-anhār(u), wa inna minhā lamā yasysyaqqaqu fayakhruju minhul-mā'(u), wa inna minhā lamā yahbiṭu min khasy-yatillāh(i), wa mallāhu bigāfilin ‘ammā ta‘malūn(a).
 
 ## 2:75
 
-Afa taṭma‘ūna ay yu'minū lakum wa qad kāna farīqum minhum yasma‘ūna kalāmallāhi ṡumma yuḥarrifūnahū mim ba‘di mā ‘aqalūhu wa hum ya‘lamūn(a).&#x20;
+Afa taṭma‘ūna ay yu'minū lakum wa qad kāna farīqum minhum yasma‘ūna kalāmallāhi ṡumma yuḥarrifūnahū mim ba‘di mā ‘aqalūhu wa hum ya‘lamūn(a).
 
 ## 2:76
 
-Wa iżā laqul-lażīna āmanū qālū āmannā, wa iżā khalā ba‘ḍuhum ilā ba‘ḍin qālū atuḥaddiṡūnahum bimā fataḥallāhu ‘alaikum liyuḥājjūkum bihī ‘inda rabbikum, afalā ta‘qilūn(a). &#x20;
+Wa iżā laqul-lażīna āmanū qālū āmannā, wa iżā khalā ba‘ḍuhum ilā ba‘ḍin qālū atuḥaddiṡūnahum bimā fataḥallāhu ‘alaikum liyuḥājjūkum bihī ‘inda rabbikum, afalā ta‘qilūn(a).
 
 ## 2:77
 
-Awalā ya‘lamūna annallāha ya‘lamu mā yusirrūna wa mā yu‘linūn(a). &#x20;
+Awalā ya‘lamūna annallāha ya‘lamu mā yusirrūna wa mā yu‘linūn(a).
 
 ## 2:78
 
-Wa minhum umiyyūna lā ya‘lamūnal-kitāba illā amāniyya wa in hum illā yaẓunnūn(a). &#x20;
+Wa minhum umiyyūna lā ya‘lamūnal-kitāba illā amāniyya wa in hum illā yaẓunnūn(a).
 
 ## 2:79
 
@@ -351,1003 +351,1003 @@ Fawailul lil-lażīna yaktubūnal-kitāba bi'aidīhim ṡumma yaqūlūna hāżā
 
 ## 2:80
 
-Wa qālū lan tamassanan-nāru illā ayyāmam ma‘dūdah (tan), qul attakhażtum ‘indallāhi ‘ahdan falay yukhlifallāhu ‘ahdahū am taqūlūna ‘alallāhi mā lā ta‘lamūn(a). &#x20;
+Wa qālū lan tamassanan-nāru illā ayyāmam ma‘dūdah (tan), qul attakhażtum ‘indallāhi ‘ahdan falay yukhlifallāhu ‘ahdahū am taqūlūna ‘alallāhi mā lā ta‘lamūn(a).
 
 ## 2:81
 
-Balā man kasaba sayyi'ataw wa aḥāṭat bihī khaṭī'atuhū fa ulā'ika aṣḥābun-nār(i), hum fīhā khālidūn(a). &#x20;
+Balā man kasaba sayyi'ataw wa aḥāṭat bihī khaṭī'atuhū fa ulā'ika aṣḥābun-nār(i), hum fīhā khālidūn(a).
 
 ## 2:82
 
-Wal-lażīna āmanū wa ‘amiluṣ-ṣāliḥāti ulā'ika aṣḥābul-jannah(ti), hum fīhā khālidūn(a). &#x20;
+Wal-lażīna āmanū wa ‘amiluṣ-ṣāliḥāti ulā'ika aṣḥābul-jannah(ti), hum fīhā khālidūn(a).
 
 ## 2:83
 
-Wa iż akhażnā mīṡāqa banī isrā'īla lā ta‘budūna illallāha wa bil-wālidaini iḥsānaw wa żil-qurbā wal-yatāmā wal-masākīni wa qūlū lin-nāsi ḥusnaw wa aqīmuṣ-ṣalāta wa ātuz-zakāh(ta), ṡumma tawallaitum illā qalīlam minkum wa antum mu‘riḍūn(a). &#x20;
+Wa iż akhażnā mīṡāqa banī isrā'īla lā ta‘budūna illallāha wa bil-wālidaini iḥsānaw wa żil-qurbā wal-yatāmā wal-masākīni wa qūlū lin-nāsi ḥusnaw wa aqīmuṣ-ṣalāta wa ātuz-zakāh(ta), ṡumma tawallaitum illā qalīlam minkum wa antum mu‘riḍūn(a).
 
 ## 2:84
 
-Wa iż akhażnā mīṡāqakum lā tasfikūna dimā'akum wa lā tukhrijūna anfusakum min diyārikum ṡumma aqrartum wa antum tasyhadūn(a). &#x20;
+Wa iż akhażnā mīṡāqakum lā tasfikūna dimā'akum wa lā tukhrijūna anfusakum min diyārikum ṡumma aqrartum wa antum tasyhadūn(a).
 
 ## 2:85
 
-Ṡumma antum hā'ulā'i taqtulūna anfusakum wa tukhrijūna farīqam minkum min diyārihim taẓāharūna ‘alaihim bil-iṡmi wal-‘udwān(i), wa iy ya'tūkum usārā tufādūhum wa huwa muḥarramun ‘alaikum ikhrājuhum, afa tu'minūna biba‘ḍil-kitābi wa takfurūna bi ba‘ḍ(in), famā jazā'u may yaf‘alu żālika minkum illā khizyun fil-ḥayātid-dun-yā, wa yaumal-qiyāmati yuraddūna ilā asyaddil-‘ażāb(i), wa mallāhu bigāfilin ‘ammā ta‘malūn(a). &#x20;
+Ṡumma antum hā'ulā'i taqtulūna anfusakum wa tukhrijūna farīqam minkum min diyārihim taẓāharūna ‘alaihim bil-iṡmi wal-‘udwān(i), wa iy ya'tūkum usārā tufādūhum wa huwa muḥarramun ‘alaikum ikhrājuhum, afa tu'minūna biba‘ḍil-kitābi wa takfurūna bi ba‘ḍ(in), famā jazā'u may yaf‘alu żālika minkum illā khizyun fil-ḥayātid-dun-yā, wa yaumal-qiyāmati yuraddūna ilā asyaddil-‘ażāb(i), wa mallāhu bigāfilin ‘ammā ta‘malūn(a).
 
 ## 2:86
 
-Ulā'ikal-lażīnasytarawul-ḥayātad-dun-yā bil-ākhirah(ti), falā yukhaffafu ‘anhumul-‘ażābu wa lā hum yunṣarūn(a). &#x20;
+Ulā'ikal-lażīnasytarawul-ḥayātad-dun-yā bil-ākhirah(ti), falā yukhaffafu ‘anhumul-‘ażābu wa lā hum yunṣarūn(a).
 
 ## 2:87
 
-Wa laqad ātainā mūsal-kitāba wa qaffainā mim ba‘dihī bir-rusul(i), wa ātainā ‘īsabna maryamal-bayyināti wa ayyadnāhu birūḥil-qudus(i), afakullamā jā'akum rasūlum bimā lā tahwā anfusukumustakbartum, fafarīqan każżabtum wa farīqan taqtulūn(a). &#x20;
+Wa laqad ātainā mūsal-kitāba wa qaffainā mim ba‘dihī bir-rusul(i), wa ātainā ‘īsabna maryamal-bayyināti wa ayyadnāhu birūḥil-qudus(i), afakullamā jā'akum rasūlum bimā lā tahwā anfusukumustakbartum, fafarīqan każżabtum wa farīqan taqtulūn(a).
 
 ## 2:88
 
-Wa qālū qulūbunā gulf(un), bal la‘anahumullāhu bikufrihim faqalīlam mā yu'minūn(a). &#x20;
+Wa qālū qulūbunā gulf(un), bal la‘anahumullāhu bikufrihim faqalīlam mā yu'minūn(a).
 
 ## 2:89
 
-Wa lammā jā'akum kitābum min ‘indillāhi muṣaddiqul limā ma‘ahum, wa kānū min qablu yastaftiḥūna ‘alal-lażīna kafarū, falammā jā'ahum mā ‘arafū kafarū bih(ī), fala‘natullāhi ‘alal-kāfirīn(a). &#x20;
+Wa lammā jā'akum kitābum min ‘indillāhi muṣaddiqul limā ma‘ahum, wa kānū min qablu yastaftiḥūna ‘alal-lażīna kafarū, falammā jā'ahum mā ‘arafū kafarū bih(ī), fala‘natullāhi ‘alal-kāfirīn(a).
 
 ## 2:90
 
-Bi'samasytarau bihī anfusahum ay yakfurū bimā anzalallāhu bagyan ay yunazzilallāhu min faḍlihī ‘alā may yasyā'u min ‘ibādih(ī), fabā'ū bigaḍabin ‘alā gaḍab(in), wa lil-kāfirīna ‘ażābum muhīn(un). &#x20;
+Bi'samasytarau bihī anfusahum ay yakfurū bimā anzalallāhu bagyan ay yunazzilallāhu min faḍlihī ‘alā may yasyā'u min ‘ibādih(ī), fabā'ū bigaḍabin ‘alā gaḍab(in), wa lil-kāfirīna ‘ażābum muhīn(un).
 
 ## 2:91
 
-Wa iżā qīla lahum āminū bimā anzalallāhu qālū nu'minu bimā unzila ‘alainā wa yakfurūna bimā warā'ah(ū), wa huwal-ḥaqqu muṣaddiqal limā ma‘ahum, qul falima taqtulūna ambiyā'allāhi min qablu in kuntum mu'minīn(a). &#x20;
+Wa iżā qīla lahum āminū bimā anzalallāhu qālū nu'minu bimā unzila ‘alainā wa yakfurūna bimā warā'ah(ū), wa huwal-ḥaqqu muṣaddiqal limā ma‘ahum, qul falima taqtulūna ambiyā'allāhi min qablu in kuntum mu'minīn(a).
 
 ## 2:92
 
-Wa laqad jā'akum mūsā bil-bayyināti ṡummattakhażtumul-‘ijla mim ba‘dihī wa antum ẓālimūn(a). &#x20;
+Wa laqad jā'akum mūsā bil-bayyināti ṡummattakhażtumul-‘ijla mim ba‘dihī wa antum ẓālimūn(a).
 
 ## 2:93
 
-Wa iż akhażnā mīṡāqakum wa rafa‘nā fauqakumuṭ-ṭūr(a), khużū mā ātainākum biquwwatiw wasma‘ū, qālū sami‘nā wa ‘aṣainā, wa usyribū fī qulūbihimul-‘ijla bikufrihim, qul bi'samā ya'murukum bihī īmānukum in kuntum mu'minīn(a). &#x20;
+Wa iż akhażnā mīṡāqakum wa rafa‘nā fauqakumuṭ-ṭūr(a), khużū mā ātainākum biquwwatiw wasma‘ū, qālū sami‘nā wa ‘aṣainā, wa usyribū fī qulūbihimul-‘ijla bikufrihim, qul bi'samā ya'murukum bihī īmānukum in kuntum mu'minīn(a).
 
 ## 2:94
 
-Qul in kānat lakumud-dārul-ākhiratu ‘indallāhi khāliṣatam min dūnin-nāsi fatamannawul-mauta in kuntum ṣādiqīn(a). &#x20;
+Qul in kānat lakumud-dārul-ākhiratu ‘indallāhi khāliṣatam min dūnin-nāsi fatamannawul-mauta in kuntum ṣādiqīn(a).
 
 ## 2:95
 
-Wa lay yatamannauhu abadam bima qaddamat aidīhim, wallāhu ‘alīmum biẓ-ẓālimīn(a). &#x20;
+Wa lay yatamannauhu abadam bima qaddamat aidīhim, wallāhu ‘alīmum biẓ-ẓālimīn(a).
 
 ## 2:96
 
-Wa latajidannahum aḥraṣan-nāsi ‘alā ḥayāh(tin), wa minal-lażīna asyrakū, yawaddu aḥaduhum lau yu‘ammaru alfa sanah(tin), wa mā huwa bi muzaḥziḥihī minal-‘ażābi ay yu‘ammar(a), wallāhu baṣīrum bimā ya‘malūn(a). &#x20;
+Wa latajidannahum aḥraṣan-nāsi ‘alā ḥayāh(tin), wa minal-lażīna asyrakū, yawaddu aḥaduhum lau yu‘ammaru alfa sanah(tin), wa mā huwa bi muzaḥziḥihī minal-‘ażābi ay yu‘ammar(a), wallāhu baṣīrum bimā ya‘malūn(a).
 
 ## 2:97
 
-Qul man kāna ‘aduwwal lijibrīla fa'innahū nazzalahū ‘alā qalbika bi iżnillāhi muṣaddiqal limā baina yadaihi wa hudaw wa busyrā lil-mu'minīn(a). &#x20;
+Qul man kāna ‘aduwwal lijibrīla fa'innahū nazzalahū ‘alā qalbika bi iżnillāhi muṣaddiqal limā baina yadaihi wa hudaw wa busyrā lil-mu'minīn(a).
 
 ## 2:98
 
-Man kāna ‘aduwwal lillāhi wa malā'ikatihī wa rusulihī wa jibrīla wa mīkāla fa innallāha ‘aduwwul lil-kāfirīn(a). &#x20;
+Man kāna ‘aduwwal lillāhi wa malā'ikatihī wa rusulihī wa jibrīla wa mīkāla fa innallāha ‘aduwwul lil-kāfirīn(a).
 
 ## 2:99
 
-Wa laqad anzalnā ilaika āyātim bayyināt(in), wa mā yakfuru bihā illal-fāsiqūn(a). &#x20;
+Wa laqad anzalnā ilaika āyātim bayyināt(in), wa mā yakfuru bihā illal-fāsiqūn(a).
 
 ## 2:100
 
-Awa kullamā ‘āhadū ‘ahdan nabażahū farīqum minhum, bal akṡaruhum lā yu'minūn(a). &#x20;
+Awa kullamā ‘āhadū ‘ahdan nabażahū farīqum minhum, bal akṡaruhum lā yu'minūn(a).
 
 ## 2:101
 
-Wa lammā jā'ahum rasūlum min ‘indillāhi muṣaddiqul limā ma‘ahum nabaża farīqum minal-lażīna ūtul-kitāb(a), kitāballāhi warā'a ẓuhūrihim ka'annahum lā ya‘lamūn(a). &#x20;
+Wa lammā jā'ahum rasūlum min ‘indillāhi muṣaddiqul limā ma‘ahum nabaża farīqum minal-lażīna ūtul-kitāb(a), kitāballāhi warā'a ẓuhūrihim ka'annahum lā ya‘lamūn(a).
 
 ## 2:102
 
-Wattaba‘ū mā tatlusy-syayāṭīnu ‘alā mulki sulaimān(a), wa mā kafara sulaimānu wa lākinnnasy-syayāṭīna kafarū yu‘allimūnan-nāsas siḥr(a), wa mā unzila ‘alal-malakaini bibābila hārūta wa mārūt(a), wa mā yu‘allimāni min aḥadin ḥattā yaqūlā innamā naḥnu fitnatun falā takfur, fayata‘allamūna minhumā mā yufarriqūna bihī bainal-mar'i wa zaujih(ī), wa mā hum biḍarrīna bihī min aḥadin illā bi'iżnillāh(i), wa yata‘allamūna mā yaḍurruhum wa lā yanfa‘uhum, wa laqad ‘alimū lamanisytarāhu mā lahū fil-ākhirati min khalāq(in), wa labi'sa mā syarau bihī anfusahum, lau kānū ya‘lamūn(a). &#x20;
+Wattaba‘ū mā tatlusy-syayāṭīnu ‘alā mulki sulaimān(a), wa mā kafara sulaimānu wa lākinnnasy-syayāṭīna kafarū yu‘allimūnan-nāsas siḥr(a), wa mā unzila ‘alal-malakaini bibābila hārūta wa mārūt(a), wa mā yu‘allimāni min aḥadin ḥattā yaqūlā innamā naḥnu fitnatun falā takfur, fayata‘allamūna minhumā mā yufarriqūna bihī bainal-mar'i wa zaujih(ī), wa mā hum biḍarrīna bihī min aḥadin illā bi'iżnillāh(i), wa yata‘allamūna mā yaḍurruhum wa lā yanfa‘uhum, wa laqad ‘alimū lamanisytarāhu mā lahū fil-ākhirati min khalāq(in), wa labi'sa mā syarau bihī anfusahum, lau kānū ya‘lamūn(a).
 
 ## 2:103
 
-Wa lau annahum āmanū wattaqau lamaṡūbatum min ‘indillāhi khair(un), lau kānū ya‘lamūn(a). &#x20;
+Wa lau annahum āmanū wattaqau lamaṡūbatum min ‘indillāhi khair(un), lau kānū ya‘lamūn(a).
 
 ## 2:104
 
-Yā ayyuhal-lażīna āmanū lā taqūlū rā‘inā wa qūlunẓurnā wasma‘ū wa lil-kāfirīna ‘ażābun alīm(un). &#x20;
+Yā ayyuhal-lażīna āmanū lā taqūlū rā‘inā wa qūlunẓurnā wasma‘ū wa lil-kāfirīna ‘ażābun alīm(un).
 
 ## 2:105
 
-Mā yawaddul-lażīna kafarū min ahlil-kitābi wa lal-musyrikīna ay yunazzila ‘alaikum min khairim mir rabbikum, wallāhu yakhtaṣṣu biraḥmatihī may yasyā'(u), wallāhu żul faḍlil-‘aẓīm(i). &#x20;
+Mā yawaddul-lażīna kafarū min ahlil-kitābi wa lal-musyrikīna ay yunazzila ‘alaikum min khairim mir rabbikum, wallāhu yakhtaṣṣu biraḥmatihī may yasyā'(u), wallāhu żul faḍlil-‘aẓīm(i).
 
 ## 2:106
 
-Mā nansakh min āyatin au nunsihā na'ti bi khairim minhā au miṡlihā, alam ta‘lam annallāha ‘alā kulli syai'in qadīr(un).   &#x20;
+Mā nansakh min āyatin au nunsihā na'ti bi khairim minhā au miṡlihā, alam ta‘lam annallāha ‘alā kulli syai'in qadīr(un).
 
 ## 2:107
 
-Alam ta‘lam annallāha lahū mulkus-samāwāti wal arḍ(i), wa mā lakum min dūnillāhi miw waliyyiw wa lā naṣīr(in). &#x20;
+Alam ta‘lam annallāha lahū mulkus-samāwāti wal arḍ(i), wa mā lakum min dūnillāhi miw waliyyiw wa lā naṣīr(in).
 
 ## 2:108
 
-Am turīdūna an tas'alū rasūlakum kamā su'ila mūsā min qabl(u), wa may yatabaddalil-kufra bil-īmāni faqad ḍalla sawā'as-sabīl(i). &#x20;
+Am turīdūna an tas'alū rasūlakum kamā su'ila mūsā min qabl(u), wa may yatabaddalil-kufra bil-īmāni faqad ḍalla sawā'as-sabīl(i).
 
 ## 2:109
 
-Wadda kaṡīrum min ahlil-kitābi lau yaruddūnakum mim ba‘di īmānikum kuffārā(n), ḥasadam min ‘indi anfusihim mim ba‘di mā tabayyana lahumul-ḥaqq(u), fa‘fū waṣfaḥū ḥattā ya'tiyallāhu bi amrih(ī), innallāha ‘alā kulli syai'in qadīr(un). &#x20;
+Wadda kaṡīrum min ahlil-kitābi lau yaruddūnakum mim ba‘di īmānikum kuffārā(n), ḥasadam min ‘indi anfusihim mim ba‘di mā tabayyana lahumul-ḥaqq(u), fa‘fū waṣfaḥū ḥattā ya'tiyallāhu bi amrih(ī), innallāha ‘alā kulli syai'in qadīr(un).
 
 ## 2:110
 
-Wa aqīmuṣ-ṣalāta wa ātuz-zakāh(ta), wa mā tuqaddimū li'anfusikum min khairin tajidūhu ‘indallāh(i), innallāha bimā ta‘malūna baṣīr(un). &#x20;
+Wa aqīmuṣ-ṣalāta wa ātuz-zakāh(ta), wa mā tuqaddimū li'anfusikum min khairin tajidūhu ‘indallāh(i), innallāha bimā ta‘malūna baṣīr(un).
 
 ## 2:111
 
-Wa qālū lay yadkhulal-jannata illā man kāna hūdan au naṣārā, tilka amāniyyuhum, qul hātū burhānakum in kuntum ṣādiqīn(a). &#x20;
+Wa qālū lay yadkhulal-jannata illā man kāna hūdan au naṣārā, tilka amāniyyuhum, qul hātū burhānakum in kuntum ṣādiqīn(a).
 
 ## 2:112
 
-Balā man aslama wajhahū lillāhi wa huwa muḥsinun falahū ajruhū ‘inda rabbih(i), wa lā khaufun ‘alaihim wa lā hum yaḥzanūn(a). &#x20;
+Balā man aslama wajhahū lillāhi wa huwa muḥsinun falahū ajruhū ‘inda rabbih(i), wa lā khaufun ‘alaihim wa lā hum yaḥzanūn(a).
 
 ## 2:113
 
-Wa qālatil-yahūdu laisatin-naṣārā  ‘alā syai'(in), wa qālatin-naṣārā laisatil-yahūdu ‘alā syai'(in), wa hum yatlūnal-kitāb(a), każālika qālal-lażīna lā ya‘lamūna  miṡla qaulihim, fallāhu yaḥkumu bainahum yaumal-qiyāmati fīmā kānū fīhi yakhtalifūn(a). &#x20;
+Wa qālatil-yahūdu laisatin-naṣārā  ‘alā syai'(in), wa qālatin-naṣārā laisatil-yahūdu ‘alā syai'(in), wa hum yatlūnal-kitāb(a), każālika qālal-lażīna lā ya‘lamūna  miṡla qaulihim, fallāhu yaḥkumu bainahum yaumal-qiyāmati fīmā kānū fīhi yakhtalifūn(a).
 
 ## 2:114
 
-Wa man aẓlamu mim mam mana‘a masājidallāhi ay yużkara fīhasmuhū wa sa‘ā fī kharābihā, ulā'ika mā kāna lahum ay yadkhulūhā illā khā'ifīn(a), lahum fid-dun-yā khizyuw wa lahum fil-ākhirati ‘ażābun ‘aẓīm(un). &#x20;
+Wa man aẓlamu mim mam mana‘a masājidallāhi ay yużkara fīhasmuhū wa sa‘ā fī kharābihā, ulā'ika mā kāna lahum ay yadkhulūhā illā khā'ifīn(a), lahum fid-dun-yā khizyuw wa lahum fil-ākhirati ‘ażābun ‘aẓīm(un).
 
 ## 2:115
 
-Wa lillāhil-masyriqu wal-magrib(u), fa'ainamā tuwallū faṡamma wajhullāh(i), innallāha wāsi‘un ‘alīm(un). &#x20;
+Wa lillāhil-masyriqu wal-magrib(u), fa'ainamā tuwallū faṡamma wajhullāh(i), innallāha wāsi‘un ‘alīm(un).
 
 ## 2:116
 
-Wa qāluttakhażallāhu waladan subḥānah(ū), bal lahū mā fis-samāwāti wal-arḍ(i), kullul lahū qānitūn(a). &#x20;
+Wa qāluttakhażallāhu waladan subḥānah(ū), bal lahū mā fis-samāwāti wal-arḍ(i), kullul lahū qānitūn(a).
 
 ## 2:117
 
-Badī‘us-samāwāti wal-arḍ(i), wa iżā qaḍā amran fa'innamā yaqūlu lahū kun fayakūn(u). &#x20;
+Badī‘us-samāwāti wal-arḍ(i), wa iżā qaḍā amran fa'innamā yaqūlu lahū kun fayakūn(u).
 
 ## 2:118
 
-Wa qālal-lażīna lā ya‘lamūna lau lā yukallimunallāhu au ta'tīnā āyah(tun), każālika qālal-lażīna min qablihim miṡla qaulihim, tasyābahat qulūbuhum, qad bayyannal-āyāti liqaumiy yūqinūn(a). &#x20;
+Wa qālal-lażīna lā ya‘lamūna lau lā yukallimunallāhu au ta'tīnā āyah(tun), każālika qālal-lażīna min qablihim miṡla qaulihim, tasyābahat qulūbuhum, qad bayyannal-āyāti liqaumiy yūqinūn(a).
 
 ## 2:119
 
-Innā arsalnāka bil-ḥaqqi basyīraw wa nażīrā(n), wa lā tus'alu ‘an aṣḥābil-jaḥīm(i). &#x20;
+Innā arsalnāka bil-ḥaqqi basyīraw wa nażīrā(n), wa lā tus'alu ‘an aṣḥābil-jaḥīm(i).
 
 ## 2:120
 
-Wa lan tarḍā ‘ankal-yahūdu wa lan-naṣārā ḥattā tattabi‘a millatahum, qul inna hudallāhi huwal-hudā, wa la'inittaba‘ta ahwā'ahum ba‘dal-lażī jā'aka minal-‘ilm(i), mā laka minallāhi miw waliyyiw wa lā naṣīr(in). &#x20;
+Wa lan tarḍā ‘ankal-yahūdu wa lan-naṣārā ḥattā tattabi‘a millatahum, qul inna hudallāhi huwal-hudā, wa la'inittaba‘ta ahwā'ahum ba‘dal-lażī jā'aka minal-‘ilm(i), mā laka minallāhi miw waliyyiw wa lā naṣīr(in).
 
 ## 2:121
 
-Allażīna ātaināhumul-kitāba yatlūnahū ḥaqqa tilāwatih(ī), ulā'ika yu'minūna bih(ī), wa may yakfur bihī fa ulā'ika humul-khāsirūn(a). &#x20;
+Allażīna ātaināhumul-kitāba yatlūnahū ḥaqqa tilāwatih(ī), ulā'ika yu'minūna bih(ī), wa may yakfur bihī fa ulā'ika humul-khāsirūn(a).
 
 ## 2:122
 
-Yā banī isrā'īlażkurū ni‘matiyal-latī an‘amtu ‘alaikum wa annī faḍḍaltukum ‘alal-‘ālamīn(a). &#x20;
+Yā banī isrā'īlażkurū ni‘matiyal-latī an‘amtu ‘alaikum wa annī faḍḍaltukum ‘alal-‘ālamīn(a).
 
 ## 2:123
 
-Wattaqū yaumal lā tajzī nafsun ‘an nafsin syai'aw wa lā yuqbalu minhā ‘adluw wa lā tanfa‘uhā syafā‘atuw wa lā hum yunṣarūn(a).&#x20;
+Wattaqū yaumal lā tajzī nafsun ‘an nafsin syai'aw wa lā yuqbalu minhā ‘adluw wa lā tanfa‘uhā syafā‘atuw wa lā hum yunṣarūn(a).
 
 ## 2:124
 
-Wa iżibtalā ibrāhīma rabbuhū bikalimātin fa atammahunn(a), qāla innī jā‘iluka lin-nāsi imāmā(n), qāla wa min żurriyyatī, qāla lā yanālu ‘ahdiẓ-ẓālimīn(a). &#x20;
+Wa iżibtalā ibrāhīma rabbuhū bikalimātin fa atammahunn(a), qāla innī jā‘iluka lin-nāsi imāmā(n), qāla wa min żurriyyatī, qāla lā yanālu ‘ahdiẓ-ẓālimīn(a).
 
 ## 2:125
 
-Wa iż ja‘alnal-baita maṡābatal lin-nāsi wa amnā(n), wattakhiżū mim maqāmi ibrāhīma muṣallā(n), wa ‘ahidnā ilā ibrāhīma wa ismā‘īla an ṭahhirā baitiya liṭ-ṭā'ifīna  wal-‘ākifīna war-rukka‘is-sujūd(i). &#x20;
+Wa iż ja‘alnal-baita maṡābatal lin-nāsi wa amnā(n), wattakhiżū mim maqāmi ibrāhīma muṣallā(n), wa ‘ahidnā ilā ibrāhīma wa ismā‘īla an ṭahhirā baitiya liṭ-ṭā'ifīna  wal-‘ākifīna war-rukka‘is-sujūd(i).
 
 ## 2:126
 
-Wa iż qāla ibrāhīmu rabbij‘al hāżā baladan āminaw warzuq ahlahū minaṡ-ṡamarāti man āmana minhum billāhi wal-yaumil-ākhir(i), qāla wa man kafara fa umatti‘uhū qalīlan ṡumma aḍṭarruhū ilā ‘ażābin-nār(i), wa bi'sal-maṣīr(u). &#x20;
+Wa iż qāla ibrāhīmu rabbij‘al hāżā baladan āminaw warzuq ahlahū minaṡ-ṡamarāti man āmana minhum billāhi wal-yaumil-ākhir(i), qāla wa man kafara fa umatti‘uhū qalīlan ṡumma aḍṭarruhū ilā ‘ażābin-nār(i), wa bi'sal-maṣīr(u).
 
 ## 2:127
 
-Wa iż yarfa‘u ibrāhīmul-qawā‘ida minal-baiti wa ismā‘īl(u), rabbanā taqabbal minnā, innaka antas-samī‘ul-‘alīm(u). &#x20;
+Wa iż yarfa‘u ibrāhīmul-qawā‘ida minal-baiti wa ismā‘īl(u), rabbanā taqabbal minnā, innaka antas-samī‘ul-‘alīm(u).
 
 ## 2:128
 
-Rabbanā waj‘alnā muslimaini laka wa min żurriyyatinā ummatam muslimatal lak(a), wa arinā manāsikanā wa tub ‘alainā, innaka antat-tawwābur-raḥīm(u). &#x20;
+Rabbanā waj‘alnā muslimaini laka wa min żurriyyatinā ummatam muslimatal lak(a), wa arinā manāsikanā wa tub ‘alainā, innaka antat-tawwābur-raḥīm(u).
 
 ## 2:129
 
-Rabbanā  wab‘aṡ fīhim rasūlam minhum yatlū ‘alaihim āyātika wa yu‘allimuhumul-kitāba wal-ḥikmata wa yuzakkīhim, innaka antal-‘azīzul-ḥakīm(u). &#x20;
+Rabbanā  wab‘aṡ fīhim rasūlam minhum yatlū ‘alaihim āyātika wa yu‘allimuhumul-kitāba wal-ḥikmata wa yuzakkīhim, innaka antal-‘azīzul-ḥakīm(u).
 
 ## 2:130
 
-Wa may yargabu ‘an millati ibrāhīma illā man safiha nafsah(ū), wa laqad-iṣṭafaināhu fid-dun-yā, wa innahū fil-ākhirati laminaṣ-ṣāliḥīn(a). &#x20;
+Wa may yargabu ‘an millati ibrāhīma illā man safiha nafsah(ū), wa laqad-iṣṭafaināhu fid-dun-yā, wa innahū fil-ākhirati laminaṣ-ṣāliḥīn(a).
 
 ## 2:131
 
-Iż qāla lahū rabbuhū aslim, qāla aslamtu lirabbil-‘ālamīn(a). &#x20;
+Iż qāla lahū rabbuhū aslim, qāla aslamtu lirabbil-‘ālamīn(a).
 
 ## 2:132
 
-Wa waṣṣā bihā ibrāhīmu banīhi wa ya‘qūb(u), yā baniyya innallāhaṣṭafā lakumud-dīna falā tamūtunna illā wa antum muslimūn(a). &#x20;
+Wa waṣṣā bihā ibrāhīmu banīhi wa ya‘qūb(u), yā baniyya innallāhaṣṭafā lakumud-dīna falā tamūtunna illā wa antum muslimūn(a).
 
 ## 2:133
 
-Am kuntum syuhadā'a iż ḥaḍara ya‘qūbal-maut(u), iż qāla libanīhi mā ta‘budūna mim ba‘dī, qālū na‘budu ilāhaka wa ilāha ābā'ika ibrāhīma wa ismā‘īla wa isḥāqa ilāhaw wāḥidā(n), wa naḥnu lahū muslimūn(a). &#x20;
+Am kuntum syuhadā'a iż ḥaḍara ya‘qūbal-maut(u), iż qāla libanīhi mā ta‘budūna mim ba‘dī, qālū na‘budu ilāhaka wa ilāha ābā'ika ibrāhīma wa ismā‘īla wa isḥāqa ilāhaw wāḥidā(n), wa naḥnu lahū muslimūn(a).
 
 ## 2:134
 
-Tilka ummatun qad khalat, lahā mā kasabat wa lakum mā kasabtum, wa lā tus'alūna ‘ammā kānū ya‘malūn(a). &#x20;
+Tilka ummatun qad khalat, lahā mā kasabat wa lakum mā kasabtum, wa lā tus'alūna ‘ammā kānū ya‘malūn(a).
 
 ## 2:135
 
-Wa qālū kūnū hūdan au naṣārā tahtadū, qul bal millata ibrāhīma ḥanīfā(n), wa mā kāna minal-musyrikīn(a). &#x20;
+Wa qālū kūnū hūdan au naṣārā tahtadū, qul bal millata ibrāhīma ḥanīfā(n), wa mā kāna minal-musyrikīn(a).
 
 ## 2:136
 
-Qūlū āmannā billāhi wa mā unzila ilainā wa mā unzila ilā ibrāhīma wa ismā‘īla wa isḥāqa  wa ya‘qūba wal-asbāṭi wa mā ūtiya mūsā wa ‘īsā wa mā ūtiyan-nabiyyūna mir rabbihim, lā nufarriqu baina aḥadim minhum wa naḥnu lahū muslimūn(a). &#x20;
+Qūlū āmannā billāhi wa mā unzila ilainā wa mā unzila ilā ibrāhīma wa ismā‘īla wa isḥāqa  wa ya‘qūba wal-asbāṭi wa mā ūtiya mūsā wa ‘īsā wa mā ūtiyan-nabiyyūna mir rabbihim, lā nufarriqu baina aḥadim minhum wa naḥnu lahū muslimūn(a).
 
 ## 2:137
 
-Fa'in āmanū bimiṡli mā āmantum bihī faqadihtadau, wa in tawallau fa'innamā hum fī syiqāq(in), fasayakfīkahumullāh(u), wa huwas-samī‘ul-‘alīm(u).&#x20;
+Fa'in āmanū bimiṡli mā āmantum bihī faqadihtadau, wa in tawallau fa'innamā hum fī syiqāq(in), fasayakfīkahumullāh(u), wa huwas-samī‘ul-‘alīm(u).
 
 ## 2:138
 
-Ṣibgatallāh(i), wa man aḥsanu minallāhi ṣibgataw wa naḥnu lahū ‘ābidūn(a). &#x20;
+Ṣibgatallāh(i), wa man aḥsanu minallāhi ṣibgataw wa naḥnu lahū ‘ābidūn(a).
 
 ## 2:139
 
-Qul atuḥājjūnanā fillāhi wa huwa rabbunā wa rabbukum, wa lanā a‘mālunā wa lakum a‘mālukum, wa naḥnu lahū mukhliṣūn(a). &#x20;
+Qul atuḥājjūnanā fillāhi wa huwa rabbunā wa rabbukum, wa lanā a‘mālunā wa lakum a‘mālukum, wa naḥnu lahū mukhliṣūn(a).
 
 ## 2:140
 
-Am taqūlūna inna ibrāhīma wa ismā‘īla wa isḥāqa  wa ya‘qūba wal-asbāṭa kānū hūdan au naṣārā, qul a'antum a‘lamu amillāh(u), wa man aẓlamu mimman katama syahādatan ‘indahū minallāh(i), wa mallāhu bigāfilin ‘ammā ta‘malūn(a). &#x20;
+Am taqūlūna inna ibrāhīma wa ismā‘īla wa isḥāqa  wa ya‘qūba wal-asbāṭa kānū hūdan au naṣārā, qul a'antum a‘lamu amillāh(u), wa man aẓlamu mimman katama syahādatan ‘indahū minallāh(i), wa mallāhu bigāfilin ‘ammā ta‘malūn(a).
 
 ## 2:141
 
-Tilka ummatun qad khalat, lahā mā kasabat wa lakum mā kasabtum, wa lā tus'alūna ‘ammā kānū ya‘malūn(a). &#x20;
+Tilka ummatun qad khalat, lahā mā kasabat wa lakum mā kasabtum, wa lā tus'alūna ‘ammā kānū ya‘malūn(a).
 
 ## 2:142
 
-Sayāqūlus-sufahā'u minan-nāsi mā wallāhum ‘an qiblatihimul-latī kānū ‘alaihā, qul lillāhil-masyriqu wal-magrib(u), yahdī may yasyā'u ilā ṣirāṭim mustaqīm(in). &#x20;
+Sayāqūlus-sufahā'u minan-nāsi mā wallāhum ‘an qiblatihimul-latī kānū ‘alaihā, qul lillāhil-masyriqu wal-magrib(u), yahdī may yasyā'u ilā ṣirāṭim mustaqīm(in).
 
 ## 2:143
 
-Wa każālika ja‘alnākum  ummataw wasaṭal litakūnū syuhadā'a ‘alan-nāsi wa yakūnar-rasūlu ‘alaikum syahīdā(n), wa mā ja‘alnal-qiblatal-latī kunta ‘alaihā illā lina‘lama may yattabi‘ur-rasūla mimmay yanqalibu ‘alā ‘aqibaih(i), wa in kānat lakabīratan illā ‘alal-lażīna hadallāh(u), wa mā kānallāhu liyuḍī‘a īmānakum, innallāha bin-nāsi lara'ūfur raḥīm(un). &#x20;
+Wa każālika ja‘alnākum  ummataw wasaṭal litakūnū syuhadā'a ‘alan-nāsi wa yakūnar-rasūlu ‘alaikum syahīdā(n), wa mā ja‘alnal-qiblatal-latī kunta ‘alaihā illā lina‘lama may yattabi‘ur-rasūla mimmay yanqalibu ‘alā ‘aqibaih(i), wa in kānat lakabīratan illā ‘alal-lażīna hadallāh(u), wa mā kānallāhu liyuḍī‘a īmānakum, innallāha bin-nāsi lara'ūfur raḥīm(un).
 
 ## 2:144
 
-Qad narā taqallubaka wajhika fis-samā'(i), fa lanuwalliyannaka qiblatan tarḍāhā, fawalli wajhaka syaṭral-masjidil-ḥarām(i), wa ḥaiṡumā kuntum fawallū wujūhakum syaṭrah(ū), wa innal-lażīna ūtul-kitāba laya‘lamūna annahul-ḥaqqu mir rabbihim, wa mallāhu bigāfilin ‘ammā ya‘malūn(a). &#x20;
+Qad narā taqallubaka wajhika fis-samā'(i), fa lanuwalliyannaka qiblatan tarḍāhā, fawalli wajhaka syaṭral-masjidil-ḥarām(i), wa ḥaiṡumā kuntum fawallū wujūhakum syaṭrah(ū), wa innal-lażīna ūtul-kitāba laya‘lamūna annahul-ḥaqqu mir rabbihim, wa mallāhu bigāfilin ‘ammā ya‘malūn(a).
 
 ## 2:145
 
-Wa la'in ataital-lażīna ūtul-kitāba bikulli āyatim mā tabi‘ū qiblatak(a), wa mā anta bitābi‘in qiblatahum, wa mā ba‘ḍuhum bitābi‘in qiblata ba‘ḍ(in), wa la'inittaba‘ta ahwā'ahum mim ba‘di mā jā'aka minal-‘ilm(i), innaka iżal laminaẓ-ẓālimīn(a). &#x20;
+Wa la'in ataital-lażīna ūtul-kitāba bikulli āyatim mā tabi‘ū qiblatak(a), wa mā anta bitābi‘in qiblatahum, wa mā ba‘ḍuhum bitābi‘in qiblata ba‘ḍ(in), wa la'inittaba‘ta ahwā'ahum mim ba‘di mā jā'aka minal-‘ilm(i), innaka iżal laminaẓ-ẓālimīn(a).
 
 ## 2:146
 
-Allażīna ātaināhumul-kitāba ya‘rifūnahū kamā ya‘rifūna abnā'ahum, wa inna farīqam minhum layaktumūnal-ḥaqqa wa hum ya‘lamūn(a). &#x20;
+Allażīna ātaināhumul-kitāba ya‘rifūnahū kamā ya‘rifūna abnā'ahum, wa inna farīqam minhum layaktumūnal-ḥaqqa wa hum ya‘lamūn(a).
 
 ## 2:147
 
-Al-ḥaqqu mir rabbika falā takūnanna minal-mumtarīn(a). &#x20;
+Al-ḥaqqu mir rabbika falā takūnanna minal-mumtarīn(a).
 
 ## 2:148
 
-Wa likulliw wijhatun huwa muwallīhā fastabiqul-khairāt(i), aina mā takūnū ya'ti bikumullāhu jamī‘ā(n), innallāha ‘alā kulli syai'in qadīr(un). &#x20;
+Wa likulliw wijhatun huwa muwallīhā fastabiqul-khairāt(i), aina mā takūnū ya'ti bikumullāhu jamī‘ā(n), innallāha ‘alā kulli syai'in qadīr(un).
 
 ## 2:149
 
-Wa min ḥaiṡu kharajta fawalli wajhaka syaṭral-masjidil-ḥarām(i), wa innahū lal-ḥaqqu mir rabbik(a), wa mallāhu bigāfilin ‘ammā ta‘malūn(a). &#x20;
+Wa min ḥaiṡu kharajta fawalli wajhaka syaṭral-masjidil-ḥarām(i), wa innahū lal-ḥaqqu mir rabbik(a), wa mallāhu bigāfilin ‘ammā ta‘malūn(a).
 
 ## 2:150
 
-Wa min ḥaiṡu kharajta fa walli wajhaka syaṭral-masjidil-ḥarām(i), wa ḥaiṡumā kuntum fawallū wujūhakum syaṭrah(ū), li'allā yakūna lin-nāsi ‘alaikum ḥujjatun illal-lażīna ẓalamū minhum, falā takhsyauhum wakhsyaunī, wa li'utimma ni‘matī  ‘alaikum wa la‘allakum tahtadūn(a). &#x20;
+Wa min ḥaiṡu kharajta fa walli wajhaka syaṭral-masjidil-ḥarām(i), wa ḥaiṡumā kuntum fawallū wujūhakum syaṭrah(ū), li'allā yakūna lin-nāsi ‘alaikum ḥujjatun illal-lażīna ẓalamū minhum, falā takhsyauhum wakhsyaunī, wa li'utimma ni‘matī  ‘alaikum wa la‘allakum tahtadūn(a).
 
 ## 2:151
 
-Kamā arsalnā fīkum rasūlam minkum yatlū ‘alaikum āyātinā wa yuzakkīkum wa yu‘allimukumul-kitāba wal-ḥikmata wa yu‘allimukum mā lam takūnū ta‘lamūn(a). &#x20;
+Kamā arsalnā fīkum rasūlam minkum yatlū ‘alaikum āyātinā wa yuzakkīkum wa yu‘allimukumul-kitāba wal-ḥikmata wa yu‘allimukum mā lam takūnū ta‘lamūn(a).
 
 ## 2:152
 
-Fażkurūnī ażkurkum wasykurū lī wa lā takfurūn(i). &#x20;
+Fażkurūnī ażkurkum wasykurū lī wa lā takfurūn(i).
 
 ## 2:153
 
-Yā ayyuhal-lażīna āmanusta‘īnū biṣ-ṣabri waṣ-ṣalāh(ti), innallāha ma‘aṣ-ṣābirīn(a). &#x20;
+Yā ayyuhal-lażīna āmanusta‘īnū biṣ-ṣabri waṣ-ṣalāh(ti), innallāha ma‘aṣ-ṣābirīn(a).
 
 ## 2:154
 
-Wa lā taqūlū limay yuqtalu fī sabīlillāhi amwāt(un), bal aḥyā'uw wa lākil lā tasy‘urūn(a). &#x20;
+Wa lā taqūlū limay yuqtalu fī sabīlillāhi amwāt(un), bal aḥyā'uw wa lākil lā tasy‘urūn(a).
 
 ## 2:155
 
-Wa lanabluwannakum bisyai'im minal-khaufi wal-jū‘i wa naqaṣim minal-amwāli wal-anfusi waṡ-ṡamarāt(i), wa basysyiriṣ-ṣābirīn(a).&#x20;
+Wa lanabluwannakum bisyai'im minal-khaufi wal-jū‘i wa naqaṣim minal-amwāli wal-anfusi waṡ-ṡamarāt(i), wa basysyiriṣ-ṣābirīn(a).
 
 ## 2:156
 
-Allażīna iżā aṣābathum muṣībah(tun), qālū innā lillāhi wa innā ilaihi rāji‘ūn(a). &#x20;
+Allażīna iżā aṣābathum muṣībah(tun), qālū innā lillāhi wa innā ilaihi rāji‘ūn(a).
 
 ## 2:157
 
-Ulā'ika ‘alaihim ṣalawātum mir rabbihim wa raḥmah(tun), wa ulā'ika humul-muhtadūn(a).&#x20;
+Ulā'ika ‘alaihim ṣalawātum mir rabbihim wa raḥmah(tun), wa ulā'ika humul-muhtadūn(a).
 
 ## 2:158
 
-Innaṣ-ṣafā wal-marwata min sya‘ā'irillāh(i), faman ḥajjal-baita awi‘tamara falā junāḥa ‘alaihi ay yaṭṭawwafa bihimā, wa man taṭawwa‘a khairan fa innallāha syākirun ‘alīm(un). &#x20;
+Innaṣ-ṣafā wal-marwata min sya‘ā'irillāh(i), faman ḥajjal-baita awi‘tamara falā junāḥa ‘alaihi ay yaṭṭawwafa bihimā, wa man taṭawwa‘a khairan fa innallāha syākirun ‘alīm(un).
 
 ## 2:159
 
-Innal-lażīna yaktumūna mā anzalnā minal-bayyināti wal-hudā mim ba‘di mā bayyannāhu lin-nāsi fil-kitāb(i), ulā'ika yal‘anuhumullāhu wa yal‘anuhumul-lā‘inūn(a). &#x20;
+Innal-lażīna yaktumūna mā anzalnā minal-bayyināti wal-hudā mim ba‘di mā bayyannāhu lin-nāsi fil-kitāb(i), ulā'ika yal‘anuhumullāhu wa yal‘anuhumul-lā‘inūn(a).
 
 ## 2:160
 
-Illal-lażīna tābū wa aṣlaḥū wa bayyanū fa'ulā'ika atūbu ‘alaihim, wa anat-tawwābur-raḥīm(u).&#x20;
+Illal-lażīna tābū wa aṣlaḥū wa bayyanū fa'ulā'ika atūbu ‘alaihim, wa anat-tawwābur-raḥīm(u).
 
 ## 2:161
 
-Innal-lażīna kafarū wa mātū wa hum kuffārun ulā'ika ‘alaihim la‘natullāhi wal-malā'ikati wan-nāsi ajma‘īn(a). &#x20;
+Innal-lażīna kafarū wa mātū wa hum kuffārun ulā'ika ‘alaihim la‘natullāhi wal-malā'ikati wan-nāsi ajma‘īn(a).
 
 ## 2:162
 
-Khālidīna fīhā, lā yukhaffafu ‘anhumul-‘ażābu wa lā hum yunẓarūn(a).&#x20;
+Khālidīna fīhā, lā yukhaffafu ‘anhumul-‘ażābu wa lā hum yunẓarūn(a).
 
 ## 2:163
 
-Wa ilāhukum ilāhuw wāḥid(un), lā ilāha illā huwar-raḥmānur-raḥīm(u).&#x20;
+Wa ilāhukum ilāhuw wāḥid(un), lā ilāha illā huwar-raḥmānur-raḥīm(u).
 
 ## 2:164
 
-Inna fī khalqis-samāwāti wal-arḍi wakhtilāfil-laili wan-nahāri wal-fulkil-latī tajrī fil-baḥri bimā yanfa‘un-nāsa wa mā anzalallāhu minas-samā'i mim mā'in fa aḥyā bihil-arḍa ba‘da mautihā wa baṡṡa fīhā min kulli dābbah(tin), wa taṣrīfir-riyāḥi was-saḥābil-musakhkhari bainas-samā'i wal-arḍi la'āyātil liqaumiy ya‘qilūn(a).&#x20;
+Inna fī khalqis-samāwāti wal-arḍi wakhtilāfil-laili wan-nahāri wal-fulkil-latī tajrī fil-baḥri bimā yanfa‘un-nāsa wa mā anzalallāhu minas-samā'i mim mā'in fa aḥyā bihil-arḍa ba‘da mautihā wa baṡṡa fīhā min kulli dābbah(tin), wa taṣrīfir-riyāḥi was-saḥābil-musakhkhari bainas-samā'i wal-arḍi la'āyātil liqaumiy ya‘qilūn(a).
 
 ## 2:165
 
-Wa minan-nāsi may yattakhiżu min dūnillāhi andāday yuḥibbūnahum kaḥubbillāh(i), wal-lażīna āmanū asyaddu ḥubbal lillāh(i), wa lau yaral-lażīna ẓalamū iż yaraunal-‘ażāb(a), annal-quwwata lillāhi jamī‘ā(n), wa annallāha syadīdul-‘ażāb(i). &#x20;
+Wa minan-nāsi may yattakhiżu min dūnillāhi andāday yuḥibbūnahum kaḥubbillāh(i), wal-lażīna āmanū asyaddu ḥubbal lillāh(i), wa lau yaral-lażīna ẓalamū iż yaraunal-‘ażāb(a), annal-quwwata lillāhi jamī‘ā(n), wa annallāha syadīdul-‘ażāb(i).
 
 ## 2:166
 
-Iż tabarra'al-lażīnattubi‘ū minal-lażīnattaba‘ū wa ra'awul-‘ażāba wa taqaṭṭa‘at bihimul-asbāb(u). &#x20;
+Iż tabarra'al-lażīnattubi‘ū minal-lażīnattaba‘ū wa ra'awul-‘ażāba wa taqaṭṭa‘at bihimul-asbāb(u).
 
 ## 2:167
 
-Wa qālal-lażīnattaba‘ū lau anna lanā karratan fa natabarra'a minhum, kamā tabarra'ū minnā, każālika yurīhimullāhu a‘mālahum ḥasarātin ‘alaihim, wa mā hum bikhārijīna minan-nār(i).&#x20;
+Wa qālal-lażīnattaba‘ū lau anna lanā karratan fa natabarra'a minhum, kamā tabarra'ū minnā, każālika yurīhimullāhu a‘mālahum ḥasarātin ‘alaihim, wa mā hum bikhārijīna minan-nār(i).
 
 ## 2:168
 
-Yā ayyuhan-nāsu kulū mimmā fil-arḍi ḥalālan ṭayyibā(n), wa lā tattabi‘ū khuṭuwātisy-syaiṭān(i), innahū lakum ‘aduwwum mubīn(un).&#x20;
+Yā ayyuhan-nāsu kulū mimmā fil-arḍi ḥalālan ṭayyibā(n), wa lā tattabi‘ū khuṭuwātisy-syaiṭān(i), innahū lakum ‘aduwwum mubīn(un).
 
 ## 2:169
 
-Innamā ya'murukum bis-sū'i wal-faḥsyā'i wa an taqūlū ‘alallāhi mā lā ta‘lamūn(a). &#x20;
+Innamā ya'murukum bis-sū'i wal-faḥsyā'i wa an taqūlū ‘alallāhi mā lā ta‘lamūn(a).
 
 ## 2:170
 
-Wa iżā qīla lahumuttabi‘ū mā anzalallāhu qālū bal nattabi‘u mā alfainā ‘alaihi ābā'anā, awalau kāna ābā'uhum lā ya‘qilūna syai'aw wa lā yahtadūn(a).&#x20;
+Wa iżā qīla lahumuttabi‘ū mā anzalallāhu qālū bal nattabi‘u mā alfainā ‘alaihi ābā'anā, awalau kāna ābā'uhum lā ya‘qilūna syai'aw wa lā yahtadūn(a).
 
 ## 2:171
 
-Wa maṡalul-lażīna kafarū kamaṡalil-lażī yan‘iqu bimā lā yasma‘u illā du‘ā'aw wa nidā'ā(n), ṣummum bukmun ‘umyun fahum lā ya‘qilūn(a). &#x20;
+Wa maṡalul-lażīna kafarū kamaṡalil-lażī yan‘iqu bimā lā yasma‘u illā du‘ā'aw wa nidā'ā(n), ṣummum bukmun ‘umyun fahum lā ya‘qilūn(a).
 
 ## 2:172
 
-Yā ayyuhal-lażīna āmanū kulū min ṭayyibāti mā razaqnākum wasykurū lillāhi in kuntum iyyāhu ta‘budūn(a).&#x20;
+Yā ayyuhal-lażīna āmanū kulū min ṭayyibāti mā razaqnākum wasykurū lillāhi in kuntum iyyāhu ta‘budūn(a).
 
 ## 2:173
 
-Innamā ḥarrama ‘alaikumul-maitata wad-dama wa laḥmal-khinzīri wa mā uhilla bihī ligairillāh(i), fa maniḍṭurra gaira bāgiw wa lā ‘ādin falā iṡma ‘alaih(i), innallāha gafūrur raḥīm(un).&#x20;
+Innamā ḥarrama ‘alaikumul-maitata wad-dama wa laḥmal-khinzīri wa mā uhilla bihī ligairillāh(i), fa maniḍṭurra gaira bāgiw wa lā ‘ādin falā iṡma ‘alaih(i), innallāha gafūrur raḥīm(un).
 
 ## 2:174
 
-Innal-lażīna yaktumūna mā anzalallāhu minal-kitābi wa yasytarūna bihī ṡamanan qalīlā(n), ulā'ika mā ya'kulūna fī buṭūnihim illan-nāra wa lā yukallimuhumullāhu yaumal-qiyāmati wa lā yuzakkīhim, wa lahum ‘ażābun alīm(un). &#x20;
+Innal-lażīna yaktumūna mā anzalallāhu minal-kitābi wa yasytarūna bihī ṡamanan qalīlā(n), ulā'ika mā ya'kulūna fī buṭūnihim illan-nāra wa lā yukallimuhumullāhu yaumal-qiyāmati wa lā yuzakkīhim, wa lahum ‘ażābun alīm(un).
 
 ## 2:175
 
-Ulā'ikal-lażīnasytarawuḍ-ḍalālata bil-hudā wal-‘ażāba bil-magfirah(ti), famā aṣbarahum ‘alan-nār(i). &#x20;
+Ulā'ikal-lażīnasytarawuḍ-ḍalālata bil-hudā wal-‘ażāba bil-magfirah(ti), famā aṣbarahum ‘alan-nār(i).
 
 ## 2:176
 
-Żālika bi'annallāha nazzalal-kitāba bil-ḥaqq(i), wa innal-lażīnakhtalafū fil-kitābi lafī syiqāqim ba‘īd(in).&#x20;
+Żālika bi'annallāha nazzalal-kitāba bil-ḥaqq(i), wa innal-lażīnakhtalafū fil-kitābi lafī syiqāqim ba‘īd(in).
 
 ## 2:177
 
-Laisal-birra an tuwallū wujūhakum qibalal-masyriqi wal-magribi wa lākinnal-birra man āmana billāhi wal-yaumil ākhiri wal-malā'ikati wal-kitābi wan-nabiyyīn(a), wa ātal-māla ‘alā ḥubbihī żawil-qurbā wal-yatāmā wal-masākīna wabnas-sabīl(i), was-sā'ilīna wa fir-riqāb(i), wa aqāmaṣ-ṣalāta wa ātaz-zakāh(ta), wal mūfūna bi‘ahdihim iżā ‘āhadū, waṣ-ṣābirīna fil-ba'sā'i waḍ-ḍarrā'i wa ḥīnal-ba's(i), ulā'ikal-lażīna ṣadaqū, wa ulā'ika humul-muttaqūn(a).  &#x20;
+Laisal-birra an tuwallū wujūhakum qibalal-masyriqi wal-magribi wa lākinnal-birra man āmana billāhi wal-yaumil ākhiri wal-malā'ikati wal-kitābi wan-nabiyyīn(a), wa ātal-māla ‘alā ḥubbihī żawil-qurbā wal-yatāmā wal-masākīna wabnas-sabīl(i), was-sā'ilīna wa fir-riqāb(i), wa aqāmaṣ-ṣalāta wa ātaz-zakāh(ta), wal mūfūna bi‘ahdihim iżā ‘āhadū, waṣ-ṣābirīna fil-ba'sā'i waḍ-ḍarrā'i wa ḥīnal-ba's(i), ulā'ikal-lażīna ṣadaqū, wa ulā'ika humul-muttaqūn(a).
 
 ## 2:178
 
-Yā ayyuhal-lażīna āmanū kutiba ‘alaikumul-qiṣāṣu fil-qatlā, al-ḥurru bil-ḥurri wal-‘abdu bil-‘abdi wal-unṡā bil-unṡā, faman ‘ufiya lahū min akhīhi syai'un fattibā‘um bil-ma‘rūfi wa adā'un ilaihi bi iḥsān(in), żālika takhfīfum mir rabbikum wa raḥmah(tun), fa mani‘tadā ba‘da żālika fa lahū ‘ażābun alīm(un). &#x20;
+Yā ayyuhal-lażīna āmanū kutiba ‘alaikumul-qiṣāṣu fil-qatlā, al-ḥurru bil-ḥurri wal-‘abdu bil-‘abdi wal-unṡā bil-unṡā, faman ‘ufiya lahū min akhīhi syai'un fattibā‘um bil-ma‘rūfi wa adā'un ilaihi bi iḥsān(in), żālika takhfīfum mir rabbikum wa raḥmah(tun), fa mani‘tadā ba‘da żālika fa lahū ‘ażābun alīm(un).
 
 ## 2:179
 
-Wa lakum fil-qiṣāṣi ḥayātuy yā ulil-albābi la‘allakum tattaqūn(a). &#x20;
+Wa lakum fil-qiṣāṣi ḥayātuy yā ulil-albābi la‘allakum tattaqūn(a).
 
 ## 2:180
 
-Kutiba ‘alaikum iżā ḥaḍara aḥadakumul-mautu in taraka kahirā(n), al-waṣiyyatu lil-wālidaini wal-aqrabīna bil-ma‘rūf(i), ḥaqqan ‘alal-muttaqīn(a). &#x20;
+Kutiba ‘alaikum iżā ḥaḍara aḥadakumul-mautu in taraka kahirā(n), al-waṣiyyatu lil-wālidaini wal-aqrabīna bil-ma‘rūf(i), ḥaqqan ‘alal-muttaqīn(a).
 
 ## 2:181
 
-Famam baddalahū ba‘da mā sami‘ahū fa innamā iṡmuhū ‘alal-lażīna yubaddilūnah(ū), innallāha samī‘un ‘alīm(un). &#x20;
+Famam baddalahū ba‘da mā sami‘ahū fa innamā iṡmuhū ‘alal-lażīna yubaddilūnah(ū), innallāha samī‘un ‘alīm(un).
 
 ## 2:182
 
-Faman khāfa mim mūṣin janafan au iṡman fa aṣlaḥa bainahum falā iṡma ‘alaih(i), innallāha gafūrur raḥīm(un). &#x20;
+Faman khāfa mim mūṣin janafan au iṡman fa aṣlaḥa bainahum falā iṡma ‘alaih(i), innallāha gafūrur raḥīm(un).
 
 ## 2:183
 
-Yā ayyuhal-lażīna āmanū kutiba ‘alaikumuṣ-ṣiyāmu kamā kutiba ‘alal-lażīna min qablikum la‘allakum tattaqūn(a). &#x20;
+Yā ayyuhal-lażīna āmanū kutiba ‘alaikumuṣ-ṣiyāmu kamā kutiba ‘alal-lażīna min qablikum la‘allakum tattaqūn(a).
 
 ## 2:184
 
-Ayyāmam ma‘dūdāt(in), faman kāna minkum marīḍan au ‘alā safarin fa ‘iddatum min ayyāmin ukhar(a), wa ‘alal-lażīna yuṭīqūnahū fidyatun ṭa‘āmu miskīn(in), faman taṭawwa‘a khairan fahuwa khairul lah(ū), wa an taṣūmū khairul lakum in kuntum ta‘lamūn(a).&#x20;
+Ayyāmam ma‘dūdāt(in), faman kāna minkum marīḍan au ‘alā safarin fa ‘iddatum min ayyāmin ukhar(a), wa ‘alal-lażīna yuṭīqūnahū fidyatun ṭa‘āmu miskīn(in), faman taṭawwa‘a khairan fahuwa khairul lah(ū), wa an taṣūmū khairul lakum in kuntum ta‘lamūn(a).
 
 ## 2:185
 
-Syahru ramaḍānal-lażī unzila fīhil-qur'ānu hudal lin-nāsi wa bayyinātim minal-hudā wal-furqān(i), faman syahida minkumusy-syahra falyaṣumh(u) wa man kāna marīḍan au ‘alā safarin fa ‘iddatum min ayyāmin ukhar(a), yurīdullāhu bikumul-yusra wa lā yurīdu bikumul-‘usr(a), wa litukmilul-‘iddata wa litukabbirullāha ‘alā mā hadākum wa la‘allakum tasykurūn(a). &#x20;
+Syahru ramaḍānal-lażī unzila fīhil-qur'ānu hudal lin-nāsi wa bayyinātim minal-hudā wal-furqān(i), faman syahida minkumusy-syahra falyaṣumh(u) wa man kāna marīḍan au ‘alā safarin fa ‘iddatum min ayyāmin ukhar(a), yurīdullāhu bikumul-yusra wa lā yurīdu bikumul-‘usr(a), wa litukmilul-‘iddata wa litukabbirullāha ‘alā mā hadākum wa la‘allakum tasykurūn(a).
 
 ## 2:186
 
-Wa iżā sa'alaka ‘ibādī ‘annī fa innī qarīb(un),  ujību da‘watad-dā‘i iżā da‘ān(i), falyastajībū lī walyu'minū bī la‘allahum yarsyudūn(a). &#x20;
+Wa iżā sa'alaka ‘ibādī ‘annī fa innī qarīb(un),  ujību da‘watad-dā‘i iżā da‘ān(i), falyastajībū lī walyu'minū bī la‘allahum yarsyudūn(a).
 
 ## 2:187
 
-Uḥilla lakum lailataṣ-ṣiyāmir-rafaṡu ilā nisā'ikum, hunna libāsul lakum wa antum libāsul lahunn(a), ‘alimallāhu annakum kuntum takhtānūna anfusakum fatāba ‘alaikum wa ‘afā ‘ankum, fal-āna bāsyirūhunna wabtagū mā kataballāhu lakum, wa kulū wasyrabū ḥattā yatabayyana lakumul-khaiṭul-abyaḍu minal-khaiṭil-aswadi minal-fajr(i), ṡumma atimmuṣ-ṣiyāma ilal-lail(i), wa lā tubāsyirūhunna wa antum ‘ākifūna fil-masājid(i) tilka ḥudūdullāhi falā taqrabūhā, każālika yubayyinullāhu āyātihī lin-nāsi la‘allahum yattaqūn(a). &#x20;
+Uḥilla lakum lailataṣ-ṣiyāmir-rafaṡu ilā nisā'ikum, hunna libāsul lakum wa antum libāsul lahunn(a), ‘alimallāhu annakum kuntum takhtānūna anfusakum fatāba ‘alaikum wa ‘afā ‘ankum, fal-āna bāsyirūhunna wabtagū mā kataballāhu lakum, wa kulū wasyrabū ḥattā yatabayyana lakumul-khaiṭul-abyaḍu minal-khaiṭil-aswadi minal-fajr(i), ṡumma atimmuṣ-ṣiyāma ilal-lail(i), wa lā tubāsyirūhunna wa antum ‘ākifūna fil-masājid(i) tilka ḥudūdullāhi falā taqrabūhā, każālika yubayyinullāhu āyātihī lin-nāsi la‘allahum yattaqūn(a).
 
 ## 2:188
 
-Wa lā ta'kulū amwālakum bainakum bil-bāṭili wa tudlū bihā ilal-ḥukkāmi lita'kulū farīqam min amwālin-nāsi bil-iṡmi wa antum ta‘lamūn(a). &#x20;
+Wa lā ta'kulū amwālakum bainakum bil-bāṭili wa tudlū bihā ilal-ḥukkāmi lita'kulū farīqam min amwālin-nāsi bil-iṡmi wa antum ta‘lamūn(a).
 
 ## 2:189
 
-Yas'alūnaka ‘anil-ahillah(ti), qul hiya mawāqītu lin-nāsi wal-ḥajj(i), wa laisal-birru  bi'an ta'tul-buyūta  min ẓuhūrihā  wa lākinnal-birra manittaqā, wa'tul-buyūta min abwābihā, wattaqullāha la‘allakum tufliḥūn(a).&#x20;
+Yas'alūnaka ‘anil-ahillah(ti), qul hiya mawāqītu lin-nāsi wal-ḥajj(i), wa laisal-birru  bi'an ta'tul-buyūta  min ẓuhūrihā  wa lākinnal-birra manittaqā, wa'tul-buyūta min abwābihā, wattaqullāha la‘allakum tufliḥūn(a).
 
 ## 2:190
 
-Wa qātilū fī sabīlillāhil-lażīna yuqātilūnakum wa lā ta‘tadū, innallāha lā yuḥibbul-mu‘tadīn(a). &#x20;
+Wa qātilū fī sabīlillāhil-lażīna yuqātilūnakum wa lā ta‘tadū, innallāha lā yuḥibbul-mu‘tadīn(a).
 
 ## 2:191
 
-Waqtulūhum ḥaiṡu ṡaqiftumūhum wa akhrijūhum min ḥaiṡu akhrajūkum wal-fitnatu asyaddu minal-qatl(i), wa lā tuqātilūhum ‘indal-masjidil-ḥarāmi ḥattā yuqātilūkum fīh(i), fa'in qātalūkum faqtulūhum,  każālika jazā'ul-kāfirīn(a). &#x20;
+Waqtulūhum ḥaiṡu ṡaqiftumūhum wa akhrijūhum min ḥaiṡu akhrajūkum wal-fitnatu asyaddu minal-qatl(i), wa lā tuqātilūhum ‘indal-masjidil-ḥarāmi ḥattā yuqātilūkum fīh(i), fa'in qātalūkum faqtulūhum,  każālika jazā'ul-kāfirīn(a).
 
 ## 2:192
 
-Fa'inintahau fa'innallāha gafūrur raḥīm(un).&#x20;
+Fa'inintahau fa'innallāha gafūrur raḥīm(un).
 
 ## 2:193
 
-Wa qātilūhum ḥattā lā takūna fitnatuw wa yakūnad-dīnu lillāh(i), fa inintahau falā ‘udwāna illā ‘alaẓ-ẓālimīn(a). &#x20;
+Wa qātilūhum ḥattā lā takūna fitnatuw wa yakūnad-dīnu lillāh(i), fa inintahau falā ‘udwāna illā ‘alaẓ-ẓālimīn(a).
 
 ## 2:194
 
-Asy-syahrul-ḥarāmu bisy-syahril-ḥarāmi wal-ḥurumātu qiṣāṣ(un), famani‘tadā ‘alaikum fa‘tadū ‘alaihi bimiṡli ma‘tadā ‘alaikum, wattaqullāha wa‘lamū annallāha ma‘al-muttaqīn(a). &#x20;
+Asy-syahrul-ḥarāmu bisy-syahril-ḥarāmi wal-ḥurumātu qiṣāṣ(un), famani‘tadā ‘alaikum fa‘tadū ‘alaihi bimiṡli ma‘tadā ‘alaikum, wattaqullāha wa‘lamū annallāha ma‘al-muttaqīn(a).
 
 ## 2:195
 
-Wa anfiqū fī sabīlillāhi wa lā tulqū bi'aidīkum ilat-tahlukah(ti), wa aḥsinū, innallāha yuḥibbul-muḥsinīn(a). &#x20;
+Wa anfiqū fī sabīlillāhi wa lā tulqū bi'aidīkum ilat-tahlukah(ti), wa aḥsinū, innallāha yuḥibbul-muḥsinīn(a).
 
 ## 2:196
 
-Wa atimmul-ḥajja wal-‘umrata lillāh(i), fa'in uḥṣirtum famastaisara minal-hady(i), wa lā taḥliqū ru'ūsakum ḥattā yablugal-hadyu maḥillah(ū), faman kāna minkum marīḍan au bihī ażam mir ra'sihī fafidyatum min ṣiyāmin au ṣadaqatin au nusuk(in), fa'iżā amintum, faman tamatta‘a bil-‘umrati ilal-ḥajji famastaisara minal-hady(i), famal lam yajid faṣiyāmu ṡalāṡati ayyāmin fil-ḥajji wa sab‘atin iżā raja‘tum, tilka ‘asyaratun kāmilah(tun), żālika limal lam yakun ahluhū ḥāḍiril-masjidil-ḥarām(i), wattaqullāha wa‘lamū annallāha syadīdul-‘iqāb(i). &#x20;
+Wa atimmul-ḥajja wal-‘umrata lillāh(i), fa'in uḥṣirtum famastaisara minal-hady(i), wa lā taḥliqū ru'ūsakum ḥattā yablugal-hadyu maḥillah(ū), faman kāna minkum marīḍan au bihī ażam mir ra'sihī fafidyatum min ṣiyāmin au ṣadaqatin au nusuk(in), fa'iżā amintum, faman tamatta‘a bil-‘umrati ilal-ḥajji famastaisara minal-hady(i), famal lam yajid faṣiyāmu ṡalāṡati ayyāmin fil-ḥajji wa sab‘atin iżā raja‘tum, tilka ‘asyaratun kāmilah(tun), żālika limal lam yakun ahluhū ḥāḍiril-masjidil-ḥarām(i), wattaqullāha wa‘lamū annallāha syadīdul-‘iqāb(i).
 
 ## 2:197
 
-Al-ḥajju asyhurum ma‘lūmāt(un), faman faraḍa fīhinnal-ḥajja falā rafaṡa wa lā fusūqa wa lā jidāla fil-ḥajj(i), wa mā taf‘alū min khairiy ya‘lamhullāh(u), wa tazawwadū fa'inna khairaz-zādit-taqwā, wattaqūni yā ulil-albāb(i). &#x20;
+Al-ḥajju asyhurum ma‘lūmāt(un), faman faraḍa fīhinnal-ḥajja falā rafaṡa wa lā fusūqa wa lā jidāla fil-ḥajj(i), wa mā taf‘alū min khairiy ya‘lamhullāh(u), wa tazawwadū fa'inna khairaz-zādit-taqwā, wattaqūni yā ulil-albāb(i).
 
 ## 2:198
 
-Laisa ‘alaikum junāḥun an tabtagū faḍlam mir rabbikum, fa'iżā afaḍtum min ‘arafātin fażkurullāha ‘indal-masy‘aril-ḥarām(i), ważkurūhu kamā hadākum, wa in kuntum min qablihī laminaḍ-ḍāllīn(a). &#x20;
+Laisa ‘alaikum junāḥun an tabtagū faḍlam mir rabbikum, fa'iżā afaḍtum min ‘arafātin fażkurullāha ‘indal-masy‘aril-ḥarām(i), ważkurūhu kamā hadākum, wa in kuntum min qablihī laminaḍ-ḍāllīn(a).
 
 ## 2:199
 
-Ṡumma afīḍū min ḥaiṡu afāḍan-nāsu wastagfirullāh(a), innallāha gafūrur raḥīm(un). &#x20;
+Ṡumma afīḍū min ḥaiṡu afāḍan-nāsu wastagfirullāh(a), innallāha gafūrur raḥīm(un).
 
 ## 2:200
 
-Fa iżā qaḍaitum manāsikakum fażkurullāha każikrikum ābā'akum au asyadda żikrā(n), faminan-nāsi may yaqūlu rabbanā ātinā fid-dun-yā wa mā lahū fil-ākhirati min khalāq(in). &#x20;
+Fa iżā qaḍaitum manāsikakum fażkurullāha każikrikum ābā'akum au asyadda żikrā(n), faminan-nāsi may yaqūlu rabbanā ātinā fid-dun-yā wa mā lahū fil-ākhirati min khalāq(in).
 
 ## 2:201
 
-Wa minhum may yaqūlu rabbanā ātinā fid-dun-yā ḥasanataw wa fil-ākhirati ḥasanataw wa qinā ‘ażāban-nār(i). &#x20;
+Wa minhum may yaqūlu rabbanā ātinā fid-dun-yā ḥasanataw wa fil-ākhirati ḥasanataw wa qinā ‘ażāban-nār(i).
 
 ## 2:202
 
-Ulā'ika lahum naṣībum mimmā kasabū, wallāhu sarī‘ul-ḥisāb(i). &#x20;
+Ulā'ika lahum naṣībum mimmā kasabū, wallāhu sarī‘ul-ḥisāb(i).
 
 ## 2:203
 
-Ważkurullāha fī ayyāmim ma‘dūdāt(in), faman ta‘ajjala fī yaumaini falā iṡma ‘alaih(i), wa man ta'akhkhara falā iṡma ‘alaihi limanittaqā, wattaqullāha wa‘lamū annakum ilaihi tuḥsyarūn(a).&#x20;
+Ważkurullāha fī ayyāmim ma‘dūdāt(in), faman ta‘ajjala fī yaumaini falā iṡma ‘alaih(i), wa man ta'akhkhara falā iṡma ‘alaihi limanittaqā, wattaqullāha wa‘lamū annakum ilaihi tuḥsyarūn(a).
 
 ## 2:204
 
-Wa minan-nāsi may yu‘jibuka qauluhū fil-ḥayātid-dun-yā wa yusyhidullāha ‘alā mā fī qalbih(ī), wa huwa aladdul-khiṣām(i). &#x20;
+Wa minan-nāsi may yu‘jibuka qauluhū fil-ḥayātid-dun-yā wa yusyhidullāha ‘alā mā fī qalbih(ī), wa huwa aladdul-khiṣām(i).
 
 ## 2:205
 
-Wa iżā tawallā sa‘ā fil-arḍi liyufsida fīhā wa yuhlikal-ḥarṡa wan-nasl(a), wallāhu lā yuḥibbul-fasād(a). &#x20;
+Wa iżā tawallā sa‘ā fil-arḍi liyufsida fīhā wa yuhlikal-ḥarṡa wan-nasl(a), wallāhu lā yuḥibbul-fasād(a).
 
 ## 2:206
 
-Wa iżā qīla lahuttaqillāha akhażathul-‘izzatu bil-iṡmi faḥasbuhū jahannam(u), wa labi'sal-mihād(u). &#x20;
+Wa iżā qīla lahuttaqillāha akhażathul-‘izzatu bil-iṡmi faḥasbuhū jahannam(u), wa labi'sal-mihād(u).
 
 ## 2:207
 
-Wa minan-nāsi may yasyrī nafsahubtigā'a marḍātillāh(i), wallāhu ra'ūfum bil-‘ibād(i).&#x20;
+Wa minan-nāsi may yasyrī nafsahubtigā'a marḍātillāh(i), wallāhu ra'ūfum bil-‘ibād(i).
 
 ## 2:208
 
-Yā ayyuhal-lażīna āmanudkhulū fis-silmi kāffah(tan), wa lā tattabi‘ū khuṭuwātisy-syaiṭān(i), innahū lakum ‘aduwwum mubīn(un). &#x20;
+Yā ayyuhal-lażīna āmanudkhulū fis-silmi kāffah(tan), wa lā tattabi‘ū khuṭuwātisy-syaiṭān(i), innahū lakum ‘aduwwum mubīn(un).
 
 ## 2:209
 
-Fa'in zalaltum mim ba‘di mā jā'atkumul-bayyinātu fa‘lamū annallāha ‘azīzun ḥakīm(un).&#x20;
+Fa'in zalaltum mim ba‘di mā jā'atkumul-bayyinātu fa‘lamū annallāha ‘azīzun ḥakīm(un).
 
 ## 2:210
 
-Hal yanẓurūna illā ay ya'tiyahumullāhu fī ẓulalim minal-gamāmi wal-malā'ikatu wa quḍiyal-amr(u), wa ilallāhi turja‘ul-umūr(u). &#x20;
+Hal yanẓurūna illā ay ya'tiyahumullāhu fī ẓulalim minal-gamāmi wal-malā'ikatu wa quḍiyal-amr(u), wa ilallāhi turja‘ul-umūr(u).
 
 ## 2:211
 
-Sal banī isrā'īla kam ātaināhum min āyatim bayyinah(tin), wa may yubaddil ni‘matallāhi mim ba‘di mā jā'athu fa innallāha syadīdul-‘iqāb(i). &#x20;
+Sal banī isrā'īla kam ātaināhum min āyatim bayyinah(tin), wa may yubaddil ni‘matallāhi mim ba‘di mā jā'athu fa innallāha syadīdul-‘iqāb(i).
 
 ## 2:212
 
-Zuyyina lil-lażīna kafarul-ḥayātud-dun-yā wa yaskharūna minal-lażīna āmanū, wal-lażīnattaqau fauqahum yaumal-qiyāmah(ti), wallāhu yarzuqu may yasyā'u bigairi ḥisāb(in). &#x20;
+Zuyyina lil-lażīna kafarul-ḥayātud-dun-yā wa yaskharūna minal-lażīna āmanū, wal-lażīnattaqau fauqahum yaumal-qiyāmah(ti), wallāhu yarzuqu may yasyā'u bigairi ḥisāb(in).
 
 ## 2:213
 
-Kānan-nāsu ummataw wāḥidah(tan), fa ba‘aṡallāhun-nabiyyīna mubasysyirīna wa munżirīn(a), wa anzala ma‘ahumul-kitāba bil-ḥaqqi liyaḥkuma bainan-nāsi fīmakhtalafū fīh(i), wa makhtalafa fīhi illal-lażīna ūtūhu mim ba‘di mā jā'athumul-bayyinātu bagyam bainahum, fahadallāhul-lażīna āmanū limakhtalafū fīhi minal-ḥaqqi bi'iżnih(ī), wallāhu yahdī may yasyā'u ilā ṣirāṭim mustaqīm(in). &#x20;
+Kānan-nāsu ummataw wāḥidah(tan), fa ba‘aṡallāhun-nabiyyīna mubasysyirīna wa munżirīn(a), wa anzala ma‘ahumul-kitāba bil-ḥaqqi liyaḥkuma bainan-nāsi fīmakhtalafū fīh(i), wa makhtalafa fīhi illal-lażīna ūtūhu mim ba‘di mā jā'athumul-bayyinātu bagyam bainahum, fahadallāhul-lażīna āmanū limakhtalafū fīhi minal-ḥaqqi bi'iżnih(ī), wallāhu yahdī may yasyā'u ilā ṣirāṭim mustaqīm(in).
 
 ## 2:214
 
-Am ḥasibtum an tadkhulul-jannata wa lammā ya'tikum maṡalul-lażīna khalau min qablikum, massathumul-ba'sā'u waḍ-ḍarrā'u wa zulzilū ḥattā yaqūlar-rasūlu wal-lażīna āmanū ma‘ahū matā naṣrullāh(i), alā inna naṣrallāhi qarīb(un). &#x20;
+Am ḥasibtum an tadkhulul-jannata wa lammā ya'tikum maṡalul-lażīna khalau min qablikum, massathumul-ba'sā'u waḍ-ḍarrā'u wa zulzilū ḥattā yaqūlar-rasūlu wal-lażīna āmanū ma‘ahū matā naṣrullāh(i), alā inna naṣrallāhi qarīb(un).
 
 ## 2:215
 
-Yas'alūnaka māżā yunfiqūn(a), qul mā anfaqtum min khairin falil-wālidaini wal-aqrabīna wal-yatāmā wal-masākīni wabnis-sabīl(i), wa mā taf‘alū min khairin fa innallāha bihī ‘alīm(un). &#x20;
+Yas'alūnaka māżā yunfiqūn(a), qul mā anfaqtum min khairin falil-wālidaini wal-aqrabīna wal-yatāmā wal-masākīni wabnis-sabīl(i), wa mā taf‘alū min khairin fa innallāha bihī ‘alīm(un).
 
 ## 2:216
 
-Kutiba ‘alaikumul-qitālu wa huwa kurhul lakum, wa ‘asā an takrahū syai'aw wa huwa khairul lakum, wa ‘asā an tuḥibbū syai'aw wa huwa syarrul lakum, wallāhu ya‘lamu wa antum lā ta‘lamūn(a). &#x20;
+Kutiba ‘alaikumul-qitālu wa huwa kurhul lakum, wa ‘asā an takrahū syai'aw wa huwa khairul lakum, wa ‘asā an tuḥibbū syai'aw wa huwa syarrul lakum, wallāhu ya‘lamu wa antum lā ta‘lamūn(a).
 
 ## 2:217
 
-Yas'alūnaka ‘anisy-syahril-ḥarāmi qitālin fīh(i), qul qitālun fīhi kabīr(un), wa ṣaddun ‘an sabīlillāhi wa kufrum bihī wal-masjidil-ḥarām(i), wa ikhrāju ahlihī minhu akbaru ‘indallāh(i), wal-fitnatu akbaru minal-qatl(i), wa lā yazālūna yuqātilūnakum ḥattā yaruddūkum ‘an dīnikum inistaṭā‘ū, wa may yartadid minkum  ‘an dīnihī fa yamut wa huwa kāfirun fa ulā'ika ḥabiṭat a‘māluhum fid-dun-yā wal-ākhirah(ti), wa ulā'ika aṣḥābun-nār(i), hum fīhā khālidūn(a). &#x20;
+Yas'alūnaka ‘anisy-syahril-ḥarāmi qitālin fīh(i), qul qitālun fīhi kabīr(un), wa ṣaddun ‘an sabīlillāhi wa kufrum bihī wal-masjidil-ḥarām(i), wa ikhrāju ahlihī minhu akbaru ‘indallāh(i), wal-fitnatu akbaru minal-qatl(i), wa lā yazālūna yuqātilūnakum ḥattā yaruddūkum ‘an dīnikum inistaṭā‘ū, wa may yartadid minkum  ‘an dīnihī fa yamut wa huwa kāfirun fa ulā'ika ḥabiṭat a‘māluhum fid-dun-yā wal-ākhirah(ti), wa ulā'ika aṣḥābun-nār(i), hum fīhā khālidūn(a).
 
 ## 2:218
 
-Innal-lażīna āmanū wal-lażīna hājarū wa jāhadū fī sabīlillāh(i), ulā'ika yarjūna raḥmatallāh(i), wallāhu gafūrur raḥīm(un). &#x20;
+Innal-lażīna āmanū wal-lażīna hājarū wa jāhadū fī sabīlillāh(i), ulā'ika yarjūna raḥmatallāh(i), wallāhu gafūrur raḥīm(un).
 
 ## 2:219
 
-Yas'alūnaka ‘anil-khamri wal-maisir(i), qul fīhimā iṡmun kabīrw wa manāfi‘u lin nās(i), wa iṡmuhumā akbaru min naf‘ihimā, wa yas'alūnaka māżā yunfiqūn(a), qulil-‘afw(a), każālika yubayyinullāhu lakumul-āyāti la‘allakum tatafakkarūn(a). &#x20;
+Yas'alūnaka ‘anil-khamri wal-maisir(i), qul fīhimā iṡmun kabīrw wa manāfi‘u lin nās(i), wa iṡmuhumā akbaru min naf‘ihimā, wa yas'alūnaka māżā yunfiqūn(a), qulil-‘afw(a), każālika yubayyinullāhu lakumul-āyāti la‘allakum tatafakkarūn(a).
 
 ## 2:220
 
-Fid-dun-yā wal-ākhirah(ti), wa yas'alūnaka ‘anil-yatāmā, qul iṣlāḥul lahum khair(un), wa in tukhāliṭūhum fa'ikhwānukum, wallāhu ya‘lamul-mufsida minal-muṣliḥ(i), wa lau syā'allāhu la'a‘natakum innallāha ‘azizun ḥakīm(un). &#x20;
+Fid-dun-yā wal-ākhirah(ti), wa yas'alūnaka ‘anil-yatāmā, qul iṣlāḥul lahum khair(un), wa in tukhāliṭūhum fa'ikhwānukum, wallāhu ya‘lamul-mufsida minal-muṣliḥ(i), wa lau syā'allāhu la'a‘natakum innallāha ‘azizun ḥakīm(un).
 
 ## 2:221
 
-Wa lā tankiḥul-musyrikāti ḥattā yu'minn(a), wa la'amatum mu'minatun khairum mim musyrikatiw wa lau a‘jabatkum, wa lā tunkiḥul-musyrikīna ḥattā yu'minū, wa la‘abdum mu'minun khairum mim musyrikiw wa lau a‘jabakum,  ulā'ika yad‘ūna ilan-nār(i), wallāhu yad‘ū ilal-jannati wal-magfirati bi'iżnih(ī), wa yubayyinu āyātihī lin-nāsi la‘allahum yatażakkarūn(a).&#x20;
+Wa lā tankiḥul-musyrikāti ḥattā yu'minn(a), wa la'amatum mu'minatun khairum mim musyrikatiw wa lau a‘jabatkum, wa lā tunkiḥul-musyrikīna ḥattā yu'minū, wa la‘abdum mu'minun khairum mim musyrikiw wa lau a‘jabakum,  ulā'ika yad‘ūna ilan-nār(i), wallāhu yad‘ū ilal-jannati wal-magfirati bi'iżnih(ī), wa yubayyinu āyātihī lin-nāsi la‘allahum yatażakkarūn(a).
 
 ## 2:222
 
-Wa yas'alūnaka ‘anil-maḥīḍ(i), qul huwa ażā(n), fa‘tazilun-nisā'a fil-maḥīḍ(i), wa lā taqrabūhunna ḥattā yaṭhurn(a), fa'iżā taṭahharna fa'tūhunna min ḥaiṡu amarakumullāh(u), innallāha yuḥibbut-tawwābīna wa yuḥibbul-mutaṭahhirīn(a). &#x20;
+Wa yas'alūnaka ‘anil-maḥīḍ(i), qul huwa ażā(n), fa‘tazilun-nisā'a fil-maḥīḍ(i), wa lā taqrabūhunna ḥattā yaṭhurn(a), fa'iżā taṭahharna fa'tūhunna min ḥaiṡu amarakumullāh(u), innallāha yuḥibbut-tawwābīna wa yuḥibbul-mutaṭahhirīn(a).
 
 ## 2:223
 
-Nisā'ukum ḥarṡul lakum, fa'tū ḥarṡakum annā syi'tum, wa qaddimū li anfusikum, wattaqullāha wa‘lamū annakum mulāqūh(u), wa basysyiril-mu'minīn(a). &#x20;
+Nisā'ukum ḥarṡul lakum, fa'tū ḥarṡakum annā syi'tum, wa qaddimū li anfusikum, wattaqullāha wa‘lamū annakum mulāqūh(u), wa basysyiril-mu'minīn(a).
 
 ## 2:224
 
-Wa lā taj‘alullāha ‘urḍatal li'aimānikum an tabarrū wa tattaqū wa tuṣliḥū bainan-nās(i), wallāhu samī‘un ‘alīm(un).&#x20;
+Wa lā taj‘alullāha ‘urḍatal li'aimānikum an tabarrū wa tattaqū wa tuṣliḥū bainan-nās(i), wallāhu samī‘un ‘alīm(un).
 
 ## 2:225
 
-Lā yu'ākhiżukumullāhu bil-lagwi fī aimānikum wa lākiy yu'ākhiżukum bimā kasabat qulūbukum, wallāhu gafūrun ḥalīm(un).&#x20;
+Lā yu'ākhiżukumullāhu bil-lagwi fī aimānikum wa lākiy yu'ākhiżukum bimā kasabat qulūbukum, wallāhu gafūrun ḥalīm(un).
 
 ## 2:226
 
-Lil-lażīna yu'lūna min nisā'ihim tarabbuṣu arba‘ati asyhur(in), fa'in fā'ū fa'innalāha gafūrur raḥīm(un).&#x20;
+Lil-lażīna yu'lūna min nisā'ihim tarabbuṣu arba‘ati asyhur(in), fa'in fā'ū fa'innalāha gafūrur raḥīm(un).
 
 ## 2:227
 
-Wa in ‘azamuṭ-ṭalāqa fa innallāha samī‘un ‘alīm(un).&#x20;
+Wa in ‘azamuṭ-ṭalāqa fa innallāha samī‘un ‘alīm(un).
 
 ## 2:228
 
-Wal-muṭallaqātu yatarabbaṣna bi anfusihinna ṡalāṡata qurū'(in), wa lā yaḥillu lahunna ay yaktumna mā khalaqallāhu fī arḥāmihinna in kunna yu'minna billāhi wal-yaumil-ākhir(i), wa bu‘ūlatuhunna aḥaqqu biraddiūhinna fī żālika in arādū iṣlāḥā(n), wa lahunna miṡlul-lażī ‘alaihinna bil-ma‘rūf(i), wa lir-rijāli ‘alaihinna darajah(tun), wallāhu ‘azīzun ḥakīm(un).&#x20;
+Wal-muṭallaqātu yatarabbaṣna bi anfusihinna ṡalāṡata qurū'(in), wa lā yaḥillu lahunna ay yaktumna mā khalaqallāhu fī arḥāmihinna in kunna yu'minna billāhi wal-yaumil-ākhir(i), wa bu‘ūlatuhunna aḥaqqu biraddiūhinna fī żālika in arādū iṣlāḥā(n), wa lahunna miṡlul-lażī ‘alaihinna bil-ma‘rūf(i), wa lir-rijāli ‘alaihinna darajah(tun), wallāhu ‘azīzun ḥakīm(un).
 
 ## 2:229
 
-Aṭ-ṭalāqu marratān(i), fa imsākum bima‘rūfin au tasrīḥum bi'iḥsān(in), wa lā yaḥillu lakum an ta'khużū  mimmā ātaitumūhunna syai'an illā ay yakhāfā allā yuqīmā ḥudūdullāh(i), fa in khiftum allā yuqīmā ḥudūdullāh(i) falā junāḥa ‘alaihimā fīmaftadat bih(ī), tilka ḥudūdullāhi falā ta‘tadūhā, wa may yata‘adda ḥudūdullāhi fa'ulā'ika humuẓ-ẓālimūn(a).&#x20;
+Aṭ-ṭalāqu marratān(i), fa imsākum bima‘rūfin au tasrīḥum bi'iḥsān(in), wa lā yaḥillu lakum an ta'khużū  mimmā ātaitumūhunna syai'an illā ay yakhāfā allā yuqīmā ḥudūdullāh(i), fa in khiftum allā yuqīmā ḥudūdullāh(i) falā junāḥa ‘alaihimā fīmaftadat bih(ī), tilka ḥudūdullāhi falā ta‘tadūhā, wa may yata‘adda ḥudūdullāhi fa'ulā'ika humuẓ-ẓālimūn(a).
 
 ## 2:230
 
-Fa'in ṭallaqahā falā taḥillu lahū mim ba‘du ḥattā tankiḥa zaujan gairah(ū), fa'in ṭallaqahā falā junāḥa ‘alaihimā ay yatarāja‘ā in ẓannā ay yuqīmā ḥudūdullāh(i), tilka ḥudūdullāhi yubayyinuhā liqaumiy ya‘lamūn(a). &#x20;
+Fa'in ṭallaqahā falā taḥillu lahū mim ba‘du ḥattā tankiḥa zaujan gairah(ū), fa'in ṭallaqahā falā junāḥa ‘alaihimā ay yatarāja‘ā in ẓannā ay yuqīmā ḥudūdullāh(i), tilka ḥudūdullāhi yubayyinuhā liqaumiy ya‘lamūn(a).
 
 ## 2:231
 
-Wa iżā ṭallaqtumun-nisā'a fabalagna ajalahunna fa'amsikūhunna bima‘rūfin au sarriḥūhunna bima‘rūf(in),  wa lā tumsikūhunna ḍirāral lita‘tadū, wa may yaf‘al  żālika faqad ẓalama nafasah(ū), wa lā tattakhiżū āyātillāhi huzuwaw ważkurū ni‘matallāhi ‘alaikum wa mā anzala ‘alaikum minal-kitābi wal-ḥikmati ya‘iẓukum bih(ī), wattaqullāha wa‘lamū  annallāha bikulli syai'in ‘alīm(un). &#x20;
+Wa iżā ṭallaqtumun-nisā'a fabalagna ajalahunna fa'amsikūhunna bima‘rūfin au sarriḥūhunna bima‘rūf(in),  wa lā tumsikūhunna ḍirāral lita‘tadū, wa may yaf‘al  żālika faqad ẓalama nafasah(ū), wa lā tattakhiżū āyātillāhi huzuwaw ważkurū ni‘matallāhi ‘alaikum wa mā anzala ‘alaikum minal-kitābi wal-ḥikmati ya‘iẓukum bih(ī), wattaqullāha wa‘lamū  annallāha bikulli syai'in ‘alīm(un).
 
 ## 2:232
 
-Wa iżā ṭallaqtumun-nisā'a fabalagna ajalahunna falā ta‘ḍulūhunna ay yankiḥna azwājahunna iżā tarāḍau bainahum bil-ma‘rūf(i), żālika yū‘aẓu bihī man kāna minkum yu'minu billāhi wal-yaumil-ākhir(i), żālikum azkā lakum wa aṭhar(u), wallāhu ya‘lamu wa antum lā ta‘lamūn(a). &#x20;
+Wa iżā ṭallaqtumun-nisā'a fabalagna ajalahunna falā ta‘ḍulūhunna ay yankiḥna azwājahunna iżā tarāḍau bainahum bil-ma‘rūf(i), żālika yū‘aẓu bihī man kāna minkum yu'minu billāhi wal-yaumil-ākhir(i), żālikum azkā lakum wa aṭhar(u), wallāhu ya‘lamu wa antum lā ta‘lamūn(a).
 
 ## 2:233
 
-Wal-wālidātu yurḍi‘na aulādahunna ḥaulaini kāmilaini liman arāda ay yutimmar-raḍā‘ah(ta), wa ‘alal-maulūdi lahū rizquhunna wa kiswatuhunna bil-ma‘rūf(i), lā tukallafu nafsun illā wus‘ahā, lā tuḍārra wālidatum biwaladihā wa lā maulūdul lahū biwaladihī wa ‘alal-wāriṡi miṡlu żālik(a), fa'in arādā fiṣālan ‘an tarāḍim minhumā wa tasyāwurin falā junāḥa ‘alaihimā, wa in arattum an tastarḍi‘ū aulādakum falā junāḥa  ‘alaikum iżā sallamtum mā ātaitum bil-ma‘rūf(i), wattaqullāha wa‘lamū annallāha bimā ta‘malūna baṣīr(un). &#x20;
+Wal-wālidātu yurḍi‘na aulādahunna ḥaulaini kāmilaini liman arāda ay yutimmar-raḍā‘ah(ta), wa ‘alal-maulūdi lahū rizquhunna wa kiswatuhunna bil-ma‘rūf(i), lā tukallafu nafsun illā wus‘ahā, lā tuḍārra wālidatum biwaladihā wa lā maulūdul lahū biwaladihī wa ‘alal-wāriṡi miṡlu żālik(a), fa'in arādā fiṣālan ‘an tarāḍim minhumā wa tasyāwurin falā junāḥa ‘alaihimā, wa in arattum an tastarḍi‘ū aulādakum falā junāḥa  ‘alaikum iżā sallamtum mā ātaitum bil-ma‘rūf(i), wattaqullāha wa‘lamū annallāha bimā ta‘malūna baṣīr(un).
 
 ## 2:234
 
-Wal-lażīna yutawaffauna minkum wa yażarūna azwājay yatarabbaṣna bi'anfusihinna arba‘ata asyhuriw wa ‘asyrā(n), fa'iżā balagna ajalahunna falā junāḥa ‘alaikum fīmā fa‘alna fī anfusihinna bil-ma‘rūf(i),wallāhu bimā ta‘malūna khabīr(un). &#x20;
+Wal-lażīna yutawaffauna minkum wa yażarūna azwājay yatarabbaṣna bi'anfusihinna arba‘ata asyhuriw wa ‘asyrā(n), fa'iżā balagna ajalahunna falā junāḥa ‘alaikum fīmā fa‘alna fī anfusihinna bil-ma‘rūf(i),wallāhu bimā ta‘malūna khabīr(un).
 
 ## 2:235
 
-Wa lā junāḥa ‘alaikum fīmā ‘arraḍtum bihī min khiṭbatin-nisā'i au aknantum fī anfusikum, ‘alimallāhu annakum satażkurūnahunna wa lākil lā tuwā‘idūhunna sirran illā an taqūlū qaulam ma‘rūfā(n), wa lā ta‘zimū ‘uqdatan-nikāḥi ḥattā yablugal-kitābu ajalah(ū), wa‘lamū annallāha ya‘lamu mā fī anfusikum faḥżarūh(u), wa‘lamū annallāha gafūrun ḥalīm(un).&#x20;
+Wa lā junāḥa ‘alaikum fīmā ‘arraḍtum bihī min khiṭbatin-nisā'i au aknantum fī anfusikum, ‘alimallāhu annakum satażkurūnahunna wa lākil lā tuwā‘idūhunna sirran illā an taqūlū qaulam ma‘rūfā(n), wa lā ta‘zimū ‘uqdatan-nikāḥi ḥattā yablugal-kitābu ajalah(ū), wa‘lamū annallāha ya‘lamu mā fī anfusikum faḥżarūh(u), wa‘lamū annallāha gafūrun ḥalīm(un).
 
 ## 2:236
 
-Lā junāḥa ‘alaikum in ṭallaqtumun-nisā'a mā lam tamassūhunna au tafriḍū lahunna farīḍah(tan), wa matti‘ūhunna ‘alal-mūsi‘i qadaruhū wa ‘alal-muqtiri qadaruhū matā‘am bil-ma‘rūf(i), ḥaqqan ‘alal-muḥsinīn(a).&#x20;
+Lā junāḥa ‘alaikum in ṭallaqtumun-nisā'a mā lam tamassūhunna au tafriḍū lahunna farīḍah(tan), wa matti‘ūhunna ‘alal-mūsi‘i qadaruhū wa ‘alal-muqtiri qadaruhū matā‘am bil-ma‘rūf(i), ḥaqqan ‘alal-muḥsinīn(a).
 
 ## 2:237
 
-Wa in ṭallaqtumūhunna min qabli an tamassūhunna wa qad faraḍtum lahunna farīḍatan faniṣfu mā faraḍtum illā ay ya‘fūna au ya‘fuwal-lażī biyadihī ‘uqdatun-nikāḥ(i), wa an ta‘fū aqrabu lit-taqwā, wa lā tansawul-faḍla bainakum, innallāha bimā ta‘malūna baṣīr(un). &#x20;
+Wa in ṭallaqtumūhunna min qabli an tamassūhunna wa qad faraḍtum lahunna farīḍatan faniṣfu mā faraḍtum illā ay ya‘fūna au ya‘fuwal-lażī biyadihī ‘uqdatun-nikāḥ(i), wa an ta‘fū aqrabu lit-taqwā, wa lā tansawul-faḍla bainakum, innallāha bimā ta‘malūna baṣīr(un).
 
 ## 2:238
 
-Ḥāfiẓū ‘alaṣ-ṣalawāti waṣ-ṣalātil-wusṭā, wa qūmū lillāhi qānitīn(a).  &#x20;
+Ḥāfiẓū ‘alaṣ-ṣalawāti waṣ-ṣalātil-wusṭā, wa qūmū lillāhi qānitīn(a).
 
 ## 2:239
 
-Fa'in khiftum farijālan au rukbānā(n), fa'iżā amintum fażkurullāha kamā ‘allamakum mā lam takūnū ta‘lamūn(a).&#x20;
+Fa'in khiftum farijālan au rukbānā(n), fa'iżā amintum fażkurullāha kamā ‘allamakum mā lam takūnū ta‘lamūn(a).
 
 ## 2:240
 
-Wal-lażīna yutawaffauna minkum wa yażarūna azwājā(n), waṣiyyatal li'azwājihim matā‘an ilal-ḥauli gaira ikhrāj(in), fa'in kharajna falā junāḥa ‘alaikum fī mā fa‘alna fī anfusihinna mim ma‘rūf(in), wallāhu ‘azīzun ḥakīm(un). &#x20;
+Wal-lażīna yutawaffauna minkum wa yażarūna azwājā(n), waṣiyyatal li'azwājihim matā‘an ilal-ḥauli gaira ikhrāj(in), fa'in kharajna falā junāḥa ‘alaikum fī mā fa‘alna fī anfusihinna mim ma‘rūf(in), wallāhu ‘azīzun ḥakīm(un).
 
 ## 2:241
 
-Wa lil-muṭallaqāti matā‘um bil-ma‘rūf(i),  ḥaqqan ‘alal-muttaqīn(a). &#x20;
+Wa lil-muṭallaqāti matā‘um bil-ma‘rūf(i),  ḥaqqan ‘alal-muttaqīn(a).
 
 ## 2:242
 
-Każālika yubayyinullāhu lakum āyātihī la‘allakum ta‘qilūn(a). &#x20;
+Każālika yubayyinullāhu lakum āyātihī la‘allakum ta‘qilūn(a).
 
 ## 2:243
 
-Alam tara ilal-lażīna kharajū min diyārihim wa hum ulūfun ḥażaral-maut(i), faqāla lahumullāhu mūtū, ṡumma aḥyāhum, inallāha lażū faḍlin ‘alan-nāsi wa lākinna akṡaran-nāsi lā yasykurūn(a).&#x20;
+Alam tara ilal-lażīna kharajū min diyārihim wa hum ulūfun ḥażaral-maut(i), faqāla lahumullāhu mūtū, ṡumma aḥyāhum, inallāha lażū faḍlin ‘alan-nāsi wa lākinna akṡaran-nāsi lā yasykurūn(a).
 
 ## 2:244
 
-Wa qātilū fī sabīlillāhi wa‘lamū annallāha samī‘un ‘alīm(un). &#x20;
+Wa qātilū fī sabīlillāhi wa‘lamū annallāha samī‘un ‘alīm(un).
 
 ## 2:245
 
-Man żal-lażī yuqriḍullāha qarḍan ḥasanan fayuḍā‘ifahū lahū aḍ‘āfan kaṡīrah(tan), wallāhu yaqbiḍu wa yabsuṭ(u), wa ilaihi turja‘ūn(a). &#x20;
+Man żal-lażī yuqriḍullāha qarḍan ḥasanan fayuḍā‘ifahū lahū aḍ‘āfan kaṡīrah(tan), wallāhu yaqbiḍu wa yabsuṭ(u), wa ilaihi turja‘ūn(a).
 
 ## 2:246
 
-Alam tara ilal-mala'i mim banī isrā'īla mim ba‘di mūsā, iż qālū linabiyyil lahumub‘aṡ lanā malikan nuqātil fī sabīlillāh(i), qāla hal ‘asaitum in kutiba ‘alaikumul-qitālu allā tuqātilū, qālū wa mā lanā allā nuqātila fī sabīlillāhi wa qad ukhrijnā min diyārinā wa abnā'inā, falammā kutiba ‘alaihimul-qitālu tawallau illā qalīlam minhum, wallāhu ‘alīmum biẓ-ẓālimīn(a).&#x20;
+Alam tara ilal-mala'i mim banī isrā'īla mim ba‘di mūsā, iż qālū linabiyyil lahumub‘aṡ lanā malikan nuqātil fī sabīlillāh(i), qāla hal ‘asaitum in kutiba ‘alaikumul-qitālu allā tuqātilū, qālū wa mā lanā allā nuqātila fī sabīlillāhi wa qad ukhrijnā min diyārinā wa abnā'inā, falammā kutiba ‘alaihimul-qitālu tawallau illā qalīlam minhum, wallāhu ‘alīmum biẓ-ẓālimīn(a).
 
 ## 2:247
 
-Wa qāla lahum nabiyyuhum innallāha qad ba‘aṡa lakum ṭālūta malikā(n), qālū annā yakūnu lahul-mulku ‘alainā wa naḥnu aḥaqqu bil-mulki minhu wa lam yu'ta sa‘atam minal-māl(i), qāla innallāhaṣṭafāhu ‘alaikum wa zādahū basṭatan fil-‘ilmi wal-jism(i), wallāhu yu'tī mulkahū may yasyā'(u), wallāhu wāsi‘un ‘alīm(un). &#x20;
+Wa qāla lahum nabiyyuhum innallāha qad ba‘aṡa lakum ṭālūta malikā(n), qālū annā yakūnu lahul-mulku ‘alainā wa naḥnu aḥaqqu bil-mulki minhu wa lam yu'ta sa‘atam minal-māl(i), qāla innallāhaṣṭafāhu ‘alaikum wa zādahū basṭatan fil-‘ilmi wal-jism(i), wallāhu yu'tī mulkahū may yasyā'(u), wallāhu wāsi‘un ‘alīm(un).
 
 ## 2:248
 
-Wa qāla lahum nabiyyuhum inna āyata mulkihī ay ya'tiyakumut-tābūtu fīhi sakīnatum mir rabbikum wa baqiyyatum mimmā taraka ālu mūsā wa ālu hārūna taḥmiluhul-malā'ikah(tu), inna fī żālika la āyatal lakum in kuntum mu'minīn(a).&#x20;
+Wa qāla lahum nabiyyuhum inna āyata mulkihī ay ya'tiyakumut-tābūtu fīhi sakīnatum mir rabbikum wa baqiyyatum mimmā taraka ālu mūsā wa ālu hārūna taḥmiluhul-malā'ikah(tu), inna fī żālika la āyatal lakum in kuntum mu'minīn(a).
 
 ## 2:249
 
-Falammā faṣala ṭālūtu bil-junūd(i), qāla innallāha mubtalīkum binahar(in), faman syariba minhu falaisa minnī, wa mal lam yaṭ‘amhu fa innahū minnī illā manigtarafa gurfatam biyadih(ī), fa syaribū minhu illā qalīlam minhum, falammā jāwazahū huwa wal-lażīna āmanū ma‘ah(ū), qālū lā ṭāqata lanal-yauma bijālūta wa junūdih(ī), qālal-lażīna yaẓunnūna annahum mulāqullāh(i), kam min fi'atin qalīlatin galabat fi'atan kaṡīratam bi'iżnillāh(i), wallāhu ma‘aṣ-ṣābirīn(a).&#x20;
+Falammā faṣala ṭālūtu bil-junūd(i), qāla innallāha mubtalīkum binahar(in), faman syariba minhu falaisa minnī, wa mal lam yaṭ‘amhu fa innahū minnī illā manigtarafa gurfatam biyadih(ī), fa syaribū minhu illā qalīlam minhum, falammā jāwazahū huwa wal-lażīna āmanū ma‘ah(ū), qālū lā ṭāqata lanal-yauma bijālūta wa junūdih(ī), qālal-lażīna yaẓunnūna annahum mulāqullāh(i), kam min fi'atin qalīlatin galabat fi'atan kaṡīratam bi'iżnillāh(i), wallāhu ma‘aṣ-ṣābirīn(a).
 
 ## 2:250
 
-Wa lammā barazū lijālūta wa junūdihī qālū rabbanā afrig ‘alainā ṣabraw wa ṡabbit aqdāmanā wanṣurnā ‘alal-qaumil-kāfirīn(a). &#x20;
+Wa lammā barazū lijālūta wa junūdihī qālū rabbanā afrig ‘alainā ṣabraw wa ṡabbit aqdāmanā wanṣurnā ‘alal-qaumil-kāfirīn(a).
 
 ## 2:251
 
-Fahazamūhum bi'iżnillāh(i), wa qatala dāwūdu jālūta wa ātāhullāhul-mulka wal-ḥikmata wa ‘allamahū mimmā yasyā'(u), wa lau lā daf‘ullāhin-nāsa ba‘ḍahum biba‘ḍil lafasadatil-arḍu wa lākinnallāha żū faḍlin ‘alal-‘ālamīn(a).&#x20;
+Fahazamūhum bi'iżnillāh(i), wa qatala dāwūdu jālūta wa ātāhullāhul-mulka wal-ḥikmata wa ‘allamahū mimmā yasyā'(u), wa lau lā daf‘ullāhin-nāsa ba‘ḍahum biba‘ḍil lafasadatil-arḍu wa lākinnallāha żū faḍlin ‘alal-‘ālamīn(a).
 
 ## 2:252
 
-Tilka āyātullāhi natlūhā ‘alaika bil-ḥaqq(i), wa innaka laminal-mursalīn(a). &#x20;
+Tilka āyātullāhi natlūhā ‘alaika bil-ḥaqq(i), wa innaka laminal-mursalīn(a).
 
 ## 2:253
 
-Tilkar-rusulu faḍḍalnā ba‘ḍahum ‘alā ba‘ḍ(in), minhum man kallamallāhu wa rafa‘a ba‘ḍahum darajāt(in), wa ātainā ‘īsabna maryamal-bayyināti wa ayyadnāhu birūḥil-qudus(i), wa lau syā'allāhu maqtatalal-lażīna mim ba‘dihim mim ba‘di mā jā'athumul-bayyinātu wa lākinikhtalafū fa minhum man āmana wa minhum man kafar(a),  wa lau syā'allāhu maqtatalū, wa lākinnallāha yaf‘alu mā yurīd(u). &#x20;
+Tilkar-rusulu faḍḍalnā ba‘ḍahum ‘alā ba‘ḍ(in), minhum man kallamallāhu wa rafa‘a ba‘ḍahum darajāt(in), wa ātainā ‘īsabna maryamal-bayyināti wa ayyadnāhu birūḥil-qudus(i), wa lau syā'allāhu maqtatalal-lażīna mim ba‘dihim mim ba‘di mā jā'athumul-bayyinātu wa lākinikhtalafū fa minhum man āmana wa minhum man kafar(a),  wa lau syā'allāhu maqtatalū, wa lākinnallāha yaf‘alu mā yurīd(u).
 
 ## 2:254
 
-Yā ayyuhal-lażīna āmanū anfiqū mimmā razaqnākum min qabli ay ya'tiya yaumul lā bai‘un fīhi wa lā khullatuw wa lā syafā‘ah(tun), wal-kāfirūna humuẓ-ẓālimūn(a). &#x20;
+Yā ayyuhal-lażīna āmanū anfiqū mimmā razaqnākum min qabli ay ya'tiya yaumul lā bai‘un fīhi wa lā khullatuw wa lā syafā‘ah(tun), wal-kāfirūna humuẓ-ẓālimūn(a).
 
 ## 2:255
 
-Allāhu lā ilāha illā huw(a), al-ḥayyul-qayyūm(u), lā ta'khużuhū sinatuw wa lā naum(un), lahū mā fis-samāwāti wa mā fil-arḍ(i), man żal-lażī yasyfa‘u ‘indahū illā bi'iżnih(ī), ya‘lamu mā baina aidīhim wa mā khalfahum, wa lā yuḥīṭūna bisyai'im min ‘ilmihī illā bimā syā'(a), wasi‘a kursiyyuhus-samāwāti wal-arḍ(a), wa lā ya'ūduhū ḥifẓuhumā, wa huwal-‘aliyyul-‘aẓīm(u). &#x20;
+Allāhu lā ilāha illā huw(a), al-ḥayyul-qayyūm(u), lā ta'khużuhū sinatuw wa lā naum(un), lahū mā fis-samāwāti wa mā fil-arḍ(i), man żal-lażī yasyfa‘u ‘indahū illā bi'iżnih(ī), ya‘lamu mā baina aidīhim wa mā khalfahum, wa lā yuḥīṭūna bisyai'im min ‘ilmihī illā bimā syā'(a), wasi‘a kursiyyuhus-samāwāti wal-arḍ(a), wa lā ya'ūduhū ḥifẓuhumā, wa huwal-‘aliyyul-‘aẓīm(u).
 
 ## 2:256
 
-Lā ikrāha fid-dīn(i), qat tabayyanar-rusydu minal-gayy(i), famay yakfur biṭ-ṭāgūti wa yu'mim billāhi fa qadistamsaka bil-‘urwatil-wuṡqā, lanfiṣāma lahā, wallāhu samī‘un ‘alīm(un). &#x20;
+Lā ikrāha fid-dīn(i), qat tabayyanar-rusydu minal-gayy(i), famay yakfur biṭ-ṭāgūti wa yu'mim billāhi fa qadistamsaka bil-‘urwatil-wuṡqā, lanfiṣāma lahā, wallāhu samī‘un ‘alīm(un).
 
 ## 2:257
 
-Allāhu waliyyul-lażīna āmanū yukhrijuhum minaẓ-ẓulumāti ilan-nūr(i), wal-lażīna kafarū auliyā'uhumuṭ-ṭāgūtu yukhrijuhum minan-nūri ilaẓ-ẓulumāt(i), ulā'ika aṣḥābun-nār(i), hum fīhā khālidūn(a). &#x20;
+Allāhu waliyyul-lażīna āmanū yukhrijuhum minaẓ-ẓulumāti ilan-nūr(i), wal-lażīna kafarū auliyā'uhumuṭ-ṭāgūtu yukhrijuhum minan-nūri ilaẓ-ẓulumāt(i), ulā'ika aṣḥābun-nār(i), hum fīhā khālidūn(a).
 
 ## 2:258
 
-Alam tara ilal-lażī ḥājja ibrāhīma fī rabbihī an ātāhullāhul-mulk(a), iż qāla ibrāhīmu rabbiyal-lażī yuḥyī wa yumīt(u), qāla ana uḥyī wa umīt(u), qāla ibrāhīmu fa innallāha ya'tī bisy-syamsi minal-masyriqi fa'ti bihā minal-magribi fabuhital-lażī kafar(a), wallāhu lā yahdil-qaumaẓ-ẓālimīn(a). &#x20;
+Alam tara ilal-lażī ḥājja ibrāhīma fī rabbihī an ātāhullāhul-mulk(a), iż qāla ibrāhīmu rabbiyal-lażī yuḥyī wa yumīt(u), qāla ana uḥyī wa umīt(u), qāla ibrāhīmu fa innallāha ya'tī bisy-syamsi minal-masyriqi fa'ti bihā minal-magribi fabuhital-lażī kafar(a), wallāhu lā yahdil-qaumaẓ-ẓālimīn(a).
 
 ## 2:259
 
-Au kal-lażī marra ‘alā qaryatiw wa hiya khāwiyatun ‘alā ‘urūsyihā, qāla annā yuḥyī hāżihillāhu ba‘da mautihā, fa'amātahullāhu mi'ata ‘āmin ṡumma ba‘aṡah(ū), qāla kam labiṡt(a), qāla labiṡtu yauman au ba‘ḍa yaum(in), qāla bal labiṡta mi'ata ‘āmin fanẓur ilā ṭa‘āmika wa syarābika lam yatasannah, wanẓur ilā ḥimārik(a), wa linaj‘alaka āyatal lin-nāsi wanẓur ilal-‘iẓāmi kaifa nunsyizuhā ṡumma naksūhā laḥmā(n), falammā tabayyana lah(ū), qāla a‘lamu annallāha ‘alā kulli syai'in qadīr(un). &#x20;
+Au kal-lażī marra ‘alā qaryatiw wa hiya khāwiyatun ‘alā ‘urūsyihā, qāla annā yuḥyī hāżihillāhu ba‘da mautihā, fa'amātahullāhu mi'ata ‘āmin ṡumma ba‘aṡah(ū), qāla kam labiṡt(a), qāla labiṡtu yauman au ba‘ḍa yaum(in), qāla bal labiṡta mi'ata ‘āmin fanẓur ilā ṭa‘āmika wa syarābika lam yatasannah, wanẓur ilā ḥimārik(a), wa linaj‘alaka āyatal lin-nāsi wanẓur ilal-‘iẓāmi kaifa nunsyizuhā ṡumma naksūhā laḥmā(n), falammā tabayyana lah(ū), qāla a‘lamu annallāha ‘alā kulli syai'in qadīr(un).
 
 ## 2:260
 
-Wa iż qāla ibrāhīmu rabbi arinī kaifa tuḥyil-mautā, qāla awalam tu'min, qāla balā wa lākil liyaṭma'inna qalbī, qāla fakhuż arba‘atam minaṭ-ṭairi faṣurhunna ilaika ṡummaj‘al ‘alā kulli jabalim minhunna  juz'an ṡummad‘uhunna ya'tīnaka sa‘yā(n), wa‘lam annallāha ‘azīzun ḥakīm(un). &#x20;
+Wa iż qāla ibrāhīmu rabbi arinī kaifa tuḥyil-mautā, qāla awalam tu'min, qāla balā wa lākil liyaṭma'inna qalbī, qāla fakhuż arba‘atam minaṭ-ṭairi faṣurhunna ilaika ṡummaj‘al ‘alā kulli jabalim minhunna  juz'an ṡummad‘uhunna ya'tīnaka sa‘yā(n), wa‘lam annallāha ‘azīzun ḥakīm(un).
 
 ## 2:261
 
-Maṡalul-lażīna yunfiqūna amwālahum fī sabīlillāhi kamaṡali ḥabbatin ambatat sab‘a sanābila fī kulli sumbulatim mi'atu ḥabbah(tin), wallāhu yuḍā‘ifu limay yasyā'(u), wallāhu wāsi‘un ‘alīm(un). &#x20;
+Maṡalul-lażīna yunfiqūna amwālahum fī sabīlillāhi kamaṡali ḥabbatin ambatat sab‘a sanābila fī kulli sumbulatim mi'atu ḥabbah(tin), wallāhu yuḍā‘ifu limay yasyā'(u), wallāhu wāsi‘un ‘alīm(un).
 
 ## 2:262
 
-Allażīna yunfiqūna amwālahum fī sabīlillāhi ṡumma lā yutbi‘ūna mā anfaqū mannaw wa lā ażā(n), lahum ajruhum ‘inda rabbihim, wa lā khaufun ‘alaihim wa lā hum yaḥzanūn(a). &#x20;
+Allażīna yunfiqūna amwālahum fī sabīlillāhi ṡumma lā yutbi‘ūna mā anfaqū mannaw wa lā ażā(n), lahum ajruhum ‘inda rabbihim, wa lā khaufun ‘alaihim wa lā hum yaḥzanūn(a).
 
 ## 2:263
 
-Qaulum ma‘rūfuw wa magfiratun khairum min ṣadaqatiy yatba‘uhā ażā(n), wallāhu ganiyyun ḥalīm(un). &#x20;
+Qaulum ma‘rūfuw wa magfiratun khairum min ṣadaqatiy yatba‘uhā ażā(n), wallāhu ganiyyun ḥalīm(un).
 
 ## 2:264
 
-Yā ayyuhal-lażīna āmanū lā tubṭilū ṣadaqātikum bil-manni wal-ażā, kal-lażī yunfiqu mālahū ri'ā'an-nāsi wa lā yu'minu billāhi wal-yaumil-ākhir(i), fa maṡaluhū kamaṡali ṣafwānin ‘alaihi turābun fa'aṣābahū wābilun fatarakahū ṣaldā(n), lā yaqdirūna ‘alā syai'im mimmā kasabū, wallāhu lā yahdil-qaumal-kāfirīn(a). &#x20;
+Yā ayyuhal-lażīna āmanū lā tubṭilū ṣadaqātikum bil-manni wal-ażā, kal-lażī yunfiqu mālahū ri'ā'an-nāsi wa lā yu'minu billāhi wal-yaumil-ākhir(i), fa maṡaluhū kamaṡali ṣafwānin ‘alaihi turābun fa'aṣābahū wābilun fatarakahū ṣaldā(n), lā yaqdirūna ‘alā syai'im mimmā kasabū, wallāhu lā yahdil-qaumal-kāfirīn(a).
 
 ## 2:265
 
-Wa maṡalul-lażīna yunfiqūna amwālahumubtigā'a marḍātillāhi wa taṡbītam min anfusihim kamaṡali jannatim birabwatin aṣābahā wābilun fa'ātat ukulahā ḍi‘fain(i), fa'illam yuṣibhā wābilun faṭall(un), wallāhu bimā ta‘malūna baṣīr(un). &#x20;
+Wa maṡalul-lażīna yunfiqūna amwālahumubtigā'a marḍātillāhi wa taṡbītam min anfusihim kamaṡali jannatim birabwatin aṣābahā wābilun fa'ātat ukulahā ḍi‘fain(i), fa'illam yuṣibhā wābilun faṭall(un), wallāhu bimā ta‘malūna baṣīr(un).
 
 ## 2:266
 
-Ayawaddu aḥadukum an takūna lahū jannatum min nakhīliw wa a‘nābin tajrī min taḥtihal-anhār(u), lahū fīhā min kulliṡ-ṡamarāt(i), wa aṣābahul-kibaru wa lahū żurriyyatun ḍu‘afā'(u), fa'aṣābahā i‘ṣārun fīhi nārun faḥtaraqat, każālika yubayyinullāhu lakumul-āyāti la‘allakum tatafakkarūn(a). &#x20;
+Ayawaddu aḥadukum an takūna lahū jannatum min nakhīliw wa a‘nābin tajrī min taḥtihal-anhār(u), lahū fīhā min kulliṡ-ṡamarāt(i), wa aṣābahul-kibaru wa lahū żurriyyatun ḍu‘afā'(u), fa'aṣābahā i‘ṣārun fīhi nārun faḥtaraqat, każālika yubayyinullāhu lakumul-āyāti la‘allakum tatafakkarūn(a).
 
 ## 2:267
 
-Yā ayyuhal-lażīna āmanū anfiqū min ṭayyibāti mā kasabtum wa mimmā akhrajnā lakum minal-arḍ(i), wa lā tayammamul-khabīṡa minhu tunfiqūna wa lastum bi'ākhiżīhi illā an tugmiḍū fīh(i), wa‘lamū annallāha ganiyyun ḥamīd(un). &#x20;
+Yā ayyuhal-lażīna āmanū anfiqū min ṭayyibāti mā kasabtum wa mimmā akhrajnā lakum minal-arḍ(i), wa lā tayammamul-khabīṡa minhu tunfiqūna wa lastum bi'ākhiżīhi illā an tugmiḍū fīh(i), wa‘lamū annallāha ganiyyun ḥamīd(un).
 
 ## 2:268
 
-Asy-syaiṭānu ya‘idukumul-faqra wa ya'murukum bil-faḥsyā'(i), wallāhu ya‘idukum magfiratam minhu wa faḍlā(n), wallāhu wāsi'un ‘alīm(un). &#x20;
+Asy-syaiṭānu ya‘idukumul-faqra wa ya'murukum bil-faḥsyā'(i), wallāhu ya‘idukum magfiratam minhu wa faḍlā(n), wallāhu wāsi'un ‘alīm(un).
 
 ## 2:269
 
-Yu'til-ḥikmata may yasyā'(u), wa may yu'tal-ḥikmata faqad ūtiya khairan kaṡīrā(n), wa mā yażżakkaru ilā ulul-albāb(i). &#x20;
+Yu'til-ḥikmata may yasyā'(u), wa may yu'tal-ḥikmata faqad ūtiya khairan kaṡīrā(n), wa mā yażżakkaru ilā ulul-albāb(i).
 
 ## 2:270
 
-Wa mā anfaqtum min nafaqatin au nażartum min nażrin fa innallāha ya‘lamuh(ū), wa mā liẓ-ẓālimīna min anṣār(in). &#x20;
+Wa mā anfaqtum min nafaqatin au nażartum min nażrin fa innallāha ya‘lamuh(ū), wa mā liẓ-ẓālimīna min anṣār(in).
 
 ## 2:271
 
-In tubduṣ-ṣadaqāti fani‘immā hiy(a), wa in tukhfūhā wa tu'tūhal-fuqarā'a fahuwa khairul lakum, wa yukaffiru ‘ankum min sayyi'ātikum, wallāhu bimā ta‘malūna khabīr(un). &#x20;
+In tubduṣ-ṣadaqāti fani‘immā hiy(a), wa in tukhfūhā wa tu'tūhal-fuqarā'a fahuwa khairul lakum, wa yukaffiru ‘ankum min sayyi'ātikum, wallāhu bimā ta‘malūna khabīr(un).
 
 ## 2:272
 
-Laisa ‘alaika hudāhum wa lākinnallāha yahdī may yasyā'(u), wa mā tunfiqū min khairin fa li'anfusikum, wa mā tunfiqūna illabtigā'a wajhillāh(i), wa mā tunfiqū min khairiy yuwaffa ilaikum wa antum lā tuẓlamūn(a). &#x20;
+Laisa ‘alaika hudāhum wa lākinnallāha yahdī may yasyā'(u), wa mā tunfiqū min khairin fa li'anfusikum, wa mā tunfiqūna illabtigā'a wajhillāh(i), wa mā tunfiqū min khairiy yuwaffa ilaikum wa antum lā tuẓlamūn(a).
 
 ## 2:273
 
-Lil-fuqarā'il-lażīna uḥṣirū fī sabīlillāhi lā yastaṭī‘ūna ḍarban fil-arḍi yaḥsabuhumul-jāhilu  agniyā'a minat-ta‘affuf(i), ta‘rifuhum bisīmāhum, lā yas'alūnan-nāsa ilḥāfā(n), wa mā tunfiqū min khairin fa innallāha bihī ‘alīm(un). &#x20;
+Lil-fuqarā'il-lażīna uḥṣirū fī sabīlillāhi lā yastaṭī‘ūna ḍarban fil-arḍi yaḥsabuhumul-jāhilu  agniyā'a minat-ta‘affuf(i), ta‘rifuhum bisīmāhum, lā yas'alūnan-nāsa ilḥāfā(n), wa mā tunfiqū min khairin fa innallāha bihī ‘alīm(un).
 
 ## 2:274
 
-Allażīna yunfiqūna amwālahum bil-laili wan-nahāri sirraw wa ‘alāniyatan falahum ajruhum ‘inda rabbihim, wa lā khaufun ‘alaihim wa lā hum yaḥzanūn(a). &#x20;
+Allażīna yunfiqūna amwālahum bil-laili wan-nahāri sirraw wa ‘alāniyatan falahum ajruhum ‘inda rabbihim, wa lā khaufun ‘alaihim wa lā hum yaḥzanūn(a).
 
 ## 2:275
 
-Allażīna ya'kulūnar-ribā lā yaqūmūna illā kamā yaqūmul-lażī yatakhabbaṭuhusy-syaiṭānu minal-mass(i), żālika bi'annahum qālū innamal-bai‘u miṡlur-ribā, wa aḥallallāhul-bai‘a wa ḥarramar-ribā, faman jā'ahū mau‘iẓatum mir rabbihī fantahā falahū mā salaf(a), wa amruhū ilallāh(i), wa man ‘āda fa ulā'ika aṣḥābun-nār(i), hum fīhā khālidūn(a). &#x20;
+Allażīna ya'kulūnar-ribā lā yaqūmūna illā kamā yaqūmul-lażī yatakhabbaṭuhusy-syaiṭānu minal-mass(i), żālika bi'annahum qālū innamal-bai‘u miṡlur-ribā, wa aḥallallāhul-bai‘a wa ḥarramar-ribā, faman jā'ahū mau‘iẓatum mir rabbihī fantahā falahū mā salaf(a), wa amruhū ilallāh(i), wa man ‘āda fa ulā'ika aṣḥābun-nār(i), hum fīhā khālidūn(a).
 
 ## 2:276
 
-Yamḥaqullāhur-ribā wa yurbiṣ-ṣadaqāt(i), wallāhu lā yuḥibbu kulla kaffārin aṡīm(in). &#x20;
+Yamḥaqullāhur-ribā wa yurbiṣ-ṣadaqāt(i), wallāhu lā yuḥibbu kulla kaffārin aṡīm(in).
 
 ## 2:277
 
-Innal-lażīna āmanū wa ‘amiluṣ-ṣāliḥāti wa aqāmuṣ-ṣalāta wa ātuz-zakāta lahum ajruhum ‘inda rabbihim, wa lā khaufun ‘alaihim wa lā hum yaḥzanūn(a). &#x20;
+Innal-lażīna āmanū wa ‘amiluṣ-ṣāliḥāti wa aqāmuṣ-ṣalāta wa ātuz-zakāta lahum ajruhum ‘inda rabbihim, wa lā khaufun ‘alaihim wa lā hum yaḥzanūn(a).
 
 ## 2:278
 
-Yā ayyuhal-lażīna āmanuttaqullāha wa żarū mā baqiya minar-ribā in kuntum mu'minīn(a).&#x20;
+Yā ayyuhal-lażīna āmanuttaqullāha wa żarū mā baqiya minar-ribā in kuntum mu'minīn(a).
 
 ## 2:279
 
-Fa'illam taf‘alū fa'żanū biḥarbim minallāhi wa rasūlih(ī), wa in tubtum falakum ru'ūsu amwālikum, lā taẓlimūna wa lā tuẓlamūn(a).&#x20;
+Fa'illam taf‘alū fa'żanū biḥarbim minallāhi wa rasūlih(ī), wa in tubtum falakum ru'ūsu amwālikum, lā taẓlimūna wa lā tuẓlamūn(a).
 
 ## 2:280
 
-Wa in kāna żū ‘usratin fanaẓiratun ilā maisarah(tin), wa an taṣaddaqū khairul lakum in kuntum ta‘lamūn(a). &#x20;
+Wa in kāna żū ‘usratin fanaẓiratun ilā maisarah(tin), wa an taṣaddaqū khairul lakum in kuntum ta‘lamūn(a).
 
 ## 2:281
 
-Wattaqū yauman turja‘ūna fīhi ilallāh(i), ṡumma tuwaffā kullu nafsim mā kasabat wa hum lā yuẓlamūn(a). &#x20;
+Wattaqū yauman turja‘ūna fīhi ilallāh(i), ṡumma tuwaffā kullu nafsim mā kasabat wa hum lā yuẓlamūn(a).
 
 ## 2:282
 
-Yā ayyuhal-lażīna āmanū iżā tadāyantum bidainin ilā ajalim musamman faktubūh(u), walyaktub bainakum kātibum bil-‘adl(i), wa lā ya'ba kātibun ay yaktuba kamā ‘allamahullāhu falyaktub, walyumlilil-lażī ‘alaihil-ḥaqqu walyattaqillāha rabbahū wa lā yabkhas minhu syai'ā(n), fa'in kānal-lażī ‘alaihil-ḥaqqu safīhan au ḍa‘īfan au lā yastaṭī‘u ay yumilla huwa falyumlil waliyyuhū bil-‘adl(i), wastasyhidū syahīdaini mir rijāliūkum, fa'illam yakūnā rajulaini farajuluw wamra'atāni mimman tarḍauna minasy-syuhadā'i an taḍilla iḥdāhumā fatużakkira iḥdāhumal-ukhrā, wa lā ya'basy-syuhadā'u iżā mā du‘ū, wa lā tas'amū an taktubūhu ṣagīran au kabīran ilā ajalih(ī), żālikum aqsaṭu ‘indallāhi wa aqwamu lisy-syahādati wa adnā allā tartābū illā an takūna tijāratan ḥāḍiratan tudīrūnahā bainakum falaisa ‘alaikum junāḥun allā taktubūhā, wa asyhidū iżā tabāya‘tum, wa lā yuḍārra kātibuw wa lā syahīd(un), wa in taf‘alū fa'innahū fusūqum bikum, wattaqullāh(a), wa yu‘allimukumullāh(u), wallāhu bikulli syai'in ‘alīm(un). &#x20;
+Yā ayyuhal-lażīna āmanū iżā tadāyantum bidainin ilā ajalim musamman faktubūh(u), walyaktub bainakum kātibum bil-‘adl(i), wa lā ya'ba kātibun ay yaktuba kamā ‘allamahullāhu falyaktub, walyumlilil-lażī ‘alaihil-ḥaqqu walyattaqillāha rabbahū wa lā yabkhas minhu syai'ā(n), fa'in kānal-lażī ‘alaihil-ḥaqqu safīhan au ḍa‘īfan au lā yastaṭī‘u ay yumilla huwa falyumlil waliyyuhū bil-‘adl(i), wastasyhidū syahīdaini mir rijāliūkum, fa'illam yakūnā rajulaini farajuluw wamra'atāni mimman tarḍauna minasy-syuhadā'i an taḍilla iḥdāhumā fatużakkira iḥdāhumal-ukhrā, wa lā ya'basy-syuhadā'u iżā mā du‘ū, wa lā tas'amū an taktubūhu ṣagīran au kabīran ilā ajalih(ī), żālikum aqsaṭu ‘indallāhi wa aqwamu lisy-syahādati wa adnā allā tartābū illā an takūna tijāratan ḥāḍiratan tudīrūnahā bainakum falaisa ‘alaikum junāḥun allā taktubūhā, wa asyhidū iżā tabāya‘tum, wa lā yuḍārra kātibuw wa lā syahīd(un), wa in taf‘alū fa'innahū fusūqum bikum, wattaqullāh(a), wa yu‘allimukumullāh(u), wallāhu bikulli syai'in ‘alīm(un).
 
 ## 2:283
 
-Wa in kuntum ‘alā safariw wa lam tajidū kātiban fa riḥānum maqbūḍah(tun), fa'in amina ba‘ḍukum ba‘ḍan falyu'addil-lażi'tumina amānatahū walyattaqillāha rabbah(ū), wa lā taktumusy syahādah(ta), wa may yaktumhā fa'innahū āṡimun qalbuh(ū), wallāhu bimā ta‘malūna  ‘alīm(un). &#x20;
+Wa in kuntum ‘alā safariw wa lam tajidū kātiban fa riḥānum maqbūḍah(tun), fa'in amina ba‘ḍukum ba‘ḍan falyu'addil-lażi'tumina amānatahū walyattaqillāha rabbah(ū), wa lā taktumusy syahādah(ta), wa may yaktumhā fa'innahū āṡimun qalbuh(ū), wallāhu bimā ta‘malūna  ‘alīm(un).
 
 ## 2:284
 
-Lillāhi mā fis-samāwāti wa mā fil-arḍ(i), wa in tubdū mā fī anfusikum au tukhfūhu yuḥāsibkum bihillāh(u), fayagfiru limay yasyā'u wa yu‘ażżibu may yasyā'(u), wallāhu ‘alā kulli syai'in qadīr(un). &#x20;
+Lillāhi mā fis-samāwāti wa mā fil-arḍ(i), wa in tubdū mā fī anfusikum au tukhfūhu yuḥāsibkum bihillāh(u), fayagfiru limay yasyā'u wa yu‘ażżibu may yasyā'(u), wallāhu ‘alā kulli syai'in qadīr(un).
 
 ## 2:285
 
-Āmanar-rasūlu bimā unzila ilaihi mir rabbihī wal-mu'minūn(a), kullun āmana billāhi wa malā'ikatihī wa kutubihī wa rusulih(ī), lā nufarriqu baina aḥadim mir rusulih(ī), wa qālū sami‘nā wa aṭa‘nā, gufrānaka rabbanā wa ilaikal-maṣīr(u).&#x20;
+Āmanar-rasūlu bimā unzila ilaihi mir rabbihī wal-mu'minūn(a), kullun āmana billāhi wa malā'ikatihī wa kutubihī wa rusulih(ī), lā nufarriqu baina aḥadim mir rusulih(ī), wa qālū sami‘nā wa aṭa‘nā, gufrānaka rabbanā wa ilaikal-maṣīr(u).
 
 ## 2:286
 
-Lā yukallifullāhu nafsan illā wus‘ahā, lahā mā kasabat wa ‘alaihā maktasabat, rabbanā lā tu'ākhiżnā in nasīnā au akhṭa'nā, rabbanā wa lā taḥmil ‘alainā iṣran kamā ḥamaltahū ‘alal-lażīna min qablinā, rabbanā wa lā tuḥammilnā mā lā ṭāqata lanā bih(ī), wa‘fu ‘annā, wagfir lanā, warḥamnā, anta maulānā fanṣurnā ‘alal qaumil-kāfirīn(a). &#x20;
+Lā yukallifullāhu nafsan illā wus‘ahā, lahā mā kasabat wa ‘alaihā maktasabat, rabbanā lā tu'ākhiżnā in nasīnā au akhṭa'nā, rabbanā wa lā taḥmil ‘alainā iṣran kamā ḥamaltahū ‘alal-lażīna min qablinā, rabbanā wa lā tuḥammilnā mā lā ṭāqata lanā bih(ī), wa‘fu ‘annā, wagfir lanā, warḥamnā, anta maulānā fanṣurnā ‘alal qaumil-kāfirīn(a).
 
 ## 3:1
 
-Alif lām mīm.&#x20;
+Alif lām mīm.
 
 ## 3:2
 
-Allāhu lā ilāha illā huwal-ḥayyul-qayyūm(u).&#x20;
+Allāhu lā ilāha illā huwal-ḥayyul-qayyūm(u).
 
 ## 3:3
 
-Nazzala ‘alaikal-kitāba bil-ḥaqqi muṣaddiqal limā baina yadaihi wa anzalat-taurāta wal-injīl(a). &#x20;
+Nazzala ‘alaikal-kitāba bil-ḥaqqi muṣaddiqal limā baina yadaihi wa anzalat-taurāta wal-injīl(a).
 
 ## 3:4
 
-Min qablu hudal lin-nāsi wa anzalal-furqān(a), innal-lażīna kafarū bi āyātillāhi lahum ‘ażābun syadīd(un), wallāhu ‘azīzun żuntiqām(in). &#x20;
+Min qablu hudal lin-nāsi wa anzalal-furqān(a), innal-lażīna kafarū bi āyātillāhi lahum ‘ażābun syadīd(un), wallāhu ‘azīzun żuntiqām(in).
 
 ## 3:5
 
-Innallāha lā yakhfā ‘alaihi syai'un fil-arḍi wa lā fis-samā'(i). &#x20;
+Innallāha lā yakhfā ‘alaihi syai'un fil-arḍi wa lā fis-samā'(i).
 
 ## 3:6
 
-Huwal-lażī yuṣawwirukum fil-arḥāmi kaifa yasyā'(u), lā ilāha illā huwal-‘azīzul-ḥakīm(u). &#x20;
+Huwal-lażī yuṣawwirukum fil-arḥāmi kaifa yasyā'(u), lā ilāha illā huwal-‘azīzul-ḥakīm(u).
 
 ## 3:7
 
-Huwal-lażī anzala ‘alaikal-kitāba minhu āyātum muḥkamātun hunna ummul-kitābi wa ukharu mutasyābihāt(un), fa'ammal-lażīna fī qulūbihim zaigun fayattabi‘ūna mā tasyābaha minhubtigā'al-fitnati wabtigā'a ta'wīlih(ī), wa mā ya‘lamu ta'wīlahū illallāh(u), war-rāsikhūna fil-‘ilmi yaqūlūna āmannā bih(ī), kullum min ‘indi rabbinā, wa mā yażżakkaru illā ulul-albāb(i). &#x20;
+Huwal-lażī anzala ‘alaikal-kitāba minhu āyātum muḥkamātun hunna ummul-kitābi wa ukharu mutasyābihāt(un), fa'ammal-lażīna fī qulūbihim zaigun fayattabi‘ūna mā tasyābaha minhubtigā'al-fitnati wabtigā'a ta'wīlih(ī), wa mā ya‘lamu ta'wīlahū illallāh(u), war-rāsikhūna fil-‘ilmi yaqūlūna āmannā bih(ī), kullum min ‘indi rabbinā, wa mā yażżakkaru illā ulul-albāb(i).
 
 ## 3:8
 
-Rabbanā lā tuzig qulūbanā ba‘da iż hadaitanā wa hab lanā mil ladunka raḥmah(tan), innaka antal-wahhāb(u). &#x20;
+Rabbanā lā tuzig qulūbanā ba‘da iż hadaitanā wa hab lanā mil ladunka raḥmah(tan), innaka antal-wahhāb(u).
 
 ## 3:9
 
-Rabbanā innaka jāmi‘un-nāsi liyaumil lā raiba fīh(i), innallāha lā yukhliful-mī‘ād(a). &#x20;
+Rabbanā innaka jāmi‘un-nāsi liyaumil lā raiba fīh(i), innallāha lā yukhliful-mī‘ād(a).
 
 ## 3:10
 
-Innal-lażīna kafarū lan tugniya ‘anhum amwāluhum wa lā aulāduhum minallāhi syai'ā(n), wa ulā'ika hum waqūdun-nār(i). &#x20;
+Innal-lażīna kafarū lan tugniya ‘anhum amwāluhum wa lā aulāduhum minallāhi syai'ā(n), wa ulā'ika hum waqūdun-nār(i).
 
 ## 3:11
 
-Kada'bi āli fir‘aun(a), wal-lażīna min qablihim, każżabū bi'āyātinā, fa'akhażahumullāhu biżunūbihim, wallāhu syadīdul-‘iqāb(i). &#x20;
+Kada'bi āli fir‘aun(a), wal-lażīna min qablihim, każżabū bi'āyātinā, fa'akhażahumullāhu biżunūbihim, wallāhu syadīdul-‘iqāb(i).
 
 ## 3:12
 
-Qul lil-lażīna kafarū satuglabūna wa tuḥsyarūna ilā jahannam(a), wa bi'sal-mihād(u). &#x20;
+Qul lil-lażīna kafarū satuglabūna wa tuḥsyarūna ilā jahannam(a), wa bi'sal-mihād(u).
 
 ## 3:13
 
-Qad kāna lakum āyatun fī fi'atainil taqatā, fi'atun tuqātilu fī sabīlillāhi wa ukhrā kāfiratuy yaraunahum miṡlaihim ra'yal-‘ain(i), wallāhu yu'ayyidu binaṣrihī may yasyā'(u), inna fī żālika la‘ibratal li'ulil-abṣār(i). &#x20;
+Qad kāna lakum āyatun fī fi'atainil taqatā, fi'atun tuqātilu fī sabīlillāhi wa ukhrā kāfiratuy yaraunahum miṡlaihim ra'yal-‘ain(i), wallāhu yu'ayyidu binaṣrihī may yasyā'(u), inna fī żālika la‘ibratal li'ulil-abṣār(i).
 
 ## 3:14
 
-Zuyyina lin-nāsi ḥubbusy-syahawāti minan-nisā'i wal-banīna wal-qanāṭīril-muqanṭarati minaż-żahabi wal-fiḍḍati wal-khailil-musawwamati wal-an‘āmi wal-ḥarṡ(i), żālika matā‘ul-ḥayātid-dun-yā, wallāhu ‘indahū ḥusnul-ma'āb(i). &#x20;
+Zuyyina lin-nāsi ḥubbusy-syahawāti minan-nisā'i wal-banīna wal-qanāṭīril-muqanṭarati minaż-żahabi wal-fiḍḍati wal-khailil-musawwamati wal-an‘āmi wal-ḥarṡ(i), żālika matā‘ul-ḥayātid-dun-yā, wallāhu ‘indahū ḥusnul-ma'āb(i).
 
 ## 3:15
 
-Qul a'unabbi'ukum bikhairim min żālikum, lil-lażīnattaqau ‘inda rabbihim jannātun tajrī min taḥtihal-anhāru khālidīna fīhā wa azwājum muṭahharatuw wa riḍwānum minallāh(i), wallāhu baṣīrum bil-‘ibād(i). &#x20;
+Qul a'unabbi'ukum bikhairim min żālikum, lil-lażīnattaqau ‘inda rabbihim jannātun tajrī min taḥtihal-anhāru khālidīna fīhā wa azwājum muṭahharatuw wa riḍwānum minallāh(i), wallāhu baṣīrum bil-‘ibād(i).
 
 ## 3:16
 
-Allażīna yaqūlūna rabbanā innanā āmannā fagfir lanā żunūbanā wa qinā ‘ażāban-nār(i). &#x20;
+Allażīna yaqūlūna rabbanā innanā āmannā fagfir lanā żunūbanā wa qinā ‘ażāban-nār(i).
 
 ## 3:17
 
-Aṣ-ṣābirīna waṣ-ṣādiqīna wal-qāniṭīna wal-munfiqīna wal-mustagfirīna bil-asḥār(i). &#x20;
+Aṣ-ṣābirīna waṣ-ṣādiqīna wal-qāniṭīna wal-munfiqīna wal-mustagfirīna bil-asḥār(i).
 
 ## 3:18
 
-Syahidallāhu annahū lā ilāha illā huw(a), wal-malā'ikatu wa ulul-‘ilmi qā'imam bil-qisṭ(i), lā ilāha illā huwal-‘azīzul-ḥakīm(u).&#x20;
+Syahidallāhu annahū lā ilāha illā huw(a), wal-malā'ikatu wa ulul-‘ilmi qā'imam bil-qisṭ(i), lā ilāha illā huwal-‘azīzul-ḥakīm(u).
 
 ## 3:19
 
-Innad-dīna ‘indallāhil-islām(u), wa makhtalafal-lażīna ūtul-kitāba illā mim ba‘di mā jā'ahumul-‘ilmu bagyam bainahum, wa may yakfur bi'āyātillāhi fa innallāha sarī‘ul-ḥisāb(i).&#x20;
+Innad-dīna ‘indallāhil-islām(u), wa makhtalafal-lażīna ūtul-kitāba illā mim ba‘di mā jā'ahumul-‘ilmu bagyam bainahum, wa may yakfur bi'āyātillāhi fa innallāha sarī‘ul-ḥisāb(i).
 
 ## 3:20
 
-Fa'in ḥājjūka fa qul aslamtu wajhiya lillāhi wa manittaba‘an(i), wa qul lil-lażīna ūtul-kitāba wal-ummiyyīna a'aslamtum, fa'in aslamū faqadihtadau, wa in tawallau fa'innamā ‘alaikal-balāg(u), wallāhu baṣīrum bil-‘ibād(i). &#x20;
+Fa'in ḥājjūka fa qul aslamtu wajhiya lillāhi wa manittaba‘an(i), wa qul lil-lażīna ūtul-kitāba wal-ummiyyīna a'aslamtum, fa'in aslamū faqadihtadau, wa in tawallau fa'innamā ‘alaikal-balāg(u), wallāhu baṣīrum bil-‘ibād(i).
 
 ## 3:21
 
-Innal-lażīna yakfurūna bi'āyātillāhi wa yaqtulūnan nabiyyīna bigairi ḥaqq(in), wa yaqtulūnal-lażīna ya'murūna bil-qisṭi minan-nās(i), fabasysyirhum bi‘ażābin alīm(in). &#x20;
+Innal-lażīna yakfurūna bi'āyātillāhi wa yaqtulūnan nabiyyīna bigairi ḥaqq(in), wa yaqtulūnal-lażīna ya'murūna bil-qisṭi minan-nās(i), fabasysyirhum bi‘ażābin alīm(in).
 
 ## 3:22
 
-Ulā'ikal-lażīna ḥabiṭat a‘māluhum fid-dun-yā wal-ākhirah(ti), wa mā lahum min nāṣirīn(a). &#x20;
+Ulā'ikal-lażīna ḥabiṭat a‘māluhum fid-dun-yā wal-ākhirah(ti), wa mā lahum min nāṣirīn(a).
 
 ## 3:23
 
-Alam tara ilal-lażīna ūtū naṣībam minal-kitābi yud‘auna ilā kitābillāhi liyaḥkuma bainahum ṡumma yatawallā farīqum minhum wa hum mu‘riḍūn(a). &#x20;
+Alam tara ilal-lażīna ūtū naṣībam minal-kitābi yud‘auna ilā kitābillāhi liyaḥkuma bainahum ṡumma yatawallā farīqum minhum wa hum mu‘riḍūn(a).
 
 ## 3:24
 
-Żālika bi'annahum qālū lan tamassanan nāru illā ayyāmam ma‘dūdāt(in), wa garrahum fī dīnihim mā kānū yaftarūn(a). &#x20;
+Żālika bi'annahum qālū lan tamassanan nāru illā ayyāmam ma‘dūdāt(in), wa garrahum fī dīnihim mā kānū yaftarūn(a).
 
 ## 3:25
 
-Fakaifa iżā jama‘nāhum liyaumil lā raiba fīh(i), wa wuffiyat kullu nafsim mā kasabat wa hum lā yuẓlamūn(a). &#x20;
+Fakaifa iżā jama‘nāhum liyaumil lā raiba fīh(i), wa wuffiyat kullu nafsim mā kasabat wa hum lā yuẓlamūn(a).
 
 ## 3:26
 
-Qulillāhumma mālikal-mulki tu'til-mulka man tasyā'u wa tanzi‘ul-mulka mim man tasyā'(u), wa tu‘izzu man tasyā'u wa tużillu man tasyā'(u), biyadikal-khair(u), innaka ‘alā kulli syai'in qadīr(un). &#x20;
+Qulillāhumma mālikal-mulki tu'til-mulka man tasyā'u wa tanzi‘ul-mulka mim man tasyā'(u), wa tu‘izzu man tasyā'u wa tużillu man tasyā'(u), biyadikal-khair(u), innaka ‘alā kulli syai'in qadīr(un).
 
 ## 3:27
 
-Tūlijul-laila fin-nahāri wa tūlijun-nahāra fil-laili wa tukhrijul-ḥayya minal-mayyiti wa tukhrijul-mayyita minal-ḥayyi wa tarzuqu man tasyā'u bigairi ḥisāb(in). &#x20;
+Tūlijul-laila fin-nahāri wa tūlijun-nahāra fil-laili wa tukhrijul-ḥayya minal-mayyiti wa tukhrijul-mayyita minal-ḥayyi wa tarzuqu man tasyā'u bigairi ḥisāb(in).
 
 ## 3:28
 
-Lā yattakhiżil-mu'minūnal-kāfirīna auliyā'a min dūnil-mu'minīn(a), wa may yaf‘al żālika falaisa minallāhi fī syai'(in), illā an tattaqū minhum tuqāh(tan), wa yuḥażżirukumullāhu nafsah(ū), wa ilallāhil-maṣīr(u). &#x20;
+Lā yattakhiżil-mu'minūnal-kāfirīna auliyā'a min dūnil-mu'minīn(a), wa may yaf‘al żālika falaisa minallāhi fī syai'(in), illā an tattaqū minhum tuqāh(tan), wa yuḥażżirukumullāhu nafsah(ū), wa ilallāhil-maṣīr(u).
 
 ## 3:29
 
-Qul in tukhfū mā fī ṣudūrikum  au tubdūhu ya‘lamhullāh(u), wa ya‘lamu mā fis-samāwāti wa mā fil-arḍ(i), wallāhu ‘alā kulli syai'in qadīr(un). &#x20;
+Qul in tukhfū mā fī ṣudūrikum  au tubdūhu ya‘lamhullāh(u), wa ya‘lamu mā fis-samāwāti wa mā fil-arḍ(i), wallāhu ‘alā kulli syai'in qadīr(un).
 
 ## 3:30
 
-Yauma tajidu kullu nafsim mā ‘amilat min khairim muḥḍarā(n), wa mā ‘amilat min sū'(in), tawaddu lau anna bainahā wa bainahū amadam ba‘īdā(n), wa yuḥażżirukumullāhu nafsah(ū), wallāhu ra'ūfum bil-‘ibād(i). &#x20;
+Yauma tajidu kullu nafsim mā ‘amilat min khairim muḥḍarā(n), wa mā ‘amilat min sū'(in), tawaddu lau anna bainahā wa bainahū amadam ba‘īdā(n), wa yuḥażżirukumullāhu nafsah(ū), wallāhu ra'ūfum bil-‘ibād(i).
 
 ## 3:31
 
-Qul in kuntum tuḥibbūnallāha fattabi‘ūnī yuḥbibkumullāhu wa yagfir lakum żunūbakum, wallāhu gafūrur raḥīm(un). &#x20;
+Qul in kuntum tuḥibbūnallāha fattabi‘ūnī yuḥbibkumullāhu wa yagfir lakum żunūbakum, wallāhu gafūrur raḥīm(un).
 
 ## 3:32
 
-Qul aṭī‘ullāha war-rasūl(a), fa'in tawallau fa innallāha lā yuḥibbul-kāfirīn(a). &#x20;
+Qul aṭī‘ullāha war-rasūl(a), fa'in tawallau fa innallāha lā yuḥibbul-kāfirīn(a).
 
 ## 3:33
 
-Innallāhaṣṭafā ādama wa nūḥaw wa āla ibrāhīma wa āla ‘imrāna ‘alal-‘ālamīn(a). &#x20;
+Innallāhaṣṭafā ādama wa nūḥaw wa āla ibrāhīma wa āla ‘imrāna ‘alal-‘ālamīn(a).
 
 ## 3:34
 
-Żurriyyatam ba‘ḍuhā mim ba‘ḍ(in), wallāhu samī‘un ‘alīm(un). &#x20;
+Żurriyyatam ba‘ḍuhā mim ba‘ḍ(in), wallāhu samī‘un ‘alīm(un).
 
 ## 3:35
 
-Iż qālatimra'atu ‘imrāna rabbi innī nażartu laka mā fī baṭnī muḥarraran fataqabbal minnī, innaka antas-samī‘ul-‘alīm(u).&#x20;
+Iż qālatimra'atu ‘imrāna rabbi innī nażartu laka mā fī baṭnī muḥarraran fataqabbal minnī, innaka antas-samī‘ul-‘alīm(u).
 
 ## 3:36
 
-Falammā waḍa‘athā qālat rabbi innī waḍa‘tuhā unṡā, wallāhu a‘lamu bimā waḍa‘at, wa laisaż-żakaru kal-unṡā, wa innī sammaituhā maryama wa innī u‘īżuhā bika wa żurriyyatahā minasy-syaiṭānir-rajīm(i). &#x20;
+Falammā waḍa‘athā qālat rabbi innī waḍa‘tuhā unṡā, wallāhu a‘lamu bimā waḍa‘at, wa laisaż-żakaru kal-unṡā, wa innī sammaituhā maryama wa innī u‘īżuhā bika wa żurriyyatahā minasy-syaiṭānir-rajīm(i).
 
 ## 3:37
 
-Fataqabbalahā rabbuhā biqabūlin ḥasaniw wa ambatahā nabātan ḥasanā(n), wa kaffalahā zakariyyā, kullamā dakhala ‘alaihā zakariyyal-miḥrāba wajada ‘indahā rizqā(n), qāla yā maryama annā laki hāżā, qālat huwa min ‘indillāh(i), innallāha yarzuqu may yasyā'u bigairi ḥisāb(in). &#x20;
+Fataqabbalahā rabbuhā biqabūlin ḥasaniw wa ambatahā nabātan ḥasanā(n), wa kaffalahā zakariyyā, kullamā dakhala ‘alaihā zakariyyal-miḥrāba wajada ‘indahā rizqā(n), qāla yā maryama annā laki hāżā, qālat huwa min ‘indillāh(i), innallāha yarzuqu may yasyā'u bigairi ḥisāb(in).
 
 ## 3:38
 
-Hunālika da‘ā zakariyyā rabbahū qāla rabbi hab lī mil ladunka żurriyyatan ṭayyibah(tan), innaka samī‘ud-du‘ā'(i). &#x20;
+Hunālika da‘ā zakariyyā rabbahū qāla rabbi hab lī mil ladunka żurriyyatan ṭayyibah(tan), innaka samī‘ud-du‘ā'(i).
 
 ## 3:39
 
-Fanādathul-malā'ikatu wa huwa qā'imuy yuṣallī fil-miḥrāb(i), annallāha yubasysyiruka biyaḥyā muṣaddiqam bikalimatim minallāhi wa sayyidaw wa ḥaṣūraw wa nabiyyam minaṣ-ṣāliḥīn(a). &#x20;
+Fanādathul-malā'ikatu wa huwa qā'imuy yuṣallī fil-miḥrāb(i), annallāha yubasysyiruka biyaḥyā muṣaddiqam bikalimatim minallāhi wa sayyidaw wa ḥaṣūraw wa nabiyyam minaṣ-ṣāliḥīn(a).
 
 ## 3:40
 
-Qāla rabbi annā yakūnu lī gulāmuw wa qad balaganīyal-kibaru wamra'atī ‘āqir(un), qāla każālikallāhu yaf‘alu mā yasyā'(u).&#x20;
+Qāla rabbi annā yakūnu lī gulāmuw wa qad balaganīyal-kibaru wamra'atī ‘āqir(un), qāla każālikallāhu yaf‘alu mā yasyā'(u).
 
 ## 3:41
 
-Qāla rabbij‘al lī āyah(tan), qāla āyatuka allā tukalliman-nāsa  ṡalāṡata ayyāmin illā ramzā(n), ważkur rabbaka kaṡīraw wa sabbiḥ bil-‘asyiyyi wal-ibkār(i). &#x20;
+Qāla rabbij‘al lī āyah(tan), qāla āyatuka allā tukalliman-nāsa  ṡalāṡata ayyāmin illā ramzā(n), ważkur rabbaka kaṡīraw wa sabbiḥ bil-‘asyiyyi wal-ibkār(i).
 
 ## 3:42
 
-Wa iż qālatil-malā'ikatu yā maryama innallāhaṣṭafāki wa ṭahharaki waṣṭafāki ‘alā nisā'il-‘ālamīn(a). &#x20;
+Wa iż qālatil-malā'ikatu yā maryama innallāhaṣṭafāki wa ṭahharaki waṣṭafāki ‘alā nisā'il-‘ālamīn(a).
 
 ## 3:43
 
-Yā maryamuqnutī lirabbiki wasjudī warka‘ī ma‘ar-rāki‘īn(a). &#x20;
+Yā maryamuqnutī lirabbiki wasjudī warka‘ī ma‘ar-rāki‘īn(a).
 
 ## 3:44
 
@@ -1355,187 +1355,187 @@ Yā maryamuqnutī lirabbiki wasjudī warka‘ī ma‘ar-rāki‘īn(a). &#x20;
 
 ## 3:45
 
-Iż qālatil-malā'ikatu yā maryama innallāha yubasysyiruki bikalimatim minhusmuhul-masīḥu ‘īsabnu maryama wajīhan fid-dun-yā wal-ākhirati wa minal-muqarrabīn(a). &#x20;
+Iż qālatil-malā'ikatu yā maryama innallāha yubasysyiruki bikalimatim minhusmuhul-masīḥu ‘īsabnu maryama wajīhan fid-dun-yā wal-ākhirati wa minal-muqarrabīn(a).
 
 ## 3:46
 
-Wa yukallimun nāsa fil-mahdi wa kahlaw wa minaṣ-ṣāliḥīn(a). &#x20;
+Wa yukallimun nāsa fil-mahdi wa kahlaw wa minaṣ-ṣāliḥīn(a).
 
 ## 3:47
 
-Qālat rabbi annā yakūnu lī waladuw wa lam yamsasnī basyar(un), qāla każālikillāhu yakhluqu mā yasyā'(u), iżā qaḍā amran fa'innamā yaqūlu lahū kun fayakūn(u). &#x20;
+Qālat rabbi annā yakūnu lī waladuw wa lam yamsasnī basyar(un), qāla każālikillāhu yakhluqu mā yasyā'(u), iżā qaḍā amran fa'innamā yaqūlu lahū kun fayakūn(u).
 
 ## 3:48
 
-Wa ya‘allimuhul-kitāba wal-ḥikmata wat-taurāta wal-injīl(a). &#x20;
+Wa ya‘allimuhul-kitāba wal-ḥikmata wat-taurāta wal-injīl(a).
 
 ## 3:49
 
-Wa rasūlan ilā banī isrā'īl(a), annī qad ji'tukum bi'āyatim mir rabbikum, annī akhluqu lakum minaṭ-ṭīni kahai'atiṭ-ṭairi fa'anfukhu  fihi fayakūnu ṭairam bi'iżnillāh(i), wa ubarri'ul-akmaha wal-abraṣa wa uḥyil-mautā bi'iżnillāh(i), wa unabbi'ukum bimā ta'kulūna wa mā taddakhirūna fī buyūtikum, inna fī żālika la'āyatal lakum in kuntum mu'minīn(a). &#x20;
+Wa rasūlan ilā banī isrā'īl(a), annī qad ji'tukum bi'āyatim mir rabbikum, annī akhluqu lakum minaṭ-ṭīni kahai'atiṭ-ṭairi fa'anfukhu  fihi fayakūnu ṭairam bi'iżnillāh(i), wa ubarri'ul-akmaha wal-abraṣa wa uḥyil-mautā bi'iżnillāh(i), wa unabbi'ukum bimā ta'kulūna wa mā taddakhirūna fī buyūtikum, inna fī żālika la'āyatal lakum in kuntum mu'minīn(a).
 
 ## 3:50
 
-Wa muṣaddiqal limā baina yadayya minat-taurāti wa li'uḥilla lakum ba‘ḍal-lażī ḥurrima ‘alaikum wa ji'tukum bi'āyatim mir rabbikum, fattaqullāha wa aṭī‘ūn(i). &#x20;
+Wa muṣaddiqal limā baina yadayya minat-taurāti wa li'uḥilla lakum ba‘ḍal-lażī ḥurrima ‘alaikum wa ji'tukum bi'āyatim mir rabbikum, fattaqullāha wa aṭī‘ūn(i).
 
 ## 3:51
 
-Innallāha rabbī wa rabbukum fa‘budūh(u), hāżā ṣirāṭum mustaqīm(un). &#x20;
+Innallāha rabbī wa rabbukum fa‘budūh(u), hāżā ṣirāṭum mustaqīm(un).
 
 ## 3:52
 
-Falammā aḥassa ‘īsā minhumul-kufra qāla man anṣārī ilallāh(i), qālal-ḥawāriyyūna naḥnu anṣārullāh(i), āmannā billāh(i), wasyhad bi'annā muslimūn(a).  &#x20;
+Falammā aḥassa ‘īsā minhumul-kufra qāla man anṣārī ilallāh(i), qālal-ḥawāriyyūna naḥnu anṣārullāh(i), āmannā billāh(i), wasyhad bi'annā muslimūn(a).
 
 ## 3:53
 
-Rabbanā āmannā bimā anzalta wattaba‘nar-rasūla faktubnā ma‘asy-syāhidīn(a). &#x20;
+Rabbanā āmannā bimā anzalta wattaba‘nar-rasūla faktubnā ma‘asy-syāhidīn(a).
 
 ## 3:54
 
-Wa makarū wa makarallāh(u), wallāhu khairul-mākirīn(a). &#x20;
+Wa makarū wa makarallāh(u), wallāhu khairul-mākirīn(a).
 
 ## 3:55
 
-Iż qālallāhu yā ‘īsā innī mutawaffīka wa rāfi‘uka ilayya wa muṭahhiruka minal-lażīna kafarū wa jā‘ilul-lażīnattaba‘ūka fauqal-lażīna kafarū ilā yaumil-qiyāmah(ti), ṡumma ilayya marji‘ukum fa aḥkumu bainakum fīmā kuntum fīhi takhtalifūn(a). &#x20;
+Iż qālallāhu yā ‘īsā innī mutawaffīka wa rāfi‘uka ilayya wa muṭahhiruka minal-lażīna kafarū wa jā‘ilul-lażīnattaba‘ūka fauqal-lażīna kafarū ilā yaumil-qiyāmah(ti), ṡumma ilayya marji‘ukum fa aḥkumu bainakum fīmā kuntum fīhi takhtalifūn(a).
 
 ## 3:56
 
-Fa ammal-lażīna kafarū fa u‘ażżibuhum ‘ażāban syadīdan fid-dun-yā wal-ākhirah(ti), wa mā lahum min nāṣirīn(a). &#x20;
+Fa ammal-lażīna kafarū fa u‘ażżibuhum ‘ażāban syadīdan fid-dun-yā wal-ākhirah(ti), wa mā lahum min nāṣirīn(a).
 
 ## 3:57
 
-Wa ammal-lażīna āmanū wa ‘amiluṣ-ṣāliḥāti fa yuwaffīhim ujūrahum, wallāhu lā yuḥibbuẓ-ẓālimīn(a).&#x20;
+Wa ammal-lażīna āmanū wa ‘amiluṣ-ṣāliḥāti fa yuwaffīhim ujūrahum, wallāhu lā yuḥibbuẓ-ẓālimīn(a).
 
 ## 3:58
 
-Żālika natlūhu ‘alaika minal-āyāti waż-żikril-ḥakīm(i). &#x20;
+Żālika natlūhu ‘alaika minal-āyāti waż-żikril-ḥakīm(i).
 
 ## 3:59
 
-Inna maṡala ‘īsā ‘indallāhi kamaṡali ādam(a), khalaqahū min turābin ṡumma qāla lahū kun fayakūn(u). &#x20;
+Inna maṡala ‘īsā ‘indallāhi kamaṡali ādam(a), khalaqahū min turābin ṡumma qāla lahū kun fayakūn(u).
 
 ## 3:60
 
-Al-ḥaqqu mir rabbika falā takum minal-mumtarīn(a). &#x20;
+Al-ḥaqqu mir rabbika falā takum minal-mumtarīn(a).
 
 ## 3:61
 
-Faman ḥājjaka fīhi mim ba‘di mā jā'aka minal-‘ilmi faqul ta‘ālau nad‘u abnā'anā wa abnā'akum wa nisā'anā wa nisā'akum wa anfusanā wa anfusakum, ṡumma nabtahil fanaj‘al la‘natallāhi ‘alal-kāżibīn(a). &#x20;
+Faman ḥājjaka fīhi mim ba‘di mā jā'aka minal-‘ilmi faqul ta‘ālau nad‘u abnā'anā wa abnā'akum wa nisā'anā wa nisā'akum wa anfusanā wa anfusakum, ṡumma nabtahil fanaj‘al la‘natallāhi ‘alal-kāżibīn(a).
 
 ## 3:62
 
-Inna hāżā lahuwal-qaṣaṣul-ḥaqq(u), wa mā min ilāhin illallāh(u), wa innallāha lahuwal-‘azīzul-ḥakīm(u). &#x20;
+Inna hāżā lahuwal-qaṣaṣul-ḥaqq(u), wa mā min ilāhin illallāh(u), wa innallāha lahuwal-‘azīzul-ḥakīm(u).
 
 ## 3:63
 
-Fa in tawallau fa innallāha ‘alīmum bil-mufsidīn(a). &#x20;
+Fa in tawallau fa innallāha ‘alīmum bil-mufsidīn(a).
 
 ## 3:64
 
-Qul yā ahlal-kitābi ta‘ālau ilā kalimatin sawā'im bainanā wa bainakum allā na‘buda illallāha wa lā nusyrika bihī syai'aw wa lā yattakhiża ba‘ḍunā ba‘ḍan arbābam min dūnillāh(i), fa in tawallau fa qūlusyhadū bi'annā muslimūn(a).&#x20;
+Qul yā ahlal-kitābi ta‘ālau ilā kalimatin sawā'im bainanā wa bainakum allā na‘buda illallāha wa lā nusyrika bihī syai'aw wa lā yattakhiża ba‘ḍunā ba‘ḍan arbābam min dūnillāh(i), fa in tawallau fa qūlusyhadū bi'annā muslimūn(a).
 
 ## 3:65
 
-Yā ahlal-kitābi lima tuḥājjūna fī ibrāhīma wa mā unzilatit-taurātu wal-injīlu illā mim ba‘dih(ī), afalā ta‘qilūn(a). &#x20;
+Yā ahlal-kitābi lima tuḥājjūna fī ibrāhīma wa mā unzilatit-taurātu wal-injīlu illā mim ba‘dih(ī), afalā ta‘qilūn(a).
 
 ## 3:66
 
-Hā antum hā'ulā'i ḥājajtum fīmā lakum bihī ‘ilmun falima tuḥājjūna fīmā laisa lakum bihī ‘ilm(un), wallāhu ya‘lamu wa antum lā ta‘lamūn(a). &#x20;
+Hā antum hā'ulā'i ḥājajtum fīmā lakum bihī ‘ilmun falima tuḥājjūna fīmā laisa lakum bihī ‘ilm(un), wallāhu ya‘lamu wa antum lā ta‘lamūn(a).
 
 ## 3:67
 
-Wa mā kāna ibrāhīmu yahūdiyyaw wa lā naṣrāniyyaw wa lākin kāna ḥanīfam muslimā(n), wa mā kāna minal-musyrikīn(a). &#x20;
+Wa mā kāna ibrāhīmu yahūdiyyaw wa lā naṣrāniyyaw wa lākin kāna ḥanīfam muslimā(n), wa mā kāna minal-musyrikīn(a).
 
 ## 3:68
 
-Inna aulan-nāsi bi'ibrāhīma lal-lażīnattaba‘ūhu wa hāżan-nabiyyu wal-lażīna āmanū, wallāhu waliyyul-mu'minīn(a). &#x20;
+Inna aulan-nāsi bi'ibrāhīma lal-lażīnattaba‘ūhu wa hāżan-nabiyyu wal-lażīna āmanū, wallāhu waliyyul-mu'minīn(a).
 
 ## 3:69
 
-Waddaṭ-ṭā'ifatum min ahlil-kitābi lau yuḍillūnakum, wa mā yuḍillūna illā anfusahum wa mā yasy‘urūn(a). &#x20;
+Waddaṭ-ṭā'ifatum min ahlil-kitābi lau yuḍillūnakum, wa mā yuḍillūna illā anfusahum wa mā yasy‘urūn(a).
 
 ## 3:70
 
-Yā ahlal-kitābi lima takfurūna bi'āyātillāhi wa antum tasyhadūn(a). &#x20;
+Yā ahlal-kitābi lima takfurūna bi'āyātillāhi wa antum tasyhadūn(a).
 
 ## 3:71
 
-Yā ahlal-kitābi lima talbisūnal-ḥaqqa bil-bāṭili wa taktumūnal-ḥaqqa wa antum ta‘lamūn. &#x20;
+Yā ahlal-kitābi lima talbisūnal-ḥaqqa bil-bāṭili wa taktumūnal-ḥaqqa wa antum ta‘lamūn.
 
 ## 3:72
 
-Wa qālaṭ-ṭā'ifatum min ahlil-kitābi āminū bil-lażī unzila ‘alal-lażīna āmanū wajhan-nahāri wakfurū ākhirahū la‘allahum yarji‘ūn(a). &#x20;
+Wa qālaṭ-ṭā'ifatum min ahlil-kitābi āminū bil-lażī unzila ‘alal-lażīna āmanū wajhan-nahāri wakfurū ākhirahū la‘allahum yarji‘ūn(a).
 
 ## 3:73
 
-Wa lā tu'minū illā liman tabi‘a dīnakum, qul innal-hudā hudallāh(i), ay yu'tā aḥadum miṡla mā ūtītum au yuḥājjūkum ‘inda rabbikum, qul innal-faḍla biyadillāh(i), yu'tīhi may yasyā'(u), wallāhu wāsi‘un ‘alīm(un). &#x20;
+Wa lā tu'minū illā liman tabi‘a dīnakum, qul innal-hudā hudallāh(i), ay yu'tā aḥadum miṡla mā ūtītum au yuḥājjūkum ‘inda rabbikum, qul innal-faḍla biyadillāh(i), yu'tīhi may yasyā'(u), wallāhu wāsi‘un ‘alīm(un).
 
 ## 3:74
 
-Yakhtaṣṣu biraḥmatihī may yasyā'(u), wallāhu żul-faḍlil-‘aẓīm(i). &#x20;
+Yakhtaṣṣu biraḥmatihī may yasyā'(u), wallāhu żul-faḍlil-‘aẓīm(i).
 
 ## 3:75
 
-Wa min ahlil-kitābi man in ta'manhu bi qinṭārin yu'addīhi ilaik(a), wa minhum man in ta'manhu bidīnāril lā yu'addīhi ilaika illā mā dumta ‘alaihi qā'imā(n), żālika bi'annahum qālū laisa ‘alainā fil-ummiyyīna sabīl(un), wa yaqūlūna ‘alallāhil-każiba wa hum ya‘lamūn(a).&#x20;
+Wa min ahlil-kitābi man in ta'manhu bi qinṭārin yu'addīhi ilaik(a), wa minhum man in ta'manhu bidīnāril lā yu'addīhi ilaika illā mā dumta ‘alaihi qā'imā(n), żālika bi'annahum qālū laisa ‘alainā fil-ummiyyīna sabīl(un), wa yaqūlūna ‘alallāhil-każiba wa hum ya‘lamūn(a).
 
 ## 3:76
 
-Balā man aufā bi‘ahdihī wattaqā fa innallāha yuḥibbul-muttaqīn(a). &#x20;
+Balā man aufā bi‘ahdihī wattaqā fa innallāha yuḥibbul-muttaqīn(a).
 
 ## 3:77
 
-Innal-lażīna yasytarūna bi‘ahdillāhi wa aimānihim ṡamanan qalīlan ulā'ika lā khalāqa lahum fil-ākhirati wa lā yukallimuhumullāhu wa lā yanẓuru ilaihim yaumal-qiyāmati wa lā yuzakkīhim, wa lahum ‘ażābun alīm(un). &#x20;
+Innal-lażīna yasytarūna bi‘ahdillāhi wa aimānihim ṡamanan qalīlan ulā'ika lā khalāqa lahum fil-ākhirati wa lā yukallimuhumullāhu wa lā yanẓuru ilaihim yaumal-qiyāmati wa lā yuzakkīhim, wa lahum ‘ażābun alīm(un).
 
 ## 3:78
 
-Wa inna minhum lafarīqay yalwūna alsinatahum bil-kitābi litaḥsabūhu minal-kitābi wa mā huwa minal-kitāb(i), wa yaqūlūna huwa min ‘indillāhi wa mā huwa min ‘indillāh(i), wa yaqūlūna ‘alallāhil-każiba wa hum ya‘lamūn(a). &#x20;
+Wa inna minhum lafarīqay yalwūna alsinatahum bil-kitābi litaḥsabūhu minal-kitābi wa mā huwa minal-kitāb(i), wa yaqūlūna huwa min ‘indillāhi wa mā huwa min ‘indillāh(i), wa yaqūlūna ‘alallāhil-każiba wa hum ya‘lamūn(a).
 
 ## 3:79
 
-Mā kāna libasyarin ay yu'tiyahullāhul-kitāba wal-ḥukma wan-nubuwwata ṡumma yaqūla lin-nāsi kūnū ‘ibādal lī min dūnillāhi wa lākin kūnū rabbāniyyīna bimā kuntum tu‘allimūnal-kitāba  wa bimā kuntum tadrusūn(a). &#x20;
+Mā kāna libasyarin ay yu'tiyahullāhul-kitāba wal-ḥukma wan-nubuwwata ṡumma yaqūla lin-nāsi kūnū ‘ibādal lī min dūnillāhi wa lākin kūnū rabbāniyyīna bimā kuntum tu‘allimūnal-kitāba  wa bimā kuntum tadrusūn(a).
 
 ## 3:80
 
-Wa lā ya'murakum an tattakhiżul-malā'ikata wan-nabiyyīna arbābā(n), aya'murukum bil-kufri ba‘da iż antum muslimūn(a). &#x20;
+Wa lā ya'murakum an tattakhiżul-malā'ikata wan-nabiyyīna arbābā(n), aya'murukum bil-kufri ba‘da iż antum muslimūn(a).
 
 ## 3:81
 
-Wa iż akhażallāhu mīṡāqan-nabiyyīna lamā ātaitukum min kitābiw wa ḥikmatin ṡumma jā'akum rasūlum muṣaddiqul limā ma‘akum latu'minunna bihī wa latanṣurunnah(ū), qāla a'aqrartum wa akhażtum ‘alā żālikum iṣrī, qālū aqrarnā, qāla fasyhadū wa ana ma‘akum minasy-syāhidīn(a). &#x20;
+Wa iż akhażallāhu mīṡāqan-nabiyyīna lamā ātaitukum min kitābiw wa ḥikmatin ṡumma jā'akum rasūlum muṣaddiqul limā ma‘akum latu'minunna bihī wa latanṣurunnah(ū), qāla a'aqrartum wa akhażtum ‘alā żālikum iṣrī, qālū aqrarnā, qāla fasyhadū wa ana ma‘akum minasy-syāhidīn(a).
 
 ## 3:82
 
-Faman tawallā ba‘da żālika fa ulā'ika humul-fāsiqūn(a). &#x20;
+Faman tawallā ba‘da żālika fa ulā'ika humul-fāsiqūn(a).
 
 ## 3:83
 
-Afagaira dīnillāhi yabgūna wa lahū aslama man fis-samāwāti wal-arḍi ṭau‘aw wa ilaihi yurja‘ūn(a). &#x20;
+Afagaira dīnillāhi yabgūna wa lahū aslama man fis-samāwāti wal-arḍi ṭau‘aw wa ilaihi yurja‘ūn(a).
 
 ## 3:84
 
-Qul āmannā billāhi wa mā unzila ‘alainā wa mā unzila ‘alā ibrāhīma wa ismā‘īla wa isḥāqa wa ya‘qūba wal-asbāṭi wa mā ūtiya mūsā wa ‘īsā wan-nabiyyūna mir rabbihim, lā nufarriqu baina aḥadim minhum, wa naḥnu lahū muslimūn(a). &#x20;
+Qul āmannā billāhi wa mā unzila ‘alainā wa mā unzila ‘alā ibrāhīma wa ismā‘īla wa isḥāqa wa ya‘qūba wal-asbāṭi wa mā ūtiya mūsā wa ‘īsā wan-nabiyyūna mir rabbihim, lā nufarriqu baina aḥadim minhum, wa naḥnu lahū muslimūn(a).
 
 ## 3:85
 
-Wa may yabtagi gairal-islāmi dīnan  falay yuqbala minh(u), wa huwa fil-ākhirati minal khāsirīn(a). &#x20;
+Wa may yabtagi gairal-islāmi dīnan  falay yuqbala minh(u), wa huwa fil-ākhirati minal khāsirīn(a).
 
 ## 3:86
 
-Kaifa yahdillāhu qauman kafarū ba‘da īmānihim wa syahidū annar-rasūla ḥaqquw wa jā'ahumul-bayyināt(u), wallāhu lā yahdil-qaumaẓ-ẓālimīn(a). &#x20;
+Kaifa yahdillāhu qauman kafarū ba‘da īmānihim wa syahidū annar-rasūla ḥaqquw wa jā'ahumul-bayyināt(u), wallāhu lā yahdil-qaumaẓ-ẓālimīn(a).
 
 ## 3:87
 
-Ulā'ika jazā'uhum anna ‘alaihim la‘natallāhi wal-malā'ikati wan-nāsi ajma‘īn(a).&#x20;
+Ulā'ika jazā'uhum anna ‘alaihim la‘natallāhi wal-malā'ikati wan-nāsi ajma‘īn(a).
 
 ## 3:88
 
-Khālidīna fihā, lā yukhaffafu ‘anhumul-‘ażābu wa lā hum yunẓarūn(a). &#x20;
+Khālidīna fihā, lā yukhaffafu ‘anhumul-‘ażābu wa lā hum yunẓarūn(a).
 
 ## 3:89
 
-Illal-lażīna tābū mim ba‘di żālika wa aṣlaḥū, fa'innallāha gafūrur raḥīm(un). &#x20;
+Illal-lażīna tābū mim ba‘di żālika wa aṣlaḥū, fa'innallāha gafūrur raḥīm(un).
 
 ## 3:90
 
-Innal-lażīna kafarū ba‘da īmānihim ṡummazdādū kufral lan tuqbala taubatuhum, wa ulā'ika humuḍ-ḍāllūn(a). &#x20;
+Innal-lażīna kafarū ba‘da īmānihim ṡummazdādū kufral lan tuqbala taubatuhum, wa ulā'ika humuḍ-ḍāllūn(a).
 
 ## 3:91
 
@@ -1575,7 +1575,7 @@ Qul yā ahlal-kitābi lima taṣuddūna ‘an sabīlillāhi man āmana tabgūnah
 
 ## 3:100
 
-Yā ayyuhal-lażīna āmanū in tuṭī‘ū farīqam minal-lażīna ūtul-kitāba yaruddūkum ba‘da īmānikum kāfirīn(a).&#x20;
+Yā ayyuhal-lażīna āmanū in tuṭī‘ū farīqam minal-lażīna ūtul-kitāba yaruddūkum ba‘da īmānikum kāfirīn(a).
 
 ## 3:101
 
@@ -1583,7 +1583,7 @@ Wa kaifa takfurūna wa antum tutlā ‘alaikum āyātullāhi wa fīkum rasūluh(
 
 ## 3:102
 
-Yā ayyuhal-lażīna āmanuttaqullāha ḥaqqa tuqātihī wa lā tamūtunna illā wa antum muslimūn(a).&#x20;
+Yā ayyuhal-lażīna āmanuttaqullāha ḥaqqa tuqātihī wa lā tamūtunna illā wa antum muslimūn(a).
 
 ## 3:103
 
@@ -1691,7 +1691,7 @@ Laisa laka minal-amri syai'un au yatūba ‘alaihim au yu‘ażżibahum fa innah
 
 ## 3:129
 
-Wa lillāhi mā fis-samāwāti wa mā fil-arḍ(i), yagfiru limay yasyā'u wa yu‘ażżibu may yasyā'(u), wallāhu gafūrur raḥīm(un). &#x20;
+Wa lillāhi mā fis-samāwāti wa mā fil-arḍ(i), yagfiru limay yasyā'u wa yu‘ażżibu may yasyā'(u), wallāhu gafūrur raḥīm(un).
 
 ## 3:130
 
@@ -1751,7 +1751,7 @@ Wa laqad kuntum tamannaunal-mauta min qabli an talqauh(u), faqad ra'aitumūhu wa
 
 ## 3:144
 
-Wa mā muḥammadun illā rasūl(un), qad khalat min qablihir-rusul(u), afa'im māta au qutilanqalabtum ‘alā a‘qābikum, wa may yanqalib ‘alā ‘aqibaihi falay yaḍurrallāha syai'ā(n), wa sayajzillāhusy-syākirīn(a).&#x20;
+Wa mā muḥammadun illā rasūl(un), qad khalat min qablihir-rusul(u), afa'im māta au qutilanqalabtum ‘alā a‘qābikum, wa may yanqalib ‘alā ‘aqibaihi falay yaḍurrallāha syai'ā(n), wa sayajzillāhusy-syākirīn(a).
 
 ## 3:145
 
@@ -1783,7 +1783,7 @@ Sanulqī fī qulūbil-lażīna kafarur-ru‘ba bimā asyrakū billāhi mā lam y
 
 ## 3:152
 
-Wa laqad ṣadaqakumullāhu wa‘dahū iż taḥussūnahum bi'iżnih(ī), ḥattā iżā fasyiltum wa tanāza‘tum fil-amri wa ‘aṣaitum mim ba‘di mā arākum mā tuḥibbūn(a), minkum may yurīdud-dun-yā wa minkum may yurīdul-ākhirah(ta), ṡumma ṣarafakum ‘anhum liyabtaliyakum, wa laqad ‘afā ‘ankum, wallāhu żū faḍlin ‘alal-mu'minīn(a).&#x20;
+Wa laqad ṣadaqakumullāhu wa‘dahū iż taḥussūnahum bi'iżnih(ī), ḥattā iżā fasyiltum wa tanāza‘tum fil-amri wa ‘aṣaitum mim ba‘di mā arākum mā tuḥibbūn(a), minkum may yurīdud-dun-yā wa minkum may yurīdul-ākhirah(ta), ṡumma ṣarafakum ‘anhum liyabtaliyakum, wa laqad ‘afā ‘ankum, wallāhu żū faḍlin ‘alal-mu'minīn(a).
 
 ## 3:153
 
@@ -1823,7 +1823,7 @@ Wa mā kāna linabiyyin ay yagull(a), wa may yaglul ya'ti  bimā galla yaumal-qi
 
 ## 3:162
 
-Afamanittaba‘a riḍwānallāhi kamam bā'a bisakhaṭim minallāhi wa ma'wāhu jahannam(u), wa bi'sal-maṣīr(u),&#x20;
+Afamanittaba‘a riḍwānallāhi kamam bā'a bisakhaṭim minallāhi wa ma'wāhu jahannam(u), wa bi'sal-maṣīr(u),
 
 ## 3:163
 
@@ -1959,7 +1959,7 @@ Fastajāba lahum rabbuhum annī lā uḍī‘u ‘amala ‘āmilim minkum min ż
 
 ## 3:196
 
-Lā yagurrannaka taqallubul-lażīna kafarū fil-bilād(i). &#x20;
+Lā yagurrannaka taqallubul-lażīna kafarū fil-bilād(i).
 
 ## 3:197
 
@@ -2111,11 +2111,11 @@ Wa likullin ja‘alnā mawāliya mimmā tarakal-wālidāni wal-aqrabūn(a), wal-
 
 ## 4:34
 
-Ar-rijālu qawwāmūna ‘alan-nisā'i bimā faḍḍalallāhu ba‘ḍahum ‘alā ba‘ḍiw wa bimā anfaqū min amwālihim, faṣ-ṣāliḥātu qānitātun ḥāfiẓātul lil-gaibi bimā ḥafiẓallāh(u), wal-lātī takhāfūna nusyūzahunna fa ‘iẓūhunna wahjurūhunna fil-maḍāji‘i waḍribūhunn(a), fa in aṭa‘nakum falā tabgū ‘alaihinna sabīlā(n), innallāha kāna ‘aliyyan kabīrā(n).&#x20;
+Ar-rijālu qawwāmūna ‘alan-nisā'i bimā faḍḍalallāhu ba‘ḍahum ‘alā ba‘ḍiw wa bimā anfaqū min amwālihim, faṣ-ṣāliḥātu qānitātun ḥāfiẓātul lil-gaibi bimā ḥafiẓallāh(u), wal-lātī takhāfūna nusyūzahunna fa ‘iẓūhunna wahjurūhunna fil-maḍāji‘i waḍribūhunn(a), fa in aṭa‘nakum falā tabgū ‘alaihinna sabīlā(n), innallāha kāna ‘aliyyan kabīrā(n).
 
 ## 4:35
 
-Wa in khiftum syiqāqa bainihimā fab‘aṡū ḥakamam min ahlihī wa ḥakamam min ahlihā, iy yurīdā iṣlāḥay yuwaffiqillāhu bainahumā, innallāha kāna ‘alīman khabīrā(n).&#x20;
+Wa in khiftum syiqāqa bainihimā fab‘aṡū ḥakamam min ahlihī wa ḥakamam min ahlihā, iy yurīdā iṣlāḥay yuwaffiqillāhu bainahumā, innallāha kāna ‘alīman khabīrā(n).
 
 ## 4:36
 
@@ -2131,7 +2131,7 @@ Wal-lażīna yunfiqūna amwālahum ri'ā'an-nasi wa lā yu'minūna billāhi wa l
 
 ## 4:39
 
-Wa māżā ‘alaihim lau āmanū billāhi wal-yaumil-ākhiri wa anfaqū mimmā razaqahumullāh(u), wa kānallāhu bihim ‘alīmā(n).&#x20;
+Wa māżā ‘alaihim lau āmanū billāhi wal-yaumil-ākhiri wa anfaqū mimmā razaqahumullāh(u), wa kānallāhu bihim ‘alīmā(n).
 
 ## 4:40
 
@@ -2203,7 +2203,7 @@ Innal-lażīna kafarū bi'āyātinā sanuṣlīhim nārā(n), kullamā naḍijat
 
 ## 4:57
 
-Wal-lażīna āmanū wa ‘amiluṣ-ṣāliḥāti sanudkhiluhum jannātin tajrī min taḥtihal-anhāru khālidīna fīhā abadā(n), lahum fīhā azwājum muṭahharah(tun), wa nudkhiluhum ẓillan ẓalīlā(n).  &#x20;
+Wal-lażīna āmanū wa ‘amiluṣ-ṣāliḥāti sanudkhiluhum jannātin tajrī min taḥtihal-anhāru khālidīna fīhā abadā(n), lahum fīhā azwājum muṭahharah(tun), wa nudkhiluhum ẓillan ẓalīlā(n).
 
 ## 4:58
 
@@ -2231,7 +2231,7 @@ Ulā'ikal-lażīna ya‘lamullāhu mā fī qulūbihim fa a‘riḍ ‘anhum wa �
 
 ## 4:64
 
-Wa mā arsalnā mir rasūlin illā liyuṭā‘a bi'iżnillāh(i), wa lau annahum iẓ ẓalamū anfusahum jā'ūka fastagfarullāha wastagfara lahumur-rasūlu lawajadullāha tawwābar raḥīmā(n). &#x20;
+Wa mā arsalnā mir rasūlin illā liyuṭā‘a bi'iżnillāh(i), wa lau annahum iẓ ẓalamū anfusahum jā'ūka fastagfarullāha wastagfara lahumur-rasūlu lawajadullāha tawwābar raḥīmā(n).
 
 ## 4:65
 
@@ -2371,7 +2371,7 @@ Illal-mustaḍ‘afīna minar-rijāli wan-nisā'i wal-wildāni lā yastaṭī‘
 
 ## 4:99
 
-Fa ulā'ika ‘asallāhu ay ya‘fuwa ‘anhum, wa kānallāhu  ‘afuwwan gafūrā(n).&#x20;
+Fa ulā'ika ‘asallāhu ay ya‘fuwa ‘anhum, wa kānallāhu  ‘afuwwan gafūrā(n).
 
 ## 4:100
 
@@ -2391,7 +2391,7 @@ Fa iżā qaḍaitumuṣ-ṣalāta fażkurullāha qiyāmaw wa qu‘ūdaw wa ‘al
 
 ## 4:104
 
-Wa lā tahinū fibtigā'il-qaum(i), in takūnū ta'lamūna fa innahum ya'lamūna kamā ta'lamūn(a), wa tarjūna minallāhi mā lā yarjūn(a), wa kānallāhu  ‘alīman ḥakīmā(n).&#x20;
+Wa lā tahinū fibtigā'il-qaum(i), in takūnū ta'lamūna fa innahum ya'lamūna kamā ta'lamūn(a), wa tarjūna minallāhi mā lā yarjūn(a), wa kānallāhu  ‘alīman ḥakīmā(n).
 
 ## 4:105
 
@@ -2467,7 +2467,7 @@ Wal-lażīna āmanū wa ‘amiluṣ-ṣāliḥāti sanudkhiluhum jannātin tajr�
 
 ## 4:123
 
-Laisa bi'amāniyyikum wa lā amāniyyi ahlil-kitāb(i), may ya‘mal sū'ay yujza bih(ī), wa lā yajid lahū min dūnillāhi waliyyaw wa lā naṣīrā(n).&#x20;
+Laisa bi'amāniyyikum wa lā amāniyyi ahlil-kitāb(i), may ya‘mal sū'ay yujza bih(ī), wa lā yajid lahū min dūnillāhi waliyyaw wa lā naṣīrā(n).
 
 ## 4:124
 
@@ -2551,7 +2551,7 @@ Mużabżabīna baina żālik(a), lā ilā ha'ulā'i wa lā ilā ha'ulā'(i), wa 
 
 ## 4:144
 
-Yā ayyuhal-lażīna āmanū lā tattakhiżul-kāfirīna auliyā'a min dūnil-mu'minīn(a), aturīdūna an taj‘alū lillāhi ‘alaikum sulṭānam mubīnā(n).&#x20;
+Yā ayyuhal-lażīna āmanū lā tattakhiżul-kāfirīna auliyā'a min dūnil-mu'minīn(a), aturīdūna an taj‘alū lillāhi ‘alaikum sulṭānam mubīnā(n).
 
 ## 4:145
 
@@ -2663,7 +2663,7 @@ Yā ahlal-kitābi lā taglū fī dīnikum wa lā taqūlū ‘alallāhi illal-ḥ
 
 ## 4:172
 
-Lay yastankifal-masīḥu ay yakūna ‘abdal lillāhi wa lal-malā'ikatul-muqarrabūn(a), wa may yastankif ‘an ‘ibādatihī wa yastakbir fa sayaḥsyuruhum ilaihi jamī‘ā(n).&#x20;
+Lay yastankifal-masīḥu ay yakūna ‘abdal lillāhi wa lal-malā'ikatul-muqarrabūn(a), wa may yastankif ‘an ‘ibādatihī wa yastakbir fa sayaḥsyuruhum ilaihi jamī‘ā(n).
 
 ## 4:173
 
@@ -2671,7 +2671,7 @@ Fa ammal-lażīna āmanū wa ‘amiluṣ-ṣāliḥāti fa yuwaffīhim ujūrahum
 
 ## 4:174
 
-Yā ayyuhan-nāsu qad jā'akum burhānum mir rabbikum wa anzalnā ilaikum nūram mubīnā(n).  &#x20;
+Yā ayyuhan-nāsu qad jā'akum burhānum mir rabbikum wa anzalnā ilaikum nūram mubīnā(n).
 
 ## 4:175
 
@@ -2687,7 +2687,7 @@ Yā ayyuhal-lażīna āmanū aufū bil-‘uqūd(i), uḥillat lakum bahīmatul-a
 
 ## 5:2
 
-Yā ayyuhal-lażīna āmanū lā tuḥillū sya‘ā'irallāhi wa lasy-syahral-ḥarāma wa lal-hadya wa lal-qalā'ida wa lā āmmīnal-baital-ḥarāma yabtagūna faḍlam mir rabbihim wa riḍwānā(n), wa iżā ḥalaltum faṣṭādū, wa lā yajrimannakum syana'ānu qaumin an ṣaddūkum ‘anil- asjidil-ḥarāmi an ta‘tadū, wa ta‘āwanū ‘alal-birri wat-taqwā, wa lā ta‘āwanū ‘alal-iṡmi wal-‘udwān(i), wattaqullāh(a), innallāha syadīdul-‘iqāb(i).&#x20;
+Yā ayyuhal-lażīna āmanū lā tuḥillū sya‘ā'irallāhi wa lasy-syahral-ḥarāma wa lal-hadya wa lal-qalā'ida wa lā āmmīnal-baital-ḥarāma yabtagūna faḍlam mir rabbihim wa riḍwānā(n), wa iżā ḥalaltum faṣṭādū, wa lā yajrimannakum syana'ānu qaumin an ṣaddūkum ‘anil- asjidil-ḥarāmi an ta‘tadū, wa ta‘āwanū ‘alal-birri wat-taqwā, wa lā ta‘āwanū ‘alal-iṡmi wal-‘udwān(i), wattaqullāh(a), innallāha syadīdul-‘iqāb(i).
 
 ## 5:3
 
@@ -2707,7 +2707,7 @@ Yā ayyuhal-lażīna āmanū iżā qumtum ilaṣ-ṣalāti fagsilū wujūhakum w
 
 ## 5:7
 
-Ważkurū ni‘matallāhi ‘alaikum wa mīṡāqahul-lażī wāṡaqakum bih(ī), iż qultum sami‘nā wa aṭa‘nā, wattaqullāh(a), innallāha ‘alīmum biżātiṣ-ṣudūr(i).&#x20;
+Ważkurū ni‘matallāhi ‘alaikum wa mīṡāqahul-lażī wāṡaqakum bih(ī), iż qultum sami‘nā wa aṭa‘nā, wattaqullāh(a), innallāha ‘alīmum biżātiṣ-ṣudūr(i).
 
 ## 5:8
 
@@ -2731,7 +2731,7 @@ Wa laqad akhażallāhu mīṡāqa banī isrā'īl(a), wa ba‘aṡnā minhumuṡ
 
 ## 5:13
 
-Fabimā naqḍihim mīṡāqahum la‘annāhum wa ja‘alnā qulūbahum qāsiyah(tan), yuḥarrifūnal-kalima ‘am mawāḍi‘ih(ī), wa nasū ḥaẓẓam mimmā żukkirū bih(ī), wa lā tazālu taṭṭali‘u ‘alā khā'inatim minhum illā qalīlam minhum fa‘fu ‘anhum waṣfaḥ, innallāha yuḥibbul-muḥsinīn(a). &#x20;
+Fabimā naqḍihim mīṡāqahum la‘annāhum wa ja‘alnā qulūbahum qāsiyah(tan), yuḥarrifūnal-kalima ‘am mawāḍi‘ih(ī), wa nasū ḥaẓẓam mimmā żukkirū bih(ī), wa lā tazālu taṭṭali‘u ‘alā khā'inatim minhum illā qalīlam minhum fa‘fu ‘anhum waṣfaḥ, innallāha yuḥibbul-muḥsinīn(a).
 
 ## 5:14
 
@@ -2779,7 +2779,7 @@ Qālū yā mūsā innā  lan nadkhulahā abadam mā dāmū fīhā, fażhab anta 
 
 ## 5:25
 
-Qāla rabbi innī lā amliku illā nafsī wa akhī fafruq bainanā wa bainal-qaumil-fāsiqīn(a).&#x20;
+Qāla rabbi innī lā amliku illā nafsī wa akhī fafruq bainanā wa bainal-qaumil-fāsiqīn(a).
 
 ## 5:26
 
@@ -2823,7 +2823,7 @@ Yā ayyuhal-lażīna āmanuttaqullāha wabtagū ilaihil-wasīlata wa jāhidū f�
 
 ## 5:36
 
-Innal-lażīna kafarū lau anna lahum mā fil-arḍi jamī‘aw wa miṡlahū ma‘ahū liyaftadū bihī min ‘ażābi yaumil-qiyāmati mā tuqubbila minhum, wa lahum ‘ażābun alīm(un).&#x20;
+Innal-lażīna kafarū lau anna lahum mā fil-arḍi jamī‘aw wa miṡlahū ma‘ahū liyaftadū bihī min ‘ażābi yaumil-qiyāmati mā tuqubbila minhum, wa lahum ‘ażābun alīm(un).
 
 ## 5:37
 
@@ -2911,7 +2911,7 @@ Yā ayyuhal-lażīna āmanū lā tattakhiżul-lażīnattakhażū dīnakum huzuwa
 
 ## 5:58
 
-Wa iżā nādaitum ilaṣ-ṣalātittakhażūhā huzuwaw wa la‘ibā(n), żālika bi'annahum qaumul lā ya‘qilūn(a).&#x20;
+Wa iżā nādaitum ilaṣ-ṣalātittakhażūhā huzuwaw wa la‘ibā(n), żālika bi'annahum qaumul lā ya‘qilūn(a).
 
 ## 5:59
 
@@ -2955,7 +2955,7 @@ Qul yā ahlal-kitābi lastum ‘alā syai'in ḥattā tuqīmut-taurāta wal-inj�
 
 ## 5:69
 
-Innal-lażīna āmanū wal-lażīna hādū waṣ-ṣābi'ūna wan-naṣārā man āmana billāhi wal-yaumil-ākhiri wa ‘amila ṣāliḥan falā khaufun ‘alaihim wa lā hum yaḥzanūn(a).&#x20;
+Innal-lażīna āmanū wal-lażīna hādū waṣ-ṣābi'ūna wan-naṣārā man āmana billāhi wal-yaumil-ākhiri wa ‘amila ṣāliḥan falā khaufun ‘alaihim wa lā hum yaḥzanūn(a).
 
 ## 5:70
 
@@ -3103,7 +3103,7 @@ Yā ayyuhal-lażīna āmanū ‘alaikum anfusakum, lā yaḍurrukum man ḍalla 
 
 ## 5:106
 
-Yā ayyuhal-lażīna āmanū syahādatu bainikum iżā ḥaḍara aḥadakumul-mautu ḥīnal-waṣiyyatiṡnāni żawā ‘adlim minkum au ākharāni min gairikum in antum ḍarabtum fil-arḍi fa aṣābatkum muṣībatul-maut(i), taḥbisūnahumā mim ba‘diṣ-ṣalāti fa yuqsimāni billāhi inirtabtum lā nasytarī bihī ṡamanaw wa lau kāna żā qurbā, wa lā naktumu syahādatallāhi innā iżal laminal-āṡimīn(a). &#x20;
+Yā ayyuhal-lażīna āmanū syahādatu bainikum iżā ḥaḍara aḥadakumul-mautu ḥīnal-waṣiyyatiṡnāni żawā ‘adlim minkum au ākharāni min gairikum in antum ḍarabtum fil-arḍi fa aṣābatkum muṣībatul-maut(i), taḥbisūnahumā mim ba‘diṣ-ṣalāti fa yuqsimāni billāhi inirtabtum lā nasytarī bihī ṡamanaw wa lau kāna żā qurbā, wa lā naktumu syahādatallāhi innā iżal laminal-āṡimīn(a).
 
 ## 5:107
 
@@ -3135,7 +3135,7 @@ Qālū nurīdu an na'kula minhā wa taṭma'inna qulūbunā wa na‘lama an qad 
 
 ## 5:114
 
-Qāla ‘īsabnu maryamallāhumma rabbanā anzil ‘alainā mā'idatam minas-samā'i takūnu lanā ‘īdal li'awwalinā wa ākhirinā wa āyatam minka warzuqnā wa anta khairur-rāziqīn(a). &#x20;
+Qāla ‘īsabnu maryamallāhumma rabbanā anzil ‘alainā mā'idatam minas-samā'i takūnu lanā ‘īdal li'awwalinā wa ākhirinā wa āyatam minka warzuqnā wa anta khairur-rāziqīn(a).
 
 ## 5:115
 
@@ -3203,7 +3203,7 @@ Wa laqadistuhzi'a birusulim min qablika  fa ḥāqa bil-lażīna sakhirū minhum
 
 ## 6:11
 
-Qul sīrū fil-arḍi ṡummanẓurū kaifa kāna ‘āqibatul-mukażżibīn(a).  &#x20;
+Qul sīrū fil-arḍi ṡummanẓurū kaifa kāna ‘āqibatul-mukażżibīn(a).
 
 ## 6:12
 
@@ -3403,7 +3403,7 @@ Wa huwal-lażī yatawaffākum bil-laili wa ya‘lamu mā jaraḥtum bin-nahāri 
 
 ## 6:61
 
-Wa huwal-qāhiru fauqa ‘ibādihī wa yursilu ‘alaikum ḥafaẓah(tan), ḥattā iżā jā'a aḥadakumul-mautu tawaffathu rusulunā wa hum lā yufarriṭūn(a).&#x20;
+Wa huwal-qāhiru fauqa ‘ibādihī wa yursilu ‘alaikum ḥafaẓah(tan), ḥattā iżā jā'a aḥadakumul-mautu tawaffathu rusulunā wa hum lā yufarriṭūn(a).
 
 ## 6:62
 
@@ -3555,7 +3555,7 @@ Wa huwal-lażī ansya'akum min nafsiw wāḥidatin fa mustaqarruw wa mustauda‘
 
 ## 6:99
 
-Wa huwal-lażī anzala minas-samā'i mā'ā(n), fa akhrajnā bihī nabāta kulli syai'in fa akhrajnā minhu khaḍiran nukhriju minhu ḥabbam mutarākibā(n), wa minan nakhli min ṭal‘ihā qinwānun dāniyatuw wa jannātim min a‘nābiw waz-zaitūna war-rummāna musytabihaw wa gaira mutasyābih(in), unẓurū ilā ṡamarihī iżā aṡmara wa yan‘ih(ī), inna fī żālikum la'āyātil liqaumiy yu'minūn(a).  &#x20;
+Wa huwal-lażī anzala minas-samā'i mā'ā(n), fa akhrajnā bihī nabāta kulli syai'in fa akhrajnā minhu khaḍiran nukhriju minhu ḥabbam mutarākibā(n), wa minan nakhli min ṭal‘ihā qinwānun dāniyatuw wa jannātim min a‘nābiw waz-zaitūna war-rummāna musytabihaw wa gaira mutasyābih(in), unẓurū ilā ṡamarihī iżā aṡmara wa yan‘ih(ī), inna fī żālikum la'āyātil liqaumiy yu'minūn(a).
 
 ## 6:100
 
@@ -3819,7 +3819,7 @@ Qul agairallāhi abgī rabbaw wa huwa rabbu kulli syai'(in), wa lā taksibu kull
 
 ## 6:165
 
-Wa huwal-lażī ja‘alakum khalā'ifal-arḍi wa rafa‘a ba‘ḍakum fauqa ba‘ḍin darajātil liyabluwakum fī mā ātākum, inna rabbaka sarī‘ul-‘iqāb(i), wa innahū lagafūrur raḥīm(un). &#x20;
+Wa huwal-lażī ja‘alakum khalā'ifal-arḍi wa rafa‘a ba‘ḍakum fauqa ba‘ḍin darajātil liyabluwakum fī mā ātākum, inna rabbaka sarī‘ul-‘iqāb(i), wa innahū lagafūrur raḥīm(un).
 
 ## 7:1
 
@@ -3859,7 +3859,7 @@ Wa man khaffat mawāzīnuhū fa ulā'ikal-lażīna khasirū anfusahum bimā kān
 
 ## 7:10
 
-Wa laqad makkannākum fil-arḍi wa ja‘alnā lakum fīhā ma‘āyisy(a), qalīlam mā tasykurūn(a).&#x20;
+Wa laqad makkannākum fil-arḍi wa ja‘alnā lakum fīhā ma‘āyisy(a), qalīlam mā tasykurūn(a).
 
 ## 7:11
 
@@ -4179,7 +4179,7 @@ Qadiftarainā ‘alallāhi każiban in ‘udnā fī millatikum ba‘da iż najj�
 
 ## 7:90
 
-Wa qālal-mala'ul-lażīna kafarū min qaumihī la'inittaba‘tum syu‘aiban innakum iżal lakhāsirūn(a).&#x20;
+Wa qālal-mala'ul-lażīna kafarū min qaumihī la'inittaba‘tum syu‘aiban innakum iżal lakhāsirūn(a).
 
 ## 7:91
 
@@ -4651,7 +4651,7 @@ Yas'alūnaka ‘anil-anfāl(i), qulil-anfālu lillāhi war-rasūl(i), fattaqull�
 
 ## 8:2
 
-Innamal-mu'minūnal-lażīna iżā żukirallāhu wajilat qulūbuhum wa iżā tuliyat ‘alaihim āyātuhū zādathum īmānaw wa ‘alā rabbihim yatawakkalūn(a).&#x20;
+Innamal-mu'minūnal-lażīna iżā żukirallāhu wajilat qulūbuhum wa iżā tuliyat ‘alaihim āyātuhū zādathum īmānaw wa ‘alā rabbihim yatawakkalūn(a).
 
 ## 8:3
 
@@ -4667,7 +4667,7 @@ Kamā akhrajaka rabbuka mim baitika bil-ḥaqq(i), wa inna farīqam minal-mu'min
 
 ## 8:6
 
-Yujādilūnaka fil-ḥaqqi ba‘da mā tabayyana ka'annamā yusāqūna ilal-mauti wa hum yanẓurūn(a).&#x20;
+Yujādilūnaka fil-ḥaqqi ba‘da mā tabayyana ka'annamā yusāqūna ilal-mauti wa hum yanẓurūn(a).
 
 ## 8:7
 
@@ -4807,31 +4807,31 @@ Wa in tawallau fa‘lamū annallāha maulākum, ni‘mal-maulā wa ni‘man-na�
 
 ## 8:41
 
-Wa‘lamū annamā ganimtum min syai'in fa anna lillāhi khumusahū wa lir-rasūli wa liżil-qurbā wal-yatāmā wal-masākīni wabnis-sabīli in kuntum āmantum billāhi wa mā anzalnā ‘alā ‘abdinā yaumal-furqāni yaumal-taqal-jam‘ān(i), wallāhu ‘alā kulli syai'in qadīr(un).&#x20;
+Wa‘lamū annamā ganimtum min syai'in fa anna lillāhi khumusahū wa lir-rasūli wa liżil-qurbā wal-yatāmā wal-masākīni wabnis-sabīli in kuntum āmantum billāhi wa mā anzalnā ‘alā ‘abdinā yaumal-furqāni yaumal-taqal-jam‘ān(i), wallāhu ‘alā kulli syai'in qadīr(un).
 
 ## 8:42
 
-Iż antum bil-‘udwatid-dun-yā wa hum bil-‘udwatil-quṣwā war-rakbu asfala minkum, wa lau tawā‘attum lakhtalaftum fil-mī‘ād(i), wa lākil liyaqḍiyallāhu amran kāna maf‘ūlā(n), liyahlika man halaka  ‘am bayyinatiw wa yaḥyā may ḥayya ‘am bayyinah(tin), wa innallāha lasamī‘un ‘alīm(un).&#x20;
+Iż antum bil-‘udwatid-dun-yā wa hum bil-‘udwatil-quṣwā war-rakbu asfala minkum, wa lau tawā‘attum lakhtalaftum fil-mī‘ād(i), wa lākil liyaqḍiyallāhu amran kāna maf‘ūlā(n), liyahlika man halaka  ‘am bayyinatiw wa yaḥyā may ḥayya ‘am bayyinah(tin), wa innallāha lasamī‘un ‘alīm(un).
 
 ## 8:43
 
-Iż yurīkahumullāhu fī manāmika qalīlā(n), wa lau arākahum kaṡīral lafasyiltum wa latanāza‘tum fil-amri wa lākinnallāha sallam(a), innahū ‘alīmum biżātiṣ-ṣudūr(i).&#x20;
+Iż yurīkahumullāhu fī manāmika qalīlā(n), wa lau arākahum kaṡīral lafasyiltum wa latanāza‘tum fil-amri wa lākinnallāha sallam(a), innahū ‘alīmum biżātiṣ-ṣudūr(i).
 
 ## 8:44
 
-Wa iż yurīkumūhum iżil-taqaitum fī a‘yunikum qalīlaw wa yuqallilukum fī a‘yunihim liyaqḍiyallāhu amran kāna maf‘ūlā(n), wa ilallāhi turja‘ul-umūr(u).&#x20;
+Wa iż yurīkumūhum iżil-taqaitum fī a‘yunikum qalīlaw wa yuqallilukum fī a‘yunihim liyaqḍiyallāhu amran kāna maf‘ūlā(n), wa ilallāhi turja‘ul-umūr(u).
 
 ## 8:45
 
-Yā ayyuhal-lażīna āmanū iżā laqītum fi'atan faṡbutū ważkurullāha kaṡīral la‘allakum tufliḥūn(a).&#x20;
+Yā ayyuhal-lażīna āmanū iżā laqītum fi'atan faṡbutū ważkurullāha kaṡīral la‘allakum tufliḥūn(a).
 
 ## 8:46
 
-Wa aṭī‘ullāha wa rasūlahū wa lā tanāza‘ū fa tafsyalū wa tażhaba rīḥukum waṣbirū, innallāha ma‘aṣ-ṣābirīn(a).&#x20;
+Wa aṭī‘ullāha wa rasūlahū wa lā tanāza‘ū fa tafsyalū wa tażhaba rīḥukum waṣbirū, innallāha ma‘aṣ-ṣābirīn(a).
 
 ## 8:47
 
-Wa lā takūnū kal-lażīna kharajū min diyārihim baṭaraw wa ri'ā'an-nāsi wa yaṣuddūna ‘an sabīlillāh(i), wallāhu bimā ya‘malūna muḥīṭ(un).&#x20;
+Wa lā takūnū kal-lażīna kharajū min diyārihim baṭaraw wa ri'ā'an-nāsi wa yaṣuddūna ‘an sabīlillāh(i), wallāhu bimā ya‘malūna muḥīṭ(un).
 
 ## 8:48
 
@@ -4843,107 +4843,107 @@ Iż yaqūlul-munāfiqūna wal-lażīna fī qulūbihim maraḍun garra hā'ulā'i
 
 ## 8:50
 
-Wa lau tarā iż yatawaffal-lażīna kafarul-malā'ikatu yaḍribūna wujūhahum wa adbārahum, wa żūqū ‘ażābal-ḥarīq(i).&#x20;
+Wa lau tarā iż yatawaffal-lażīna kafarul-malā'ikatu yaḍribūna wujūhahum wa adbārahum, wa żūqū ‘ażābal-ḥarīq(i).
 
 ## 8:51
 
-Żālika bimā qaddamat aidīkum wa annallāha laisa biẓallāmil lil-‘abīd(i).&#x20;
+Żālika bimā qaddamat aidīkum wa annallāha laisa biẓallāmil lil-‘abīd(i).
 
 ## 8:52
 
-Kada'bi āli fir‘aun(a), wal-lażīna min qablihim, kafarū bi'āyātillāhi fa akhażahumullāhu biżunūbihim, innallāha qawiyyun syadīdul-‘iqāb(i).&#x20;
+Kada'bi āli fir‘aun(a), wal-lażīna min qablihim, kafarū bi'āyātillāhi fa akhażahumullāhu biżunūbihim, innallāha qawiyyun syadīdul-‘iqāb(i).
 
 ## 8:53
 
-Żālika bi'annallāha lam yaku mugayyiran ni‘matan an‘amahā ‘alā qaumin ḥattā yugayyirū mā bi'anfusihim, wa annallāha samī‘un ‘alīm(un).&#x20;
+Żālika bi'annallāha lam yaku mugayyiran ni‘matan an‘amahā ‘alā qaumin ḥattā yugayyirū mā bi'anfusihim, wa annallāha samī‘un ‘alīm(un).
 
 ## 8:54
 
-Kada'bi āli fir‘aun(a), wal-lażīna min qablihim, każżabū bi'āyāti rabbihim fa ahlaknāhum biżunūbihim wa agraqnā āla fir‘aun(a), wa kullun kānū ẓālimīn(a).&#x20;
+Kada'bi āli fir‘aun(a), wal-lażīna min qablihim, każżabū bi'āyāti rabbihim fa ahlaknāhum biżunūbihim wa agraqnā āla fir‘aun(a), wa kullun kānū ẓālimīn(a).
 
 ## 8:55
 
-Inna syarrad-dawābbi ‘indallāhil-lażīna kafarū fahum lā yu'minūn(a).&#x20;
+Inna syarrad-dawābbi ‘indallāhil-lażīna kafarū fahum lā yu'minūn(a).
 
 ## 8:56
 
-Allażīna ‘āhatta minhum ṡumma yanquḍūna ‘ahdahum fī kulli marratiw wa hum lā yattaqūn(a).&#x20;
+Allażīna ‘āhatta minhum ṡumma yanquḍūna ‘ahdahum fī kulli marratiw wa hum lā yattaqūn(a).
 
 ## 8:57
 
-Fa immā taṡqafannahum fil-ḥarbi fa syarrid bihim man khalfahum la‘allahum yażżakkarūn(a).&#x20;
+Fa immā taṡqafannahum fil-ḥarbi fa syarrid bihim man khalfahum la‘allahum yażżakkarūn(a).
 
 ## 8:58
 
-Wa immā takhāfanna min qaumin khiyānatan fambiż  ilaihim ‘alā sawā'(in), innallāha lā yuḥibbul-khā'inīn(a).&#x20;
+Wa immā takhāfanna min qaumin khiyānatan fambiż  ilaihim ‘alā sawā'(in), innallāha lā yuḥibbul-khā'inīn(a).
 
 ## 8:59
 
-Wa lā yaḥsabannal-lażīna kafarū sabaqū, innahum lā yu‘jizūn(a).&#x20;
+Wa lā yaḥsabannal-lażīna kafarū sabaqū, innahum lā yu‘jizūn(a).
 
 ## 8:60
 
-Wa a‘iddū lahum mastaṭa‘tum min quwwatiw wa mir ribāṭil-khaili turhibūna bihī ‘aduwwallāhi wa ‘aduwwakum wa ākharīna min dūnihim, lā ta‘lamūnahum, allāhu ya‘lamuhum, wa mā tunfiqū min syai'in fī sabīlillāhi yuwaffa ilaikum wa antum lā tuẓlamūn(a).&#x20;
+Wa a‘iddū lahum mastaṭa‘tum min quwwatiw wa mir ribāṭil-khaili turhibūna bihī ‘aduwwallāhi wa ‘aduwwakum wa ākharīna min dūnihim, lā ta‘lamūnahum, allāhu ya‘lamuhum, wa mā tunfiqū min syai'in fī sabīlillāhi yuwaffa ilaikum wa antum lā tuẓlamūn(a).
 
 ## 8:61
 
-Wa in janaḥū lis-salmi fajnaḥ lahā wa tawakkal ‘alallāh(i), innahū huwas-samī‘ul-‘alīm(u).&#x20;
+Wa in janaḥū lis-salmi fajnaḥ lahā wa tawakkal ‘alallāh(i), innahū huwas-samī‘ul-‘alīm(u).
 
 ## 8:62
 
-Wa iy yurīdū ay yakhda‘ūka fa inna ḥasbakallāh(u), huwal-lażī ayyadaka binaṣrihī wa bil-mu'minīn(a).&#x20;
+Wa iy yurīdū ay yakhda‘ūka fa inna ḥasbakallāh(u), huwal-lażī ayyadaka binaṣrihī wa bil-mu'minīn(a).
 
 ## 8:63
 
-Wa allafa baina qulūbihim, lau anfaqta mā fil-arḍi jamī‘am mā allafta baina qulūbihim wa lākinnallāha allafa bainahum, innahū ‘azīzun ḥakīm(un).&#x20;
+Wa allafa baina qulūbihim, lau anfaqta mā fil-arḍi jamī‘am mā allafta baina qulūbihim wa lākinnallāha allafa bainahum, innahū ‘azīzun ḥakīm(un).
 
 ## 8:64
 
-Yā ayyuhan-nabiyyu ḥasbukallāhu wa manittaba‘aka minal-mu'minīn(a).&#x20;
+Yā ayyuhan-nabiyyu ḥasbukallāhu wa manittaba‘aka minal-mu'minīn(a).
 
 ## 8:65
 
-Yā ayyuhan-nabiyyu ḥarriḍil-mu'minīna ‘alal-qitāl(i), iy yakum minkum ‘isyrūna ṣabirūna yaglibū mi'atain(i), wa iy yakum minkum mi'atuy yaglibū alfam minal-lażīna kafarū bi'annahum qaumul lā yafqahūn(a).&#x20;
+Yā ayyuhan-nabiyyu ḥarriḍil-mu'minīna ‘alal-qitāl(i), iy yakum minkum ‘isyrūna ṣabirūna yaglibū mi'atain(i), wa iy yakum minkum mi'atuy yaglibū alfam minal-lażīna kafarū bi'annahum qaumul lā yafqahūn(a).
 
 ## 8:66
 
-Al'āna khaffafallāhu ‘ankum wa ‘alima anna fīkum ḍa‘fā(n), fa iy yakum minkum mi'atun ṣābiratuy yaglibū mi'atain(i), wa iy yakum minkum alfuy yaglibū alfaini bi'iżnillāh(i), wallāhu ma‘aṣ-ṣābirīn(a).&#x20;
+Al'āna khaffafallāhu ‘ankum wa ‘alima anna fīkum ḍa‘fā(n), fa iy yakum minkum mi'atun ṣābiratuy yaglibū mi'atain(i), wa iy yakum minkum alfuy yaglibū alfaini bi'iżnillāh(i), wallāhu ma‘aṣ-ṣābirīn(a).
 
 ## 8:67
 
-Mā kāna linabiyyin ay yakūna lahū asrā ḥattā yuṡkhina fil-arḍ(i), turīdūna ‘araḍad-dun-yā, wallāhu yurīdul-ākhirah(ta), wallāhu ‘azīzun ḥakīm(un).&#x20;
+Mā kāna linabiyyin ay yakūna lahū asrā ḥattā yuṡkhina fil-arḍ(i), turīdūna ‘araḍad-dun-yā, wallāhu yurīdul-ākhirah(ta), wallāhu ‘azīzun ḥakīm(un).
 
 ## 8:68
 
-Lau lā kitābum minallāhi sabaqa lamassakum fīmā akhażtum ‘ażābun ‘aẓīm(un).&#x20;
+Lau lā kitābum minallāhi sabaqa lamassakum fīmā akhażtum ‘ażābun ‘aẓīm(un).
 
 ## 8:69
 
-Fa kulū mimmā ganimtum ḥalālan ṭayyibā(n), wattaqullāh(a), innallāha gafūrur raḥīm(un).&#x20;
+Fa kulū mimmā ganimtum ḥalālan ṭayyibā(n), wattaqullāh(a), innallāha gafūrur raḥīm(un).
 
 ## 8:70
 
-Yā ayyuhan-nabiyyu qul liman fī aidīkum minal-asrā, iy ya‘lamillāhu fī qulūbikum khairay yu'tikum khairam mimmā ukhiża minkum wa yagfir lakum, wallāhu gafūrur raḥīm(un).&#x20;
+Yā ayyuhan-nabiyyu qul liman fī aidīkum minal-asrā, iy ya‘lamillāhu fī qulūbikum khairay yu'tikum khairam mimmā ukhiża minkum wa yagfir lakum, wallāhu gafūrur raḥīm(un).
 
 ## 8:71
 
-Wa iy yurīdū khiyānataka faqad khānullāha min qablu fa amkana minhum wallāhu ‘alīmun ḥakim(un).&#x20;
+Wa iy yurīdū khiyānataka faqad khānullāha min qablu fa amkana minhum wallāhu ‘alīmun ḥakim(un).
 
 ## 8:72
 
-Innal-lażīna āmanū wa hājarū wa jāhadū bi'amwālihim wa anfusihim fī sabīlillāhi wal-lażīna āwaw wa naṣarū ulā'ika ba‘ḍuhum auliyā'u ba‘ḍ(in), wal-lażīna āmanū wa lam yuhājirū mā lakum miw walāyatihim min syai'in ḥattā yuhājirū, wa inistanṣarūkum fid-dīni fa ‘alaikumun naṣru illā ‘alā qaumim bainakum wa bainahum mīṡāq(un), wallāhu bimā ta‘malūna baṣīr(un).&#x20;
+Innal-lażīna āmanū wa hājarū wa jāhadū bi'amwālihim wa anfusihim fī sabīlillāhi wal-lażīna āwaw wa naṣarū ulā'ika ba‘ḍuhum auliyā'u ba‘ḍ(in), wal-lażīna āmanū wa lam yuhājirū mā lakum miw walāyatihim min syai'in ḥattā yuhājirū, wa inistanṣarūkum fid-dīni fa ‘alaikumun naṣru illā ‘alā qaumim bainakum wa bainahum mīṡāq(un), wallāhu bimā ta‘malūna baṣīr(un).
 
 ## 8:73
 
-Wal-lażīna kafarū ba‘ḍuhum auliyā'u ba‘ḍ(in), illā taf‘alūhu takun fitnatun fil-arḍi wa fasādun kabīr(un).&#x20;
+Wal-lażīna kafarū ba‘ḍuhum auliyā'u ba‘ḍ(in), illā taf‘alūhu takun fitnatun fil-arḍi wa fasādun kabīr(un).
 
 ## 8:74
 
-Wal-lażīna āmanū wa hājarū wa jāhadū fī sabīlillāhi wal-lażīna āwaw wa naṣarū ulā'ika humul-mu'minūna ḥaqqā(n), lahum magfirtuw wa rizqun karīm(un).&#x20;
+Wal-lażīna āmanū wa hājarū wa jāhadū fī sabīlillāhi wal-lażīna āwaw wa naṣarū ulā'ika humul-mu'minūna ḥaqqā(n), lahum magfirtuw wa rizqun karīm(un).
 
 ## 8:75
 
-Wal-lażīna āmanū mim ba‘du wa hājarū wa jāhadū ma‘akum fa ulā'ika minkum, wa ulul-arḥāmi ba‘ḍuhum aulā biba‘ḍin fī kitābillāh(i), innallāha bikulli syai'in ‘alīm(un).&#x20;
+Wal-lażīna āmanū mim ba‘du wa hājarū wa jāhadū ma‘akum fa ulā'ika minkum, wa ulul-arḥāmi ba‘ḍuhum aulā biba‘ḍin fī kitābillāh(i), innallāha bikulli syai'in ‘alīm(un).
 
 ## 9:1
 
@@ -4951,247 +4951,247 @@ Barā'atum minallāhi wa rasūlihī ilal-lażīna ‘āhattum minal-musyrikīn(a
 
 ## 9:2
 
-Fasīḥū fil-arḍi arba‘ata asyhuriw wa‘lamū annakum gairu mu‘jizillāh(i), wa anallāha mukhzil-kāfirīn(a).&#x20;
+Fasīḥū fil-arḍi arba‘ata asyhuriw wa‘lamū annakum gairu mu‘jizillāh(i), wa anallāha mukhzil-kāfirīn(a).
 
 ## 9:3
 
-Wa ażānum minallāhi wa rasūlihī ilan-nāsi yaumal-ḥajjil akbari annallāha barī'um minal-musyrikīn(a), wa rasūluh(ū), fa in tubtum fa huwa khairul lakum, wa in tawallaitum fa‘lamū annakum gairu mu‘jizillāh(i), wa basysyiril-lażīna kafarū bi‘ażābin alīm(in).&#x20;
+Wa ażānum minallāhi wa rasūlihī ilan-nāsi yaumal-ḥajjil akbari annallāha barī'um minal-musyrikīn(a), wa rasūluh(ū), fa in tubtum fa huwa khairul lakum, wa in tawallaitum fa‘lamū annakum gairu mu‘jizillāh(i), wa basysyiril-lażīna kafarū bi‘ażābin alīm(in).
 
 ## 9:4
 
-Illal-lażīna ‘āhattum minal-musyrikīna ṡumma lam yanquṣūkum syai'aw wa lam yuẓāhirū ‘alaikum aḥadan fa atimmū ilaihim ‘ahdahum ilā muddatihim, innallāha yuḥibbul-muttaqīn(a).&#x20;
+Illal-lażīna ‘āhattum minal-musyrikīna ṡumma lam yanquṣūkum syai'aw wa lam yuẓāhirū ‘alaikum aḥadan fa atimmū ilaihim ‘ahdahum ilā muddatihim, innallāha yuḥibbul-muttaqīn(a).
 
 ## 9:5
 
-Fa iżansalakhal-asyhurul-ḥurumu faqtulul-musyrikīna ḥaiṡu wajattumūhum wa khużūhum  waḥṣurūhum waq‘udū lahum kulla marṣad(in), fa in tābū wa aqāmuṣ-ṣalāta wa ātawuz-zakāta fa khallū sabīlahum, innallāha gafūrur raḥīm(un).&#x20;
+Fa iżansalakhal-asyhurul-ḥurumu faqtulul-musyrikīna ḥaiṡu wajattumūhum wa khużūhum  waḥṣurūhum waq‘udū lahum kulla marṣad(in), fa in tābū wa aqāmuṣ-ṣalāta wa ātawuz-zakāta fa khallū sabīlahum, innallāha gafūrur raḥīm(un).
 
 ## 9:6
 
-Wa in aḥadum minal-musyrikīnastajāraka fa ajirhu ḥattā yasma‘a kalāmallāhi ṡumma ablighu ma'manah(ū), żālika bi'annahum qaumul lā ya‘lamūn(a).&#x20;
+Wa in aḥadum minal-musyrikīnastajāraka fa ajirhu ḥattā yasma‘a kalāmallāhi ṡumma ablighu ma'manah(ū), żālika bi'annahum qaumul lā ya‘lamūn(a).
 
 ## 9:7
 
-Kaifa yakūnu lil-musyrikīna ‘ahdun ‘indallāhi wa ‘inda rasūlihī illal-lażīna ‘āhattum ‘indal-masjidil-ḥarām(i), famastaqāmū lakum fastaqīmū lahum, innallāha yuḥibbul-muttaqīn(a).&#x20;
+Kaifa yakūnu lil-musyrikīna ‘ahdun ‘indallāhi wa ‘inda rasūlihī illal-lażīna ‘āhattum ‘indal-masjidil-ḥarām(i), famastaqāmū lakum fastaqīmū lahum, innallāha yuḥibbul-muttaqīn(a).
 
 ## 9:8
 
-Kaifa wa iy yaẓharū ‘alaikum lā yarqubū fīkum illaw wa lā żimmah(tan), yurḍūnakum bi'afwāhihim wa ta'bā qulūbuhum, wa akṡaruhum fāsiqūn(a).&#x20;
+Kaifa wa iy yaẓharū ‘alaikum lā yarqubū fīkum illaw wa lā żimmah(tan), yurḍūnakum bi'afwāhihim wa ta'bā qulūbuhum, wa akṡaruhum fāsiqūn(a).
 
 ## 9:9
 
-Isytarau bi'āyātillāhi ṡaman qalīlan fa ṣaddū ‘an sabīlih(ī), innahum sā'a mā kānū ya‘malūn(a).&#x20;
+Isytarau bi'āyātillāhi ṡaman qalīlan fa ṣaddū ‘an sabīlih(ī), innahum sā'a mā kānū ya‘malūn(a).
 
 ## 9:10
 
-Lā yarqubūna fī mu'minin illaw wa lā żimmah(tan),ulā'ika humul-mu‘tadūn(a)&#x20;
+Lā yarqubūna fī mu'minin illaw wa lā żimmah(tan),ulā'ika humul-mu‘tadūn(a)
 
 ## 9:11
 
-Fa in tābū wa aqāmuṣ-ṣalāta wa ātawuz-zakāta fa ikhwānukum fid-dīn(i), wa nufaṣṣīlul-āyāti liqaumiy ya‘lamūn(a).&#x20;
+Fa in tābū wa aqāmuṣ-ṣalāta wa ātawuz-zakāta fa ikhwānukum fid-dīn(i), wa nufaṣṣīlul-āyāti liqaumiy ya‘lamūn(a).
 
 ## 9:12
 
-Wa in nakaṡū aimānahum mim ba‘di ‘ahdihim wa ṭa‘anū fī dīnikum fa qātilū a'immatal-kufr(i), innahum lā aimāna lahum la‘allahum yantahūn(a).&#x20;
+Wa in nakaṡū aimānahum mim ba‘di ‘ahdihim wa ṭa‘anū fī dīnikum fa qātilū a'immatal-kufr(i), innahum lā aimāna lahum la‘allahum yantahūn(a).
 
 ## 9:13
 
-Alā tuqātilūna qauman nakaṡū aimānahum wa hammū bi'ikhrājir-rasūli wa hum bada'ūkum awwala marrah(tin), atakhsyaunahum, fallāhu aḥaqqu an takhsyauhu in kuntum mu'minīn(a).&#x20;
+Alā tuqātilūna qauman nakaṡū aimānahum wa hammū bi'ikhrājir-rasūli wa hum bada'ūkum awwala marrah(tin), atakhsyaunahum, fallāhu aḥaqqu an takhsyauhu in kuntum mu'minīn(a).
 
 ## 9:14
 
-Qātilūhum yu‘ażżibhumullāhu bi'aidīkum wa yukhzihim wa yanṣurkum ‘alaihim wa yasyfi ṣudūra qaumim mu'minīn(a).&#x20;
+Qātilūhum yu‘ażżibhumullāhu bi'aidīkum wa yukhzihim wa yanṣurkum ‘alaihim wa yasyfi ṣudūra qaumim mu'minīn(a).
 
 ## 9:15
 
-Wa yużhib gaiẓa qulūbihim, wa yatūbullāhu ‘alā may yasyā'(u), wallāhu ‘alīmun ḥakīm(un).&#x20;
+Wa yużhib gaiẓa qulūbihim, wa yatūbullāhu ‘alā may yasyā'(u), wallāhu ‘alīmun ḥakīm(un).
 
 ## 9:16
 
-Am ḥasibtum an tutrakū wa lammā ya‘lamillāhul-lażīna jāhadū minkum wa lam yattakhiżū min dūnillāhi wa lā rasūlihī wa lal-mu'minīna walījah(tan), wallāhu khabīrum bimā ta‘malūn(a).&#x20;
+Am ḥasibtum an tutrakū wa lammā ya‘lamillāhul-lażīna jāhadū minkum wa lam yattakhiżū min dūnillāhi wa lā rasūlihī wa lal-mu'minīna walījah(tan), wallāhu khabīrum bimā ta‘malūn(a).
 
 ## 9:17
 
-Mā kāna lil-musyrikīna ay ya‘murū masājidallāhi syāhidīna ‘alā anfusihim bil-kufr(i), ulā'ika ḥabiṭat a‘māluhum, wa fin-nāri hum khālidūn(a).&#x20;
+Mā kāna lil-musyrikīna ay ya‘murū masājidallāhi syāhidīna ‘alā anfusihim bil-kufr(i), ulā'ika ḥabiṭat a‘māluhum, wa fin-nāri hum khālidūn(a).
 
 ## 9:18
 
-Innamā ya‘muru masājidallāhi man āmana billāhi wal-yaumil-ākhiri wa aqāmaṣ-ṣalāta wa ātaz-zakāta wa lam yakhsya illallāh(a), fa ‘asā ulā'ika  ay yakūnū minal-muhtadīn(a).&#x20;
+Innamā ya‘muru masājidallāhi man āmana billāhi wal-yaumil-ākhiri wa aqāmaṣ-ṣalāta wa ātaz-zakāta wa lam yakhsya illallāh(a), fa ‘asā ulā'ika  ay yakūnū minal-muhtadīn(a).
 
 ## 9:19
 
-Aja‘altum siqāyatal-ḥājji wa ‘imāratal-masjidil-ḥarāmi kaman āmana billāhi wal-yaumil-ākhiri wa jāhada fī sabīlillāh(i), lā yastawūna ‘indallāh(i), wallāhu lā yahdil-qaumaẓ-ẓālimīn(a).&#x20;
+Aja‘altum siqāyatal-ḥājji wa ‘imāratal-masjidil-ḥarāmi kaman āmana billāhi wal-yaumil-ākhiri wa jāhada fī sabīlillāh(i), lā yastawūna ‘indallāh(i), wallāhu lā yahdil-qaumaẓ-ẓālimīn(a).
 
 ## 9:20
 
-Allażīna āmanū wa hājarū wa jāhadū fī sabīlillāhi bi'amwālihim wa anfusihim, a‘ẓamu darajatan ‘indallāh(i), wa ulā'ika humul-fā'izūn(a).&#x20;
+Allażīna āmanū wa hājarū wa jāhadū fī sabīlillāhi bi'amwālihim wa anfusihim, a‘ẓamu darajatan ‘indallāh(i), wa ulā'ika humul-fā'izūn(a).
 
 ## 9:21
 
-Yubasysyiruhum rabbuhum biraḥmatim minhu wa riḍwāniw wa jannātil lahum fīhā na‘īmum muqīm(un).&#x20;
+Yubasysyiruhum rabbuhum biraḥmatim minhu wa riḍwāniw wa jannātil lahum fīhā na‘īmum muqīm(un).
 
 ## 9:22
 
-Khālidīna fīhā abadā(n), innallāha ‘indahū ajrun ‘aẓīm(un).&#x20;
+Khālidīna fīhā abadā(n), innallāha ‘indahū ajrun ‘aẓīm(un).
 
 ## 9:23
 
-Yā ayyuhal-lażīna āmanū lā tattakhiżū ābā'akum wa ikhwānakum auliyā'a inistaḥabbul-kufra ‘alal-īmān(i), wa may yatawallahum minkum fa ulā'ika humuẓ-ẓālimūn(a).&#x20;
+Yā ayyuhal-lażīna āmanū lā tattakhiżū ābā'akum wa ikhwānakum auliyā'a inistaḥabbul-kufra ‘alal-īmān(i), wa may yatawallahum minkum fa ulā'ika humuẓ-ẓālimūn(a).
 
 ## 9:24
 
-Qul in kāna ābā'ukum wa abnā'ukum wa ikhwānukum wa azwājukum wa ‘asyīratukum wa amwāluniqtaraftumūhā wa tijāratun takhsyauna kasādahā wa masākinu tarḍaunahā aḥabba ilaikum minallāhi wa rasūlihī wa jihādin fī sabīlihī fa tarabbaṣū ḥattā ya'tiyallāhu bi'amrih(ī), wallāhu lā yahdil-qaumal-fāsiqīn(a).&#x20;
+Qul in kāna ābā'ukum wa abnā'ukum wa ikhwānukum wa azwājukum wa ‘asyīratukum wa amwāluniqtaraftumūhā wa tijāratun takhsyauna kasādahā wa masākinu tarḍaunahā aḥabba ilaikum minallāhi wa rasūlihī wa jihādin fī sabīlihī fa tarabbaṣū ḥattā ya'tiyallāhu bi'amrih(ī), wallāhu lā yahdil-qaumal-fāsiqīn(a).
 
 ## 9:25
 
-Laqad naṣarakumullāhu fī mawāṭina kaṡīrah(tin), wa yauma ḥunain(in), iż a‘jabatkum kaṡratukum falam tugni ‘ankum syai'aw wa ḍāqat ‘alaikumul-arḍu bimā raḥubat ṡumma wallaitum mudbirīn(a).&#x20;
+Laqad naṣarakumullāhu fī mawāṭina kaṡīrah(tin), wa yauma ḥunain(in), iż a‘jabatkum kaṡratukum falam tugni ‘ankum syai'aw wa ḍāqat ‘alaikumul-arḍu bimā raḥubat ṡumma wallaitum mudbirīn(a).
 
 ## 9:26
 
-Ṡumma anzalallāhu sakīnatahū ‘alā rasūlihī wa ‘alal-mu'minīna wa anzala junūdal lam tarauhā wa ‘ażżabal-lażīna kafarū, wa żālika jazā'ul-kāfirīn(a).&#x20;
+Ṡumma anzalallāhu sakīnatahū ‘alā rasūlihī wa ‘alal-mu'minīna wa anzala junūdal lam tarauhā wa ‘ażżabal-lażīna kafarū, wa żālika jazā'ul-kāfirīn(a).
 
 ## 9:27
 
-Ṡumma yatūbullāhu mim ba‘di żālika ‘alā may yasyā'(u), wallāhu gafūrur raḥīm(un).&#x20;
+Ṡumma yatūbullāhu mim ba‘di żālika ‘alā may yasyā'(u), wallāhu gafūrur raḥīm(un).
 
 ## 9:28
 
-Yā ayyuhal-lażīna āmanū innamal-musyrikūna najasun falā yaqrabul-masjidal-ḥarāma ba‘da ‘āmihim hāżā, wa in khiftum ‘ailatan fa saufa yugnīkumullāhu min faḍlihī in syā'(a), innallāha ‘alīmun ḥakīm(un).&#x20;
+Yā ayyuhal-lażīna āmanū innamal-musyrikūna najasun falā yaqrabul-masjidal-ḥarāma ba‘da ‘āmihim hāżā, wa in khiftum ‘ailatan fa saufa yugnīkumullāhu min faḍlihī in syā'(a), innallāha ‘alīmun ḥakīm(un).
 
 ## 9:29
 
-Qātilul-lażīna lā yu'minūna billāhi wa lā bil-yaumil-ākhiri wa lā yuḥarrimūna mā ḥarramallāhu wa rasūluhū wa lā yadīnūna dīnal-ḥaqqi minal-lażīna ūtul-kitāba ḥattā yu‘ṭul-jizyata ‘ay yadiw wa hum ṣāgirūn(a).&#x20;
+Qātilul-lażīna lā yu'minūna billāhi wa lā bil-yaumil-ākhiri wa lā yuḥarrimūna mā ḥarramallāhu wa rasūluhū wa lā yadīnūna dīnal-ḥaqqi minal-lażīna ūtul-kitāba ḥattā yu‘ṭul-jizyata ‘ay yadiw wa hum ṣāgirūn(a).
 
 ## 9:30
 
-Wa qālatil-yahūdu ‘uzairunibnullāhi wa qālatin-naṣāral-masīḥubnullāh(i), żālika qauluhum bi'afwāhihim, yuḍāhi'ūna qaulal-lażīna kafarū min qabl(u), qātalahumullāh(u), annā yu'fakūn(a).&#x20;
+Wa qālatil-yahūdu ‘uzairunibnullāhi wa qālatin-naṣāral-masīḥubnullāh(i), żālika qauluhum bi'afwāhihim, yuḍāhi'ūna qaulal-lażīna kafarū min qabl(u), qātalahumullāh(u), annā yu'fakūn(a).
 
 ## 9:31
 
-Ittakhażū aḥbārahum wa ruhbānahum arbābam min dūnillāhi wal-masīḥabna maryam(a), wa mā umirū illā liya‘budū ilāhaw wāḥidā(n), lā ilāha illā huw(a), subḥānahū ‘ammā yusyrikūn(a).&#x20;
+Ittakhażū aḥbārahum wa ruhbānahum arbābam min dūnillāhi wal-masīḥabna maryam(a), wa mā umirū illā liya‘budū ilāhaw wāḥidā(n), lā ilāha illā huw(a), subḥānahū ‘ammā yusyrikūn(a).
 
 ## 9:32
 
-Yurīdūna ay yuṭfi'ū nūrallāhi bi'afwāhihim wa ya'ballāhu illā ay yutimma nūrahū wa lau karihal-kāfirūn(a).&#x20;
+Yurīdūna ay yuṭfi'ū nūrallāhi bi'afwāhihim wa ya'ballāhu illā ay yutimma nūrahū wa lau karihal-kāfirūn(a).
 
 ## 9:33
 
-Huwal-lażī arsala rasūlahū bil-hudā wa dīnil-ḥaqqi liyuẓhirahū ‘alad-dīni kullih(ī), wa lau karihal-musyrikūn(a).&#x20;
+Huwal-lażī arsala rasūlahū bil-hudā wa dīnil-ḥaqqi liyuẓhirahū ‘alad-dīni kullih(ī), wa lau karihal-musyrikūn(a).
 
 ## 9:34
 
-Yā ayyuhal-lażīna āmanū inna kaṡīram minal-aḥbāri war-ruhbāni laya'kulūna amwālan-nāsi bil-bāṭili wa yaṣuddūna ‘an sabīlillāh(i), wal-lażīna yaknizūnaż-żahaba  wal-fiḍḍata wa lā yunfiqūnahā fī sabīlillāh(i), fa basysyirhum bi‘ażābin alīm(in).&#x20;
+Yā ayyuhal-lażīna āmanū inna kaṡīram minal-aḥbāri war-ruhbāni laya'kulūna amwālan-nāsi bil-bāṭili wa yaṣuddūna ‘an sabīlillāh(i), wal-lażīna yaknizūnaż-żahaba  wal-fiḍḍata wa lā yunfiqūnahā fī sabīlillāh(i), fa basysyirhum bi‘ażābin alīm(in).
 
 ## 9:35
 
-Yauma yuḥmā ‘alaihā fī nāri jahannama fa tukwā bihā jibāhuhum wa junūbuhum wa ẓuhūruhum, hāżā mā kanaztum li'anfusikum fa żūqū mā kuntum taknizūn(a).&#x20;
+Yauma yuḥmā ‘alaihā fī nāri jahannama fa tukwā bihā jibāhuhum wa junūbuhum wa ẓuhūruhum, hāżā mā kanaztum li'anfusikum fa żūqū mā kuntum taknizūn(a).
 
 ## 9:36
 
-Inna ‘iddatasy-syuhūri ‘indallāhiṡnā ‘asyara syahran fī kitābillāhi yauma khalaqas-samāwāti wal-arḍa minhā arba‘atun ḥurum(un), żālikad-dīnul-qayyim(u), falā taẓlimū fīhinna anfusakum wa qātilul-musyrikīna kāffatan kamā yuqātilūnakum kāffah(tan), wa‘lamū annallāha ma‘al-muttaqīn(a).&#x20;
+Inna ‘iddatasy-syuhūri ‘indallāhiṡnā ‘asyara syahran fī kitābillāhi yauma khalaqas-samāwāti wal-arḍa minhā arba‘atun ḥurum(un), żālikad-dīnul-qayyim(u), falā taẓlimū fīhinna anfusakum wa qātilul-musyrikīna kāffatan kamā yuqātilūnakum kāffah(tan), wa‘lamū annallāha ma‘al-muttaqīn(a).
 
 ## 9:37
 
-Innaman-nasī'u ziyādatun fil-kufri yuḍallu bihil-lażīna kafarū yuḥillūnahū ‘āmaw wa yuḥarrimūnahū ‘āmal liyuwāṭi'ū ‘iddata mā ḥarramallāhu fa yuḥillū mā ḥarramallāh(u), zuyyina lahum sū'u a‘mālihim, wallāhu lā yahdil-qaumal-kāfirīn(a).&#x20;
+Innaman-nasī'u ziyādatun fil-kufri yuḍallu bihil-lażīna kafarū yuḥillūnahū ‘āmaw wa yuḥarrimūnahū ‘āmal liyuwāṭi'ū ‘iddata mā ḥarramallāhu fa yuḥillū mā ḥarramallāh(u), zuyyina lahum sū'u a‘mālihim, wallāhu lā yahdil-qaumal-kāfirīn(a).
 
 ## 9:38
 
-Yā ayyuhal-lażīna āmanū mā lakum iżā qīla lakumunfirū fī sabīlillāhiṡ-ṡāqaltum ilal-arḍ(i), araḍītum bil-ḥayātid-dun-yā minal-ākhirah(ti), famā matā‘ul-ḥayātid-dun-yā fil-ākhirati illā qalīl(un).&#x20;
+Yā ayyuhal-lażīna āmanū mā lakum iżā qīla lakumunfirū fī sabīlillāhiṡ-ṡāqaltum ilal-arḍ(i), araḍītum bil-ḥayātid-dun-yā minal-ākhirah(ti), famā matā‘ul-ḥayātid-dun-yā fil-ākhirati illā qalīl(un).
 
 ## 9:39
 
-Illā tanfirū yu‘ażżibkum ‘ażāban alīmā(n), wa yastabdil qauman gairakum wa lā taḍurrūhu syai'ā(n), wallāhu ‘alā kulli syai'in qadīr(un).&#x20;
+Illā tanfirū yu‘ażżibkum ‘ażāban alīmā(n), wa yastabdil qauman gairakum wa lā taḍurrūhu syai'ā(n), wallāhu ‘alā kulli syai'in qadīr(un).
 
 ## 9:40
 
-Illā tanṣurūhu faqad naṣarahullāhu iż akhrajahul-lażīna kafarū ṡāniyaṡnaini iż humā fil-gāri iż yaqūlu liṣāḥibihī lā taḥzan innallāha ma‘anā, fa anzalallāhu sakīnatahū ‘alaihi wa ayyadahū bijunūdil lam tarauhā wa ja‘ala kalimatal-lażīna kafarus-suflā, wa kalimatullāhi hiyal-‘ulyā, wallāhu ‘azīzun ḥakīm(un).&#x20;
+Illā tanṣurūhu faqad naṣarahullāhu iż akhrajahul-lażīna kafarū ṡāniyaṡnaini iż humā fil-gāri iż yaqūlu liṣāḥibihī lā taḥzan innallāha ma‘anā, fa anzalallāhu sakīnatahū ‘alaihi wa ayyadahū bijunūdil lam tarauhā wa ja‘ala kalimatal-lażīna kafarus-suflā, wa kalimatullāhi hiyal-‘ulyā, wallāhu ‘azīzun ḥakīm(un).
 
 ## 9:41
 
-Infirū khifāfaw wa ṡiqālaw wa jāhidū bi'amwālikum wa anfusikum fī sabīlillāh(i), żālikum khairul lakum in kuntum ta‘lamūn(a).&#x20;
+Infirū khifāfaw wa ṡiqālaw wa jāhidū bi'amwālikum wa anfusikum fī sabīlillāh(i), żālikum khairul lakum in kuntum ta‘lamūn(a).
 
 ## 9:42
 
-Lau kāna ‘araḍan qarībaw wa safaran qāṣidal lattaba‘ūka  wa lākim ba‘udat ‘alaihimusy-syuqqah(tu), wa sayaḥlifūna billāhi lawistaṭa‘nā lakharajnā ma‘akum, yuhlikūna anfusahum, wallāhu ya‘lamu innahum lakāżibūn(a).&#x20;
+Lau kāna ‘araḍan qarībaw wa safaran qāṣidal lattaba‘ūka  wa lākim ba‘udat ‘alaihimusy-syuqqah(tu), wa sayaḥlifūna billāhi lawistaṭa‘nā lakharajnā ma‘akum, yuhlikūna anfusahum, wallāhu ya‘lamu innahum lakāżibūn(a).
 
 ## 9:43
 
-‘Afallāhu ‘ank(a), lima ażinta lahum ḥattā yatabayyana lakal-lażīna ṣadaqū wa ta‘lamal-kāżibīn(a).&#x20;
+‘Afallāhu ‘ank(a), lima ażinta lahum ḥattā yatabayyana lakal-lażīna ṣadaqū wa ta‘lamal-kāżibīn(a).
 
 ## 9:44
 
-Lā yasta'żinukal-lażīna yu'minūna billāhi wal-yaumil-ākhiri ay yujāhidū bi'amwālihim wa anfusihim, wallāhu ‘alīmum bil-muttaqīn(a).&#x20;
+Lā yasta'żinukal-lażīna yu'minūna billāhi wal-yaumil-ākhiri ay yujāhidū bi'amwālihim wa anfusihim, wallāhu ‘alīmum bil-muttaqīn(a).
 
 ## 9:45
 
-Innamā yasta'żinukal-lażīna lā yu'minūna billāhi wal-yaumil-ākhiri wartābat qulūbuhum fahum fī raibihim yataraddadūn(a).&#x20;
+Innamā yasta'żinukal-lażīna lā yu'minūna billāhi wal-yaumil-ākhiri wartābat qulūbuhum fahum fī raibihim yataraddadūn(a).
 
 ## 9:46
 
-Wa lau arādul-khurūja la'a‘addū lahū ‘uddataw wa lākin karihallāhumbi‘āṡahum fa ṡabbaṭahum wa qīlaq‘udū ma‘al-qā‘idīn(a).&#x20;
+Wa lau arādul-khurūja la'a‘addū lahū ‘uddataw wa lākin karihallāhumbi‘āṡahum fa ṡabbaṭahum wa qīlaq‘udū ma‘al-qā‘idīn(a).
 
 ## 9:47
 
-Wa lau kharajū fīkum mā zādūkum illā khabālaw wa la'auḍa‘ū khilālakum yabgūnakumul-fitnah(ta), wa fīkum sammā‘ūna lahum, wallāhu ‘alīmum biẓ-ẓālimīn(a).&#x20;
+Wa lau kharajū fīkum mā zādūkum illā khabālaw wa la'auḍa‘ū khilālakum yabgūnakumul-fitnah(ta), wa fīkum sammā‘ūna lahum, wallāhu ‘alīmum biẓ-ẓālimīn(a).
 
 ## 9:48
 
-Laqadibtagawul-fitnata min qablu wa qallabū lakal-umūra ḥattā jā'al-ḥaqqu wa ẓahara amrullāhi wa hum kārihūn(a).&#x20;
+Laqadibtagawul-fitnata min qablu wa qallabū lakal-umūra ḥattā jā'al-ḥaqqu wa ẓahara amrullāhi wa hum kārihūn(a).
 
 ## 9:49
 
-Wa minhum may yaqūlu'żal lī wa lā taftinnī, alā fil-fitnati saqaṭū, wa inna jahannama lamuḥīṭatum bil-kāfirīn(a).&#x20;
+Wa minhum may yaqūlu'żal lī wa lā taftinnī, alā fil-fitnati saqaṭū, wa inna jahannama lamuḥīṭatum bil-kāfirīn(a).
 
 ## 9:50
 
-In tuṣibka ḥasanatun tasu'hum, wa in tuṣibka muṣībatuy yaqūlū qad akhażnā min qablu wa yatawallau wa hum fariḥūn(a).&#x20;
+In tuṣibka ḥasanatun tasu'hum, wa in tuṣibka muṣībatuy yaqūlū qad akhażnā min qablu wa yatawallau wa hum fariḥūn(a).
 
 ## 9:51
 
-Qul lay yuṣībanā illā mā kataballāhu lanā, huwa maulānā wa ‘alallāhi falyatawakkalil-mu'minūn(a).&#x20;
+Qul lay yuṣībanā illā mā kataballāhu lanā, huwa maulānā wa ‘alallāhi falyatawakkalil-mu'minūn(a).
 
 ## 9:52
 
-Qul hal tarabbaṣūna binā illā iḥdal-ḥusnayain(i), wa naḥnu natarabbaṣu bikum ay yuṣībakumullāhu bi‘ażābim min ‘indihī au bi'aidīnā, fa tarabbaṣū innā ma‘akum mutarabbiṣūn(a).&#x20;
+Qul hal tarabbaṣūna binā illā iḥdal-ḥusnayain(i), wa naḥnu natarabbaṣu bikum ay yuṣībakumullāhu bi‘ażābim min ‘indihī au bi'aidīnā, fa tarabbaṣū innā ma‘akum mutarabbiṣūn(a).
 
 ## 9:53
 
-Qul anfiqū ṭau‘an au karhal lay yutaqabbala minkum, innakum kuntum qauman fāsiqīn(a).&#x20;
+Qul anfiqū ṭau‘an au karhal lay yutaqabbala minkum, innakum kuntum qauman fāsiqīn(a).
 
 ## 9:54
 
-Wa mā mana‘ahum an tuqbala minhum nafaqātuhum illā annahum kafarū billāhi wa birasūlihī wa lā ya'tūnaṣ-ṣalāta illā wa hum kusālā wa lā yunfiqūna illā wa hum kārihūn(a).&#x20;
+Wa mā mana‘ahum an tuqbala minhum nafaqātuhum illā annahum kafarū billāhi wa birasūlihī wa lā ya'tūnaṣ-ṣalāta illā wa hum kusālā wa lā yunfiqūna illā wa hum kārihūn(a).
 
 ## 9:55
 
-Falā tu‘jibka amwāluhum wa lā aulāduhum, innamā yurīdullāhu liyu‘ażżibahum bihā fil-ḥayātid-dun-yā wa tazhaqa anfusuhum wa hum kāfirūn(a).&#x20;
+Falā tu‘jibka amwāluhum wa lā aulāduhum, innamā yurīdullāhu liyu‘ażżibahum bihā fil-ḥayātid-dun-yā wa tazhaqa anfusuhum wa hum kāfirūn(a).
 
 ## 9:56
 
-Wa yaḥlifūna billāhi innahum laminkum, wa mā hum minkum wa lākinnahum qaumuy yafraqūn(a).&#x20;
+Wa yaḥlifūna billāhi innahum laminkum, wa mā hum minkum wa lākinnahum qaumuy yafraqūn(a).
 
 ## 9:57
 
-Lau yajidūna malja'an au magārātin au muddakhalal lawallau ilaihi wa hum yajmaḥūn(a).&#x20;
+Lau yajidūna malja'an au magārātin au muddakhalal lawallau ilaihi wa hum yajmaḥūn(a).
 
 ## 9:58
 
-Wa minhum may yalmizuka fiṣ-ṣadaqāt(i), fa in u‘ṭū minhā raḍū wa illam yu‘ṭau minhā iżā hum yaskhaṭūn(a).&#x20;
+Wa minhum may yalmizuka fiṣ-ṣadaqāt(i), fa in u‘ṭū minhā raḍū wa illam yu‘ṭau minhā iżā hum yaskhaṭūn(a).
 
 ## 9:59
 
-Wa lau annahum raḍū mā ātāhumullāhu wa rasūluh(ū), wa qālū ḥasbunallāhu sayu'tīnallāhu min faḍlihī wa rasūluhū innā ilallāhi rāgibūn(a).&#x20;
+Wa lau annahum raḍū mā ātāhumullāhu wa rasūluh(ū), wa qālū ḥasbunallāhu sayu'tīnallāhu min faḍlihī wa rasūluhū innā ilallāhi rāgibūn(a).
 
 ## 9:60
 
-Innamaṣ-ṣadaqātu lil-fuqarā'i wal-masākīni wal-‘āmilīna ‘alaihā wal-mu'allafati qulūbuhum wa fir-riqābi wal-gārimīna wa fī sabīlillāhi wabnis-sabīl(i), farīḍatam minallāh(i), wallāhu ‘alīmun ḥakīm(un).&#x20;
+Innamaṣ-ṣadaqātu lil-fuqarā'i wal-masākīni wal-‘āmilīna ‘alaihā wal-mu'allafati qulūbuhum wa fir-riqābi wal-gārimīna wa fī sabīlillāhi wabnis-sabīl(i), farīḍatam minallāh(i), wallāhu ‘alīmun ḥakīm(un).
 
 ## 9:61
 
-Wa minhumul-lażīna yu'żūnan nabiyya wa yaqūlūna huwa użun(un), qul użunu khairil lakum yu'minu billāhi wa yu'minu lil-mu'minīna wa raḥmatul lil-lażīna āmanū minkum, wal-lażīna yu'żūna rasūlallāhi lahum ‘ażābun alīm(un).&#x20;
+Wa minhumul-lażīna yu'żūnan nabiyya wa yaqūlūna huwa użun(un), qul użunu khairil lakum yu'minu billāhi wa yu'minu lil-mu'minīna wa raḥmatul lil-lażīna āmanū minkum, wal-lażīna yu'żūna rasūlallāhi lahum ‘ażābun alīm(un).
 
 ## 9:62
 
-Yaḥlifūna billāhi lakum liyurḍūkum wallāhu wa rasūluhū aḥaqqu ay yurḍūhu  in kānū mu'minīn(a).&#x20;
+Yaḥlifūna billāhi lakum liyurḍūkum wallāhu wa rasūluhū aḥaqqu ay yurḍūhu  in kānū mu'minīn(a).
 
 ## 9:63
 
@@ -5199,135 +5199,135 @@ Alam ya‘lamū annahū may yuḥādidillāha wa rasūlahū fa anna lahū nāru 
 
 ## 9:64
 
-Yaḥżarul-munāfiqūna an tunazzala ‘alaihim sūratun tunabbi'uhum bimā fī qulūbihim, qulistahzi'ū, innallāha mukhrijum mā taḥżarūn(a).&#x20;
+Yaḥżarul-munāfiqūna an tunazzala ‘alaihim sūratun tunabbi'uhum bimā fī qulūbihim, qulistahzi'ū, innallāha mukhrijum mā taḥżarūn(a).
 
 ## 9:65
 
-Wa la'in sa'altahum layaqūlunna innamā kunnā nakhūḍū wa nal‘ab(u), qul abillāhi wa āyātihī wa rasūlihī kuntum tastahzi'ūn(a).&#x20;
+Wa la'in sa'altahum layaqūlunna innamā kunnā nakhūḍū wa nal‘ab(u), qul abillāhi wa āyātihī wa rasūlihī kuntum tastahzi'ūn(a).
 
 ## 9:66
 
-Lā ta‘tażirū qad kafartum ba‘da īmānikum, in na‘fu ‘an ṭā'ifatim minkum nu‘ażżib ṭā'ifatam bi'annahum kānū mujrimīn(a).&#x20;
+Lā ta‘tażirū qad kafartum ba‘da īmānikum, in na‘fu ‘an ṭā'ifatim minkum nu‘ażżib ṭā'ifatam bi'annahum kānū mujrimīn(a).
 
 ## 9:67
 
-Al-munāfiqūna wal-munāfiqātu ba‘ḍuhum mim ba‘ḍ(in), ya'murūna bil-munkari wa yanhauna ‘anil-ma‘rūfi wa yaqbiḍūna aidiyahum, nasullāha fa nasiyahum, innal-munāfiqīna humul-fāsiqūn(a).&#x20;
+Al-munāfiqūna wal-munāfiqātu ba‘ḍuhum mim ba‘ḍ(in), ya'murūna bil-munkari wa yanhauna ‘anil-ma‘rūfi wa yaqbiḍūna aidiyahum, nasullāha fa nasiyahum, innal-munāfiqīna humul-fāsiqūn(a).
 
 ## 9:68
 
-Wa‘adallāhul-munāfiqīna wal-munāfiqāti wal-kuffāra nāra jahannama khālidīna fīhā, hiya ḥasbuhum, wa la‘anahumullāh(u), wa lahum ‘ażābum muqīm(un).&#x20;
+Wa‘adallāhul-munāfiqīna wal-munāfiqāti wal-kuffāra nāra jahannama khālidīna fīhā, hiya ḥasbuhum, wa la‘anahumullāh(u), wa lahum ‘ażābum muqīm(un).
 
 ## 9:69
 
-Kal-lażīna min qablikum kānū asyadda minkum quwwataw wa akṡara amwālaw wa aulādā(n), fastamta‘ū bikhalāqihim fastamta‘tum bikhalāqikum kamastamta‘al-lażīna min qablikum bikhalāqihim wa khuḍtum kal-lażī khāḍū, ulā'ika ḥabiṭat amāluhum fid-dun-yā wal-ākhirah(ti), ulā'ika humul-khāsirūn(a).&#x20;
+Kal-lażīna min qablikum kānū asyadda minkum quwwataw wa akṡara amwālaw wa aulādā(n), fastamta‘ū bikhalāqihim fastamta‘tum bikhalāqikum kamastamta‘al-lażīna min qablikum bikhalāqihim wa khuḍtum kal-lażī khāḍū, ulā'ika ḥabiṭat amāluhum fid-dun-yā wal-ākhirah(ti), ulā'ika humul-khāsirūn(a).
 
 ## 9:70
 
-Alam ya'tihim naba'ul-lażīna min qablihim qaumi nūḥiw wa ‘ādiw wa ṡamūd(a), wa qaumi ibrāhīma wa aṣḥābi madyana wal-mu'tafikāt(i), atathum rusuluhum bil-bayyināt(i), famā kānallāhu liyaẓlimahum wa lākin kānū anfusahum yaẓlimūn(a).&#x20;
+Alam ya'tihim naba'ul-lażīna min qablihim qaumi nūḥiw wa ‘ādiw wa ṡamūd(a), wa qaumi ibrāhīma wa aṣḥābi madyana wal-mu'tafikāt(i), atathum rusuluhum bil-bayyināt(i), famā kānallāhu liyaẓlimahum wa lākin kānū anfusahum yaẓlimūn(a).
 
 ## 9:71
 
-Wal-mu'minūna wal-mu'minātu ba‘ḍuhum auliyā'u ba‘ḍ(in), ya'murūna bil-ma‘rūfi wa yanhauna  ‘anil-munkari wa yuqīmūnaṣ-ṣalāta wa yu'tūnaz-zakāta wa yuṭī‘ūnallāha wa rasūlah(ū), ulā'ika sayarḥamuhumullāh(u), innallāha ‘azīzun ḥakīm(un).&#x20;
+Wal-mu'minūna wal-mu'minātu ba‘ḍuhum auliyā'u ba‘ḍ(in), ya'murūna bil-ma‘rūfi wa yanhauna  ‘anil-munkari wa yuqīmūnaṣ-ṣalāta wa yu'tūnaz-zakāta wa yuṭī‘ūnallāha wa rasūlah(ū), ulā'ika sayarḥamuhumullāh(u), innallāha ‘azīzun ḥakīm(un).
 
 ## 9:72
 
-Wa‘adallāhul-mu'minīna wal-mu'mināti jannātin tajrī min taḥtihal-anhāru khālidīna fīhā wa masākina ṭayyibatan fī jannāti ‘adn(in), wa riḍwānum minallāhi akbar(u), żālika huwal-fauzul-‘aẓīm(u).&#x20;
+Wa‘adallāhul-mu'minīna wal-mu'mināti jannātin tajrī min taḥtihal-anhāru khālidīna fīhā wa masākina ṭayyibatan fī jannāti ‘adn(in), wa riḍwānum minallāhi akbar(u), żālika huwal-fauzul-‘aẓīm(u).
 
 ## 9:73
 
-Yā ayyuhan-nabiyyu jāhidil-kuffāra wal-munāfiqīna wagluẓ ‘alaihim, wa ma'wāhum jahannamu wa bi'sal-maṣīr(u).&#x20;
+Yā ayyuhan-nabiyyu jāhidil-kuffāra wal-munāfiqīna wagluẓ ‘alaihim, wa ma'wāhum jahannamu wa bi'sal-maṣīr(u).
 
 ## 9:74
 
-Yaḥlifūna billāhi mā qālū, wa laqad qālū kalimatal-kufri wa kafarū ba‘da islāmihim wa hammū bimā lam yanālū, wa mā naqamū illā an agnāhumullāhu wa rasūluhū min faḍlih(ī),  fa iy yatūbū yaku khairal lahum, wa iy yatawallau yu‘ażżibhumullāhu ‘ażāban alīman fid-dun-yā wal-ākhirah(ti), wa mā lahum fil-arḍi miw waliyyiw wa lā naṣīr(in).&#x20;
+Yaḥlifūna billāhi mā qālū, wa laqad qālū kalimatal-kufri wa kafarū ba‘da islāmihim wa hammū bimā lam yanālū, wa mā naqamū illā an agnāhumullāhu wa rasūluhū min faḍlih(ī),  fa iy yatūbū yaku khairal lahum, wa iy yatawallau yu‘ażżibhumullāhu ‘ażāban alīman fid-dun-yā wal-ākhirah(ti), wa mā lahum fil-arḍi miw waliyyiw wa lā naṣīr(in).
 
 ## 9:75
 
-Wa minhum man ‘āhadallāha la'in ātānā min faḍlihī lanaṣṣaddaqanna wa lanakūnanna minaṣ-ṣāliḥīn(a).&#x20;
+Wa minhum man ‘āhadallāha la'in ātānā min faḍlihī lanaṣṣaddaqanna wa lanakūnanna minaṣ-ṣāliḥīn(a).
 
 ## 9:76
 
-Falammā ātāhum min faḍlihī bakhilū bihī wa tawallau wa hum mu‘riḍūn(a).&#x20;
+Falammā ātāhum min faḍlihī bakhilū bihī wa tawallau wa hum mu‘riḍūn(a).
 
 ## 9:77
 
-Fa a‘qabahum nifāqan fī qulūbihim ilā yaumi yalqaunahū bimā akhlafullāha mā wa‘adūhu wa bimā kānū yakżibūn(a).&#x20;
+Fa a‘qabahum nifāqan fī qulūbihim ilā yaumi yalqaunahū bimā akhlafullāha mā wa‘adūhu wa bimā kānū yakżibūn(a).
 
 ## 9:78
 
-Alam ya‘lamū annallāha ya‘lamu sirrahum wa najwāhum wa annallāha ‘allāmul-guyūb(i).&#x20;
+Alam ya‘lamū annallāha ya‘lamu sirrahum wa najwāhum wa annallāha ‘allāmul-guyūb(i).
 
 ## 9:79
 
-Allażīna yalmizūnal-muṭṭawwi‘īna minal-mu'minīna fiṣ-ṣadaqāti wal-lażīna lā yajidūna illā juhdahum fa yaskharūna minhum, sakhirallāhu minhum, wa lahum ‘ażābun alīm(un).&#x20;
+Allażīna yalmizūnal-muṭṭawwi‘īna minal-mu'minīna fiṣ-ṣadaqāti wal-lażīna lā yajidūna illā juhdahum fa yaskharūna minhum, sakhirallāhu minhum, wa lahum ‘ażābun alīm(un).
 
 ## 9:80
 
-Istagfir lahum au lā tastagfir lahum, in tastagfir lahum sab‘īna marratan falay yagfirallāhu lahum, żālika bi'annahum kafarū billāhi wa rasūlih(ī), wallāhu lā yahdil-qaumal-fāsiqīn(a).&#x20;
+Istagfir lahum au lā tastagfir lahum, in tastagfir lahum sab‘īna marratan falay yagfirallāhu lahum, żālika bi'annahum kafarū billāhi wa rasūlih(ī), wallāhu lā yahdil-qaumal-fāsiqīn(a).
 
 ## 9:81
 
-Fariḥal-mukhallafūna bimaq‘adihim khilāfa rasūlillāhi wa karihū ay yujāhidū bi'amwālihim wa anfusihim fī sabīlillāhi wa qālū lā tanfirū fil-ḥarr(i), qul nāru jahannama  asyaddu ḥarrā(n), lau kānū yafqahūn(a).&#x20;
+Fariḥal-mukhallafūna bimaq‘adihim khilāfa rasūlillāhi wa karihū ay yujāhidū bi'amwālihim wa anfusihim fī sabīlillāhi wa qālū lā tanfirū fil-ḥarr(i), qul nāru jahannama  asyaddu ḥarrā(n), lau kānū yafqahūn(a).
 
 ## 9:82
 
-Falyaḍḥakū qalīlaw walyabkū kaṡīrā(n), jazā'am bimā kānū yaksibūn(a).&#x20;
+Falyaḍḥakū qalīlaw walyabkū kaṡīrā(n), jazā'am bimā kānū yaksibūn(a).
 
 ## 9:83
 
-Fa ir raja‘akallāhu ilā ṭā'ifatim minhum  fasta'żanūka lil-khurūji faqul lan takhrujū ma‘iya abadaw wa lan tuqātilū ma‘iya ‘aduwwā(n), innakum raḍītum bil-qu‘ūdi awwala marrah(tin), faq‘udū ma‘al-khālifīn(a).&#x20;
+Fa ir raja‘akallāhu ilā ṭā'ifatim minhum  fasta'żanūka lil-khurūji faqul lan takhrujū ma‘iya abadaw wa lan tuqātilū ma‘iya ‘aduwwā(n), innakum raḍītum bil-qu‘ūdi awwala marrah(tin), faq‘udū ma‘al-khālifīn(a).
 
 ## 9:84
 
-Wa lā tuṣalli ‘alā aḥadim minhum māta abadaw wa lā taqum ‘alā qabrih(ī), innahum kafarū billāhi wa rasūlihī wa mātū wa hum fāsiqūn(a).&#x20;
+Wa lā tuṣalli ‘alā aḥadim minhum māta abadaw wa lā taqum ‘alā qabrih(ī), innahum kafarū billāhi wa rasūlihī wa mātū wa hum fāsiqūn(a).
 
 ## 9:85
 
-Wa lā tu‘jibka amwāluhum wa lā aulāduhum, innamā yurīdullāhu ay yu‘ażżibahum bihā fid-dun-yā wa tazhaqa anfusuhum wa hum kāfirūn(a).&#x20;
+Wa lā tu‘jibka amwāluhum wa lā aulāduhum, innamā yurīdullāhu ay yu‘ażżibahum bihā fid-dun-yā wa tazhaqa anfusuhum wa hum kāfirūn(a).
 
 ## 9:86
 
-Wa iżā unzilat sūratun an āminū billāhi wa jāhidū ma‘a rasūlihista'żanaka uluṭ-ṭauli minhum wa qālū żarnā nakum ma‘al-qā‘idīn(a).&#x20;
+Wa iżā unzilat sūratun an āminū billāhi wa jāhidū ma‘a rasūlihista'żanaka uluṭ-ṭauli minhum wa qālū żarnā nakum ma‘al-qā‘idīn(a).
 
 ## 9:87
 
-Raḍū bi'ay yakūnū ma‘al-khawālifi wa ṭubi‘a ‘alā qulūbihim fahum lā yafqahūn(a).&#x20;
+Raḍū bi'ay yakūnū ma‘al-khawālifi wa ṭubi‘a ‘alā qulūbihim fahum lā yafqahūn(a).
 
 ## 9:88
 
-Lākinir-rasūlu wal-lażīna āmanū ma‘ahū jāhadū bi'amwālihim wa anfusihim, wa ulā'ika lahumul-khairāt(u), wa ulā'ika humul-mufliḥūn(a).&#x20;
+Lākinir-rasūlu wal-lażīna āmanū ma‘ahū jāhadū bi'amwālihim wa anfusihim, wa ulā'ika lahumul-khairāt(u), wa ulā'ika humul-mufliḥūn(a).
 
 ## 9:89
 
-A‘addallāhu lahum jannātin tajrī min taḥtihal-anhāru khālidīna fīhā, żālikal-fauzul-‘aẓīm(u).&#x20;
+A‘addallāhu lahum jannātin tajrī min taḥtihal-anhāru khālidīna fīhā, żālikal-fauzul-‘aẓīm(u).
 
 ## 9:90
 
-Wa jā'al-mu‘ażżirūna minal-a‘rābi liyu'żana lahum wa qa‘adal-lażīna każabullāha wa rasūlah(ū), sayuṣībul-lażīna kafarū minhum ‘ażābun alīm(un).&#x20;
+Wa jā'al-mu‘ażżirūna minal-a‘rābi liyu'żana lahum wa qa‘adal-lażīna każabullāha wa rasūlah(ū), sayuṣībul-lażīna kafarū minhum ‘ażābun alīm(un).
 
 ## 9:91
 
-Laisa ‘alaḍ-ḍu‘afā'i wa lā ‘alal-marḍā wa lā ‘alal-lażīna lā yajidūna mā yunfiqūna ḥarajun iżā naṣaḥū lillāhi wa rasūlih(ī), mā ‘alal-muḥsinīna min sabīl(in), wallāhu gafūrur raḥīm(un).&#x20;
+Laisa ‘alaḍ-ḍu‘afā'i wa lā ‘alal-marḍā wa lā ‘alal-lażīna lā yajidūna mā yunfiqūna ḥarajun iżā naṣaḥū lillāhi wa rasūlih(ī), mā ‘alal-muḥsinīna min sabīl(in), wallāhu gafūrur raḥīm(un).
 
 ## 9:92
 
-Wa lā ‘alal-lażīna iżā mā atauka litaḥmilahum qulta lā ajidu mā aḥmilukum ‘alaih(i), tawallau wa a‘yunuhum tafīḍu minad dam‘i ḥazanan allā yajidū mā yunfiqūn(a).&#x20;
+Wa lā ‘alal-lażīna iżā mā atauka litaḥmilahum qulta lā ajidu mā aḥmilukum ‘alaih(i), tawallau wa a‘yunuhum tafīḍu minad dam‘i ḥazanan allā yajidū mā yunfiqūn(a).
 
 ## 9:93
 
-Innamas-sabīlu ‘alal-lażīna yasta'żinūnaka wa hum agniyā'(u), raḍū bi'ay yakūnū ma‘al-khawālif(i), wa ṭaba‘allāhu ‘alā qulūbihim fahum lā ya‘lamūn(a).&#x20;
+Innamas-sabīlu ‘alal-lażīna yasta'żinūnaka wa hum agniyā'(u), raḍū bi'ay yakūnū ma‘al-khawālif(i), wa ṭaba‘allāhu ‘alā qulūbihim fahum lā ya‘lamūn(a).
 
 ## 9:94
 
-Ya‘tażirūna ilaikum iżā raja‘tum ilaihim, qul lā ta‘tażirū lan nu'mina lakum qad nabba'anallāhu min akhbārikum wa sayarallāhu ‘amalakum wa rasūluhū ṡumma turaddūna ilā ‘ālimil-gaibi wasy-syahādati fa yunabbi'ukum bimā kuntum ta‘malūn(a).&#x20;
+Ya‘tażirūna ilaikum iżā raja‘tum ilaihim, qul lā ta‘tażirū lan nu'mina lakum qad nabba'anallāhu min akhbārikum wa sayarallāhu ‘amalakum wa rasūluhū ṡumma turaddūna ilā ‘ālimil-gaibi wasy-syahādati fa yunabbi'ukum bimā kuntum ta‘malūn(a).
 
 ## 9:95
 
-Sayaḥlifūna billāhi lakum iżanqalabtum ilaihim litu‘riḍū ‘anhum, fa a‘riḍū ‘anhum, innahum rijs(un), wa ma'wāhum jahannamu jazā'am bimā kānū yaksibūn(a).&#x20;
+Sayaḥlifūna billāhi lakum iżanqalabtum ilaihim litu‘riḍū ‘anhum, fa a‘riḍū ‘anhum, innahum rijs(un), wa ma'wāhum jahannamu jazā'am bimā kānū yaksibūn(a).
 
 ## 9:96
 
-Yaḥlifūna lakum litarḍau ‘anhum, fa in tarḍau ‘anhum fa innallāha lā yarḍā ‘anil-qaumil-fāsiqīn(a).&#x20;
+Yaḥlifūna lakum litarḍau ‘anhum, fa in tarḍau ‘anhum fa innallāha lā yarḍā ‘anil-qaumil-fāsiqīn(a).
 
 ## 9:97
 
@@ -5335,391 +5335,391 @@ Al-a‘rābu asyaddu kufraw wa nifāqaw wa ajdaru allā ya‘lamū ḥudūda mā
 
 ## 9:98
 
-Wa minal-a‘rābi may yattakhiżu mā yunfiqu magramaw wa yatarabbaṣu bikumud-dawā'ir(a), ‘alaihim dā'iratus-sau'(i), wallāhu samī‘un ‘alīm(un).&#x20;
+Wa minal-a‘rābi may yattakhiżu mā yunfiqu magramaw wa yatarabbaṣu bikumud-dawā'ir(a), ‘alaihim dā'iratus-sau'(i), wallāhu samī‘un ‘alīm(un).
 
 ## 9:99
 
-Wa minal-a‘rābi may yu'minu billāhi wal-yaumil-ākhiri wa yattakhiżu mā yunfiqu qurubātin ‘indallāhi wa ṣalawātir-rasūl(i), alā innahā qurbatul lahum, sayudkhiluhumullāhu fī raḥmatih(ī), innallāha gafūrur raḥīm(un).&#x20;
+Wa minal-a‘rābi may yu'minu billāhi wal-yaumil-ākhiri wa yattakhiżu mā yunfiqu qurubātin ‘indallāhi wa ṣalawātir-rasūl(i), alā innahā qurbatul lahum, sayudkhiluhumullāhu fī raḥmatih(ī), innallāha gafūrur raḥīm(un).
 
 ## 9:100
 
-Was-sābiqūnal-awwalūna minal-muhājirīna wal-anṣāri wal-lażīnattaba‘ūhum bi'iḥsān(in), raḍiyallāhu ‘anhum wa raḍū ‘anhu wa a‘adda lahum jannātin tajrī  taḥtahal-anhāru khālidīna fīhā abadā(n), żālikal-fauzul-‘aẓīm(u).&#x20;
+Was-sābiqūnal-awwalūna minal-muhājirīna wal-anṣāri wal-lażīnattaba‘ūhum bi'iḥsān(in), raḍiyallāhu ‘anhum wa raḍū ‘anhu wa a‘adda lahum jannātin tajrī  taḥtahal-anhāru khālidīna fīhā abadā(n), żālikal-fauzul-‘aẓīm(u).
 
 ## 9:101
 
-Wa mimman  ḥaulakum minal-a‘rābi munāfiqūn(a),wa min ahlil-madīnati maradū ‘alan nifāq(i), lā ta‘lamuhum, naḥnu na‘lamuhum, sanu‘ażżibuhum marrataini ṡumma yuraddūna ilā ‘ażābin ‘aẓīm(in).&#x20;
+Wa mimman  ḥaulakum minal-a‘rābi munāfiqūn(a),wa min ahlil-madīnati maradū ‘alan nifāq(i), lā ta‘lamuhum, naḥnu na‘lamuhum, sanu‘ażżibuhum marrataini ṡumma yuraddūna ilā ‘ażābin ‘aẓīm(in).
 
 ## 9:102
 
-Wa ākharūna‘tarafū biżunūbihim khalaṭū ‘amalan ṣāliḥaw wa ākhara sayyi'ā(n), ‘asallāhu ay yatūba ‘alaihim, innallāha gafūrur raḥīm(un).&#x20;
+Wa ākharūna‘tarafū biżunūbihim khalaṭū ‘amalan ṣāliḥaw wa ākhara sayyi'ā(n), ‘asallāhu ay yatūba ‘alaihim, innallāha gafūrur raḥīm(un).
 
 ## 9:103
 
-Khuż min amwālihim ṣadaqatan tuṭahhiruhum wa tuzakkīhim bihā wa ṣalli ‘alaihim, inna ṣalātaka sakanul lahum, wallāhu samī‘un ‘alīm(un).&#x20;
+Khuż min amwālihim ṣadaqatan tuṭahhiruhum wa tuzakkīhim bihā wa ṣalli ‘alaihim, inna ṣalātaka sakanul lahum, wallāhu samī‘un ‘alīm(un).
 
 ## 9:104
 
-Alam ya‘lamū annallāha huwa yaqbalut-taubata ‘an ‘ibādihī wa ya'khużuṣ-ṣadaqāti wa annallāha huwat-tawwābur-raḥīm(u).&#x20;
+Alam ya‘lamū annallāha huwa yaqbalut-taubata ‘an ‘ibādihī wa ya'khużuṣ-ṣadaqāti wa annallāha huwat-tawwābur-raḥīm(u).
 
 ## 9:105
 
-Wa quli‘malū fa sayarallāhu ‘amalakum wa rasūluhū wal-mu'minūn(a), wa saturaddūna ilā ‘ālimil-gaibi wasy-syahādati fa yunabbi'ukum bimā kuntum ta‘malūn(a).&#x20;
+Wa quli‘malū fa sayarallāhu ‘amalakum wa rasūluhū wal-mu'minūn(a), wa saturaddūna ilā ‘ālimil-gaibi wasy-syahādati fa yunabbi'ukum bimā kuntum ta‘malūn(a).
 
 ## 9:106
 
-Wa ākharūna murjaunal li'amrillāhi immā yu‘ażżibuhum wa immā yatūbu ‘alaihim, wallāhu ‘alīmun ḥakīm(un).&#x20;
+Wa ākharūna murjaunal li'amrillāhi immā yu‘ażżibuhum wa immā yatūbu ‘alaihim, wallāhu ‘alīmun ḥakīm(un).
 
 ## 9:107
 
-Wal-lażīnattakhażū masjidan ḍirāraw wa kufraw wa tafrīqam bainal-mu'minīna wa irṣādal liman ḥāraballāha wa rasūlahū min qabl(u), wa layaḥlifunna in aradnā illal-ḥusnā, wallāhu yasyhadu innahum lakāżibūn(a).&#x20;
+Wal-lażīnattakhażū masjidan ḍirāraw wa kufraw wa tafrīqam bainal-mu'minīna wa irṣādal liman ḥāraballāha wa rasūlahū min qabl(u), wa layaḥlifunna in aradnā illal-ḥusnā, wallāhu yasyhadu innahum lakāżibūn(a).
 
 ## 9:108
 
-Lā taqum fīhi abadā(n), lamasjidun ussisa ‘alat-taqwā min awwali yaumin aḥaqqu an taqūma fīh(i), fīhi rijāluy yuḥibbūna ay yataṭahharū, wallāhu yuḥibbul-muṭṭahhirīn(a).&#x20;
+Lā taqum fīhi abadā(n), lamasjidun ussisa ‘alat-taqwā min awwali yaumin aḥaqqu an taqūma fīh(i), fīhi rijāluy yuḥibbūna ay yataṭahharū, wallāhu yuḥibbul-muṭṭahhirīn(a).
 
 ## 9:109
 
-Afaman assasa bun-yānahū ‘alā taqwā minallāhi wa riḍwānin khairun am man assasa bun-yānahū ‘alā syafā jurufin hārin fanhāra bihī fī nāri jahannam(a), wallāhu lā yahdil-qaumaẓ-ẓālimīn(a).&#x20;
+Afaman assasa bun-yānahū ‘alā taqwā minallāhi wa riḍwānin khairun am man assasa bun-yānahū ‘alā syafā jurufin hārin fanhāra bihī fī nāri jahannam(a), wallāhu lā yahdil-qaumaẓ-ẓālimīn(a).
 
 ## 9:110
 
-Lā yazālu bun-yānuhumul-lażī banau rībatan fī qulūbihim illā an taqaṭṭa‘a qulūbuhum, wallāhu ‘alīmun ḥakīm(un).&#x20;
+Lā yazālu bun-yānuhumul-lażī banau rībatan fī qulūbihim illā an taqaṭṭa‘a qulūbuhum, wallāhu ‘alīmun ḥakīm(un).
 
 ## 9:111
 
-Innallāhasytarā minal-mu'minīna anfusahum wa amwālahum bi'anna lahumul-jannah(ta), yuqātilūna fī sabīlillāhi fa yaqtulūna wa yuqtalūna wa‘dan ‘alaihi ḥaqqan fit-taurāti wal-injīli wal-qur'ān(i), wa man aufā bi‘ahdihī minallāhi fastabsyirū bibai‘ikumul-lażī bāya‘tum bih(ī), wa żālika huwal-fauzul-‘aẓīm(u).&#x20;
+Innallāhasytarā minal-mu'minīna anfusahum wa amwālahum bi'anna lahumul-jannah(ta), yuqātilūna fī sabīlillāhi fa yaqtulūna wa yuqtalūna wa‘dan ‘alaihi ḥaqqan fit-taurāti wal-injīli wal-qur'ān(i), wa man aufā bi‘ahdihī minallāhi fastabsyirū bibai‘ikumul-lażī bāya‘tum bih(ī), wa żālika huwal-fauzul-‘aẓīm(u).
 
 ## 9:112
 
-At tā'ibūnal-‘ābidul-ḥāmidūnas-sā'iḥūnar-rāki‘ūnas-sājidūnal-āmirūna bil-ma‘rūfi wan-nāhūna ‘anil-munkari wal-ḥāfiẓūna liḥudūdillāh(i), wa basysyiril-mu'minīn(a).&#x20;
+At tā'ibūnal-‘ābidul-ḥāmidūnas-sā'iḥūnar-rāki‘ūnas-sājidūnal-āmirūna bil-ma‘rūfi wan-nāhūna ‘anil-munkari wal-ḥāfiẓūna liḥudūdillāh(i), wa basysyiril-mu'minīn(a).
 
 ## 9:113
 
-Mā kāna lin-nabiyyi wal-lażīna āmanū ay yastagfirū lil-musyrikīna wa lau kānū ulī qurbā mim ba‘di mā tabayyana lahum annahum aṣḥābul-jaḥīm(i).&#x20;
+Mā kāna lin-nabiyyi wal-lażīna āmanū ay yastagfirū lil-musyrikīna wa lau kānū ulī qurbā mim ba‘di mā tabayyana lahum annahum aṣḥābul-jaḥīm(i).
 
 ## 9:114
 
-Wa mā kānastigfāru ibrāhīma li'abīhi illā ‘am mau‘idatiw wa‘adahā iyyāh(u), falammā tabayyana lahū annahū ‘aduwwul lillāhi tabarra'a minh(u), inna ibrāhīma la'awwāhun ḥalīm(un).&#x20;
+Wa mā kānastigfāru ibrāhīma li'abīhi illā ‘am mau‘idatiw wa‘adahā iyyāh(u), falammā tabayyana lahū annahū ‘aduwwul lillāhi tabarra'a minh(u), inna ibrāhīma la'awwāhun ḥalīm(un).
 
 ## 9:115
 
-Wa mā kānallāhu liyuḍilla qaumam ba‘da iż hadāhum ḥattā yubayyina lahum mā yattaqūn(a), innallāha bikulli syai'in ‘alīm(un).&#x20;
+Wa mā kānallāhu liyuḍilla qaumam ba‘da iż hadāhum ḥattā yubayyina lahum mā yattaqūn(a), innallāha bikulli syai'in ‘alīm(un).
 
 ## 9:116
 
-Innallāha lahū mulkus-samāwāti wal-arḍ(i), yuḥyī wa yumīt(u), wa mā lakum min dūnillāhi miw waliyyiw wa lā naṣīr(in).&#x20;
+Innallāha lahū mulkus-samāwāti wal-arḍ(i), yuḥyī wa yumīt(u), wa mā lakum min dūnillāhi miw waliyyiw wa lā naṣīr(in).
 
 ## 9:117
 
-Laqat tāballāhu ‘alan-nabiyyi wal-muhājirīna wal-anṣāril-lażīnattaba‘ūhu fī sā‘atil-‘usrati mim ba‘di mā kāda yazīgu qulūbu farīqim minhum ṡumma tāba ‘alaihim, innahū bihim ra'ūfur raḥīm(un).&#x20;
+Laqat tāballāhu ‘alan-nabiyyi wal-muhājirīna wal-anṣāril-lażīnattaba‘ūhu fī sā‘atil-‘usrati mim ba‘di mā kāda yazīgu qulūbu farīqim minhum ṡumma tāba ‘alaihim, innahū bihim ra'ūfur raḥīm(un).
 
 ## 9:118
 
-Wa ‘alaṡ-ṡalāṡatil-lażīna khullifū, ḥattā iżā ḍāqat ‘alaihimul-arḍu bimā raḥubat wa ḍāqat ‘alaihim anfusuhum wa ẓannū allā malja'a minallāhi illā ilaih(i), ṡumma tāba ‘alaihim liyatūbū, innallāha huwat-tawwābur-raḥīm(u).&#x20;
+Wa ‘alaṡ-ṡalāṡatil-lażīna khullifū, ḥattā iżā ḍāqat ‘alaihimul-arḍu bimā raḥubat wa ḍāqat ‘alaihim anfusuhum wa ẓannū allā malja'a minallāhi illā ilaih(i), ṡumma tāba ‘alaihim liyatūbū, innallāha huwat-tawwābur-raḥīm(u).
 
 ## 9:119
 
-Yā ayyuhal-lażīna āmanuttaqullāha wa kūnū ma‘aṣ-ṣādiqīn(a).&#x20;
+Yā ayyuhal-lażīna āmanuttaqullāha wa kūnū ma‘aṣ-ṣādiqīn(a).
 
 ## 9:120
 
-Mā kāna li'ahlil-madīnati wa man ḥaulahum minal-a‘rābi ay yatakhallafū ‘ar rasūlillāhi wa lā yargabū bi'anfusihim ‘an nafsih(ī), żālika bi'annahum lā yuṣībuhum ẓama'uw wa lā naṣabuw wa lā makhmaṣatun fī sabīlillāhi wa lā yaṭa'ūna mauṭi'ay yagīẓul-kuffāra wa lā yanālūna min ‘aduwwin nailan illā kutiba lahum bihī ‘amalun ṣāliḥ(un), innallāha lā yuḍī‘u ajral-muḥsinīn(a).&#x20;
+Mā kāna li'ahlil-madīnati wa man ḥaulahum minal-a‘rābi ay yatakhallafū ‘ar rasūlillāhi wa lā yargabū bi'anfusihim ‘an nafsih(ī), żālika bi'annahum lā yuṣībuhum ẓama'uw wa lā naṣabuw wa lā makhmaṣatun fī sabīlillāhi wa lā yaṭa'ūna mauṭi'ay yagīẓul-kuffāra wa lā yanālūna min ‘aduwwin nailan illā kutiba lahum bihī ‘amalun ṣāliḥ(un), innallāha lā yuḍī‘u ajral-muḥsinīn(a).
 
 ## 9:121
 
-Wa lā yunfiqūna nafaqatan ṣagīrataw wa lā kabīrataw wa lā yaqṭa‘ūna wādiyan illā kutiba lahum liyajziyahumullāhu aḥsana mā kānū ya‘malūn(a).&#x20;
+Wa lā yunfiqūna nafaqatan ṣagīrataw wa lā kabīrataw wa lā yaqṭa‘ūna wādiyan illā kutiba lahum liyajziyahumullāhu aḥsana mā kānū ya‘malūn(a).
 
 ## 9:122
 
-Wa mā kānal-mu'minūna liyanfirū kāffah(tan), falau lā nafara min kulli firqatim minhum ṭā'ifatul liyatafaqqahū fid-dīni wa liyunżirū qaumahum iżā raja‘ū ilaihim la‘allahum yaḥżarūn(a).&#x20;
+Wa mā kānal-mu'minūna liyanfirū kāffah(tan), falau lā nafara min kulli firqatim minhum ṭā'ifatul liyatafaqqahū fid-dīni wa liyunżirū qaumahum iżā raja‘ū ilaihim la‘allahum yaḥżarūn(a).
 
 ## 9:123
 
-Yā ayyuhal-lażīna āmanū qātilul-lażīna yalūnakum minal-kuffāri wal-yajidū fīkum gilẓah(tan), wa‘lamū annallāha ma‘al-muttaqīn(a).&#x20;
+Yā ayyuhal-lażīna āmanū qātilul-lażīna yalūnakum minal-kuffāri wal-yajidū fīkum gilẓah(tan), wa‘lamū annallāha ma‘al-muttaqīn(a).
 
 ## 9:124
 
-Wa iżā mā unzilat sūratun fa minhum may yaqūlu ayyukum zādathu hāżihī īmānā(n), fa ammal-lażīna āmanū fa zādathum īmānaw wa hum yastabsyirūn(a).&#x20;
+Wa iżā mā unzilat sūratun fa minhum may yaqūlu ayyukum zādathu hāżihī īmānā(n), fa ammal-lażīna āmanū fa zādathum īmānaw wa hum yastabsyirūn(a).
 
 ## 9:125
 
-Wa ammal-lażīna fī qulūbihim maraḍun fa zādathum rijsan ilā rijsihim wa mātū wa hum kāfirūn(a).&#x20;
+Wa ammal-lażīna fī qulūbihim maraḍun fa zādathum rijsan ilā rijsihim wa mātū wa hum kāfirūn(a).
 
 ## 9:126
 
-Awalā yarauna annahum yuftanūna fī kulli ‘āmim marrataini ṡumma lā yatūbūna wa lā hum yażżakkarūn(a).&#x20;
+Awalā yarauna annahum yuftanūna fī kulli ‘āmim marrataini ṡumma lā yatūbūna wa lā hum yażżakkarūn(a).
 
 ## 9:127
 
-Wa iżā mā unzilat sūratun naẓara ba‘ḍuhum ilā ba‘ḍ(in), hal yarākum min aḥadin ṡummanṣarafū, ṣarafallāhu qulūbahum bi'annahum qaumul lā yafqahūn(a).&#x20;
+Wa iżā mā unzilat sūratun naẓara ba‘ḍuhum ilā ba‘ḍ(in), hal yarākum min aḥadin ṡummanṣarafū, ṣarafallāhu qulūbahum bi'annahum qaumul lā yafqahūn(a).
 
 ## 9:128
 
-Laqad jā'akum rasūlum min anfusikum ‘azīzun ‘alaihi mā ‘anittum ḥarīṣun ‘alaikum  bil-mu'minīna ra'ūfur raḥīm(un).&#x20;
+Laqad jā'akum rasūlum min anfusikum ‘azīzun ‘alaihi mā ‘anittum ḥarīṣun ‘alaikum  bil-mu'minīna ra'ūfur raḥīm(un).
 
 ## 9:129
 
-Fa in tawallau faqul ḥasbiyallāhu lā ilāha illā huw(a), ‘alaihi tawakkaltu wa  huwa rabbul-‘arsyil-‘aẓīm(i).&#x20;
+Fa in tawallau faqul ḥasbiyallāhu lā ilāha illā huw(a), ‘alaihi tawakkaltu wa  huwa rabbul-‘arsyil-‘aẓīm(i).
 
 ## 10:1
 
-Alif lām rā, tilka āyātul-kitābil-ḥakīm(i).&#x20;
+Alif lām rā, tilka āyātul-kitābil-ḥakīm(i).
 
 ## 10:2
 
-Akāna lin-nāsi ‘ajaban an auḥainā ilā rajulim minhum an anżirin-nāsa wa basysyiril-lażīna āmanū anna lahum qadama ṣidqin ‘inda rabbihim, qālal-kāfirūna inna hāżā lasāḥirum mubīn(un).&#x20;
+Akāna lin-nāsi ‘ajaban an auḥainā ilā rajulim minhum an anżirin-nāsa wa basysyiril-lażīna āmanū anna lahum qadama ṣidqin ‘inda rabbihim, qālal-kāfirūna inna hāżā lasāḥirum mubīn(un).
 
 ## 10:3
 
-Inna rabbakumullāhul -lażī khalaqas-samāwāti wal-arḍa fī sittati ayyāmin ṡummastawā ‘alal-‘arsyi yudabbirul-amr(a), mā min syafī‘in illā mim ba‘di iżnih(ī), żālikumullāhu rabbukum fa‘budūh(u), afalā tażakkarūn(a).&#x20;
+Inna rabbakumullāhul -lażī khalaqas-samāwāti wal-arḍa fī sittati ayyāmin ṡummastawā ‘alal-‘arsyi yudabbirul-amr(a), mā min syafī‘in illā mim ba‘di iżnih(ī), żālikumullāhu rabbukum fa‘budūh(u), afalā tażakkarūn(a).
 
 ## 10:4
 
-Ilaihi marji‘ukum jamī‘ā(n), wa‘dallāhi ḥaqqā(n), innahū yabda'ul-khalqa ṡumma yu‘īduhū liyajziyal-lażīna āmanū wa ‘amiluṣ-ṣāliḥāti bil-qisṭ(i), wal-lażīna kafarū lahum syarābum min ḥamīmiw wa ‘ażābun alīmum bimā kānū yakfurūn(a).&#x20;
+Ilaihi marji‘ukum jamī‘ā(n), wa‘dallāhi ḥaqqā(n), innahū yabda'ul-khalqa ṡumma yu‘īduhū liyajziyal-lażīna āmanū wa ‘amiluṣ-ṣāliḥāti bil-qisṭ(i), wal-lażīna kafarū lahum syarābum min ḥamīmiw wa ‘ażābun alīmum bimā kānū yakfurūn(a).
 
 ## 10:5
 
-Huwal-lażī ja‘alasy-syamsa ḍiyā'aw wal-qamara nūraw wa qaddarahū manāzila lita‘lamū ‘adadas-sinīna wal-ḥisāb(a), mā khalaqallāhu zālika illā bil-ḥaqq(i), yufaṣṣilul-āyāti liqaumiy ya‘lamūn(a).&#x20;
+Huwal-lażī ja‘alasy-syamsa ḍiyā'aw wal-qamara nūraw wa qaddarahū manāzila lita‘lamū ‘adadas-sinīna wal-ḥisāb(a), mā khalaqallāhu zālika illā bil-ḥaqq(i), yufaṣṣilul-āyāti liqaumiy ya‘lamūn(a).
 
 ## 10:6
 
-Inna fikhtilāfil-laili wan-nahāri wa mā khalaqallāhu fis-samāwāti wal-arḍi la'āyātil liqaumiy yattaqūn(a).&#x20;
+Inna fikhtilāfil-laili wan-nahāri wa mā khalaqallāhu fis-samāwāti wal-arḍi la'āyātil liqaumiy yattaqūn(a).
 
 ## 10:7
 
-Innal-lażīna lā yarjūna liqā'anā wa raḍū bil-ḥayātid-dun-yā waṭma'annū bihā wal-lażīna hum ‘an āyātinā gāfilūn(a).&#x20;
+Innal-lażīna lā yarjūna liqā'anā wa raḍū bil-ḥayātid-dun-yā waṭma'annū bihā wal-lażīna hum ‘an āyātinā gāfilūn(a).
 
 ## 10:8
 
-Ulā'ika ma'wāhumun nāru bimā kānū yaksibūn(a).&#x20;
+Ulā'ika ma'wāhumun nāru bimā kānū yaksibūn(a).
 
 ## 10:9
 
-Innal-lażīna āmanū wa ‘amiluṣ-ṣāliḥāti yahdīhim rabbuhum bi'īmānihim, tajrī min taḥtihimul-anhāru fī jannātin na‘īm(i).&#x20;
+Innal-lażīna āmanū wa ‘amiluṣ-ṣāliḥāti yahdīhim rabbuhum bi'īmānihim, tajrī min taḥtihimul-anhāru fī jannātin na‘īm(i).
 
 ## 10:10
 
-Da‘wāhum fīhā subḥānakallāhumma wa taḥiyyatuhum fīhā salām(un), wa ākhiru da‘wāhum anil-ḥamdu lillāhi rabbil-‘ālamīn(a).&#x20;
+Da‘wāhum fīhā subḥānakallāhumma wa taḥiyyatuhum fīhā salām(un), wa ākhiru da‘wāhum anil-ḥamdu lillāhi rabbil-‘ālamīn(a).
 
 ## 10:11
 
-Wa lau yu‘ajjilullāhu lin-nāsisy-syarrasti‘jālahum bil-khairi laquḍiya ilaihim ajaluhum, fa nażarul-lażīna lā yarjūna liqā'anā fī ṭugyānihim ya‘mahūn(a).&#x20;
+Wa lau yu‘ajjilullāhu lin-nāsisy-syarrasti‘jālahum bil-khairi laquḍiya ilaihim ajaluhum, fa nażarul-lażīna lā yarjūna liqā'anā fī ṭugyānihim ya‘mahūn(a).
 
 ## 10:12
 
-Wa iżā massal-insānaḍ-ḍurru da‘ānā lijambihī au qā‘idan au qā'imā(n), falammā kasyafnā ‘anhu ḍurrahū marra ka'allam yad‘unā ilā ḍurrim massah(ū), każālika zuyyina lil-musrifīna mā kānū ya‘malūn(a).&#x20;
+Wa iżā massal-insānaḍ-ḍurru da‘ānā lijambihī au qā‘idan au qā'imā(n), falammā kasyafnā ‘anhu ḍurrahū marra ka'allam yad‘unā ilā ḍurrim massah(ū), każālika zuyyina lil-musrifīna mā kānū ya‘malūn(a).
 
 ## 10:13
 
-Wa laqad ahlaknal-qurūna min qablikum lammā ẓalamū, wa jā'athum rusuluhum bil-bayyināti wa mā kānū liyu'minū, każālika najzil-qaumal-mujrimīn(a).&#x20;
+Wa laqad ahlaknal-qurūna min qablikum lammā ẓalamū, wa jā'athum rusuluhum bil-bayyināti wa mā kānū liyu'minū, każālika najzil-qaumal-mujrimīn(a).
 
 ## 10:14
 
-Ṡumma ja‘alnākum khalā'ifa fil-arḍi mim ba‘dihim linanẓura kaifa ta‘malūn(a).&#x20;
+Ṡumma ja‘alnākum khalā'ifa fil-arḍi mim ba‘dihim linanẓura kaifa ta‘malūn(a).
 
 ## 10:15
 
-Wa iżā tutlā ‘alaihim āyātunā bayyināt(in), qālal-lażīna lā yarjūna liqā'ana'ti biqur'ānin gairi hāżā au baddilh(u), qul mā yakūnu lī an ubaddilahū min tilqā'i nafsī, in attabi‘u illā mā yūḥā ilayy(a), innī akhāfu in ‘aṣaitu rabbī ‘ażāba yaumin ‘aẓīm(in).&#x20;
+Wa iżā tutlā ‘alaihim āyātunā bayyināt(in), qālal-lażīna lā yarjūna liqā'ana'ti biqur'ānin gairi hāżā au baddilh(u), qul mā yakūnu lī an ubaddilahū min tilqā'i nafsī, in attabi‘u illā mā yūḥā ilayy(a), innī akhāfu in ‘aṣaitu rabbī ‘ażāba yaumin ‘aẓīm(in).
 
 ## 10:16
 
-Qul lau syā'allāhu mā talautuhū ‘alaikum wa lā adrākum bih(ī), faqad labiṡtu fīkum ‘umuram min qablih(ī), afalā ta‘qilūn(a).&#x20;
+Qul lau syā'allāhu mā talautuhū ‘alaikum wa lā adrākum bih(ī), faqad labiṡtu fīkum ‘umuram min qablih(ī), afalā ta‘qilūn(a).
 
 ## 10:17
 
-Faman aẓlamu mimmaniftarā ‘alallāhi każiban au każżaba bi'āyātih(ī), innahū lā yufliḥul-mujrimūn(a).&#x20;
+Faman aẓlamu mimmaniftarā ‘alallāhi każiban au każżaba bi'āyātih(ī), innahū lā yufliḥul-mujrimūn(a).
 
 ## 10:18
 
-Wa ya‘budūna min dūnillāhi mā lā yaḍurruhum wa lā yanfa‘uhum wa yaqūlūna hā'ulā'i syufa‘ā'unā ‘indallāh(i), qul atunabbi'ūnallāha bimā lā ya‘lamu fis-samāwāti wa lā fil-arḍ(i), subḥānahū wa ta‘ālā ‘ammā yusyrikūn(a).&#x20;
+Wa ya‘budūna min dūnillāhi mā lā yaḍurruhum wa lā yanfa‘uhum wa yaqūlūna hā'ulā'i syufa‘ā'unā ‘indallāh(i), qul atunabbi'ūnallāha bimā lā ya‘lamu fis-samāwāti wa lā fil-arḍ(i), subḥānahū wa ta‘ālā ‘ammā yusyrikūn(a).
 
 ## 10:19
 
-Wa mā kānan-nāsu illā ummataw wāḥidatan fakhtalafū, wa lau lā kalimatun sabaqat mir rabbika laquḍiya bainahum fīmā fīhi yakhtalifūn(a).&#x20;
+Wa mā kānan-nāsu illā ummataw wāḥidatan fakhtalafū, wa lau lā kalimatun sabaqat mir rabbika laquḍiya bainahum fīmā fīhi yakhtalifūn(a).
 
 ## 10:20
 
-Wa yaqūlūna lau lā unzila ‘alaihi āyatum mir rabbih(ī), faqul innamal-gaibu lillāhi fantaẓirū, innī ma‘akum minal-muntaẓirīn(a).&#x20;
+Wa yaqūlūna lau lā unzila ‘alaihi āyatum mir rabbih(ī), faqul innamal-gaibu lillāhi fantaẓirū, innī ma‘akum minal-muntaẓirīn(a).
 
 ## 10:21
 
-Wa iżā ażaqnan-nāsa raḥmatam mim ba‘di ḍarrā'a massathum iżā lahum makrun fī āyātinā, qulillāhu asra‘u makrā(n), inna rusulanā yaktubūna mā tamkurūn(a).&#x20;
+Wa iżā ażaqnan-nāsa raḥmatam mim ba‘di ḍarrā'a massathum iżā lahum makrun fī āyātinā, qulillāhu asra‘u makrā(n), inna rusulanā yaktubūna mā tamkurūn(a).
 
 ## 10:22
 
-Huwal-lażī yusayyirukum fil-barri wal-baḥr(i), ḥattā iżā kuntum fil-fulk(i), wa jaraina bihim birīḥin ṭayyibatiw wa fariḥū bihā jā'athā rīḥun ‘āṣifuw wa jā'ahumul-mauju min kulli makāniw wa ẓannū annahum uḥīṭa bihim, da‘awullāha mukhliṣīna lahud-dīn(a), la'in anjaitanā min hāżihī lanakūnanna minasy-syākirīn(a).&#x20;
+Huwal-lażī yusayyirukum fil-barri wal-baḥr(i), ḥattā iżā kuntum fil-fulk(i), wa jaraina bihim birīḥin ṭayyibatiw wa fariḥū bihā jā'athā rīḥun ‘āṣifuw wa jā'ahumul-mauju min kulli makāniw wa ẓannū annahum uḥīṭa bihim, da‘awullāha mukhliṣīna lahud-dīn(a), la'in anjaitanā min hāżihī lanakūnanna minasy-syākirīn(a).
 
 ## 10:23
 
-Falammā anjāhum iżā hum yabgūna fil-arḍi bigairil-ḥaqq(i), yā ayyuhan-nāsu innamā bagyukum ‘alā anfusikum matā‘al-ḥayātid-dun-yā, ṡumma ilainā marji‘ukum fa nunabbi'ukum bimā kuntum ta‘malūn(a).&#x20;
+Falammā anjāhum iżā hum yabgūna fil-arḍi bigairil-ḥaqq(i), yā ayyuhan-nāsu innamā bagyukum ‘alā anfusikum matā‘al-ḥayātid-dun-yā, ṡumma ilainā marji‘ukum fa nunabbi'ukum bimā kuntum ta‘malūn(a).
 
 ## 10:24
 
-Innamā maṡalul-ḥayātid-dun-yā kamā'in anzalnāhu minas-samā'i fakhtalaṭa bihī nabātul-arḍi mimmā ya'kulun-nāsu wal-an‘ām(u), ḥattā iżā akhażatil-arḍu zukhrufahā wazzayyanat wa ẓanna ahluhā annahum qādirūna ‘alaihā, atāhā amrunā lailan au nahāran fa ja‘alnāhā ḥaṣīdan ka'allam tagna bil-ams(i), każālika nufaṣṣilul-āyāti liqaumiy yatafakkarūn(a).&#x20;
+Innamā maṡalul-ḥayātid-dun-yā kamā'in anzalnāhu minas-samā'i fakhtalaṭa bihī nabātul-arḍi mimmā ya'kulun-nāsu wal-an‘ām(u), ḥattā iżā akhażatil-arḍu zukhrufahā wazzayyanat wa ẓanna ahluhā annahum qādirūna ‘alaihā, atāhā amrunā lailan au nahāran fa ja‘alnāhā ḥaṣīdan ka'allam tagna bil-ams(i), każālika nufaṣṣilul-āyāti liqaumiy yatafakkarūn(a).
 
 ## 10:25
 
-Wallāhu yad‘ū ilā dāris-salām(i), wa yahdī may yasyā'u ilā ṣirāṭim mustaqīm(in).&#x20;
+Wallāhu yad‘ū ilā dāris-salām(i), wa yahdī may yasyā'u ilā ṣirāṭim mustaqīm(in).
 
 ## 10:26
 
-Lil-lażīna aḥsanul-ḥusnā wa ziyādah(tun), wa lā yarhaqu wujūhahum qataruw wa lā żillah(tun), ulā'ika aṣḥābul-jannati hum fīhā khālidūn(a).&#x20;
+Lil-lażīna aḥsanul-ḥusnā wa ziyādah(tun), wa lā yarhaqu wujūhahum qataruw wa lā żillah(tun), ulā'ika aṣḥābul-jannati hum fīhā khālidūn(a).
 
 ## 10:27
 
-Wal-lażīna każabus-sayyi'āti jazā'u sayyi'atim bimiṡlihā, wa tarhaquhum żillah(tun), mā lahum minallāhi min ‘āṣim(in), ka'annamā ugsyiyat wujūhuhum qiṭa‘am minal-laili muẓlimā(n), ulā'ika aṣḥābun-nār(i), hum fīhā khālidūn(a).&#x20;
+Wal-lażīna każabus-sayyi'āti jazā'u sayyi'atim bimiṡlihā, wa tarhaquhum żillah(tun), mā lahum minallāhi min ‘āṣim(in), ka'annamā ugsyiyat wujūhuhum qiṭa‘am minal-laili muẓlimā(n), ulā'ika aṣḥābun-nār(i), hum fīhā khālidūn(a).
 
 ## 10:28
 
-Wa yauma naḥsyuruhum jamī‘an ṡumma naqūlu lil-lażīna asyrakū makānakum antum wa syurakā'ukum, fa zayyalnā bainahum wa qāla syurakā'uhum mā kuntum iyyānā ta‘budūn(a).&#x20;
+Wa yauma naḥsyuruhum jamī‘an ṡumma naqūlu lil-lażīna asyrakū makānakum antum wa syurakā'ukum, fa zayyalnā bainahum wa qāla syurakā'uhum mā kuntum iyyānā ta‘budūn(a).
 
 ## 10:29
 
-Fa kafā billāhi syahīdam bainanā wa bainakum in kunnā ‘an ‘ibādatikum lagāfilīn(a).&#x20;
+Fa kafā billāhi syahīdam bainanā wa bainakum in kunnā ‘an ‘ibādatikum lagāfilīn(a).
 
 ## 10:30
 
-Hunālika tablū kullu nafsim mā aslafat wa ruddū ilallāhi maulāhumul-ḥaqqi wa ḍalla ‘anhum mā kānū yaftarūn(a).&#x20;
+Hunālika tablū kullu nafsim mā aslafat wa ruddū ilallāhi maulāhumul-ḥaqqi wa ḍalla ‘anhum mā kānū yaftarūn(a).
 
 ## 10:31
 
-Qul may yarzuqukum minas-samā'i wal-arḍi ammay yamlikus-sam‘a wal-abṣāra wa may yukhrijul-ḥayya minal-mayyiti wa yukhrijul-mayyita minal-ḥayyi wa may yudabbirul-amr(a), fa sayaqūlūnallāh(u), faqul afalā tattaqūn(a).&#x20;
+Qul may yarzuqukum minas-samā'i wal-arḍi ammay yamlikus-sam‘a wal-abṣāra wa may yukhrijul-ḥayya minal-mayyiti wa yukhrijul-mayyita minal-ḥayyi wa may yudabbirul-amr(a), fa sayaqūlūnallāh(u), faqul afalā tattaqūn(a).
 
 ## 10:32
 
-Fa żālikumullāhu rabbukumul-ḥaqq(u), fa māżā ba‘dal-ḥaqqi illaḍ-ḍalāl(u), fa annā tuṣrafūn(a).&#x20;
+Fa żālikumullāhu rabbukumul-ḥaqq(u), fa māżā ba‘dal-ḥaqqi illaḍ-ḍalāl(u), fa annā tuṣrafūn(a).
 
 ## 10:33
 
-Każālika ḥaqqat kalimatu rabbika ‘alal-lażīna fasaqū annahum lā yu'minūn(a).&#x20;
+Każālika ḥaqqat kalimatu rabbika ‘alal-lażīna fasaqū annahum lā yu'minūn(a).
 
 ## 10:34
 
-Qul hal min syurakā'ikum may yabda'ul-khalqa ṡumma yu‘īduh(ū), qulillāhu yabda'ul-khalqa ṡumma yu‘īduhū fa annā tu'fakūn(a).&#x20;
+Qul hal min syurakā'ikum may yabda'ul-khalqa ṡumma yu‘īduh(ū), qulillāhu yabda'ul-khalqa ṡumma yu‘īduhū fa annā tu'fakūn(a).
 
 ## 10:35
 
-Qul hal min syurakā'ikum may yahdī ilal-ḥaqq(i),qulillāhu yahdī lil-ḥaqq(i), afamay yahdī ilal-ḥaqqi aḥaqqu ay yuttaba‘a ammal lā  yahiddī illā ay yuhdā, famā lakum, kaifa taḥkumūn(a).&#x20;
+Qul hal min syurakā'ikum may yahdī ilal-ḥaqq(i),qulillāhu yahdī lil-ḥaqq(i), afamay yahdī ilal-ḥaqqi aḥaqqu ay yuttaba‘a ammal lā  yahiddī illā ay yuhdā, famā lakum, kaifa taḥkumūn(a).
 
 ## 10:36
 
-Wa mā yattabi‘u akṡaruhum illā ẓannā(n), innaẓ-ẓanna lā yugnī minal-ḥaqqi syai'ā(n), innallāha ‘alīmum bimā yaf‘alūn(a).&#x20;
+Wa mā yattabi‘u akṡaruhum illā ẓannā(n), innaẓ-ẓanna lā yugnī minal-ḥaqqi syai'ā(n), innallāha ‘alīmum bimā yaf‘alūn(a).
 
 ## 10:37
 
-Wa mā kāna hāżal-qur'ānu ay yuftarā min dūnillāhi wa lākin taṣdīqal-lażī baina yadaihi wa tafṣīlal-kitābi lā raiba fīhi mir rabbil-‘ālamīn(a).&#x20;
+Wa mā kāna hāżal-qur'ānu ay yuftarā min dūnillāhi wa lākin taṣdīqal-lażī baina yadaihi wa tafṣīlal-kitābi lā raiba fīhi mir rabbil-‘ālamīn(a).
 
 ## 10:38
 
-Am yaqūlūnaftarāh(u), qul fa'tū bisūratim miṡlihī wad‘ū manistaṭa‘tum min dūnillāhi in kuntum ṣādiqīn(a).&#x20;
+Am yaqūlūnaftarāh(u), qul fa'tū bisūratim miṡlihī wad‘ū manistaṭa‘tum min dūnillāhi in kuntum ṣādiqīn(a).
 
 ## 10:39
 
-Bal każżabū bimā lam yuḥīṭū bi‘ilmihī wa lammā ya'tihim ta'wīluh(ū), każālika każżabal-lażīna min qablihim fanẓur kaifa kāna ‘āqibatuẓ-ẓālimīn(a).&#x20;
+Bal każżabū bimā lam yuḥīṭū bi‘ilmihī wa lammā ya'tihim ta'wīluh(ū), każālika każżabal-lażīna min qablihim fanẓur kaifa kāna ‘āqibatuẓ-ẓālimīn(a).
 
 ## 10:40
 
-Wa minhum may yu'minu bihī wa minhum mal lā yu'minu bih(ī), wa rabbuka a‘lamu bil-mufsidīn(a).&#x20;
+Wa minhum may yu'minu bihī wa minhum mal lā yu'minu bih(ī), wa rabbuka a‘lamu bil-mufsidīn(a).
 
 ## 10:41
 
-Wa in każżabūka faqul lī ‘amalī wa lakum ‘amalukum, antum barī'ūna mimmā a‘malu wa ana barī'um mimmā ta‘malūn(a).&#x20;
+Wa in każżabūka faqul lī ‘amalī wa lakum ‘amalukum, antum barī'ūna mimmā a‘malu wa ana barī'um mimmā ta‘malūn(a).
 
 ## 10:42
 
-Wa minhum may yastami‘ūna ilaik(a), afa anta tusmi‘uṣ-ṣumma wa lau kānū lā ya‘qilūn(a).&#x20;
+Wa minhum may yastami‘ūna ilaik(a), afa anta tusmi‘uṣ-ṣumma wa lau kānū lā ya‘qilūn(a).
 
 ## 10:43
 
-Wa minhum may yanẓuru ilaik(a), afa anta tahdil-‘umya wa lau kānū lā yubṣirūn(a).&#x20;
+Wa minhum may yanẓuru ilaik(a), afa anta tahdil-‘umya wa lau kānū lā yubṣirūn(a).
 
 ## 10:44
 
-Innallāha lā yaẓlimun-nāsa syai'aw wa lākinnan-nāsa anfusahum yaẓlimūn(a).&#x20;
+Innallāha lā yaẓlimun-nāsa syai'aw wa lākinnan-nāsa anfusahum yaẓlimūn(a).
 
 ## 10:45
 
-Wa yauma yaḥsyuruhum ka'allam yalbaṡū illā sā‘atam minan-nahāri yata‘ārafūna bainahum, qad khasiral-lażīna każżabū biliqā'illāhi wa mā kānū muhtadīn(a).&#x20;
+Wa yauma yaḥsyuruhum ka'allam yalbaṡū illā sā‘atam minan-nahāri yata‘ārafūna bainahum, qad khasiral-lażīna każżabū biliqā'illāhi wa mā kānū muhtadīn(a).
 
 ## 10:46
 
-Wa immā nuriyannaka ba‘ḍal-lażī na‘iduhum au natawaffayannaka fa ilainā marji‘uhum ṡummallāhu syahīdun ‘alā mā yaf‘alūn(a).&#x20;
+Wa immā nuriyannaka ba‘ḍal-lażī na‘iduhum au natawaffayannaka fa ilainā marji‘uhum ṡummallāhu syahīdun ‘alā mā yaf‘alūn(a).
 
 ## 10:47
 
-Wa likulli ummatir rasūl(un), fa iżā jā'a rasūluhum quḍiya bainahum bil-qisṭi wa hum lā yuẓlamūn(a).&#x20;
+Wa likulli ummatir rasūl(un), fa iżā jā'a rasūluhum quḍiya bainahum bil-qisṭi wa hum lā yuẓlamūn(a).
 
 ## 10:48
 
-Wa yaqūlūna matā hāżal-wa‘du in kuntum ṣādiqīn(a).&#x20;
+Wa yaqūlūna matā hāżal-wa‘du in kuntum ṣādiqīn(a).
 
 ## 10:49
 
-Qul lā amliku linafsī ḍarraw wa lā naf‘an illā mā syā'allāh(u), likulli ummatin ajal(un), iżā jā'a ajaluhum falā yasta'khirūna sā‘ataw wa lā yastaqdimūn(a).&#x20;
+Qul lā amliku linafsī ḍarraw wa lā naf‘an illā mā syā'allāh(u), likulli ummatin ajal(un), iżā jā'a ajaluhum falā yasta'khirūna sā‘ataw wa lā yastaqdimūn(a).
 
 ## 10:50
 
-Qul ara'aitum in atākum ‘ażābuhū bayātan au nahāram māżā yasta‘jilu minhul-mujrimūn(a).&#x20;
+Qul ara'aitum in atākum ‘ażābuhū bayātan au nahāram māżā yasta‘jilu minhul-mujrimūn(a).
 
 ## 10:51
 
-Aṡumma iżā mā waqa‘a āmantum bih(ī), āl'āna wa qad kuntum bihī tasta‘jilūn(a).&#x20;
+Aṡumma iżā mā waqa‘a āmantum bih(ī), āl'āna wa qad kuntum bihī tasta‘jilūn(a).
 
 ## 10:52
 
-Ṡumma qīla lil-lażīna ẓalamū żūqū ‘ażābal-khuld(i), hal tujzauna illā bimā kuntum taksibūn(a).&#x20;
+Ṡumma qīla lil-lażīna ẓalamū żūqū ‘ażābal-khuld(i), hal tujzauna illā bimā kuntum taksibūn(a).
 
 ## 10:53
 
-Wa yastambi'ūnaka aḥaqqun huw(a), qul ī wa rabbī innahū laḥaqq(un), wa mā antum bimu‘jizīn(a).&#x20;
+Wa yastambi'ūnaka aḥaqqun huw(a), qul ī wa rabbī innahū laḥaqq(un), wa mā antum bimu‘jizīn(a).
 
 ## 10:54
 
-Wa lau anna likulli nafsin ẓalamat mā fil-arḍi laftadat bih(ī), wa asarrun-nadāmata lammā ra'awul-‘ażāb(a), wa quḍiya bainahum bil-qisṭi wa hum lā yuẓlamūn(a).&#x20;
+Wa lau anna likulli nafsin ẓalamat mā fil-arḍi laftadat bih(ī), wa asarrun-nadāmata lammā ra'awul-‘ażāb(a), wa quḍiya bainahum bil-qisṭi wa hum lā yuẓlamūn(a).
 
 ## 10:55
 
-Alā inna lillāhi mā fis-samāwāti wal-arḍ(i), alā inna wa‘dallāhi ḥaqquw wa lākinna akṡarahum lā ya‘lamūn(a).&#x20;
+Alā inna lillāhi mā fis-samāwāti wal-arḍ(i), alā inna wa‘dallāhi ḥaqquw wa lākinna akṡarahum lā ya‘lamūn(a).
 
 ## 10:56
 
-Huwa yuḥyī wa yumītu wa ilaihi turja‘ūn(a).&#x20;
+Huwa yuḥyī wa yumītu wa ilaihi turja‘ūn(a).
 
 ## 10:57
 
-Yā ayyuhan-nāsu qad jā'atkum mau‘iẓatum mir rabbikum wa syifā'ul limā fiṣ-ṣudūr(i), wa hudaw wa raḥmatul lil-mu'minīn(a).&#x20;
+Yā ayyuhan-nāsu qad jā'atkum mau‘iẓatum mir rabbikum wa syifā'ul limā fiṣ-ṣudūr(i), wa hudaw wa raḥmatul lil-mu'minīn(a).
 
 ## 10:58
 
-Qul bifaḍlillāhi wa biraḥmatihī fa biżālika falyafraḥū, huwa khairum mimmā yajma‘ūn(a).&#x20;
+Qul bifaḍlillāhi wa biraḥmatihī fa biżālika falyafraḥū, huwa khairum mimmā yajma‘ūn(a).
 
 ## 10:59
 
-Qul ara'aitum mā anzalallāhu lakum mir rizqin fa ja‘altum minhu ḥarāmaw wa ḥalālā(n), qul āllāhu ażina lakum am ‘alallāhi taftarūn(a).&#x20;
+Qul ara'aitum mā anzalallāhu lakum mir rizqin fa ja‘altum minhu ḥarāmaw wa ḥalālā(n), qul āllāhu ażina lakum am ‘alallāhi taftarūn(a).
 
 ## 10:60
 
-Wa mā ẓannul-lażīna yaftarūna ‘alallāhil-każiba yaumal-qiyāmah(ti), innallāha lażū faḍlin ‘alan-nāsi wa lākinna akṡarahum lā yasykurūn(a).&#x20;
+Wa mā ẓannul-lażīna yaftarūna ‘alallāhil-każiba yaumal-qiyāmah(ti), innallāha lażū faḍlin ‘alan-nāsi wa lākinna akṡarahum lā yasykurūn(a).
 
 ## 10:61
 
-Wa mā takūnu fī sya'niw wa mā tatlū minhu min qur'āniw wa lā ta‘malūna min ‘amalin illā kunnā ‘alaikum syuhūdan iż tufīḍūna fīh(i), wa mā ya‘zubu ‘ar rabbika mim miṡqāli żarratin fil-arḍi wa lā fis-samā'i wa lā aṣgara min żālika wa lā akbara illā fī kitābim mubīn(in).&#x20;
+Wa mā takūnu fī sya'niw wa mā tatlū minhu min qur'āniw wa lā ta‘malūna min ‘amalin illā kunnā ‘alaikum syuhūdan iż tufīḍūna fīh(i), wa mā ya‘zubu ‘ar rabbika mim miṡqāli żarratin fil-arḍi wa lā fis-samā'i wa lā aṣgara min żālika wa lā akbara illā fī kitābim mubīn(in).
 
 ## 10:62
 
-Alā inna auliyā'allāhi lā khaufun ‘alaihim wa lā hum yaḥzanūn(a).&#x20;
+Alā inna auliyā'allāhi lā khaufun ‘alaihim wa lā hum yaḥzanūn(a).
 
 ## 10:63
 
-Al-lażīna āmanū wa kānū yattaqūn(a).&#x20;
+Al-lażīna āmanū wa kānū yattaqūn(a).
 
 ## 10:64
 
-Lahumul-busyrā fil-ḥayātid-dun-yā wa fil-ākhirah(ti), lā tabdīla likalimātillāh(i), żālika huwal-fauzul-‘aẓīm((u).&#x20;
+Lahumul-busyrā fil-ḥayātid-dun-yā wa fil-ākhirah(ti), lā tabdīla likalimātillāh(i), żālika huwal-fauzul-‘aẓīm((u).
 
 ## 10:65
 
-Wa lā yaḥzunka qauluhum, innal-‘izzata lillāhi jamī‘ā(n), huwas-samī‘ul-‘alīm(u).&#x20;
+Wa lā yaḥzunka qauluhum, innal-‘izzata lillāhi jamī‘ā(n), huwas-samī‘ul-‘alīm(u).
 
 ## 10:66
 
@@ -5727,871 +5727,871 @@ Alā inna lillāhi man fis-samāwāti wa man fil-arḍ(i), wa mā yattabi‘ul-l
 
 ## 10:67
 
-Huwal-lażī ja‘ala lakumul-laila litaskunū fīhi wan-nahāra mubṣirā(n), inna fī żālika la'āyātil liqaumiy yasma‘ūn(a).&#x20;
+Huwal-lażī ja‘ala lakumul-laila litaskunū fīhi wan-nahāra mubṣirā(n), inna fī żālika la'āyātil liqaumiy yasma‘ūn(a).
 
 ## 10:68
 
-Qāluttakhażallāhu waladan subḥānah(ū), huwal-ganiyy(u), lahū mā fis-samāwāti wa mā fil-arḍ(i), in ‘indakum min sulṭānim bihāżā, ataqūlūna ‘alallāhi  mā lā ta‘lamūn(a).&#x20;
+Qāluttakhażallāhu waladan subḥānah(ū), huwal-ganiyy(u), lahū mā fis-samāwāti wa mā fil-arḍ(i), in ‘indakum min sulṭānim bihāżā, ataqūlūna ‘alallāhi  mā lā ta‘lamūn(a).
 
 ## 10:69
 
-Qul innal-lażīna yaftarūna ‘alallāhil-każiba lā yufliḥūn(a).&#x20;
+Qul innal-lażīna yaftarūna ‘alallāhil-każiba lā yufliḥūn(a).
 
 ## 10:70
 
-Matā‘un fid-dun-yā ṡumma ilainā marji‘uhum ṡumma nużīquhumul-‘ażābasy syadīda bimā kānū yakfurūn(a).&#x20;
+Matā‘un fid-dun-yā ṡumma ilainā marji‘uhum ṡumma nużīquhumul-‘ażābasy syadīda bimā kānū yakfurūn(a).
 
 ## 10:71
 
-Watlu ‘alaihim naba'a nūḥ(in), iż qāla liqaumihī yā qaumi in kāna kabura ‘alaikum maqāmī wa tażkīrī bi'āyātillāhi fa ‘alallāhi tawakkaltu fa ajmi‘ū amrakum wa syurakā'akum ṡumma lā yakun amrukum ‘alaikum gummatan ṡummaqḍū ilayya wa lā tunẓirūn(i).&#x20;
+Watlu ‘alaihim naba'a nūḥ(in), iż qāla liqaumihī yā qaumi in kāna kabura ‘alaikum maqāmī wa tażkīrī bi'āyātillāhi fa ‘alallāhi tawakkaltu fa ajmi‘ū amrakum wa syurakā'akum ṡumma lā yakun amrukum ‘alaikum gummatan ṡummaqḍū ilayya wa lā tunẓirūn(i).
 
 ## 10:72
 
-Fa in tawallaitum famā sa'altukum min ajr(in), in ajriya illā ‘alallāh(i), wa umirtu an akūna minal-muslimīn(a).&#x20;
+Fa in tawallaitum famā sa'altukum min ajr(in), in ajriya illā ‘alallāh(i), wa umirtu an akūna minal-muslimīn(a).
 
 ## 10:73
 
-Fa każżabūhu fa najjaināhu wa mam ma‘ahū fil-fulki wa ja‘alnāhum khalā'ifa wa agraqnal-lażīna każżabū bi'āyātinā, fanẓur kaifa kāna ‘āqibatul-munżarīn(a).&#x20;
+Fa każżabūhu fa najjaināhu wa mam ma‘ahū fil-fulki wa ja‘alnāhum khalā'ifa wa agraqnal-lażīna każżabū bi'āyātinā, fanẓur kaifa kāna ‘āqibatul-munżarīn(a).
 
 ## 10:74
 
-Ṡumma ba‘aṡnā mim ba‘dihī rusulan ilā qaumihim fa jā'ūhum bil-bayyināti famā kānū liyu'minū bimā każżabū bihī min qabl(u), każālika naṭba‘u ‘alā qulūbil-mu‘tadīn(a).&#x20;
+Ṡumma ba‘aṡnā mim ba‘dihī rusulan ilā qaumihim fa jā'ūhum bil-bayyināti famā kānū liyu'minū bimā każżabū bihī min qabl(u), każālika naṭba‘u ‘alā qulūbil-mu‘tadīn(a).
 
 ## 10:75
 
-Ṡumma ba‘aṡnā mim ba‘dihim mūsā wa hārūna ilā fir‘auna wa mala'ihī bi'āyātinā fastakbarū wa kānū qaumam mujrimīn(a).&#x20;
+Ṡumma ba‘aṡnā mim ba‘dihim mūsā wa hārūna ilā fir‘auna wa mala'ihī bi'āyātinā fastakbarū wa kānū qaumam mujrimīn(a).
 
 ## 10:76
 
-Falammā jā'ahumul-ḥaqqu min ‘indinā qālū inna hāżā lasiḥrum mubīn(un).&#x20;
+Falammā jā'ahumul-ḥaqqu min ‘indinā qālū inna hāżā lasiḥrum mubīn(un).
 
 ## 10:77
 
-Qāla mūsā ataqūlūna lil-ḥaqqi lammā jā'akum, asiḥrun hāżā, wa lā yufliḥus-sāḥirūn(a).&#x20;
+Qāla mūsā ataqūlūna lil-ḥaqqi lammā jā'akum, asiḥrun hāżā, wa lā yufliḥus-sāḥirūn(a).
 
 ## 10:78
 
-Qālū aji'tanā litalfitanā ‘ammā wajadnā ‘alaihi ābā'anā wa takūna lakumal-kibriyā'u fil-arḍ(i), wa mā naḥnu lakumā bimu'minīn(a).&#x20;
+Qālū aji'tanā litalfitanā ‘ammā wajadnā ‘alaihi ābā'anā wa takūna lakumal-kibriyā'u fil-arḍ(i), wa mā naḥnu lakumā bimu'minīn(a).
 
 ## 10:79
 
-Wa qāla fir‘aunu'tūnī bikulli sāḥirin ‘alīm(in).&#x20;
+Wa qāla fir‘aunu'tūnī bikulli sāḥirin ‘alīm(in).
 
 ## 10:80
 
-Falammā jā'as-saḥaratu qāla lahum mūsā alqū mā antum mulqūn(a).&#x20;
+Falammā jā'as-saḥaratu qāla lahum mūsā alqū mā antum mulqūn(a).
 
 ## 10:81
 
-Falammā alqau qāla mūsā mā ji'tum bihis-siḥr(u), innallāha sayubṭiluh(ū), innallāha lā yuṣliḥu ‘amalal-mufsidīn(a).&#x20;
+Falammā alqau qāla mūsā mā ji'tum bihis-siḥr(u), innallāha sayubṭiluh(ū), innallāha lā yuṣliḥu ‘amalal-mufsidīn(a).
 
 ## 10:82
 
-Wa yuḥiqqullāhul-ḥaqqa bikalimātihī wa lau karihal-mujrimūn(a).&#x20;
+Wa yuḥiqqullāhul-ḥaqqa bikalimātihī wa lau karihal-mujrimūn(a).
 
 ## 10:83
 
-Famā āmana limūsā illā żurriyyatum min qaumihī ‘alā khaufim min fir‘auna wa mala'ihim ay yaftinahum, wa inna fir‘auna la‘ālin fil-arḍ(i), wa innahū laminal-musrifīn(a).&#x20;
+Famā āmana limūsā illā żurriyyatum min qaumihī ‘alā khaufim min fir‘auna wa mala'ihim ay yaftinahum, wa inna fir‘auna la‘ālin fil-arḍ(i), wa innahū laminal-musrifīn(a).
 
 ## 10:84
 
-Wa qāla mūsā yā qaumi in kuntum āmantum billāhi fa ‘alaihi tawakkalū in kuntum muslimīn(a).&#x20;
+Wa qāla mūsā yā qaumi in kuntum āmantum billāhi fa ‘alaihi tawakkalū in kuntum muslimīn(a).
 
 ## 10:85
 
-Fa qālū ‘alallāhi tawakkalnā, rabbanā lā taj‘alnā fitnatal lil-qaumiẓ-ẓālimīn(a).&#x20;
+Fa qālū ‘alallāhi tawakkalnā, rabbanā lā taj‘alnā fitnatal lil-qaumiẓ-ẓālimīn(a).
 
 ## 10:86
 
-Wa najjinā biraḥmatika minal-qaumil-kāfirīn(a).&#x20;
+Wa najjinā biraḥmatika minal-qaumil-kāfirīn(a).
 
 ## 10:87
 
-Wa auḥainā ilā mūsā wa akhīhi an tabawwa'ā liqaumikumā bimiṣra buyūtaw waj‘alū buyūtakum qiblataw wa aqīmuṣ-ṣalāh(ta), wa basysyiril-mu'minīn(a).&#x20;
+Wa auḥainā ilā mūsā wa akhīhi an tabawwa'ā liqaumikumā bimiṣra buyūtaw waj‘alū buyūtakum qiblataw wa aqīmuṣ-ṣalāh(ta), wa basysyiril-mu'minīn(a).
 
 ## 10:88
 
-Wa qāla mūsā rabbanā innaka ātaita fir‘auna wa mala'ahū zīnataw wa amwālan fil-ḥayātid-dun-yā, rabbanā liyuḍillū ‘an sabīlik(a), rabbanaṭmis ‘alā amwālihim wasydud ‘alā qulūbihim falā yu'minū ḥattā yarawul-‘ażābal-alīm(a).&#x20;
+Wa qāla mūsā rabbanā innaka ātaita fir‘auna wa mala'ahū zīnataw wa amwālan fil-ḥayātid-dun-yā, rabbanā liyuḍillū ‘an sabīlik(a), rabbanaṭmis ‘alā amwālihim wasydud ‘alā qulūbihim falā yu'minū ḥattā yarawul-‘ażābal-alīm(a).
 
 ## 10:89
 
-Qāla qad ujībad da‘watukumā fastaqīmā wa lā tattabi‘ānni sabīlal-lażīna lā ya‘lamūn(a).&#x20;
+Qāla qad ujībad da‘watukumā fastaqīmā wa lā tattabi‘ānni sabīlal-lażīna lā ya‘lamūn(a).
 
 ## 10:90
 
-Wa jāwaznā bibanī isrā'īlal-baḥra fa atba‘ahum fir‘aunu wa junūduhū bagyaw wa ‘adwā(n), ḥattā iżā adrakahul-garaqu qāla āmantu annahū lā ilāha illal-lażī āmanat bihī banū isrā'īla wa ana minal-muslimīn(a).&#x20;
+Wa jāwaznā bibanī isrā'īlal-baḥra fa atba‘ahum fir‘aunu wa junūduhū bagyaw wa ‘adwā(n), ḥattā iżā adrakahul-garaqu qāla āmantu annahū lā ilāha illal-lażī āmanat bihī banū isrā'īla wa ana minal-muslimīn(a).
 
 ## 10:91
 
-Āl'āna wa qad ‘aṣaita qablu wa kunta minal-mufsidīn(a).&#x20;
+Āl'āna wa qad ‘aṣaita qablu wa kunta minal-mufsidīn(a).
 
 ## 10:92
 
-Fal yauma nunajjīka bibadanika litakūna liman khalfaka āyah(tan), wa inna kaṡīram minan-nāsi ‘an āyātinā lagāfilūn(a).&#x20;
+Fal yauma nunajjīka bibadanika litakūna liman khalfaka āyah(tan), wa inna kaṡīram minan-nāsi ‘an āyātinā lagāfilūn(a).
 
 ## 10:93
 
-Wa laqad bawwa'nā banī isrā'īla mubawwa'a ṣidqiw wa razaqnāhum minaṭ-ṭayyibāt(i), famākhtalafū ḥattā jā'ahumul-‘ilm(u), inna rabbaka yaqḍī bainahum yaumal-qiyāmati fīmā kānū fīhi yakhtalifūn(a).&#x20;
+Wa laqad bawwa'nā banī isrā'īla mubawwa'a ṣidqiw wa razaqnāhum minaṭ-ṭayyibāt(i), famākhtalafū ḥattā jā'ahumul-‘ilm(u), inna rabbaka yaqḍī bainahum yaumal-qiyāmati fīmā kānū fīhi yakhtalifūn(a).
 
 ## 10:94
 
-Fa in kunta fī syakkim mimmā anzalnā ilaika fas'alil-lażīna yaqra'ūnal-kitāba min qablik(a), laqad jā'akal-ḥaqqu mir rabbika falā takūnanna minal-mumtarīn(a).&#x20;
+Fa in kunta fī syakkim mimmā anzalnā ilaika fas'alil-lażīna yaqra'ūnal-kitāba min qablik(a), laqad jā'akal-ḥaqqu mir rabbika falā takūnanna minal-mumtarīn(a).
 
 ## 10:95
 
-Wa lā takūnanna minal-lażīna każżabū bi'āyātillāhi fa takūna minal-khāsirīn(a).&#x20;
+Wa lā takūnanna minal-lażīna każżabū bi'āyātillāhi fa takūna minal-khāsirīn(a).
 
 ## 10:96
 
-Innal-lażīna ḥaqqat ‘alaihim kalimatu rabbika lā yu'minūn(a).&#x20;
+Innal-lażīna ḥaqqat ‘alaihim kalimatu rabbika lā yu'minūn(a).
 
 ## 10:97
 
-Wa lau jā'athum kullu āyatin ḥattā yarawul-‘ażābal-alīm(a).&#x20;
+Wa lau jā'athum kullu āyatin ḥattā yarawul-‘ażābal-alīm(a).
 
 ## 10:98
 
-Falau lā kānat qaryatun āmanat fa nafa‘ahā īmānuhā illā qauma yūnus(a), lammā āmanū kasyafnā ‘anhum ‘ażābal-khizyi fil-ḥayātid-dun-yā wa matta‘nāhum ilā ḥīn(in).&#x20;
+Falau lā kānat qaryatun āmanat fa nafa‘ahā īmānuhā illā qauma yūnus(a), lammā āmanū kasyafnā ‘anhum ‘ażābal-khizyi fil-ḥayātid-dun-yā wa matta‘nāhum ilā ḥīn(in).
 
 ## 10:99
 
-Wa lau syā'a rabbuka la'āmana man fil-arḍi kulluhum jamī‘ā(n), afa anta tukrihun-nāsa ḥattā yakūnū mu'minīn(a).&#x20;
+Wa lau syā'a rabbuka la'āmana man fil-arḍi kulluhum jamī‘ā(n), afa anta tukrihun-nāsa ḥattā yakūnū mu'minīn(a).
 
 ## 10:100
 
-Wa mā kāna linafsin an tu'mina illā bi'iżnillāh(i), wa yaj‘alur-rijsa ‘alal-lażīna lā ya‘qilūn(a).&#x20;
+Wa mā kāna linafsin an tu'mina illā bi'iżnillāh(i), wa yaj‘alur-rijsa ‘alal-lażīna lā ya‘qilūn(a).
 
 ## 10:101
 
-Qulinẓurū māżā fis-samāwāti wal-arḍ(i), wa mā tugnil-āyātu wan-nużuru ‘an qaumil lā yu'minūn(a).&#x20;
+Qulinẓurū māżā fis-samāwāti wal-arḍ(i), wa mā tugnil-āyātu wan-nużuru ‘an qaumil lā yu'minūn(a).
 
 ## 10:102
 
-Fahal yantaẓirūna illā miṡla ayyāmil-lażīna khalau min qablihim, qul fantaẓirū innī ma‘akum minal-muntaẓirīn(a).&#x20;
+Fahal yantaẓirūna illā miṡla ayyāmil-lażīna khalau min qablihim, qul fantaẓirū innī ma‘akum minal-muntaẓirīn(a).
 
 ## 10:103
 
-Ṡumma nunajjī rusulanā wal-lażīna āmanū każālik(a), ḥaqqan ‘alainā nunjil-mu'minīn(a).&#x20;
+Ṡumma nunajjī rusulanā wal-lażīna āmanū każālik(a), ḥaqqan ‘alainā nunjil-mu'minīn(a).
 
 ## 10:104
 
-Qul yā ayyuhan nāsu in kuntum fī syakkim min dīnī falā a‘budul-lażīna ta‘budūna min dūnillāhi wa lākin a‘budullāhal-lażī yatawaffākum, wa umirtu an akūna minal-mu'minīn(a).&#x20;
+Qul yā ayyuhan nāsu in kuntum fī syakkim min dīnī falā a‘budul-lażīna ta‘budūna min dūnillāhi wa lākin a‘budullāhal-lażī yatawaffākum, wa umirtu an akūna minal-mu'minīn(a).
 
 ## 10:105
 
-Wa an aqim wajhaka lid-dīni ḥanīfā(n), wa lā takūnanna minal-musyrikīn(a).&#x20;
+Wa an aqim wajhaka lid-dīni ḥanīfā(n), wa lā takūnanna minal-musyrikīn(a).
 
 ## 10:106
 
-Wa lā tad‘u min dūnillāhi mā lā yanfa‘uka  wa lā yaḍurruk(a), fa in fa‘alta fa innaka iżam minaẓ-ẓālimīn(a).&#x20;
+Wa lā tad‘u min dūnillāhi mā lā yanfa‘uka  wa lā yaḍurruk(a), fa in fa‘alta fa innaka iżam minaẓ-ẓālimīn(a).
 
 ## 10:107
 
-Wa iy yamsaskallāhu biḍurrin falā kāsyifa lahū illā huw(a), wa iy yuridka bikhairin falā rādda lifaḍlih(ī), yuṣību bihī may yasyā'u min ‘ibādih(ī), wa huwal-gafūrur-raḥīm(u).&#x20;
+Wa iy yamsaskallāhu biḍurrin falā kāsyifa lahū illā huw(a), wa iy yuridka bikhairin falā rādda lifaḍlih(ī), yuṣību bihī may yasyā'u min ‘ibādih(ī), wa huwal-gafūrur-raḥīm(u).
 
 ## 10:108
 
-Qul yā ayyuhan-nāsu qad jā'akumul-ḥaqqu mir rabbikum, fa manihtadā fa innamā yahtadī linafsih(ī), wa man ḍalla fa innamā yaḍillu ‘alaihā, wa mā ana ‘alaikum biwakīl(in).&#x20;
+Qul yā ayyuhan-nāsu qad jā'akumul-ḥaqqu mir rabbikum, fa manihtadā fa innamā yahtadī linafsih(ī), wa man ḍalla fa innamā yaḍillu ‘alaihā, wa mā ana ‘alaikum biwakīl(in).
 
 ## 10:109
 
-Wattabi‘ mā yūḥā ilaika waṣbir ḥattā yaḥkumallāh(u), wa huwa khairul-ḥākimīn(a).&#x20;
+Wattabi‘ mā yūḥā ilaika waṣbir ḥattā yaḥkumallāh(u), wa huwa khairul-ḥākimīn(a).
 
 ## 11:1
 
-Alif lām rā, kitābun uḥkimat āyātuhū ṡumma fuṣṣilat mil ladun ḥakīmin khabīr(in).&#x20;
+Alif lām rā, kitābun uḥkimat āyātuhū ṡumma fuṣṣilat mil ladun ḥakīmin khabīr(in).
 
 ## 11:2
 
-Allā ta‘budū illallāh(a), innanī lakum minhu nażīruw wa basyīr(un).&#x20;
+Allā ta‘budū illallāh(a), innanī lakum minhu nażīruw wa basyīr(un).
 
 ## 11:3
 
-Wa anistagfirū rabbakum ṡumma tūbū ilaihi yumatti‘kum matā‘an ḥasanan ilā ajalim musammaw wa yu'ti kulla żī faḍlin faḍlah(ū), wa in tawallau fa innī akhāfu ‘alaikum ‘ażāba yaumin kabīr(in).&#x20;
+Wa anistagfirū rabbakum ṡumma tūbū ilaihi yumatti‘kum matā‘an ḥasanan ilā ajalim musammaw wa yu'ti kulla żī faḍlin faḍlah(ū), wa in tawallau fa innī akhāfu ‘alaikum ‘ażāba yaumin kabīr(in).
 
 ## 11:4
 
-Ilallāhi marji‘ukum, wa huwa ‘alā kulli syai'in qadīr(un).&#x20;
+Ilallāhi marji‘ukum, wa huwa ‘alā kulli syai'in qadīr(un).
 
 ## 11:5
 
-Alā innahum yaṡnūna ṣudūrahum liyastakhfū minh(u), alā ḥīna yastagsyūna ṡiyābahum, ya‘lamu mā yusirrūna wa mā yu‘linūn(a), innahū ‘alīmum biżātiṣ-ṣudūr(i).&#x20;
+Alā innahum yaṡnūna ṣudūrahum liyastakhfū minh(u), alā ḥīna yastagsyūna ṡiyābahum, ya‘lamu mā yusirrūna wa mā yu‘linūn(a), innahū ‘alīmum biżātiṣ-ṣudūr(i).
 
 ## 11:6
 
-Wa mā min dābbatin fil-arḍi illā ‘alallāhi  rizquhā wa ya‘lamu mustaqarrahā wa mustauda‘ahā, kullun fī kitābim mubīn(in).&#x20;
+Wa mā min dābbatin fil-arḍi illā ‘alallāhi  rizquhā wa ya‘lamu mustaqarrahā wa mustauda‘ahā, kullun fī kitābim mubīn(in).
 
 ## 11:7
 
-Wa huwal-lażī khalaqas-samāwāti wal-arḍa fī sittati ayyāmiw wa kāna ‘arsyuhū ‘alal-mā'i liyabluwakum ayyukum aḥsanu ‘amalā(n), wa la'in qulta innakum mab‘ūṡūna mim ba‘dil-mauti layaqūlannal-lażīna kafarū in hāżā illā siḥrum mubīn(un).&#x20;
+Wa huwal-lażī khalaqas-samāwāti wal-arḍa fī sittati ayyāmiw wa kāna ‘arsyuhū ‘alal-mā'i liyabluwakum ayyukum aḥsanu ‘amalā(n), wa la'in qulta innakum mab‘ūṡūna mim ba‘dil-mauti layaqūlannal-lażīna kafarū in hāżā illā siḥrum mubīn(un).
 
 ## 11:8
 
-Wa la'in akhkharnā ‘anhumul-‘ażāba ilā ummatim ma‘dūdatil layaqūlunna mā yaḥbisuh(ū), alā yauma ya'tīhim laisa maṣrūfan ‘anhum wa ḥāqa bihim mā kānū bihī yastahzi'ūn(a).&#x20;
+Wa la'in akhkharnā ‘anhumul-‘ażāba ilā ummatim ma‘dūdatil layaqūlunna mā yaḥbisuh(ū), alā yauma ya'tīhim laisa maṣrūfan ‘anhum wa ḥāqa bihim mā kānū bihī yastahzi'ūn(a).
 
 ## 11:9
 
-Wa la'in ażaqnal-insāna minnā raḥmatan ṡumma naza‘nāhā ‘anh(u), innahū laya'ūsun kafūr(un).&#x20;
+Wa la'in ażaqnal-insāna minnā raḥmatan ṡumma naza‘nāhā ‘anh(u), innahū laya'ūsun kafūr(un).
 
 ## 11:10
 
-Wa la'in ażaqnāhu na‘mā'a ba‘da ḍarrā'a massathu layaqūlanna żahabas-sayyi'ātu ‘annī, innahū lafariḥun fakhūr(un).&#x20;
+Wa la'in ażaqnāhu na‘mā'a ba‘da ḍarrā'a massathu layaqūlanna żahabas-sayyi'ātu ‘annī, innahū lafariḥun fakhūr(un).
 
 ## 11:11
 
-Illal-lażīna ṣabarū wa ‘amiluṣ-ṣāliḥāt(i), ulā'ika lahum magfiratuw wa ajrun kabīr(un).&#x20;
+Illal-lażīna ṣabarū wa ‘amiluṣ-ṣāliḥāt(i), ulā'ika lahum magfiratuw wa ajrun kabīr(un).
 
 ## 11:12
 
-Fa la‘allaka tārikum ba‘ḍa mā yūḥā ilaika wa ḍā'ikum bihī ṣadruka ay yaqūlū lau lā unzila ‘alaihi kanzun au jā'a ma‘ahū malak(un), innamā anta nażīr(un), wallāhu ‘alā kulli syai'in wakīl(un).&#x20;
+Fa la‘allaka tārikum ba‘ḍa mā yūḥā ilaika wa ḍā'ikum bihī ṣadruka ay yaqūlū lau lā unzila ‘alaihi kanzun au jā'a ma‘ahū malak(un), innamā anta nażīr(un), wallāhu ‘alā kulli syai'in wakīl(un).
 
 ## 11:13
 
-Am yaqūlūnaftarāh(u), qul fa'tū bi‘asyri suwarim miṡlihī muftarayātiw wad‘ū manistaṭa‘tum min dūnillāhi in kuntum ṣādiqīn(a).&#x20;
+Am yaqūlūnaftarāh(u), qul fa'tū bi‘asyri suwarim miṡlihī muftarayātiw wad‘ū manistaṭa‘tum min dūnillāhi in kuntum ṣādiqīn(a).
 
 ## 11:14
 
-Fa illam yastajībū lakum fa‘lamū annamā unzila bi‘ilmillāhi wa allā ilāha illā huw(a), fahal antum muslimūn(a).&#x20;
+Fa illam yastajībū lakum fa‘lamū annamā unzila bi‘ilmillāhi wa allā ilāha illā huw(a), fahal antum muslimūn(a).
 
 ## 11:15
 
-Man kāna yurīdul-ḥayātad-dun-yā wa zīnatahā nuwaffi ilaihim a‘mālahum fīhā wa hum fīhā lā yubkhasūn(a).&#x20;
+Man kāna yurīdul-ḥayātad-dun-yā wa zīnatahā nuwaffi ilaihim a‘mālahum fīhā wa hum fīhā lā yubkhasūn(a).
 
 ## 11:16
 
-Ulā'ikal-lażīna laisa lahum fil-ākhirati illan-nār(u), wa ḥabiṭa mā ṣana‘ū fīhā wa bāṭilum mā kānū ya‘malūn(a).&#x20;
+Ulā'ikal-lażīna laisa lahum fil-ākhirati illan-nār(u), wa ḥabiṭa mā ṣana‘ū fīhā wa bāṭilum mā kānū ya‘malūn(a).
 
 ## 11:17
 
-Afaman kāna ‘alā bayyinatim mir rabbihī wa yatlūhu syāhidum minhu wa min qablihī kitābu mūsā imāmaw wa raḥmah(tan), ulā'ika yu'minūna bih(ī), wa may yakfur bihī minal-aḥzābi fan-nāru mau‘iduhū falā taku fī miryatim minhu innahul-ḥaqqu mir rabbika wa lākinna akṡaran-nāsi lā yu'minūn(a).&#x20;
+Afaman kāna ‘alā bayyinatim mir rabbihī wa yatlūhu syāhidum minhu wa min qablihī kitābu mūsā imāmaw wa raḥmah(tan), ulā'ika yu'minūna bih(ī), wa may yakfur bihī minal-aḥzābi fan-nāru mau‘iduhū falā taku fī miryatim minhu innahul-ḥaqqu mir rabbika wa lākinna akṡaran-nāsi lā yu'minūn(a).
 
 ## 11:18
 
-Wa man aẓlamu mimmaniftarā ‘alallāhi każibā(n), ulā'ika yu‘raḍūna ‘alā rabbihim wa yaqūlul-asyhādu hā'ulā'il-lażīna każabū ‘alā rabbihim, alā la‘natullāhi ‘alaẓ-ẓālimīn(a).&#x20;
+Wa man aẓlamu mimmaniftarā ‘alallāhi każibā(n), ulā'ika yu‘raḍūna ‘alā rabbihim wa yaqūlul-asyhādu hā'ulā'il-lażīna każabū ‘alā rabbihim, alā la‘natullāhi ‘alaẓ-ẓālimīn(a).
 
 ## 11:19
 
-Al-lażīna yaṣuddūna ‘an sabīlillāhi wa yabgūnahā ‘iwajā(n), wa hum bil-ākhirati hum kāfirūn(a).&#x20;
+Al-lażīna yaṣuddūna ‘an sabīlillāhi wa yabgūnahā ‘iwajā(n), wa hum bil-ākhirati hum kāfirūn(a).
 
 ## 11:20
 
-Ulā'ika lam yakūnū mu‘jizīna fil-arḍi wa mā kāna lahum min dūnillāhi min auliyā'(a), yuḍā‘afu lahumul-‘ażāb(u), mā kānū yastaṭī‘ūnas-sam‘a wa mā kānū yubṣirūn(a).&#x20;
+Ulā'ika lam yakūnū mu‘jizīna fil-arḍi wa mā kāna lahum min dūnillāhi min auliyā'(a), yuḍā‘afu lahumul-‘ażāb(u), mā kānū yastaṭī‘ūnas-sam‘a wa mā kānū yubṣirūn(a).
 
 ## 11:21
 
-Ulā'ikal-lażīna khasirū anfusahum wa ḍalla ‘anhum mā kānū yaftarūn(a).&#x20;
+Ulā'ikal-lażīna khasirū anfusahum wa ḍalla ‘anhum mā kānū yaftarūn(a).
 
 ## 11:22
 
-Lā jarama annahum fil-ākhirati humul-akhsarūn(a).&#x20;
+Lā jarama annahum fil-ākhirati humul-akhsarūn(a).
 
 ## 11:23
 
-Innal-lażīna āmanū wa ‘amiluṣ-ṣāliḥāti wa akhbatū ilā rabbihim, ulā'ika aṣḥābul-jannati hum fīhā khālidūn(a).&#x20;
+Innal-lażīna āmanū wa ‘amiluṣ-ṣāliḥāti wa akhbatū ilā rabbihim, ulā'ika aṣḥābul-jannati hum fīhā khālidūn(a).
 
 ## 11:24
 
-Maṡalul-farīqaini kal-a‘mā wal-aṣammi wal-baṣīri was-samī‘(i), hal yastawiyāni maṡalā(n), afalā tażakkarūn(a).&#x20;
+Maṡalul-farīqaini kal-a‘mā wal-aṣammi wal-baṣīri was-samī‘(i), hal yastawiyāni maṡalā(n), afalā tażakkarūn(a).
 
 ## 11:25
 
-Wa laqad arsalnā nūḥan ilā qaumihī innī lakum nażīrum mubīn(un).&#x20;
+Wa laqad arsalnā nūḥan ilā qaumihī innī lakum nażīrum mubīn(un).
 
 ## 11:26
 
-Allā ta‘budū illallāh(a), innī akhāfu ‘alaikum ‘ażāba yaumin alīm(in).&#x20;
+Allā ta‘budū illallāh(a), innī akhāfu ‘alaikum ‘ażāba yaumin alīm(in).
 
 ## 11:27
 
-Fa qālal-mala'ul-lażīna kafarū min qaumihī mā narāka illā basyaram miṡlanā wa mā narākattaba‘aka illal-lażīna hum arāżilunā bādiyar-ra'y(i), wa mā narā lakum ‘alainā min faḍlim bal naẓunnukum kāżibīn(a).&#x20;
+Fa qālal-mala'ul-lażīna kafarū min qaumihī mā narāka illā basyaram miṡlanā wa mā narākattaba‘aka illal-lażīna hum arāżilunā bādiyar-ra'y(i), wa mā narā lakum ‘alainā min faḍlim bal naẓunnukum kāżibīn(a).
 
 ## 11:28
 
-Qāla yā qaumi ara'aitum in kuntu ‘alā bayyinatim mir rabbī wa ātānī raḥmatam min ‘indihī fa ‘ummiyat ‘alaikum, anulzimukumūhā wa antum lahā kārihūn(a).&#x20;
+Qāla yā qaumi ara'aitum in kuntu ‘alā bayyinatim mir rabbī wa ātānī raḥmatam min ‘indihī fa ‘ummiyat ‘alaikum, anulzimukumūhā wa antum lahā kārihūn(a).
 
 ## 11:29
 
-Wa yā qaumi lā as'alukum ‘alaihi mālā(n), in ajriya illā ‘alallāhi wa mā ana biṭāridil-lażīna āmanū, innahum mulāqū rabbihim  wa lākinnī arākum qauman tajhalūn(a).&#x20;
+Wa yā qaumi lā as'alukum ‘alaihi mālā(n), in ajriya illā ‘alallāhi wa mā ana biṭāridil-lażīna āmanū, innahum mulāqū rabbihim  wa lākinnī arākum qauman tajhalūn(a).
 
 ## 11:30
 
-Wa yā qaumi may yanṣurunī minallāhi in ṭarattuhum, afalā tażakkarūn(a).&#x20;
+Wa yā qaumi may yanṣurunī minallāhi in ṭarattuhum, afalā tażakkarūn(a).
 
 ## 11:31
 
-Wa lā aqūlu lakum ‘indī khazā'inullāhi wa lā a‘lamul-gaiba  wa lā aqūlu innī malakuw wa lā aqūlu lil-lażīna tazdarī a‘yunukum lay yu'tiyahumullāhu khairā(n), allāhu a‘lamu bimā fī anfusihim, innī iżal laminaẓ-ẓālimīn(a).&#x20;
+Wa lā aqūlu lakum ‘indī khazā'inullāhi wa lā a‘lamul-gaiba  wa lā aqūlu innī malakuw wa lā aqūlu lil-lażīna tazdarī a‘yunukum lay yu'tiyahumullāhu khairā(n), allāhu a‘lamu bimā fī anfusihim, innī iżal laminaẓ-ẓālimīn(a).
 
 ## 11:32
 
-Qālū yā nūḥu qad jādaltanā fa akṡarta jidālanā fa'tinā bimā ta‘idunā in kunta minaṣ-ṣādiqīn(a).&#x20;
+Qālū yā nūḥu qad jādaltanā fa akṡarta jidālanā fa'tinā bimā ta‘idunā in kunta minaṣ-ṣādiqīn(a).
 
 ## 11:33
 
-Qāla innamā ya'tīkum bihillāhu in syā'a wa mā antum bimu‘jizīn(a).&#x20;
+Qāla innamā ya'tīkum bihillāhu in syā'a wa mā antum bimu‘jizīn(a).
 
 ## 11:34
 
-Wa lā yanfa‘ukum nuṣḥī in arattu an anṣaḥa lakum in kānallāhu yurīdu ay yugwiyakum, huwa rabbukum, wa ilaihi turja‘ūn(a).&#x20;
+Wa lā yanfa‘ukum nuṣḥī in arattu an anṣaḥa lakum in kānallāhu yurīdu ay yugwiyakum, huwa rabbukum, wa ilaihi turja‘ūn(a).
 
 ## 11:35
 
-Am yaqūlūnaftarāh(u), qul iniftaraituhū fa ‘alayya ijrāmī wa ana barī'um mimmā tujrimūn(a).&#x20;
+Am yaqūlūnaftarāh(u), qul iniftaraituhū fa ‘alayya ijrāmī wa ana barī'um mimmā tujrimūn(a).
 
 ## 11:36
 
-Wa ūḥiya ilā nūḥin annahū lay yu'mina min qaumika illā man qad āmana falā tabta'is bimā kānū yaf‘alūn(a).&#x20;
+Wa ūḥiya ilā nūḥin annahū lay yu'mina min qaumika illā man qad āmana falā tabta'is bimā kānū yaf‘alūn(a).
 
 ## 11:37
 
-Waṣna‘il-fulka bi'a‘yuninā wa waḥyinā wa lā tukhāṭibnī fil-lażīna ẓalamū, innahum mugraqūn(a).&#x20;
+Waṣna‘il-fulka bi'a‘yuninā wa waḥyinā wa lā tukhāṭibnī fil-lażīna ẓalamū, innahum mugraqūn(a).
 
 ## 11:38
 
-Wa yaṣna‘ul-fulk(a), wa kullamā marra ‘alaihi mala'um min qaumihī sakhirū minh(u), qāla in taskharū minnā fa innā naskharu minkum kamā taskharūn(a).&#x20;
+Wa yaṣna‘ul-fulk(a), wa kullamā marra ‘alaihi mala'um min qaumihī sakhirū minh(u), qāla in taskharū minnā fa innā naskharu minkum kamā taskharūn(a).
 
 ## 11:39
 
-Fa saufa ta‘lamūn(a), may ya'tīhi ‘ażābuy yukhzīhi wa yaḥillu ‘alaihi ‘ażābum muqīm(un).&#x20;
+Fa saufa ta‘lamūn(a), may ya'tīhi ‘ażābuy yukhzīhi wa yaḥillu ‘alaihi ‘ażābum muqīm(un).
 
 ## 11:40
 
-Ḥattā iżā jā'a amrunā wafārat-tannūr(u), qulnaḥmil fīhā min kullin zaujainiṡnaini wa ahlaka illā man sabaqa ‘alaihil-qaulu wa man āman(a), wa mā āmana ma‘ahū illā qalīl(un).&#x20;
+Ḥattā iżā jā'a amrunā wafārat-tannūr(u), qulnaḥmil fīhā min kullin zaujainiṡnaini wa ahlaka illā man sabaqa ‘alaihil-qaulu wa man āman(a), wa mā āmana ma‘ahū illā qalīl(un).
 
 ## 11:41
 
-Wa qālarkabū fīhā bismillāhi majrêhā wa mursāhā, inna rabbī lagafūrur raḥīm(un).&#x20;
+Wa qālarkabū fīhā bismillāhi majrêhā wa mursāhā, inna rabbī lagafūrur raḥīm(un).
 
 ## 11:42
 
-Wa hiya tajrī bihim fī maujin kal-jibāl(i), wa nādā nūḥunibnahū wa kāna fī ma‘ziliy yā bunayyarkam ma‘anā wa lā takum ma‘al-kāfirīn(a).&#x20;
+Wa hiya tajrī bihim fī maujin kal-jibāl(i), wa nādā nūḥunibnahū wa kāna fī ma‘ziliy yā bunayyarkam ma‘anā wa lā takum ma‘al-kāfirīn(a).
 
 ## 11:43
 
-Qāla sa'āwī ilā jabaliy ya‘ṣimunī minal-mā'(i), qāla lā ‘āṣimal-yauma min amrillāhi illā ma raḥim(a), wa ḥāla bainahumal-mauju fa kāna minal-mugraqīn(a).&#x20;
+Qāla sa'āwī ilā jabaliy ya‘ṣimunī minal-mā'(i), qāla lā ‘āṣimal-yauma min amrillāhi illā ma raḥim(a), wa ḥāla bainahumal-mauju fa kāna minal-mugraqīn(a).
 
 ## 11:44
 
-Wa qīla yā arḍubla‘ī mā'aki wa yā samā'u aqli‘ī wa gīḍal-mā'u wa quḍiyal-amru wastawat ‘alal-jūdiyyi wa qīla bu‘dal lil-qaumiẓ-ẓālimīn(a).&#x20;
+Wa qīla yā arḍubla‘ī mā'aki wa yā samā'u aqli‘ī wa gīḍal-mā'u wa quḍiyal-amru wastawat ‘alal-jūdiyyi wa qīla bu‘dal lil-qaumiẓ-ẓālimīn(a).
 
 ## 11:45
 
-Wa nādā nūḥur rabbahū fa qāla rabbi innabnī min ahlī, wa inna wa‘dakal-ḥaqqu wa anta aḥkamul-ḥākimīn(a).&#x20;
+Wa nādā nūḥur rabbahū fa qāla rabbi innabnī min ahlī, wa inna wa‘dakal-ḥaqqu wa anta aḥkamul-ḥākimīn(a).
 
 ## 11:46
 
-Qāla yā nūḥu innahū laisa min ahlik(a), innahū ‘amalun gairu ṣāliḥ(in), falā tas'alnī mā laisa laka bihī ‘ilm(un), innī a‘iẓuka an takūna minal-jāhilīn(a).&#x20;
+Qāla yā nūḥu innahū laisa min ahlik(a), innahū ‘amalun gairu ṣāliḥ(in), falā tas'alnī mā laisa laka bihī ‘ilm(un), innī a‘iẓuka an takūna minal-jāhilīn(a).
 
 ## 11:47
 
-Qāla rabbi innī a‘ūżu bika an as'alaka mā laisa lī bihī ‘ilm(un), wa illā tagfir lī wa tarḥamnī akum minal-khāsirīn(a).&#x20;
+Qāla rabbi innī a‘ūżu bika an as'alaka mā laisa lī bihī ‘ilm(un), wa illā tagfir lī wa tarḥamnī akum minal-khāsirīn(a).
 
 ## 11:48
 
-Qīla yā nūḥuhbiṭ bisalāmim minnā wa barakātin ‘alaika wa ‘alā umamim mimmam ma‘ak(a), wa umamun sanumatti‘uhum ṡumma yamassuhum minnā ‘ażābun alīm(un).&#x20;
+Qīla yā nūḥuhbiṭ bisalāmim minnā wa barakātin ‘alaika wa ‘alā umamim mimmam ma‘ak(a), wa umamun sanumatti‘uhum ṡumma yamassuhum minnā ‘ażābun alīm(un).
 
 ## 11:49
 
-Tilka min ambā'il-gaibi nūḥīhā ilaik(a), mā kunta ta‘lamuhā anta wa lā qaumuka min qabli hāżā, faṣbir, innal-‘āqibata lil-muttaqīn(a).&#x20;
+Tilka min ambā'il-gaibi nūḥīhā ilaik(a), mā kunta ta‘lamuhā anta wa lā qaumuka min qabli hāżā, faṣbir, innal-‘āqibata lil-muttaqīn(a).
 
 ## 11:50
 
-Wa ilā ‘ādin akhāhum hūdā(n), qāla yā qaumi‘budullāha mā lakum min ilāhin gairuh(ū), in antum illā muftarūn(a).&#x20;
+Wa ilā ‘ādin akhāhum hūdā(n), qāla yā qaumi‘budullāha mā lakum min ilāhin gairuh(ū), in antum illā muftarūn(a).
 
 ## 11:51
 
-Yā qaumi lā as'alukum ‘alaihi ajrā(n), in ajriya illā ‘alal-lażī faṭaranī, afalā ta‘qilūn(a).&#x20;
+Yā qaumi lā as'alukum ‘alaihi ajrā(n), in ajriya illā ‘alal-lażī faṭaranī, afalā ta‘qilūn(a).
 
 ## 11:52
 
-Wa yā qaumistagfirū rabbakum ṡumma tūbū ilaihi yursilis-samā'a ‘alaikum midrāraw wa yazidkum quwwatan ilā quwwatikum wa lā tatawallau mujrimīn(a).&#x20;
+Wa yā qaumistagfirū rabbakum ṡumma tūbū ilaihi yursilis-samā'a ‘alaikum midrāraw wa yazidkum quwwatan ilā quwwatikum wa lā tatawallau mujrimīn(a).
 
 ## 11:53
 
-Qālū yā hūdu mā ji'tanā bibayyinatiw wa mā naḥnu bitārikī ālihatinā ‘an qaulika wa mā naḥnu laka bimu'minīn(a).&#x20;
+Qālū yā hūdu mā ji'tanā bibayyinatiw wa mā naḥnu bitārikī ālihatinā ‘an qaulika wa mā naḥnu laka bimu'minīn(a).
 
 ## 11:54
 
-In naqūlu illa‘tarāka ba‘ḍu ālihatinā bisū'(in), qāla innī usyhidullāha wasyhadū annī barī'um mimmā tusyrikūn(a).&#x20;
+In naqūlu illa‘tarāka ba‘ḍu ālihatinā bisū'(in), qāla innī usyhidullāha wasyhadū annī barī'um mimmā tusyrikūn(a).
 
 ## 11:55
 
-Min dūnihī fa kīdūnī jamī‘an ṡumma lā tunẓirūn(i).&#x20;
+Min dūnihī fa kīdūnī jamī‘an ṡumma lā tunẓirūn(i).
 
 ## 11:56
 
-Innī tawakkaltu ‘alallāhi rabbī wa rabbikum, mā min dābbatin illā huwa ākhiżum bināṣiyatihā, inna rabbī ‘alā ṣirāṭim mustaqīm(in).&#x20;
+Innī tawakkaltu ‘alallāhi rabbī wa rabbikum, mā min dābbatin illā huwa ākhiżum bināṣiyatihā, inna rabbī ‘alā ṣirāṭim mustaqīm(in).
 
 ## 11:57
 
-Fa in tawallau faqad ablagtukum mā ursiltu bihī ilaikum, wa yastakhlifu rabbī qauman gairakum, wa lā taḍurrūnahū syai'ā(n), inna rabbī ‘alā kulli syai'in ḥafīẓ(un).&#x20;
+Fa in tawallau faqad ablagtukum mā ursiltu bihī ilaikum, wa yastakhlifu rabbī qauman gairakum, wa lā taḍurrūnahū syai'ā(n), inna rabbī ‘alā kulli syai'in ḥafīẓ(un).
 
 ## 11:58
 
-Wa lammā jā'a amrunā najjainā hūdaw wal-lażīna āmanū ma‘ahū biraḥmatim minnā, wa najjaināhum min ‘ażābin galīẓ(in).&#x20;
+Wa lammā jā'a amrunā najjainā hūdaw wal-lażīna āmanū ma‘ahū biraḥmatim minnā, wa najjaināhum min ‘ażābin galīẓ(in).
 
 ## 11:59
 
-Wa tilka ‘ādun jaḥadū bi'āyāti rabbihim wa ‘aṣau rusulahū wattaba‘ū amra kulli jabbārin ‘anīd(in).&#x20;
+Wa tilka ‘ādun jaḥadū bi'āyāti rabbihim wa ‘aṣau rusulahū wattaba‘ū amra kulli jabbārin ‘anīd(in).
 
 ## 11:60
 
-Wa utbi‘ū fī hażihid-dun-yā la‘nataw wa yaumal-qiyāmah(ti), alā inna ‘ādan kafarū rabbahum, alā bu‘dal li‘ādin qaumi hūd(in).&#x20;
+Wa utbi‘ū fī hażihid-dun-yā la‘nataw wa yaumal-qiyāmah(ti), alā inna ‘ādan kafarū rabbahum, alā bu‘dal li‘ādin qaumi hūd(in).
 
 ## 11:61
 
-Wa ilā ṡamūda akhāhum ṣālihā(n), qāla yā qaumi‘budullāḥa mā lakum min ilāhin gairuh(ū), huwa ansya'akum minal-arḍi wasta‘marakum fīhā fastagfirūhu ṡumma tūbū ilaih(i), inna rabbī qarībum mujīb(un).&#x20;
+Wa ilā ṡamūda akhāhum ṣālihā(n), qāla yā qaumi‘budullāḥa mā lakum min ilāhin gairuh(ū), huwa ansya'akum minal-arḍi wasta‘marakum fīhā fastagfirūhu ṡumma tūbū ilaih(i), inna rabbī qarībum mujīb(un).
 
 ## 11:62
 
-Qālū yā ṣāliḥu qad kunta fīnā marjuwwan qabla hāżā atanhānā an na‘buda mā ya‘budu ābā'unā wa innanā lafī syakkim mimmā tad‘ūnā ilaihi murīb(in).&#x20;
+Qālū yā ṣāliḥu qad kunta fīnā marjuwwan qabla hāżā atanhānā an na‘buda mā ya‘budu ābā'unā wa innanā lafī syakkim mimmā tad‘ūnā ilaihi murīb(in).
 
 ## 11:63
 
-Qāla yā qaumi ara'aitum in kuntu ‘alā bayyinatim mir rabbī, wa ātānī minhu raḥmatan famay yanṣurunī minallāhi in ‘aṣaituh(ū), famā tazīdūnanī gaira takhsīr(in).&#x20;
+Qāla yā qaumi ara'aitum in kuntu ‘alā bayyinatim mir rabbī, wa ātānī minhu raḥmatan famay yanṣurunī minallāhi in ‘aṣaituh(ū), famā tazīdūnanī gaira takhsīr(in).
 
 ## 11:64
 
-Wa yā qaumi hāżihī nāqatullāhi lakum āyatan fa żarūhā ta'kul fī arḍillāhi wa lā tamassūhā bisū'in fa ya'khużakum ‘ażābun qarīb(un).&#x20;
+Wa yā qaumi hāżihī nāqatullāhi lakum āyatan fa żarūhā ta'kul fī arḍillāhi wa lā tamassūhā bisū'in fa ya'khużakum ‘ażābun qarīb(un).
 
 ## 11:65
 
-Fa ‘aqarūhā fa qāla tamatta‘ū fī dārikum ṡalāṡata ayyām(in), żālika wa‘dun gairu makżūb(in).&#x20;
+Fa ‘aqarūhā fa qāla tamatta‘ū fī dārikum ṡalāṡata ayyām(in), żālika wa‘dun gairu makżūb(in).
 
 ## 11:66
 
-Falammā jā'a amrunā najjainā ṣāliḥaw wal-lażīna āmanū ma‘ahū biraḥmatim minnā wa min khizyi yaumi'iż(in), inna rabbaka huwal-qawiyyul-‘ażīz(u).&#x20;
+Falammā jā'a amrunā najjainā ṣāliḥaw wal-lażīna āmanū ma‘ahū biraḥmatim minnā wa min khizyi yaumi'iż(in), inna rabbaka huwal-qawiyyul-‘ażīz(u).
 
 ## 11:67
 
-Wa akhażal-lażīna ẓalamuṣ-ṣaiḥatu fa aṣbaḥū fī dārihim jāṡimīn(a).&#x20;
+Wa akhażal-lażīna ẓalamuṣ-ṣaiḥatu fa aṣbaḥū fī dārihim jāṡimīn(a).
 
 ## 11:68
 
-Ka allam yagnau fīhā, alā inna ṡamūda kafarū rabbahum, alā bu‘dal liṡamūd(a).&#x20;
+Ka allam yagnau fīhā, alā inna ṡamūda kafarū rabbahum, alā bu‘dal liṡamūd(a).
 
 ## 11:69
 
-Wa laqad jā'at rusulunā ibrāhīma bil-busyrā qālū salāmā(n), qāla salāmun famā labiṡa an jā'a bi‘ijlin ḥanīż(in).&#x20;
+Wa laqad jā'at rusulunā ibrāhīma bil-busyrā qālū salāmā(n), qāla salāmun famā labiṡa an jā'a bi‘ijlin ḥanīż(in).
 
 ## 11:70
 
-Falammā ra'ā aidiyahum lā taṣilu ilaihi nakirahum wa aujasa minhum khīfah(tan), qālū lā takhaf innā ursilnā ilā qaumi lūṭ(in).&#x20;
+Falammā ra'ā aidiyahum lā taṣilu ilaihi nakirahum wa aujasa minhum khīfah(tan), qālū lā takhaf innā ursilnā ilā qaumi lūṭ(in).
 
 ## 11:71
 
-Wamra'atuhū qā'imatun fa ḍaḥikat fa basysyarnāhā bi'isḥāq(a), wa miw warā'i isḥāqa ya‘qūb(a).&#x20;
+Wamra'atuhū qā'imatun fa ḍaḥikat fa basysyarnāhā bi'isḥāq(a), wa miw warā'i isḥāqa ya‘qūb(a).
 
 ## 11:72
 
-Qālat yā wailatā a'alidu wa ana ‘ajūzuw wa hāżā ba‘lī syaikhā(n), inna hāżā lasyai'un ‘ajīb(un).&#x20;
+Qālat yā wailatā a'alidu wa ana ‘ajūzuw wa hāżā ba‘lī syaikhā(n), inna hāżā lasyai'un ‘ajīb(un).
 
 ## 11:73
 
-Qālū ata‘jabīna min amrillāhi raḥmatullāhi wa barakātuh(ū), ‘alaikum ahlal-bait(i), innahū ḥamīdum majīd(un).&#x20;
+Qālū ata‘jabīna min amrillāhi raḥmatullāhi wa barakātuh(ū), ‘alaikum ahlal-bait(i), innahū ḥamīdum majīd(un).
 
 ## 11:74
 
-Falammā żahaba ‘an ibrāhīmar rau‘u wa jā'athul busyrā yujādilunā fī qaumi lūṭ(in).&#x20;
+Falammā żahaba ‘an ibrāhīmar rau‘u wa jā'athul busyrā yujādilunā fī qaumi lūṭ(in).
 
 ## 11:75
 
-Inna ibrāhīma laḥalīmun awwāhum munīb(un).&#x20;
+Inna ibrāhīma laḥalīmun awwāhum munīb(un).
 
 ## 11:76
 
-Yā ibrāhīmu a‘riḍ ‘an hāżā, innahū qad jā'a amru rabbik(a), wa innahum ātīhim ‘ażābun gairu mardūd(in).&#x20;
+Yā ibrāhīmu a‘riḍ ‘an hāżā, innahū qad jā'a amru rabbik(a), wa innahum ātīhim ‘ażābun gairu mardūd(in).
 
 ## 11:77
 
-Wa lammā jā'at rusulunā lūṭan sī'a bihim wa ḍāqa bihim żar‘aw wa qāla hāżā yaumun ‘aṣīb(un).&#x20;
+Wa lammā jā'at rusulunā lūṭan sī'a bihim wa ḍāqa bihim żar‘aw wa qāla hāżā yaumun ‘aṣīb(un).
 
 ## 11:78
 
-Wa jā'ahū qaumuhū yuhra‘ūna ilaih(i), wa min qablu kānū ya‘malūnas-sayyi'āt(i), qāla yā qaumi hā'ulā'i banātī hunna aṭharu lakum fattaqullāha wa lā tukhzūni fī ḍaifī, alaisa minkum rajulur rasyīd(un).&#x20;
+Wa jā'ahū qaumuhū yuhra‘ūna ilaih(i), wa min qablu kānū ya‘malūnas-sayyi'āt(i), qāla yā qaumi hā'ulā'i banātī hunna aṭharu lakum fattaqullāha wa lā tukhzūni fī ḍaifī, alaisa minkum rajulur rasyīd(un).
 
 ## 11:79
 
-Qālū laqad ‘alimta mā lanā fī banātika min ḥaqq(in), wa innaka lata‘lamu mā nurīd(u).&#x20;
+Qālū laqad ‘alimta mā lanā fī banātika min ḥaqq(in), wa innaka lata‘lamu mā nurīd(u).
 
 ## 11:80
 
-Qāla lau anna lī bikum quwwatan au āwī ilā ruknin syadīd(in).&#x20;
+Qāla lau anna lī bikum quwwatan au āwī ilā ruknin syadīd(in).
 
 ## 11:81
 
-Qālū yā lūṭu innā rusulu rabbika lay yaṣilū ilaika fa asri bi'ahlika biqiṭ‘im minal-laili wa lā yaltafit minkum aḥadun illamra'atak(a), innahū muṣībuhā mā aṣābahum, inna mau‘idahumuṣ-ṣubḥ(u), alaisaṣ-ṣubḥu biqarīb(in).&#x20;
+Qālū yā lūṭu innā rusulu rabbika lay yaṣilū ilaika fa asri bi'ahlika biqiṭ‘im minal-laili wa lā yaltafit minkum aḥadun illamra'atak(a), innahū muṣībuhā mā aṣābahum, inna mau‘idahumuṣ-ṣubḥ(u), alaisaṣ-ṣubḥu biqarīb(in).
 
 ## 11:82
 
-Falammā jā'a amrunā ja‘alnā ‘āliyahā sāfilahā wa amṭarnā ‘alaihā ḥijāratam min sijjīlim manḍūd(in).&#x20;
+Falammā jā'a amrunā ja‘alnā ‘āliyahā sāfilahā wa amṭarnā ‘alaihā ḥijāratam min sijjīlim manḍūd(in).
 
 ## 11:83
 
-Musawwamatan ‘inda rabbik(a) wa mā hiya minaẓ-ẓālimīna biba‘īd(in).&#x20;
+Musawwamatan ‘inda rabbik(a) wa mā hiya minaẓ-ẓālimīna biba‘īd(in).
 
 ## 11:84
 
-Wa ilā madyana akhāhum syu‘aibā(n), qāla yā qaumi‘budullāha mā lakum min ilāhin gairuh(ū), wa lā tanquṣul-mikyāla wal-mīzāna innī arākum bikhairiw wa innī akhāfu ‘alaikum ‘ażāba yaumim muḥīṭ(in).&#x20;
+Wa ilā madyana akhāhum syu‘aibā(n), qāla yā qaumi‘budullāha mā lakum min ilāhin gairuh(ū), wa lā tanquṣul-mikyāla wal-mīzāna innī arākum bikhairiw wa innī akhāfu ‘alaikum ‘ażāba yaumim muḥīṭ(in).
 
 ## 11:85
 
-Wa yā qaumi auful-mikyāla wal-mīzāna bil-qisṭi wa lā tabkhasun-nāsa asy-yā'ahum wa lā ta‘ṡau fil-arḍi mufsidīn(a).&#x20;
+Wa yā qaumi auful-mikyāla wal-mīzāna bil-qisṭi wa lā tabkhasun-nāsa asy-yā'ahum wa lā ta‘ṡau fil-arḍi mufsidīn(a).
 
 ## 11:86
 
-Baqiyyatullāhi khairul lakum in kuntum mu'minīn(a), wa mā ana ‘alaikum biḥafīẓ(in).&#x20;
+Baqiyyatullāhi khairul lakum in kuntum mu'minīn(a), wa mā ana ‘alaikum biḥafīẓ(in).
 
 ## 11:87
 
-Qālū yā syu‘aibu aṣalātuka ta'muruka an natruka mā ya‘budu ābā'unā au an naf‘ala fī amwālinā mā nasyā'(u), innaka la'antal-ḥalīmur-rasyīd(u).&#x20;
+Qālū yā syu‘aibu aṣalātuka ta'muruka an natruka mā ya‘budu ābā'unā au an naf‘ala fī amwālinā mā nasyā'(u), innaka la'antal-ḥalīmur-rasyīd(u).
 
 ## 11:88
 
-Qāla yā qaumi ara'aitum in kuntu ‘alā bayyinatim mir rabbī wa razaqanī minhu rizqan ḥasanaw wa mā urīdu an ukhālifakum ila mā anhākum ‘anh(u), in urīdu illal-iṣlāḥa mastaṭa‘t(u), wa mā taufīqī illā billāh(i), ‘alaihi tawakkaltu wa ilaihi unīb(u).&#x20;
+Qāla yā qaumi ara'aitum in kuntu ‘alā bayyinatim mir rabbī wa razaqanī minhu rizqan ḥasanaw wa mā urīdu an ukhālifakum ila mā anhākum ‘anh(u), in urīdu illal-iṣlāḥa mastaṭa‘t(u), wa mā taufīqī illā billāh(i), ‘alaihi tawakkaltu wa ilaihi unīb(u).
 
 ## 11:89
 
-Wa yā qaumi lā yajrimannakum syiqāqī ay yuṣībakum miṡlu mā aṣāba qauma nūḥin au qauma hūdin au qauma ṣāliḥ(in), wa mā qaumu lūṭim minkum biba‘īd(in).&#x20;
+Wa yā qaumi lā yajrimannakum syiqāqī ay yuṣībakum miṡlu mā aṣāba qauma nūḥin au qauma hūdin au qauma ṣāliḥ(in), wa mā qaumu lūṭim minkum biba‘īd(in).
 
 ## 11:90
 
-Wastagfirū rabbakum ṡumma tūbū ilaih(i), inna rabbī raḥīmuw wadūd(un).&#x20;
+Wastagfirū rabbakum ṡumma tūbū ilaih(i), inna rabbī raḥīmuw wadūd(un).
 
 ## 11:91
 
-Qālū yā syu‘aibu mā nafqahu kaṡīram mimmā taqūlu wa innā lanarāka fīnā ḍa‘īfā(n), wa lau lā rahṭuka larajamnāk(a), wa anta ‘alainā bi‘azīz(in).&#x20;
+Qālū yā syu‘aibu mā nafqahu kaṡīram mimmā taqūlu wa innā lanarāka fīnā ḍa‘īfā(n), wa lau lā rahṭuka larajamnāk(a), wa anta ‘alainā bi‘azīz(in).
 
 ## 11:92
 
-Qāla yā qaumi arahṭī a‘azzu ‘alaikum minallāh(i), wattakhażtumūhu warā'akum ẓihriyyā(n), inna rabbī bimā ta‘malūna muḥīṭ(un).&#x20;
+Qāla yā qaumi arahṭī a‘azzu ‘alaikum minallāh(i), wattakhażtumūhu warā'akum ẓihriyyā(n), inna rabbī bimā ta‘malūna muḥīṭ(un).
 
 ## 11:93
 
-Wa yā qaumi‘malū ‘alā makānatikum innī ‘āmil(un), saufa ta‘lamūn(a), may ya'tīhi ‘ażābuy yukhzīhi wa man huwa kāżib(un), wartaqibū innī ma‘akum raqīb(un).&#x20;
+Wa yā qaumi‘malū ‘alā makānatikum innī ‘āmil(un), saufa ta‘lamūn(a), may ya'tīhi ‘ażābuy yukhzīhi wa man huwa kāżib(un), wartaqibū innī ma‘akum raqīb(un).
 
 ## 11:94
 
-Wa lammā jā'a amrunā najjainā syu‘aibaw wal-lażīna amanū ma‘ahū biraḥmatim minnā, wa akhażatil-lażīna ẓalamuṣ-ṣaiḥatu fa aṣbaḥū fī diyārihim jāṡimīn(a).&#x20;
+Wa lammā jā'a amrunā najjainā syu‘aibaw wal-lażīna amanū ma‘ahū biraḥmatim minnā, wa akhażatil-lażīna ẓalamuṣ-ṣaiḥatu fa aṣbaḥū fī diyārihim jāṡimīn(a).
 
 ## 11:95
 
-Ka allam yagnau fīhā, alā bu‘dal limadyana kamā ba‘idat ṡamūd(u).&#x20;
+Ka allam yagnau fīhā, alā bu‘dal limadyana kamā ba‘idat ṡamūd(u).
 
 ## 11:96
 
-Wa laqad arsalnā mūsā bi'āyātinā wa sulṭānim mubīn(in).&#x20;
+Wa laqad arsalnā mūsā bi'āyātinā wa sulṭānim mubīn(in).
 
 ## 11:97
 
-Ilā fir‘auna wa mala'ihī fattaba‘ū amra fir‘aun(a), wa mā amru fir‘auna birasyīd(in).&#x20;
+Ilā fir‘auna wa mala'ihī fattaba‘ū amra fir‘aun(a), wa mā amru fir‘auna birasyīd(in).
 
 ## 11:98
 
-Yaqdumu qaumahū yaumal-qiyāmati fa auradahumun-nār(a), wa bi'sal-wirdul-maurūd(u).&#x20;
+Yaqdumu qaumahū yaumal-qiyāmati fa auradahumun-nār(a), wa bi'sal-wirdul-maurūd(u).
 
 ## 11:99
 
-Wa utbi‘ū fī hāżihī la‘nataw wa yaumal-qiyāmah(ti), bi'sar-rifdul-marfūd(u).&#x20;
+Wa utbi‘ū fī hāżihī la‘nataw wa yaumal-qiyāmah(ti), bi'sar-rifdul-marfūd(u).
 
 ## 11:100
 
-Żālika min ambā'il-qurā naquṣṣuhū ‘alaika minhā qā'imuw wa ḥaṣīd(un).&#x20;
+Żālika min ambā'il-qurā naquṣṣuhū ‘alaika minhā qā'imuw wa ḥaṣīd(un).
 
 ## 11:101
 
-Wa mā ẓalamnāhum wa lākin ẓalamū anfusahum famā agnat ‘anhum ālihatuhumul-latī yad‘ūna min dūnillāhi min syai'il lammā jā'a amru rabbik(a), wa mā zādūhum gaira tatbīb(in).&#x20;
+Wa mā ẓalamnāhum wa lākin ẓalamū anfusahum famā agnat ‘anhum ālihatuhumul-latī yad‘ūna min dūnillāhi min syai'il lammā jā'a amru rabbik(a), wa mā zādūhum gaira tatbīb(in).
 
 ## 11:102
 
-Wa każālika akhżu rabbika iżā akhażal-qurā wa hiya ẓālimah(tun), inna akhżahū alīmun syadīd(un).&#x20;
+Wa każālika akhżu rabbika iżā akhażal-qurā wa hiya ẓālimah(tun), inna akhżahū alīmun syadīd(un).
 
 ## 11:103
 
-Inna fī żālika la'āyatal liman khāfa ‘ażābal-ākhirah(ti), żālika yaumum majmū‘(un), lahun-nāsu wa żālika yaumum masyhūd(un).&#x20;
+Inna fī żālika la'āyatal liman khāfa ‘ażābal-ākhirah(ti), żālika yaumum majmū‘(un), lahun-nāsu wa żālika yaumum masyhūd(un).
 
 ## 11:104
 
-Wa mā nu'akhkhiruhū illā li'ajalim ma‘dūd(in).&#x20;
+Wa mā nu'akhkhiruhū illā li'ajalim ma‘dūd(in).
 
 ## 11:105
 
-Yauma ya'ti lā takallamu nafsun illā bi'iżnih(ī), fa minhum syaqiyyuw wa sa‘īd(un).&#x20;
+Yauma ya'ti lā takallamu nafsun illā bi'iżnih(ī), fa minhum syaqiyyuw wa sa‘īd(un).
 
 ## 11:106
 
-Fa ammal-lażīna syaqū fa fin-nāri lahum fīhā zafīruw wa syahīq(un).&#x20;
+Fa ammal-lażīna syaqū fa fin-nāri lahum fīhā zafīruw wa syahīq(un).
 
 ## 11:107
 
-Khālidīna fīhā mā dāmatis-samāwātu wal-arḍu illā mā syā'a rabbuk(a), inna rabbaka fa‘‘ālul limā yurīd(u).&#x20;
+Khālidīna fīhā mā dāmatis-samāwātu wal-arḍu illā mā syā'a rabbuk(a), inna rabbaka fa‘‘ālul limā yurīd(u).
 
 ## 11:108
 
-Wa ammal-lażīna su‘idū fa fil-jannati khālidīna fīhā mā dāmatis-samāwātu wal-arḍu illā mā syā'a rabbuk(a), ‘aṭā'an gaira majżūż(in).&#x20;
+Wa ammal-lażīna su‘idū fa fil-jannati khālidīna fīhā mā dāmatis-samāwātu wal-arḍu illā mā syā'a rabbuk(a), ‘aṭā'an gaira majżūż(in).
 
 ## 11:109
 
-Falā taku fī miryatim mimmā ya‘budu hā'ulā'(i), mā ya‘budūna  illā kamā ya‘budu ābā'uhum min qabl(u),  wa innā lamuwaffūhum naṣībahum gaira manqūṣ(in).&#x20;
+Falā taku fī miryatim mimmā ya‘budu hā'ulā'(i), mā ya‘budūna  illā kamā ya‘budu ābā'uhum min qabl(u),  wa innā lamuwaffūhum naṣībahum gaira manqūṣ(in).
 
 ## 11:110
 
-Wa laqad ātainā mūsal-kitāba fakhtulifa fīh(i), wa lau lā kalimatun sabaqat mir rabbika laquḍiya bainahum, wa innahum lafī syakkim minhu murīb(in).&#x20;
+Wa laqad ātainā mūsal-kitāba fakhtulifa fīh(i), wa lau lā kalimatun sabaqat mir rabbika laquḍiya bainahum, wa innahum lafī syakkim minhu murīb(in).
 
 ## 11:111
 
-Wa inna kullan lammā layuwaffiyannahum rabbuka a‘mālahum, innahū bimā ya‘malūna khabīr(un).&#x20;
+Wa inna kullan lammā layuwaffiyannahum rabbuka a‘mālahum, innahū bimā ya‘malūna khabīr(un).
 
 ## 11:112
 
-Fastaqim kamā umirta wa man tāba ma‘aka wa lā taṭgau, innahū bimā ta‘malūna baṣīr(un).&#x20;
+Fastaqim kamā umirta wa man tāba ma‘aka wa lā taṭgau, innahū bimā ta‘malūna baṣīr(un).
 
 ## 11:113
 
-Wa lā tarkanū ilal-lażīna ẓalamū fa tamassakumun-nār(u), wa mā lakum min dūnillāhi min auliyā'a ṡumma lā tunṣarūn(a).&#x20;
+Wa lā tarkanū ilal-lażīna ẓalamū fa tamassakumun-nār(u), wa mā lakum min dūnillāhi min auliyā'a ṡumma lā tunṣarūn(a).
 
 ## 11:114
 
-Wa aqimiṣ-ṣalāta ṭarafayin-nahāri wa zulafam minal-lail(i), innal-ḥasanāti yużhibnas-sayyi'āt(i), żālika żikrā liż-żākirīn(a).&#x20;
+Wa aqimiṣ-ṣalāta ṭarafayin-nahāri wa zulafam minal-lail(i), innal-ḥasanāti yużhibnas-sayyi'āt(i), żālika żikrā liż-żākirīn(a).
 
 ## 11:115
 
-Waṣbir fa innallāha lā yaḍī‘u ajral-muḥsinīn(a).&#x20;
+Waṣbir fa innallāha lā yaḍī‘u ajral-muḥsinīn(a).
 
 ## 11:116
 
-Fa lau lā kāna minal-qurūni min qablikum ulū baqiyyatiy yanhauna ‘anil-fasādi fil-arḍi illā qalīlam mimman anjainā minhum, wattaba‘al-lażīna ẓalamū mā utrifū fīhi wa kānū mujrimīn(a).&#x20;
+Fa lau lā kāna minal-qurūni min qablikum ulū baqiyyatiy yanhauna ‘anil-fasādi fil-arḍi illā qalīlam mimman anjainā minhum, wattaba‘al-lażīna ẓalamū mā utrifū fīhi wa kānū mujrimīn(a).
 
 ## 11:117
 
-Wa mā kāna rabbuka liyuhlikal-qurā biẓulmiw wa ahluhā muṣliḥūn(a).&#x20;
+Wa mā kāna rabbuka liyuhlikal-qurā biẓulmiw wa ahluhā muṣliḥūn(a).
 
 ## 11:118
 
-Wa lau syā'a rabbuka laja‘alan-nāsa ummataw wāḥidataw wa lā yazālūna mukhtalifīn(a).&#x20;
+Wa lau syā'a rabbuka laja‘alan-nāsa ummataw wāḥidataw wa lā yazālūna mukhtalifīn(a).
 
 ## 11:119
 
-Illā mar raḥima rabbuk(a), wa liżālika khalaqahum, wa tammat kalimatu rabbika la'amla'anna jahannama minal-jinnati wan-nāsi ajma‘īn(a).&#x20;
+Illā mar raḥima rabbuk(a), wa liżālika khalaqahum, wa tammat kalimatu rabbika la'amla'anna jahannama minal-jinnati wan-nāsi ajma‘īn(a).
 
 ## 11:120
 
-Wa kullan naquṣṣu ‘alaika min ambā'ir-rusuli mā nuṡabbitu bihī fu'ādaka wa jā'aka fī hāżihil-ḥaqqu wa mau‘iẓatuw wa żikrā lil-mu'minīn(a).&#x20;
+Wa kullan naquṣṣu ‘alaika min ambā'ir-rusuli mā nuṡabbitu bihī fu'ādaka wa jā'aka fī hāżihil-ḥaqqu wa mau‘iẓatuw wa żikrā lil-mu'minīn(a).
 
 ## 11:121
 
-Wa qul lil-lażīna lā yu'minūna‘malū ‘alā makānatikum, innā ‘āmilūn(a).&#x20;
+Wa qul lil-lażīna lā yu'minūna‘malū ‘alā makānatikum, innā ‘āmilūn(a).
 
 ## 11:122
 
-Wantaẓirū innā muntaẓirūn(a).&#x20;
+Wantaẓirū innā muntaẓirūn(a).
 
 ## 11:123
 
-Wa lillāhi gaibus-samāwāti wal-arḍi wa ilaihi yurja‘ul-amru kulluhū fa‘budhu wa tawakkal ‘alaih(i), wa mā rabbuka bigāfilin ‘ammā ta‘malūn(a).&#x20;
+Wa lillāhi gaibus-samāwāti wal-arḍi wa ilaihi yurja‘ul-amru kulluhū fa‘budhu wa tawakkal ‘alaih(i), wa mā rabbuka bigāfilin ‘ammā ta‘malūn(a).
 
 ## 12:1
 
-Alif lām rā, tilka āyātul-kitābil-mubīn(i).&#x20;
+Alif lām rā, tilka āyātul-kitābil-mubīn(i).
 
 ## 12:2
 
-Innā anzalnāhu qur'ānan ‘arabiyyal la‘allakum ta‘qilūn(a).&#x20;
+Innā anzalnāhu qur'ānan ‘arabiyyal la‘allakum ta‘qilūn(a).
 
 ## 12:3
 
-Naḥnu naquṣṣu ‘alaika aḥsanal-qaṣaṣi bimā auḥainā ilaika hāżal-qur'ān(a), wa in kunta min qablihī laminal-gāfilīn(a).&#x20;
+Naḥnu naquṣṣu ‘alaika aḥsanal-qaṣaṣi bimā auḥainā ilaika hāżal-qur'ān(a), wa in kunta min qablihī laminal-gāfilīn(a).
 
 ## 12:4
 
-Iż qāla yūsufu li'abīhi yā abati innī ra'aitu aḥada ‘asyara kaukabaw wasy-syamsa wal-qamara ra'aituhum lī sājidīn(a).&#x20;
+Iż qāla yūsufu li'abīhi yā abati innī ra'aitu aḥada ‘asyara kaukabaw wasy-syamsa wal-qamara ra'aituhum lī sājidīn(a).
 
 ## 12:5
 
-Qāla yā bunayya lā taqṣuṣ ru'yāka ‘alā ikhwatika fa yakīdū laka kaidā(n), innasy-syaiṭāna lil-insāni ‘aduwwum mubīn(un).&#x20;
+Qāla yā bunayya lā taqṣuṣ ru'yāka ‘alā ikhwatika fa yakīdū laka kaidā(n), innasy-syaiṭāna lil-insāni ‘aduwwum mubīn(un).
 
 ## 12:6
 
-Wa każālika yajtabīka rabbuka wa yu‘allimuka min ta'wīlil-aḥādīṡi wa yutimmu ni‘matahū ‘alaika wa ‘alā āli ya‘qūba kamā atammahā ‘alā abawaika min qablu ibrāhīma wa isḥāq(a), inna rabbaka ‘alīmun ḥakīm(un).&#x20;
+Wa każālika yajtabīka rabbuka wa yu‘allimuka min ta'wīlil-aḥādīṡi wa yutimmu ni‘matahū ‘alaika wa ‘alā āli ya‘qūba kamā atammahā ‘alā abawaika min qablu ibrāhīma wa isḥāq(a), inna rabbaka ‘alīmun ḥakīm(un).
 
 ## 12:7
 
-Laqad kāna fī yūsufa wa ikhwatihī āyātul lis-sā'ilīn(a).&#x20;
+Laqad kāna fī yūsufa wa ikhwatihī āyātul lis-sā'ilīn(a).
 
 ## 12:8
 
-Iż qālū layūsufu wa akhūhu aḥabbu ilā abīnā minnā wa naḥnu ‘uṣbah(tun), inna abānā lafī ḍalālim mubīn(in).&#x20;
+Iż qālū layūsufu wa akhūhu aḥabbu ilā abīnā minnā wa naḥnu ‘uṣbah(tun), inna abānā lafī ḍalālim mubīn(in).
 
 ## 12:9
 
-Uqtulū yūsufa awiṭraḥūhu arḍay yakhlu lakum wajhu abīkum wa takūnū mim ba‘dihī qauman  ṣāliḥīn(a).&#x20;
+Uqtulū yūsufa awiṭraḥūhu arḍay yakhlu lakum wajhu abīkum wa takūnū mim ba‘dihī qauman  ṣāliḥīn(a).
 
 ## 12:10
 
-Qāla qā'ilum minhum lā taqtulū yūsufa wa alqūhu fī gayābatil-jubbi yaltaqiṭhu ba‘ḍus-sayyārati in kuntum fā‘ilīn(a).&#x20;
+Qāla qā'ilum minhum lā taqtulū yūsufa wa alqūhu fī gayābatil-jubbi yaltaqiṭhu ba‘ḍus-sayyārati in kuntum fā‘ilīn(a).
 
 ## 12:11
 
-Qālū yā abānā mā laka lā ta'mannā ‘alā yūsufa wa innā lahū lanāṣiḥūn(a).&#x20;
+Qālū yā abānā mā laka lā ta'mannā ‘alā yūsufa wa innā lahū lanāṣiḥūn(a).
 
 ## 12:12
 
-Arsilhu ma‘anā gaday yarta‘ wa yal‘ab wa innā lahū laḥāfiẓūn(a).&#x20;
+Arsilhu ma‘anā gaday yarta‘ wa yal‘ab wa innā lahū laḥāfiẓūn(a).
 
 ## 12:13
 
-Qāla innī layaḥzununī an tażhabū bihī wa akhāfu ay ya'kulahuż-żi'bu wa antum ‘anhu gāfilūn(a).&#x20;
+Qāla innī layaḥzununī an tażhabū bihī wa akhāfu ay ya'kulahuż-żi'bu wa antum ‘anhu gāfilūn(a).
 
 ## 12:14
 
-Qālū la'in akalahuż-żi'bu wa naḥnu ‘uṣbatun innā iżal lakhāsirūn(a).&#x20;
+Qālū la'in akalahuż-żi'bu wa naḥnu ‘uṣbatun innā iżal lakhāsirūn(a).
 
 ## 12:15
 
-Falammā żahabū bihī wa ajma‘ū ay yaj‘alūhu fī gayābatil-jubb(i), wa auḥainā ilaihi latunabbi'annahum bi'amrihim hāżā wa hum lā yasy‘urūn(a).&#x20;
+Falammā żahabū bihī wa ajma‘ū ay yaj‘alūhu fī gayābatil-jubb(i), wa auḥainā ilaihi latunabbi'annahum bi'amrihim hāżā wa hum lā yasy‘urūn(a).
 
 ## 12:16
 
-Wa jā'ū abāhum ‘isyā'ay yabkūn(a).&#x20;
+Wa jā'ū abāhum ‘isyā'ay yabkūn(a).
 
 ## 12:17
 
-Qālū yā abānā innā żahabnā nastabiqu wa taraknā yūsufa ‘inda matā‘inā fa akalahuż-żi'b(u), wa mā anta bimu'minil lanā wa lau kunnā ṣādiqīn(a).&#x20;
+Qālū yā abānā innā żahabnā nastabiqu wa taraknā yūsufa ‘inda matā‘inā fa akalahuż-żi'b(u), wa mā anta bimu'minil lanā wa lau kunnā ṣādiqīn(a).
 
 ## 12:18
 
-Wa jā'ū ‘alā qamīṣihī bidamin każib(in), qāla bal sawwalat lakum anfusukum amrā(n), fa ṣabrun jamīl(un), wallāhul musta‘ānu ‘alā mā taṣifūn(a).&#x20;
+Wa jā'ū ‘alā qamīṣihī bidamin każib(in), qāla bal sawwalat lakum anfusukum amrā(n), fa ṣabrun jamīl(un), wallāhul musta‘ānu ‘alā mā taṣifūn(a).
 
 ## 12:19
 
-Wa jā'at sayyāratun fa arsalū wāridahum fa adlā dalwah(ū), qāla yā busyrā hāżā gulām(un), wa asarrūhu biḍā‘ah(tan), wallāhu ‘alīmum bimā ya‘malūn(a).&#x20;
+Wa jā'at sayyāratun fa arsalū wāridahum fa adlā dalwah(ū), qāla yā busyrā hāżā gulām(un), wa asarrūhu biḍā‘ah(tan), wallāhu ‘alīmum bimā ya‘malūn(a).
 
 ## 12:20
 
-Wa syarauhu biṡamanim bakhsin darāhima ma‘dūdah(tin), wa kānū fīhi minaz-zāhidīn(a).&#x20;
+Wa syarauhu biṡamanim bakhsin darāhima ma‘dūdah(tin), wa kānū fīhi minaz-zāhidīn(a).
 
 ## 12:21
 
-Wa qālal-lażisytarāhu mim miṣra limra'atihī akrimī maṡwāhu ‘asā ay yanfa‘anā au nattakhiżahū waladā(n), wa każālika makkannā liyūsufa fil-arḍ(i), wa linu‘allimahū min ta'wīlil-aḥādīṡ(i), wallāhu gālibun ‘alā amrihī wa lākinna akṡaran-nāsi lā ya‘lamūn(a).&#x20;
+Wa qālal-lażisytarāhu mim miṣra limra'atihī akrimī maṡwāhu ‘asā ay yanfa‘anā au nattakhiżahū waladā(n), wa każālika makkannā liyūsufa fil-arḍ(i), wa linu‘allimahū min ta'wīlil-aḥādīṡ(i), wallāhu gālibun ‘alā amrihī wa lākinna akṡaran-nāsi lā ya‘lamūn(a).
 
 ## 12:22
 
-Wa lammā balaga asyuddahū ātaināhu ḥukmaw wa ‘ilmā(n), wa każālika najzil-muḥsinīn(a).&#x20;
+Wa lammā balaga asyuddahū ātaināhu ḥukmaw wa ‘ilmā(n), wa każālika najzil-muḥsinīn(a).
 
 ## 12:23
 
-Wa rāwadathul-latī huwa fī baitihā ‘an nafsihī wa gallaqatil-abwāba wa qālat haita lak(a), qāla ma‘āżallāhi innahū rabbī aḥsana maṡwāy(a), innahū lā yuflihuẓ-ẓālimūn(a).&#x20;
+Wa rāwadathul-latī huwa fī baitihā ‘an nafsihī wa gallaqatil-abwāba wa qālat haita lak(a), qāla ma‘āżallāhi innahū rabbī aḥsana maṡwāy(a), innahū lā yuflihuẓ-ẓālimūn(a).
 
 ## 12:24
 
-Wa laqad hammat bihī wa hamma bihā lau lā ar ra'ā burhāna rabbih(ī), każālika linaṣrifa ‘anhus-sū'a wal-faḥsyā'(a), innahū min ‘ibādinal-mukhlaṣīn(a).&#x20;
+Wa laqad hammat bihī wa hamma bihā lau lā ar ra'ā burhāna rabbih(ī), każālika linaṣrifa ‘anhus-sū'a wal-faḥsyā'(a), innahū min ‘ibādinal-mukhlaṣīn(a).
 
 ## 12:25
 
-Wastabaqal-bāba wa qaddat qamīṣahū min duburiw wa alfayā sayyidahā ladal-bāb(i), qālat mā jazā'u man arāda bi'ahlika sū'an illā ay yusjana au ‘ażābun alīm(un).&#x20;
+Wastabaqal-bāba wa qaddat qamīṣahū min duburiw wa alfayā sayyidahā ladal-bāb(i), qālat mā jazā'u man arāda bi'ahlika sū'an illā ay yusjana au ‘ażābun alīm(un).
 
 ## 12:26
 
-Qāla hiya rāwadatnī ‘an nafsī wa syahida syāhidum min ahlihā, in kāna qamīṣuhū qudda min qubulin fa ṣadaqat wa huwa minal-kāżibīn(a).&#x20;
+Qāla hiya rāwadatnī ‘an nafsī wa syahida syāhidum min ahlihā, in kāna qamīṣuhū qudda min qubulin fa ṣadaqat wa huwa minal-kāżibīn(a).
 
 ## 12:27
 
-Wa in kāna qamīṣuhū qudda min duburin fa każabat wa huwa minaṣ-ṣādiqīn(a).&#x20;
+Wa in kāna qamīṣuhū qudda min duburin fa każabat wa huwa minaṣ-ṣādiqīn(a).
 
 ## 12:28
 
-Falammā ra'ā qamīṣahū qudda min duburin qāla innahū min kaidikunn(a), inna kaidakunna ‘aẓīm(un).&#x20;
+Falammā ra'ā qamīṣahū qudda min duburin qāla innahū min kaidikunn(a), inna kaidakunna ‘aẓīm(un).
 
 ## 12:29
 
-Yūsufu a‘riḍ ‘an hāżā wastagfirī liżambik(i), innaki kunti  minal-khāṭi'īn(a).&#x20;
+Yūsufu a‘riḍ ‘an hāżā wastagfirī liżambik(i), innaki kunti  minal-khāṭi'īn(a).
 
 ## 12:30
 
-Wa qāla niswatun fil-madīnatimra'atul-‘azīzi turāwidu fatāhā ‘an nafsih(ī), qad syagafahā ḥubbā(n), innā lanarāhā fī ḍalālim mubīn(in).&#x20;
+Wa qāla niswatun fil-madīnatimra'atul-‘azīzi turāwidu fatāhā ‘an nafsih(ī), qad syagafahā ḥubbā(n), innā lanarāhā fī ḍalālim mubīn(in).
 
 ## 12:31
 
-Falammā sami‘at bimakrihinna arsalat ilaihinna wa a‘tadat lahunna muttaka'aw wa ātat kulla wāḥidim minhunna sikkīnaw wa qālatikhruj ‘alaihinn(a), falammā ra'ainahū akbarnahū wa qaṭṭa‘na aidiyahunn(a), wa qulna ḥāsya lillāhi mā hāżā illā basyarā(n), in hāżā illā malakun karīm(un).&#x20;
+Falammā sami‘at bimakrihinna arsalat ilaihinna wa a‘tadat lahunna muttaka'aw wa ātat kulla wāḥidim minhunna sikkīnaw wa qālatikhruj ‘alaihinn(a), falammā ra'ainahū akbarnahū wa qaṭṭa‘na aidiyahunn(a), wa qulna ḥāsya lillāhi mā hāżā illā basyarā(n), in hāżā illā malakun karīm(un).
 
 ## 12:32
 
-Qālat fa żālikunnal-lażī lumtunnanī fīh(i), wa laqad rāwattuhū ‘an nafsihī fasta‘ṣam(a), wa la'il lam yaf‘al mā āmuruhū layusjananna wa layakūnam minaṣ-ṣāgirīn(a).&#x20;
+Qālat fa żālikunnal-lażī lumtunnanī fīh(i), wa laqad rāwattuhū ‘an nafsihī fasta‘ṣam(a), wa la'il lam yaf‘al mā āmuruhū layusjananna wa layakūnam minaṣ-ṣāgirīn(a).
 
 ## 12:33
 
-Qāla rabbis-sijnu aḥabbu ilayya mimmā yad‘ūnanī ilaih(i), wa illā taṣrif ‘annī kaidahunna aṣbu ilaihinna wa akum minal-jāhilīn(a).&#x20;
+Qāla rabbis-sijnu aḥabbu ilayya mimmā yad‘ūnanī ilaih(i), wa illā taṣrif ‘annī kaidahunna aṣbu ilaihinna wa akum minal-jāhilīn(a).
 
 ## 12:34
 
-Fastajāba lahū rabbuhū fa ṣarafa ‘anhu kaidahunn(a), innahū huwas-samī‘ul-‘alīm(u).&#x20;
+Fastajāba lahū rabbuhū fa ṣarafa ‘anhu kaidahunn(a), innahū huwas-samī‘ul-‘alīm(u).
 
 ## 12:35
 
-Ṡumma badā lahum mim ba‘di mā ra'awul-āyāti layasjununnahū ḥattā ḥīn(in).&#x20;
+Ṡumma badā lahum mim ba‘di mā ra'awul-āyāti layasjununnahū ḥattā ḥīn(in).
 
 ## 12:36
 
-Wa dakhala ma‘ahus-sijna fatayān(i), qāla aḥaduhumā innī arānī a‘ṣiru khamrā(n), wa qālal-ākharu innī arānī aḥmilu fauqa ra'sī khubzan ta'kuluṭ-ṭairu minh(u), nabbi'nā bita'wīlih(ī), innā narāka minal-muḥsinīn(a).&#x20;
+Wa dakhala ma‘ahus-sijna fatayān(i), qāla aḥaduhumā innī arānī a‘ṣiru khamrā(n), wa qālal-ākharu innī arānī aḥmilu fauqa ra'sī khubzan ta'kuluṭ-ṭairu minh(u), nabbi'nā bita'wīlih(ī), innā narāka minal-muḥsinīn(a).
 
 ## 12:37
 
-Qāla lā ya'tīkumā ṭa‘āmun turzaqānihī illā nabba'tukumā bita'wīlihī qabla ay ya'tiyakumā, żālikumā mimmā ‘allamanī rabbī, innī taraktu millata qaumil lā yu'minūna billāhi wa hum bil-ākhirati hum kāfirūn(a).&#x20;
+Qāla lā ya'tīkumā ṭa‘āmun turzaqānihī illā nabba'tukumā bita'wīlihī qabla ay ya'tiyakumā, żālikumā mimmā ‘allamanī rabbī, innī taraktu millata qaumil lā yu'minūna billāhi wa hum bil-ākhirati hum kāfirūn(a).
 
 ## 12:38
 
-Wattaba‘tu millata ābā'ī ibrāhīma wa isḥāqa wa ya‘qūb(a), mā kāna lanā an nusyrika  billāhi min syai'(in), żālika min faḍlillāhi ‘alainā wa ‘alan-nāsi wa lākinna akṡaran-nāsi lā yasykurūn(a).&#x20;
+Wattaba‘tu millata ābā'ī ibrāhīma wa isḥāqa wa ya‘qūb(a), mā kāna lanā an nusyrika  billāhi min syai'(in), żālika min faḍlillāhi ‘alainā wa ‘alan-nāsi wa lākinna akṡaran-nāsi lā yasykurūn(a).
 
 ## 12:39
 
-Yā ṣāḥibayis-sijni a'arbābum mutafarriqūna khairun amillāhul-wāḥidul-qahhār(u).&#x20;
+Yā ṣāḥibayis-sijni a'arbābum mutafarriqūna khairun amillāhul-wāḥidul-qahhār(u).
 
 ## 12:40
 
-Mā ta‘budūna min dūnihī illā asmā'an sammaitumūhā antum wa ābā'ukum mā anzalallāhu bihā min sulṭān(in), inil-ḥukmu illā lillāh(i), amara allā ta‘budū illā iyyāh(u), żālikad-dīnul-qayyimu wa lākinna akṡaran-nāsi lā ya‘lamūn(a).&#x20;
+Mā ta‘budūna min dūnihī illā asmā'an sammaitumūhā antum wa ābā'ukum mā anzalallāhu bihā min sulṭān(in), inil-ḥukmu illā lillāh(i), amara allā ta‘budū illā iyyāh(u), żālikad-dīnul-qayyimu wa lākinna akṡaran-nāsi lā ya‘lamūn(a).
 
 ## 12:41
 
-Yā ṣāḥibayis-sijni ammā aḥadukumā fa yasqī rabbahū khamrā(n), wa ammal-ākharu fa yuṣlabu fa ta'kuluṭ-ṭairu mir ra'sih(ī), quḍiyal-amrul-lażī fīhi tastaftiyān(i).&#x20;
+Yā ṣāḥibayis-sijni ammā aḥadukumā fa yasqī rabbahū khamrā(n), wa ammal-ākharu fa yuṣlabu fa ta'kuluṭ-ṭairu mir ra'sih(ī), quḍiyal-amrul-lażī fīhi tastaftiyān(i).
 
 ## 12:42
 
-Wa qāla lil-lażī ẓanna annahū nājim minhumażkurnī ‘inda rabbik(a), fa ansāhusy-syaiṭānu żikra rabbihī fa labiṡa fis-sijni biḍ‘a sinīn(a).&#x20;
+Wa qāla lil-lażī ẓanna annahū nājim minhumażkurnī ‘inda rabbik(a), fa ansāhusy-syaiṭānu żikra rabbihī fa labiṡa fis-sijni biḍ‘a sinīn(a).
 
 ## 12:43
 
-Wa qālal-maliku innī arā sab‘a baqarātin simāniy ya'kuluhunna sab‘un ‘ijāfuw wa sab‘a sumbulātin khuḍriw wa ukhara yābisāt(in), yā ayyuhal-mala'u aftūnī fī ru'yāya in kuntum lir-ru'yā ta‘burūn(a).&#x20;
+Wa qālal-maliku innī arā sab‘a baqarātin simāniy ya'kuluhunna sab‘un ‘ijāfuw wa sab‘a sumbulātin khuḍriw wa ukhara yābisāt(in), yā ayyuhal-mala'u aftūnī fī ru'yāya in kuntum lir-ru'yā ta‘burūn(a).
 
 ## 12:44
 
-Qālū aḍgāṡu aḥlām(in), wa mā naḥnu bita'wīlil-aḥlāmi bi‘ālimīn(a).&#x20;
+Qālū aḍgāṡu aḥlām(in), wa mā naḥnu bita'wīlil-aḥlāmi bi‘ālimīn(a).
 
 ## 12:45
 
-Wa qālal-lażī najā minhumā waddakara  ba‘da ummatin ana unabbi'ukum bita'wīlihī fa arsilūn(i).&#x20;
+Wa qālal-lażī najā minhumā waddakara  ba‘da ummatin ana unabbi'ukum bita'wīlihī fa arsilūn(i).
 
 ## 12:46
 
-Yūsufu ayyuhaṣ-ṣiddīqu aftinā fī sab‘i baqarātin simāniy ya'kuluhunna sab‘un ‘ijāfuw wa sab‘i sumbulātin khuḍriw wa ukhara yābisāt(in), la‘allī arji‘u ilan-nāsi la‘allahum ya‘lamūn(a).&#x20;
+Yūsufu ayyuhaṣ-ṣiddīqu aftinā fī sab‘i baqarātin simāniy ya'kuluhunna sab‘un ‘ijāfuw wa sab‘i sumbulātin khuḍriw wa ukhara yābisāt(in), la‘allī arji‘u ilan-nāsi la‘allahum ya‘lamūn(a).
 
 ## 12:47
 
-Qāla tazra‘ūna sab‘a sinīna da'abā(n), famā ḥaṣattum fa żarūhu fī sumbulihī illā qalīlam mimmā ta'kulūn(a).&#x20;
+Qāla tazra‘ūna sab‘a sinīna da'abā(n), famā ḥaṣattum fa żarūhu fī sumbulihī illā qalīlam mimmā ta'kulūn(a).
 
 ## 12:48
 
-Ṡumma ya'tī mim ba‘di żālika sab‘un syidāduy ya'kulna mā qaddamtum lahunna illā qalīlam mimmā tuḥṣinūn(a).&#x20;
+Ṡumma ya'tī mim ba‘di żālika sab‘un syidāduy ya'kulna mā qaddamtum lahunna illā qalīlam mimmā tuḥṣinūn(a).
 
 ## 12:49
 
-Ṡumma ya'tī mim ba‘di żālika ‘āmun fīhi yugāṡun-nāsu wa fīhi ya‘ṣirūn(a).&#x20;
+Ṡumma ya'tī mim ba‘di żālika ‘āmun fīhi yugāṡun-nāsu wa fīhi ya‘ṣirūn(a).
 
 ## 12:50
 
-Wa qālal-maliku'tūnī bih(ī), falammā jā'ahur-rasūlu qālarji‘ ilā rabbika fas'alhu mā bālun-niswatil-lātī qaṭṭa‘na aidiyahunn(a), inna rabbī bikaidihinna ‘alīm(un).&#x20;
+Wa qālal-maliku'tūnī bih(ī), falammā jā'ahur-rasūlu qālarji‘ ilā rabbika fas'alhu mā bālun-niswatil-lātī qaṭṭa‘na aidiyahunn(a), inna rabbī bikaidihinna ‘alīm(un).
 
 ## 12:51
 
-Qāla mā khaṭbukunna iż rāwattunna yūsufa ‘an nafsih(ī), qulna ḥāsya lillāhi mā ‘alimnā ‘alaihi min sū'(in), qālatimra'atul-‘azīzil-āna ḥaṣḥaṣal-ḥaqq(u), ana rāwattuhū ‘an nafsihī wa innahū laminaṣ-ṣādiqīn(a).&#x20;
+Qāla mā khaṭbukunna iż rāwattunna yūsufa ‘an nafsih(ī), qulna ḥāsya lillāhi mā ‘alimnā ‘alaihi min sū'(in), qālatimra'atul-‘azīzil-āna ḥaṣḥaṣal-ḥaqq(u), ana rāwattuhū ‘an nafsihī wa innahū laminaṣ-ṣādiqīn(a).
 
 ## 12:52
 
@@ -7031,7 +7031,7 @@ Wa iż qāla mūsā liqaumihiżkurū ni‘matallāhi ‘alaikum iż anjākum min
 
 ## 14:7
 
-Wa iż ta'ażżana rabbukum la'in syakartum la'azīdannakum wa la'in kafartum inna ‘ażābī lasyadīd(un).&#x20;
+Wa iż ta'ażżana rabbukum la'in syakartum la'azīdannakum wa la'in kafartum inna ‘ażābī lasyadīd(un).
 
 ## 14:8
 
@@ -7375,7 +7375,7 @@ Illā ‘ibādaka minhumul-mukhlaṣīn(a).
 
 ## 15:41
 
-Qāla hāżā ṣirāṭun ‘alayya mustaqīm(un). &#x20;
+Qāla hāżā ṣirāṭun ‘alayya mustaqīm(un).
 
 ## 15:42
 
@@ -8067,7 +8067,7 @@ Fa kulū mimmā razaqakumullāhu ḥalālan ṭayyibā(n), wasykurū ni‘matall
 
 ## 16:115
 
-Innamā ḥarrama ‘alaikumul-maitata wad-dama wa laḥmal-khinzīri wa mā uhilla ligairillāhi bih(ī), famaniḍṭurra gaira bāgiw wa lā ‘ādin fa innallāha gafūrur raḥīm(un).&#x20;
+Innamā ḥarrama ‘alaikumul-maitata wad-dama wa laḥmal-khinzīri wa mā uhilla ligairillāhi bih(ī), famaniḍṭurra gaira bāgiw wa lā ‘ādin fa innallāha gafūrur raḥīm(un).
 
 ## 16:116
 
@@ -8891,7 +8891,7 @@ Fa aradnā ay yubdilahumā rabbuhumā khairam minhu zakātaw wa aqraba ruḥmā(
 
 ## 18:82
 
-Wa ammal-jidāru fa kāna ligulāmaini yatīmaini fil-madīnati wa kāna taḥtahū kanzul lahumā wa kāna abūhumā ṣāliḥā(n), fa arāda rabbuka ay yablugā asyuddahumā wa yastakhrijā kanzahumā raḥmatam mir rabbik(a), wa mā fa‘altuhū ‘an amrī, żālika ta'wīlu mā lam tasṭī‘ ‘alaihi ṣabrā(n). &#x20;
+Wa ammal-jidāru fa kāna ligulāmaini yatīmaini fil-madīnati wa kāna taḥtahū kanzul lahumā wa kāna abūhumā ṣāliḥā(n), fa arāda rabbuka ay yablugā asyuddahumā wa yastakhrijā kanzahumā raḥmatam mir rabbik(a), wa mā fa‘altuhū ‘an amrī, żālika ta'wīlu mā lam tasṭī‘ ‘alaihi ṣabrā(n).
 
 ## 18:83
 
@@ -8915,15 +8915,15 @@ Qāla ammā man ẓalama fa saufa nu‘ażżibuhū ṡumma yuraddu ilā rabbihī
 
 ## 18:88
 
-Wa ammā man āmana wa ‘amila ṣāliḥan fa lahū jazā'anil-ḥusnā, wa sanaqūlu lahū min amrinā yusrā(n).&#x20;
+Wa ammā man āmana wa ‘amila ṣāliḥan fa lahū jazā'anil-ḥusnā, wa sanaqūlu lahū min amrinā yusrā(n).
 
 ## 18:89
 
-Ṡumma  atba‘a sababā(n).&#x20;
+Ṡumma  atba‘a sababā(n).
 
 ## 18:90
 
-Ḥattā iżā balaga maṭli‘asy-syamsi wajadahā taṭlu‘u ‘alā qaumil lam naj‘al lahum min dūnihā sitrā(n).&#x20;
+Ḥattā iżā balaga maṭli‘asy-syamsi wajadahā taṭlu‘u ‘alā qaumil lam naj‘al lahum min dūnihā sitrā(n).
 
 ## 18:91
 
@@ -9095,7 +9095,7 @@ Fa ḥamalathu fantabażat bihī makānan qaṣiyyā(n).
 
 ## 19:23
 
-Fa ajā'ahal-makhāḍu ilā jiz‘in nakhlah(ti), qālat yā laitanī mittu qabla hāżā wa kuntu nas-yam mansiyyā(n). &#x20;
+Fa ajā'ahal-makhāḍu ilā jiz‘in nakhlah(ti), qālat yā laitanī mittu qabla hāżā wa kuntu nas-yam mansiyyā(n).
 
 ## 19:24
 
@@ -9263,7 +9263,7 @@ Wa mā natanazzalu illā bi'amri rabbik(a), lahū mā baina aidīnā wa mā khal
 
 ## 19:65
 
-Rabbus-samāwāti wal-arḍi wa mā bainahumā fa‘budhu waṣṭabir li‘ibādatih(ī), hal ta‘lamu lahū samiyyā(n).&#x20;
+Rabbus-samāwāti wal-arḍi wa mā bainahumā fa‘budhu waṣṭabir li‘ibādatih(ī), hal ta‘lamu lahū samiyyā(n).
 
 ## 19:66
 
@@ -9359,7 +9359,7 @@ Wa qāluttakhażar-raḥmānu waladā(n).
 
 ## 19:89
 
-Laqad ji'tum syai'an iddā(n).&#x20;
+Laqad ji'tum syai'an iddā(n).
 
 ## 19:90
 
@@ -9399,7 +9399,7 @@ Wa kam ahlaknā qablahum min qarn(in), hal tuḥissu minhum min aḥadin au tasm
 
 ## 20:1
 
-Ṭāhā.&#x20;
+Ṭāhā.
 
 ## 20:2
 
@@ -9423,15 +9423,15 @@ Lahū mā fis-samāwāti wa mā fil-arḍi wa mā bainahumā wa mā taḥtaṡ-�
 
 ## 20:7
 
-Wa in tajhar bil-qauli fa innahū ya‘lamus-sirra wa akhfā.&#x20;
+Wa in tajhar bil-qauli fa innahū ya‘lamus-sirra wa akhfā.
 
 ## 20:8
 
-Allāhu lā ilāha illā huw(a), lahul-asmā'ul-ḥusnā.&#x20;
+Allāhu lā ilāha illā huw(a), lahul-asmā'ul-ḥusnā.
 
 ## 20:9
 
-Wa hal atāka ḥadīṡu mūsā.&#x20;
+Wa hal atāka ḥadīṡu mūsā.
 
 ## 20:10
 
@@ -9451,79 +9451,79 @@ Wa anakhtartuka fastami‘ limā yūḥā.
 
 ## 20:14
 
-Innanī anallāhu lā ilāha illā ana fa‘budnī, wa aqimiṣ-ṣalāta liżikrī.&#x20;
+Innanī anallāhu lā ilāha illā ana fa‘budnī, wa aqimiṣ-ṣalāta liżikrī.
 
 ## 20:15
 
-Innas-sā‘ata ātiyatun akādu ukhfīhā litujzā kullu nafsim bimā tas‘ā.&#x20;
+Innas-sā‘ata ātiyatun akādu ukhfīhā litujzā kullu nafsim bimā tas‘ā.
 
 ## 20:16
 
-Falā yaṣuddannaka ‘anhā mal lā yu'minu bihā wattaba‘a hawāhu fa tardā.&#x20;
+Falā yaṣuddannaka ‘anhā mal lā yu'minu bihā wattaba‘a hawāhu fa tardā.
 
 ## 20:17
 
-Wa mā tilka biyamīnika yā mūsā.&#x20;
+Wa mā tilka biyamīnika yā mūsā.
 
 ## 20:18
 
-Qāla hiya ‘aṣāy(a), atwakka'u ‘alaihā wa ahusysyu bihā ‘alā ganamī wa liya fīhā ma'āribu ukhrā.&#x20;
+Qāla hiya ‘aṣāy(a), atwakka'u ‘alaihā wa ahusysyu bihā ‘alā ganamī wa liya fīhā ma'āribu ukhrā.
 
 ## 20:19
 
-Qāla alqihā yā mūsā.&#x20;
+Qāla alqihā yā mūsā.
 
 ## 20:20
 
-Fa alqāhā fa iżā hiya ḥayyatun tas‘ā.&#x20;
+Fa alqāhā fa iżā hiya ḥayyatun tas‘ā.
 
 ## 20:21
 
-Qāla khużhā wa lā takhaf, sanu‘īduhā sīratahal-ūlā.&#x20;
+Qāla khużhā wa lā takhaf, sanu‘īduhā sīratahal-ūlā.
 
 ## 20:22
 
-Waḍmum yadaka ilā janāḥika takhruj baiḍā'a min gairi sū'in āyatan ukhrā.&#x20;
+Waḍmum yadaka ilā janāḥika takhruj baiḍā'a min gairi sū'in āyatan ukhrā.
 
 ## 20:23
 
-Linuriyaka min āyātinal-kubrā.&#x20;
+Linuriyaka min āyātinal-kubrā.
 
 ## 20:24
 
-Iżhab ilā fir‘auna innahū ṭagā.&#x20;
+Iżhab ilā fir‘auna innahū ṭagā.
 
 ## 20:25
 
-Qāla rabbisyraḥ lī ṣadrī.&#x20;
+Qāla rabbisyraḥ lī ṣadrī.
 
 ## 20:26
 
-Wa yassir lī amrī.&#x20;
+Wa yassir lī amrī.
 
 ## 20:27
 
-Waḥlul ‘uqdatam mil lisānī.&#x20;
+Waḥlul ‘uqdatam mil lisānī.
 
 ## 20:28
 
-Yafqahū qaulī.&#x20;
+Yafqahū qaulī.
 
 ## 20:29
 
-Waj‘al lī wazīram min ahlī.&#x20;
+Waj‘al lī wazīram min ahlī.
 
 ## 20:30
 
-Hārūna akhī.&#x20;
+Hārūna akhī.
 
 ## 20:31
 
-Usydud bihī azrī.&#x20;
+Usydud bihī azrī.
 
 ## 20:32
 
-Wa asyrik-hu fī amrī.&#x20;
+Wa asyrik-hu fī amrī.
 
 ## 20:33
 
@@ -9535,71 +9535,71 @@ Wa nażkuraka kaṡīrā(n).
 
 ## 20:35
 
-Innaka kunta binā baṣīrā(n).&#x20;
+Innaka kunta binā baṣīrā(n).
 
 ## 20:36
 
-Qāla qad ūtīta su'laka yā mūsā.&#x20;
+Qāla qad ūtīta su'laka yā mūsā.
 
 ## 20:37
 
-Wa laqad manannā ‘alaika marratan ukhrā.&#x20;
+Wa laqad manannā ‘alaika marratan ukhrā.
 
 ## 20:38
 
-Iż auḥainā ilā ummika mā yūḥā.&#x20;
+Iż auḥainā ilā ummika mā yūḥā.
 
 ## 20:39
 
-Aniqżifīhi fit-tābūti faqżifīhi fil-yammi falyulqihil-yammu bis-sāḥili ya'khużhu ‘aduwwul lī wa ‘aduwwul lah(ū), wa alqaitu ‘alaika maḥabbatam minnī, wa lituṣna‘a ‘alā ‘ainī.&#x20;
+Aniqżifīhi fit-tābūti faqżifīhi fil-yammi falyulqihil-yammu bis-sāḥili ya'khużhu ‘aduwwul lī wa ‘aduwwul lah(ū), wa alqaitu ‘alaika maḥabbatam minnī, wa lituṣna‘a ‘alā ‘ainī.
 
 ## 20:40
 
-Iż tamsyī ukhtuka fa taqūlu hal adullukum ‘alā may yakfuluh(ū), fa raja‘nāka ilā ummika kai taqarra ‘ainuhā wa lā taḥzan(a), wa qatalta nafsan fa najjaināka minal-gammi wa fatannāka futūnā(n), fa labiṡta sinīna fī ahli madyan(a), ṡumma ji'ta ‘alā qadariy yā mūsā.&#x20;
+Iż tamsyī ukhtuka fa taqūlu hal adullukum ‘alā may yakfuluh(ū), fa raja‘nāka ilā ummika kai taqarra ‘ainuhā wa lā taḥzan(a), wa qatalta nafsan fa najjaināka minal-gammi wa fatannāka futūnā(n), fa labiṡta sinīna fī ahli madyan(a), ṡumma ji'ta ‘alā qadariy yā mūsā.
 
 ## 20:41
 
-Wasṭana‘tuka linafsī.&#x20;
+Wasṭana‘tuka linafsī.
 
 ## 20:42
 
-Iżhab anta wa akhūka bi'āyātī wa lā taniyā fī żikrī.&#x20;
+Iżhab anta wa akhūka bi'āyātī wa lā taniyā fī żikrī.
 
 ## 20:43
 
-Iżhabā ilā fir‘auna innahū ṭagā.&#x20;
+Iżhabā ilā fir‘auna innahū ṭagā.
 
 ## 20:44
 
-Fa qūlā lahū qaulal layyinal la‘allahū yatażakkaru au yakhsyā.&#x20;
+Fa qūlā lahū qaulal layyinal la‘allahū yatażakkaru au yakhsyā.
 
 ## 20:45
 
-Qālā rabbanā innanā nakhāfu ay yafruṭa ‘alainā au ay yaṭgā.&#x20;
+Qālā rabbanā innanā nakhāfu ay yafruṭa ‘alainā au ay yaṭgā.
 
 ## 20:46
 
-Qāla lā takhāfā innanī ma‘akumā asma‘u wa arā.&#x20;
+Qāla lā takhāfā innanī ma‘akumā asma‘u wa arā.
 
 ## 20:47
 
-Fa'tiyāhu fa qūlā innā rasūlā rabbika fa arsil ma‘anā banī isrā'īl(a), wa lā tu‘ażżibhum, qad ji'nāka bi'āyatim mir rabbik(a), was-salāmu ‘alā manittaba‘al-hudā.&#x20;
+Fa'tiyāhu fa qūlā innā rasūlā rabbika fa arsil ma‘anā banī isrā'īl(a), wa lā tu‘ażżibhum, qad ji'nāka bi'āyatim mir rabbik(a), was-salāmu ‘alā manittaba‘al-hudā.
 
 ## 20:48
 
-Innā qad ūḥiya ilainā annal-‘ażāba ‘alā man każżaba wa tawallā.&#x20;
+Innā qad ūḥiya ilainā annal-‘ażāba ‘alā man każżaba wa tawallā.
 
 ## 20:49
 
-Qāla famar rabbukumā yā mūsā.&#x20;
+Qāla famar rabbukumā yā mūsā.
 
 ## 20:50
 
-Qāla rabbunal-lażī a‘ṭā kulla syai'in khalqahū ṡumma hadā.&#x20;
+Qāla rabbunal-lażī a‘ṭā kulla syai'in khalqahū ṡumma hadā.
 
 ## 20:51
 
-Qāla famā bālul-qurūnil-ūlā.&#x20;
+Qāla famā bālul-qurūnil-ūlā.
 
 ## 20:52
 
@@ -9611,183 +9611,183 @@ Al-lażī ja‘ala lakumul-arḍa mahdaw wa salaka lakum fīhā subulaw wa anzal
 
 ## 20:54
 
-Kulū war‘au an‘āmakum, inna fī żālika la'āyātil li'ulin-nuhā.&#x20;
+Kulū war‘au an‘āmakum, inna fī żālika la'āyātil li'ulin-nuhā.
 
 ## 20:55
 
-Minhā khalaqnākum wa fīhā nu‘īdukum wa minhā nukhrijukum tāratan ukhrā.&#x20;
+Minhā khalaqnākum wa fīhā nu‘īdukum wa minhā nukhrijukum tāratan ukhrā.
 
 ## 20:56
 
-Wa laqad araināhu āyātinā kullahā fa każżaba wa abā.&#x20;
+Wa laqad araināhu āyātinā kullahā fa każżaba wa abā.
 
 ## 20:57
 
-Qāla aji'tanā litukhrijanā min arḍinā bisiḥrika yā mūsā.&#x20;
+Qāla aji'tanā litukhrijanā min arḍinā bisiḥrika yā mūsā.
 
 ## 20:58
 
-Fa lana'tiyannaka bisiḥrim miṡlihī faj‘al bainanā wa bainaka mau‘idal lā nukhlifuhū naḥnu wa lā anta makānan suwā(n).&#x20;
+Fa lana'tiyannaka bisiḥrim miṡlihī faj‘al bainanā wa bainaka mau‘idal lā nukhlifuhū naḥnu wa lā anta makānan suwā(n).
 
 ## 20:59
 
-Qāla mau‘idukum yaumuz-zīnati wa ay yuḥsyaran-nāsu ḍuḥā(n).&#x20;
+Qāla mau‘idukum yaumuz-zīnati wa ay yuḥsyaran-nāsu ḍuḥā(n).
 
 ## 20:60
 
-Fa tawallā fir‘aunu fa jama‘a kaidahū ṡumma atā.&#x20;
+Fa tawallā fir‘aunu fa jama‘a kaidahū ṡumma atā.
 
 ## 20:61
 
-Qāla lahum mūsā wailakum lā taftarū ‘alallāhi każiban fa yusḥitakum bi‘ażab(in), wa qad khāba maniftarā.&#x20;
+Qāla lahum mūsā wailakum lā taftarū ‘alallāhi każiban fa yusḥitakum bi‘ażab(in), wa qad khāba maniftarā.
 
 ## 20:62
 
-Fa tanāza‘ū amrahum bainahum wa asarrun-najwā.&#x20;
+Fa tanāza‘ū amrahum bainahum wa asarrun-najwā.
 
 ## 20:63
 
-Qālū in hāżāni lasāḥirāni yurīdāni ay yukhrijākum min arḍikum bisiḥrihimā wa yażhabā biṭarīqatikumul-muṡlā.&#x20;
+Qālū in hāżāni lasāḥirāni yurīdāni ay yukhrijākum min arḍikum bisiḥrihimā wa yażhabā biṭarīqatikumul-muṡlā.
 
 ## 20:64
 
-Fa ajmi‘ū kaidakum ṡumma'tū ṣaffā(n), wa qad aflaḥal-yauma manista‘lā.&#x20;
+Fa ajmi‘ū kaidakum ṡumma'tū ṣaffā(n), wa qad aflaḥal-yauma manista‘lā.
 
 ## 20:65
 
-Qālū yā mūsā immā an tulqiya  wa immā an nakūna awwala man alqā.&#x20;
+Qālū yā mūsā immā an tulqiya  wa immā an nakūna awwala man alqā.
 
 ## 20:66
 
-Qāla bal alqū, fa iżā ḥibāluhum wa ‘iṣiyyuhum yukhayyalu ilaihi min siḥrihim annahā tas‘ā.&#x20;
+Qāla bal alqū, fa iżā ḥibāluhum wa ‘iṣiyyuhum yukhayyalu ilaihi min siḥrihim annahā tas‘ā.
 
 ## 20:67
 
-Fa aujasa fī nafsihī khīfatam mūsā.&#x20;
+Fa aujasa fī nafsihī khīfatam mūsā.
 
 ## 20:68
 
-Qulnā lā takhaf innaka antal-a‘lā.&#x20;
+Qulnā lā takhaf innaka antal-a‘lā.
 
 ## 20:69
 
-Wa alqi mā fī yamīnika talqaf mā ṣana‘ū, innamā ṣana‘ū kaidu sāḥir(in), wa lā yufliḥus-sāḥiru ḥaiṡu atā.&#x20;
+Wa alqi mā fī yamīnika talqaf mā ṣana‘ū, innamā ṣana‘ū kaidu sāḥir(in), wa lā yufliḥus-sāḥiru ḥaiṡu atā.
 
 ## 20:70
 
-Fa ulqiyas-saḥaratu sujjadan qālū āmannā birabbi hārūna wa mūsā.&#x20;
+Fa ulqiyas-saḥaratu sujjadan qālū āmannā birabbi hārūna wa mūsā.
 
 ## 20:71
 
-Qāla āmantum lahū qabla an āżana lakum, innahū lakabīrukumul-lażī ‘allamakumus-siḥr(a), fa la'uqaṭṭi‘anna aidiyakum wa arjulakum min khilāfiw wa la'uṣallibannakum fī jużū‘in-nakhl(i), wa lata‘lamunna ayyunā asyaddu ‘ażābaw wa abqā.&#x20;
+Qāla āmantum lahū qabla an āżana lakum, innahū lakabīrukumul-lażī ‘allamakumus-siḥr(a), fa la'uqaṭṭi‘anna aidiyakum wa arjulakum min khilāfiw wa la'uṣallibannakum fī jużū‘in-nakhl(i), wa lata‘lamunna ayyunā asyaddu ‘ażābaw wa abqā.
 
 ## 20:72
 
-Qālū lan nu'ṡiraka ‘alā mā jā'anā minal-bayyināti wal-lażī faṭaranā faqḍi mā anta qāḍ(in), innamā taqḍī hāżihil-ḥayātad-dun-yā.&#x20;
+Qālū lan nu'ṡiraka ‘alā mā jā'anā minal-bayyināti wal-lażī faṭaranā faqḍi mā anta qāḍ(in), innamā taqḍī hāżihil-ḥayātad-dun-yā.
 
 ## 20:73
 
-Innā āmannā birabbinā liyagfira lanā khaṭāyānā wa mā akrahtanā ‘alaihi minas-siḥr(i), wallāhu khairuw wa abqā.&#x20;
+Innā āmannā birabbinā liyagfira lanā khaṭāyānā wa mā akrahtanā ‘alaihi minas-siḥr(i), wallāhu khairuw wa abqā.
 
 ## 20:74
 
-Innahū may ya'ti rabbahū mujriman fa inna lahū jahannam(a), lā yamūtu fīhā wa lā yaḥyā.&#x20;
+Innahū may ya'ti rabbahū mujriman fa inna lahū jahannam(a), lā yamūtu fīhā wa lā yaḥyā.
 
 ## 20:75
 
-Wa may ya'tihī mu'minan qad ‘amilaṣ-ṣāliḥāti fa ulā'ika lahumud-darajātul-‘ulā.&#x20;
+Wa may ya'tihī mu'minan qad ‘amilaṣ-ṣāliḥāti fa ulā'ika lahumud-darajātul-‘ulā.
 
 ## 20:76
 
-Jannātu ‘adnin tajrī min taḥtihal-anhāru khālidīna fīhā, wa żālika jazā'u man tazakkā.&#x20;
+Jannātu ‘adnin tajrī min taḥtihal-anhāru khālidīna fīhā, wa żālika jazā'u man tazakkā.
 
 ## 20:77
 
-Wa laqad auḥainā ilā mūsā an asri bi‘ibādī faḍrib lahum ṭarīqan fil-baḥri yabasā(n), lā takhāfu darakaw wa lā takhsyā.&#x20;
+Wa laqad auḥainā ilā mūsā an asri bi‘ibādī faḍrib lahum ṭarīqan fil-baḥri yabasā(n), lā takhāfu darakaw wa lā takhsyā.
 
 ## 20:78
 
-Fa atba‘ahum fir‘aunu  bijunūdihī fa gasyiyahum minal-yammi mā gasyiyahum.&#x20;
+Fa atba‘ahum fir‘aunu  bijunūdihī fa gasyiyahum minal-yammi mā gasyiyahum.
 
 ## 20:79
 
-Wa aḍalla fir‘aunu qaumahū wa mā hadā.&#x20;
+Wa aḍalla fir‘aunu qaumahū wa mā hadā.
 
 ## 20:80
 
-Yā banī isrā'īla qad anjainākum min ‘aduwwikum wa wā‘adnākum jānibaṭ-ṭūril-aimana wa nazzalnā ‘alaikumul-mannā was-salwā.&#x20;
+Yā banī isrā'īla qad anjainākum min ‘aduwwikum wa wā‘adnākum jānibaṭ-ṭūril-aimana wa nazzalnā ‘alaikumul-mannā was-salwā.
 
 ## 20:81
 
-Kulū min ṭayyibāti mā razaqnākum, wa lā taṭgau fīhi fa yaḥilla ‘alaikum gaḍabī, wa may yaḥlil ‘alaihi gaḍabī faqad hawā.&#x20;
+Kulū min ṭayyibāti mā razaqnākum, wa lā taṭgau fīhi fa yaḥilla ‘alaikum gaḍabī, wa may yaḥlil ‘alaihi gaḍabī faqad hawā.
 
 ## 20:82
 
-Wa innī lagaffārul liman tāba wa āmana wa ‘amila ṣāliḥan ṡummahtadā.&#x20;
+Wa innī lagaffārul liman tāba wa āmana wa ‘amila ṣāliḥan ṡummahtadā.
 
 ## 20:83
 
-Wa mā a‘jalaka ‘an qaumika yā mūsā.&#x20;
+Wa mā a‘jalaka ‘an qaumika yā mūsā.
 
 ## 20:84
 
-Qāla hum ulā'i ‘alā aṡarī wa ‘ajiltu ilaika rabbi litarḍā.&#x20;
+Qāla hum ulā'i ‘alā aṡarī wa ‘ajiltu ilaika rabbi litarḍā.
 
 ## 20:85
 
-Qāla fa innā qad fatannā qaumaka mim ba‘dika wa aḍallahumus-sāmiriyy(u).&#x20;
+Qāla fa innā qad fatannā qaumaka mim ba‘dika wa aḍallahumus-sāmiriyy(u).
 
 ## 20:86
 
-Fa raja‘a mūsā ilā qaumihī gaḍbāna asifā(n), qāla yā qaumi alam ya‘idkum rabbukum wa‘dan ḥasanā(n), afaṭāla ‘alaikumul-‘ahdu am arattum ay yaḥilla ‘alaikum gaḍabum mir rabbikum fa akhlaftum mau‘idī.&#x20;
+Fa raja‘a mūsā ilā qaumihī gaḍbāna asifā(n), qāla yā qaumi alam ya‘idkum rabbukum wa‘dan ḥasanā(n), afaṭāla ‘alaikumul-‘ahdu am arattum ay yaḥilla ‘alaikum gaḍabum mir rabbikum fa akhlaftum mau‘idī.
 
 ## 20:87
 
-Qālū mā akhlafnā mau‘idaka bimalkinā wa lākinnā ḥummilnā auzāram min zīnatil-qaumi fa qażafnāhā fa każālika alqas-sāmiriyy(u).&#x20;
+Qālū mā akhlafnā mau‘idaka bimalkinā wa lākinnā ḥummilnā auzāram min zīnatil-qaumi fa qażafnāhā fa każālika alqas-sāmiriyy(u).
 
 ## 20:88
 
-Fa akhraja lahum ‘ijlan jasadal lahū khuwārun fa qālū hāżā ilāhukum wa ilāhu mūsā, fa nasiy(a).&#x20;
+Fa akhraja lahum ‘ijlan jasadal lahū khuwārun fa qālū hāżā ilāhukum wa ilāhu mūsā, fa nasiy(a).
 
 ## 20:89
 
-Afalā yarauna allā yarji‘u ilaihim qaulā(n), wa lā yamliku lahum ḍarraw wa lā naf‘ā(n).&#x20;
+Afalā yarauna allā yarji‘u ilaihim qaulā(n), wa lā yamliku lahum ḍarraw wa lā naf‘ā(n).
 
 ## 20:90
 
-Wa laqad qāla lahum hārūnu min qablu yā qaumi innamā futintum bih(ī), wa inna rabbakumur-raḥmānu fattabi‘ūnī wa aṭī‘ū amrī.&#x20;
+Wa laqad qāla lahum hārūnu min qablu yā qaumi innamā futintum bih(ī), wa inna rabbakumur-raḥmānu fattabi‘ūnī wa aṭī‘ū amrī.
 
 ## 20:91
 
-Qālū lan nabraḥa ‘alaihi ‘ākifīna ḥattā yarji‘a ilainā mūsā.&#x20;
+Qālū lan nabraḥa ‘alaihi ‘ākifīna ḥattā yarji‘a ilainā mūsā.
 
 ## 20:92
 
-Qāla yā hārūnu mā mana‘aka iż ra'aitahum ḍallū.&#x20;
+Qāla yā hārūnu mā mana‘aka iż ra'aitahum ḍallū.
 
 ## 20:93
 
-Allā tattabi‘an(i), afa ‘aṣaita amrī.&#x20;
+Allā tattabi‘an(i), afa ‘aṣaita amrī.
 
 ## 20:94
 
-Qāla yabna'umma lā ta'khuż biliḥyatī wa lā bira'sī, innī khasyītu an taqūla farraqta baina banī isrā'īla wa lam tarqub qaulī.&#x20;
+Qāla yabna'umma lā ta'khuż biliḥyatī wa lā bira'sī, innī khasyītu an taqūla farraqta baina banī isrā'īla wa lam tarqub qaulī.
 
 ## 20:95
 
-Qāla famā khaṭbuka yā sāmiriyy(u).&#x20;
+Qāla famā khaṭbuka yā sāmiriyy(u).
 
 ## 20:96
 
-Qāla baṣurtu bimā lam yabṣurū bihī fa qabaḍtu qabḍatam min aṡarir-rasūli fa nabażtuhā wa każālika sawwalat lī nafsī.&#x20;
+Qāla baṣurtu bimā lam yabṣurū bihī fa qabaḍtu qabḍatam min aṡarir-rasūli fa nabażtuhā wa każālika sawwalat lī nafsī.
 
 ## 20:97
 
-Qāla fażhab fa inna laka fil-ḥayāti an taqūla lā misās(a), wa inna laka mau‘idal lan tukhlafah(ū), wanẓur ilā ilāhikal-lażī ẓalta ‘alaihi ‘ākifā(n), lanuḥarriqannahū ṡumma lanansifannahū fil-yammi nasfā(n).&#x20;
+Qāla fażhab fa inna laka fil-ḥayāti an taqūla lā misās(a), wa inna laka mau‘idal lan tukhlafah(ū), wanẓur ilā ilāhikal-lażī ẓalta ‘alaihi ‘ākifā(n), lanuḥarriqannahū ṡumma lanansifannahū fil-yammi nasfā(n).
 
 ## 20:98
 
-Innamā ilāhukumullāhul-lażī lā ilāha illā huw(a), wasi‘a kulla syai'in ‘ilmā(n).&#x20;
+Innamā ilāhukumullāhul-lażī lā ilāha illā huw(a), wasi‘a kulla syai'in ‘ilmā(n).
 
 ## 20:99
 
@@ -9795,11 +9795,11 @@ Każālika naquṣṣu ‘alaika min ambā'i mā sabaq(a), wa qad ātaināka mil
 
 ## 20:100
 
-Man a‘raḍa ‘anhu fa innahū yaḥmilu yaumal-qiyāmati wizrā(n).&#x20;
+Man a‘raḍa ‘anhu fa innahū yaḥmilu yaumal-qiyāmati wizrā(n).
 
 ## 20:101
 
-Khālidīna fīh(i), wa sā'a lahum yaumal-qiyāmati ḥimlā(n).&#x20;
+Khālidīna fīh(i), wa sā'a lahum yaumal-qiyāmati ḥimlā(n).
 
 ## 20:102
 
@@ -9807,83 +9807,83 @@ Yauma yunfakhu fiṣ-ṣūri wa naḥsyurul-mujrimīna yauma'iżin zurqā(n).
 
 ## 20:103
 
-Yatakhāfatūna bainahum il labiṡtum illā ‘asyrā(n).&#x20;
+Yatakhāfatūna bainahum il labiṡtum illā ‘asyrā(n).
 
 ## 20:104
 
-Naḥnu a‘lamu bimā yaqūlūna iż yaqūlu amṡaluhum ṭarīqatan il labiṡtum illā yaumā(n).&#x20;
+Naḥnu a‘lamu bimā yaqūlūna iż yaqūlu amṡaluhum ṭarīqatan il labiṡtum illā yaumā(n).
 
 ## 20:105
 
-Wa yas'alūnaka ‘anil-jibāli fa qul yansifuhā rabbī nasfā(n).&#x20;
+Wa yas'alūnaka ‘anil-jibāli fa qul yansifuhā rabbī nasfā(n).
 
 ## 20:106
 
-Fa yażaruhā qā‘an ṣafṣafā(n).&#x20;
+Fa yażaruhā qā‘an ṣafṣafā(n).
 
 ## 20:107
 
-Lā tarā fīhā ‘iwajaw wa lā amtā(n).&#x20;
+Lā tarā fīhā ‘iwajaw wa lā amtā(n).
 
 ## 20:108
 
-Yauma'iżiy yattabi‘ūnad-dā‘iya lā ‘iwaja lah(ū), wa khasya‘atil-aṣwātu lir-raḥmāni falā tasma‘u illā hamsā(n).&#x20;
+Yauma'iżiy yattabi‘ūnad-dā‘iya lā ‘iwaja lah(ū), wa khasya‘atil-aṣwātu lir-raḥmāni falā tasma‘u illā hamsā(n).
 
 ## 20:109
 
-Yauma'iżil lā tanfa‘usy-syafā‘atu illā man ażina lahur-raḥmānu wa raḍiya lahū qaulā(n).&#x20;
+Yauma'iżil lā tanfa‘usy-syafā‘atu illā man ażina lahur-raḥmānu wa raḍiya lahū qaulā(n).
 
 ## 20:110
 
-Ya‘lamu mā baina aidīhim wa mā khalfahum wa lā yuḥīṭūna bihī ‘ilmā(n).&#x20;
+Ya‘lamu mā baina aidīhim wa mā khalfahum wa lā yuḥīṭūna bihī ‘ilmā(n).
 
 ## 20:111
 
-Wa ‘anatil-wujūhu lil-ḥayyil-qayyūm(i), wa qad khāba man ḥamala ẓulmā(n).&#x20;
+Wa ‘anatil-wujūhu lil-ḥayyil-qayyūm(i), wa qad khāba man ḥamala ẓulmā(n).
 
 ## 20:112
 
-Wa may ya‘mal minaṣ-ṣāliḥāti wa huwa mu'minun falā yakhāfu ẓulmaw wa lā haḍmā(n).&#x20;
+Wa may ya‘mal minaṣ-ṣāliḥāti wa huwa mu'minun falā yakhāfu ẓulmaw wa lā haḍmā(n).
 
 ## 20:113
 
-Wa każālika anzalnāhu qur'ānan ‘arabiyyaw wa ṣarrafnā fīhi minal-wa‘īdi la‘allahum yattaqūna au yuḥdiṡu lahum żikrā(n).&#x20;
+Wa każālika anzalnāhu qur'ānan ‘arabiyyaw wa ṣarrafnā fīhi minal-wa‘īdi la‘allahum yattaqūna au yuḥdiṡu lahum żikrā(n).
 
 ## 20:114
 
-Fa ta‘ālallāhul-malikul-ḥaqq(u), wa lā ta‘jal bil-qur'āni min qabli ay yuqḍā ilaika waḥyuh(ū), wa qur rabbi zidnī ‘ilmā(n).&#x20;
+Fa ta‘ālallāhul-malikul-ḥaqq(u), wa lā ta‘jal bil-qur'āni min qabli ay yuqḍā ilaika waḥyuh(ū), wa qur rabbi zidnī ‘ilmā(n).
 
 ## 20:115
 
-Wa laqad ‘ahidnā ilā ādama min qablu fa nasiya wa lam najid lahū ‘azmā(n).&#x20;
+Wa laqad ‘ahidnā ilā ādama min qablu fa nasiya wa lam najid lahū ‘azmā(n).
 
 ## 20:116
 
-Wa iż qulnā lil-malā'ikatisjudū li'ādama fa sajadū illā iblīsa abā.&#x20;
+Wa iż qulnā lil-malā'ikatisjudū li'ādama fa sajadū illā iblīsa abā.
 
 ## 20:117
 
-Fa qulnā yā ādamu inna hāżā ‘aduwwul laka wa lizaujika falā yukhrijannakumā minal-jannati fa tasyqā.&#x20;
+Fa qulnā yā ādamu inna hāżā ‘aduwwul laka wa lizaujika falā yukhrijannakumā minal-jannati fa tasyqā.
 
 ## 20:118
 
-Inna laka allā tajū‘a fīhā wa lā ta‘rā.&#x20;
+Inna laka allā tajū‘a fīhā wa lā ta‘rā.
 
 ## 20:119
 
-Wa annaka lā taẓma'u fīhā wa lā taḍḥā.&#x20;
+Wa annaka lā taẓma'u fīhā wa lā taḍḥā.
 
 ## 20:120
 
-Fa waswasa ilaihisy-syaiṭānu qāla yā ādamu hal adulluka ‘alā syajaratil-khuldi wa mulkil lā yablā.&#x20;
+Fa waswasa ilaihisy-syaiṭānu qāla yā ādamu hal adulluka ‘alā syajaratil-khuldi wa mulkil lā yablā.
 
 ## 20:121
 
-Fa akalā minhā fa badat lahumā sau'ātuhumā wa ṭafiqā yakhṣifāni ‘alaihimā miw waraqil-jannah(ti), wa ‘aṣā ādamu rabbahū fa gawā.&#x20;
+Fa akalā minhā fa badat lahumā sau'ātuhumā wa ṭafiqā yakhṣifāni ‘alaihimā miw waraqil-jannah(ti), wa ‘aṣā ādamu rabbahū fa gawā.
 
 ## 20:122
 
-Ṡummajtabāhu rabbuhū fa tāba ‘alaihi wa hadā.&#x20;
+Ṡummajtabāhu rabbuhū fa tāba ‘alaihi wa hadā.
 
 ## 20:123
 
@@ -9891,27 +9891,27 @@ Qālahbiṭā minhā jamī‘am ba‘ḍukum liba‘ḍin ‘aduww(un), fa immā
 
 ## 20:124
 
-Wa man a‘raḍa ‘an żikrī fa inna lahū ma‘īsyatan ḍankaw wa naḥsyuruhū yaumal-qiyāmati a‘mā.&#x20;
+Wa man a‘raḍa ‘an żikrī fa inna lahū ma‘īsyatan ḍankaw wa naḥsyuruhū yaumal-qiyāmati a‘mā.
 
 ## 20:125
 
-Qāla rabbi lima ḥasyartanī a‘mā wa qad kuntu baṣīrā(n).&#x20;
+Qāla rabbi lima ḥasyartanī a‘mā wa qad kuntu baṣīrā(n).
 
 ## 20:126
 
-Qāla każālika atatka āyātunā fa nasītahā, wa każālikal-yauma tunsā.&#x20;
+Qāla każālika atatka āyātunā fa nasītahā, wa każālikal-yauma tunsā.
 
 ## 20:127
 
-Wa każālika najzī man asrafa wa lam yu'mim bi'āyāti rabbih(ī), wa la‘ażābul-ākhirati asyaddu wa abqā.&#x20;
+Wa każālika najzī man asrafa wa lam yu'mim bi'āyāti rabbih(ī), wa la‘ażābul-ākhirati asyaddu wa abqā.
 
 ## 20:128
 
-Afalam yahdi lahum kam ahlaknā qablahum minal-qurūni yamsyūna fī masākinihim, inna fī żālika la'āyātil li'ulin nuhā.&#x20;
+Afalam yahdi lahum kam ahlaknā qablahum minal-qurūni yamsyūna fī masākinihim, inna fī żālika la'āyātil li'ulin nuhā.
 
 ## 20:129
 
-Wa lau lā kalimatun sabaqat mir rabbika lakāna lizāmaw wa ajalum musammā(n).&#x20;
+Wa lau lā kalimatun sabaqat mir rabbika lakāna lizāmaw wa ajalum musammā(n).
 
 ## 20:130
 
@@ -9919,7 +9919,7 @@ Faṣbir ‘alā mā yaqūlūna wa sabbiḥ biḥamdi rabbika qabla ṭulū‘is
 
 ## 20:131
 
-Wa lā tamuddanna ‘ainaika ilā mā matta‘nā bihī azwājam minhum zahratal-ḥayātid-dun-yā, linaftinahum fīh(i), wa rizqu rabbika khairuw wa abqā.&#x20;
+Wa lā tamuddanna ‘ainaika ilā mā matta‘nā bihī azwājam minhum zahratal-ḥayātid-dun-yā, linaftinahum fīh(i), wa rizqu rabbika khairuw wa abqā.
 
 ## 20:132
 
@@ -9927,19 +9927,19 @@ Wa'mur ahlaka biṣ-ṣalāti waṣṭabir ‘alaihā, lā nas'aluka rizqā(n), 
 
 ## 20:133
 
-Wa qālū lau lā ya'tīnā bi'āyatim mir rabbih(ī), awalam ta'tihim bayyinatu mā fiṣ-ṣuḥufil-ūlā.&#x20;
+Wa qālū lau lā ya'tīnā bi'āyatim mir rabbih(ī), awalam ta'tihim bayyinatu mā fiṣ-ṣuḥufil-ūlā.
 
 ## 20:134
 
-Wa lau annā ahlaknāhum bi‘ażābim min qablihī laqālū rabbanā lau lā arsalta ilainā rasūlan fa nattabi‘a āyātika min qabli an nażilla wa nakhzā.&#x20;
+Wa lau annā ahlaknāhum bi‘ażābim min qablihī laqālū rabbanā lau lā arsalta ilainā rasūlan fa nattabi‘a āyātika min qabli an nażilla wa nakhzā.
 
 ## 20:135
 
-Qul kullum mutarabbiṣun fa tarabbaṣū, fa sata‘lamūna man aṣḥābuṣ-ṣirāṭis-sawiyyi wa manihtadā.&#x20;
+Qul kullum mutarabbiṣun fa tarabbaṣū, fa sata‘lamūna man aṣḥābuṣ-ṣirāṭis-sawiyyi wa manihtadā.
 
 ## 21:1
 
-Iqtaraba lin-nāsi ḥisābuhum wa hum fī gaflatim mu‘riḍūn(a).&#x20;
+Iqtaraba lin-nāsi ḥisābuhum wa hum fī gaflatim mu‘riḍūn(a).
 
 ## 21:2
 
@@ -9947,19 +9947,19 @@ Mā ya'tīhim min żikrim mir rabbihim muḥdaṡin illastama‘ūhu wa hum yal�
 
 ## 21:3
 
-Lāhiyatan qulūbuhum, wa asarrun-najwal-lażīna ẓalamū, hal hāżā illā basyarum miṡlukum, afa ta'tūnas-siḥra wa antum tubṣirūn(a).&#x20;
+Lāhiyatan qulūbuhum, wa asarrun-najwal-lażīna ẓalamū, hal hāżā illā basyarum miṡlukum, afa ta'tūnas-siḥra wa antum tubṣirūn(a).
 
 ## 21:4
 
-Qāla rabbī ya‘lamul-qaula fis-samā'i wal-arḍ(i), wa huwas-samī‘ul-‘alīm(u).&#x20;
+Qāla rabbī ya‘lamul-qaula fis-samā'i wal-arḍ(i), wa huwas-samī‘ul-‘alīm(u).
 
 ## 21:5
 
-Bal qālū aḍgāṡu aḥlāmim baliftarāhu bal huwa syā‘ir(un), falya'tinā bi'āyatin kamā ursilal-awwalūn(a).&#x20;
+Bal qālū aḍgāṡu aḥlāmim baliftarāhu bal huwa syā‘ir(un), falya'tinā bi'āyatin kamā ursilal-awwalūn(a).
 
 ## 21:6
 
-Mā āmanat qablahum min qaryatin ahlaknāhā, afahum yu'minūn(a).&#x20;
+Mā āmanat qablahum min qaryatin ahlaknāhā, afahum yu'minūn(a).
 
 ## 21:7
 
@@ -9967,23 +9967,23 @@ Wa mā arsalnā qablaka illā rijālan nūḥī ilaihim fas'alū ahlaż-żikri i
 
 ## 21:8
 
-Wa mā ja‘alnāhum jasadal lā ya'kulūnaṭ-ṭa‘āma wa mā kānū khālidīn(a).&#x20;
+Wa mā ja‘alnāhum jasadal lā ya'kulūnaṭ-ṭa‘āma wa mā kānū khālidīn(a).
 
 ## 21:9
 
-Ṡumma ṣadaqnāhumul-wa‘da fa anjaināhum wa man nasyā'u wa ahlaknal-musrifīn(a).&#x20;
+Ṡumma ṣadaqnāhumul-wa‘da fa anjaināhum wa man nasyā'u wa ahlaknal-musrifīn(a).
 
 ## 21:10
 
-Laqad anzalnā ilaikum kitāban fīhi żikrukum, afalā ta‘qilūn(a).&#x20;
+Laqad anzalnā ilaikum kitāban fīhi żikrukum, afalā ta‘qilūn(a).
 
 ## 21:11
 
-Wa kam qaṣamnā min qaryatin kānat ẓālimataw wa ansya'nā ba‘dahā qauman ākharīn(a).&#x20;
+Wa kam qaṣamnā min qaryatin kānat ẓālimataw wa ansya'nā ba‘dahā qauman ākharīn(a).
 
 ## 21:12
 
-Falammā aḥassū ba'sanā iżā hum minhā yarkuḍūn(a).&#x20;
+Falammā aḥassū ba'sanā iżā hum minhā yarkuḍūn(a).
 
 ## 21:13
 
@@ -10015,7 +10015,7 @@ Wa lahū man fis-samāwāti wal-arḍ(i), wa man ‘indahū lā yastakbirūna �
 
 ## 21:20
 
-Yusabbiḥūnal-laila wan-nahāra wa lā yafturūn(a).&#x20;
+Yusabbiḥūnal-laila wan-nahāra wa lā yafturūn(a).
 
 ## 21:21
 
@@ -10023,7 +10023,7 @@ Amittakhażū ālihatam minal-arḍi  hum yunsyirūn(a).
 
 ## 21:22
 
-Lau kāna fīhimā ālihatun illallāhu lafasadatā, fa subḥānallāhi rabbil-‘arsyi ‘ammā yaṣifūn(a).&#x20;
+Lau kāna fīhimā ālihatun illallāhu lafasadatā, fa subḥānallāhi rabbil-‘arsyi ‘ammā yaṣifūn(a).
 
 ## 21:23
 
@@ -10031,7 +10031,7 @@ Lā yus'alu ‘ammā yaf‘alu wa hum yus'alūn(a).
 
 ## 21:24
 
-Amittakhażū min dūnihī ālihah(tan), qul hātū burhānakum, hāżā żikru mam ma‘iya wa żikru man qablī, bal akṡaruhum lā ya‘lamūnal-ḥaqqa fahum mu‘riḍūn(a).&#x20;
+Amittakhażū min dūnihī ālihah(tan), qul hātū burhānakum, hāżā żikru mam ma‘iya wa żikru man qablī, bal akṡaruhum lā ya‘lamūnal-ḥaqqa fahum mu‘riḍūn(a).
 
 ## 21:25
 
@@ -10567,7 +10567,7 @@ Fa ka'ayyim min qaryatin ahlaknāhā wa hiya ẓālimatun fa hiya khāwiyatun �
 
 ## 22:46
 
-Afalam yasīrū fil-arḍi fa takūna lahum qulūbuy ya‘qilūna bihā au āżānuy yasma‘ūna bihā, fa innahā lā ta‘mal-abṣāru wa lākin ta‘mal-qulūbul-latī fiṣ-ṣudūr(i).&#x20;
+Afalam yasīrū fil-arḍi fa takūna lahum qulūbuy ya‘qilūna bihā au āżānuy yasma‘ūna bihā, fa innahā lā ta‘mal-abṣāru wa lākin ta‘mal-qulūbul-latī fiṣ-ṣudūr(i).
 
 ## 22:47
 
@@ -10759,7 +10759,7 @@ Wa laqad khalaqnal-insāna min sulālatim min ṭīn(in).
 
 ## 23:16
 
-Ṡumma innakum yaumal-qiyāmati tub‘aṡūn(a).&#x20;
+Ṡumma innakum yaumal-qiyāmati tub‘aṡūn(a).
 
 ## 23:17
 
@@ -10767,7 +10767,7 @@ Wa laqad khalaqnā fauqakum sab‘a ṭarā'iq(a), wa mā kunnā ‘anil-khalqi 
 
 ## 23:18
 
-Wa anzalnā minas-samā'i mā'am biqadarin fa askannāhu fil-arḍ(i), wa innā ‘alā żahābim bihī laqādirūn(a).&#x20;
+Wa anzalnā minas-samā'i mā'am biqadarin fa askannāhu fil-arḍ(i), wa innā ‘alā żahābim bihī laqādirūn(a).
 
 ## 23:19
 
@@ -10899,7 +10899,7 @@ Wa ja‘alnabna maryama wa ummahū āyataw wa āwaināhumā ilā rabwatin żāti
 
 ## 23:51
 
-Yā ayyuhar-rusulu kulū minaṭ-ṭayyibāti wa‘malū ṣāliḥā(n), innī bimā ta‘malūna ‘alīm(un).&#x20;
+Yā ayyuhar-rusulu kulū minaṭ-ṭayyibāti wa‘malū ṣāliḥā(n), innī bimā ta‘malūna ‘alīm(un).
 
 ## 23:52
 
@@ -10951,7 +10951,7 @@ Bal qulūbuhum fī gamratim min hāżā wa lahum a‘mālum min dūni żālika h
 
 ## 23:64
 
-Ḥattā iżā akhażnā mutrafīhim bil-‘ażābi iżā hum yaj'arūn(a). &#x20;
+Ḥattā iżā akhażnā mutrafīhim bil-‘ażābi iżā hum yaj'arūn(a).
 
 ## 23:65
 
@@ -11211,7 +11211,7 @@ Wa lau lā faḍlullāhi ‘alaikum wa raḥmatuhū wa annallāha tawwābun ḥa
 
 ## 24:11
 
-Innal-lażīna jā'ū bil-ifki ‘uṣbatum minkum, lā taḥsabūhu syarral lakum, bal huwa khairul lakum, likullimri'im minhum maktasaba minal-iṡm(i), wal-lażī tawallā kibrahū minhum lahū ‘ażābun ‘aẓīm(un).&#x20;
+Innal-lażīna jā'ū bil-ifki ‘uṣbatum minkum, lā taḥsabūhu syarral lakum, bal huwa khairul lakum, likullimri'im minhum maktasaba minal-iṡm(i), wal-lażī tawallā kibrahū minhum lahū ‘ażābun ‘aẓīm(un).
 
 ## 24:12
 
@@ -11303,7 +11303,7 @@ Walyasta‘fifil-lażīna lā yajidūna nikāḥan ḥattā yugniyahumullāhu mi
 
 ## 24:34
 
-Wa laqad anzalnā ilaikum āyātim mubayyinātiw wa maṡalam minal-lażīna khalau min qablikum wa mau‘iẓatal lil-muttaqīn(a).&#x20;
+Wa laqad anzalnā ilaikum āyātim mubayyinātiw wa maṡalam minal-lażīna khalau min qablikum wa mau‘iẓatal lil-muttaqīn(a).
 
 ## 24:35
 
@@ -11343,7 +11343,7 @@ Alam tara annallāha yuzjī saḥāban ṡumma yu'allifu bainahū ṡumma yaj‘
 
 ## 24:44
 
-Yuqallibullāhul-laila wan-nahār(a), inna fī żālika la‘ibratal li'ulil-abṣār(i).&#x20;
+Yuqallibullāhul-laila wan-nahār(a), inna fī żālika la‘ibratal li'ulil-abṣār(i).
 
 ## 24:45
 
@@ -11363,7 +11363,7 @@ Wa iżā du‘ū ilallāhi wa rasūlihī liyaḥkuma bainahum iżā farīqum min
 
 ## 24:49
 
-Wa iy yakul lahumul-ḥaqqu ya'tū ilaihi muż‘inīn(a).&#x20;
+Wa iy yakul lahumul-ḥaqqu ya'tū ilaihi muż‘inīn(a).
 
 ## 24:50
 
@@ -11639,7 +11639,7 @@ Wa huwal-lażī marajal-baḥraini hāżā ‘ażbun furātuw wa hāżā milḥu
 
 ## 25:54
 
-Wa huwal-lażī khalaqa minal-mā'i basyaran fa ja‘alahū nasabaw wa ṣihrā(n), wa kāna rabbuka qadīrā(n).&#x20;
+Wa huwal-lażī khalaqa minal-mā'i basyaran fa ja‘alahū nasabaw wa ṣihrā(n), wa kāna rabbuka qadīrā(n).
 
 ## 25:55
 
@@ -12175,7 +12175,7 @@ Fattaqullāha wa aṭī‘ūn(i).
 
 ## 26:111
 
-Qālū anu'minu laka wattaba‘akal-arżalūn(a).&#x20;
+Qālū anu'minu laka wattaba‘akal-arżalūn(a).
 
 ## 26:112
 
@@ -12235,7 +12235,7 @@ Innī lakum rasūlun amīn(un).
 
 ## 26:126
 
-Fattaqullāha wa aṭī‘ūn(i).&#x20;
+Fattaqullāha wa aṭī‘ūn(i).
 
 ## 26:127
 
@@ -12723,7 +12723,7 @@ Wa tafaqqadaṭ-ṭaira fa qāla mā liya lā aral-hudhud(a), am kāna minal-gā
 
 ## 27:21
 
-La'u‘ażżibannahū ‘ażāban syadīdan au la'ażbaḥannahū au laya'tiyannī bisulṭānim mubīn(in). &#x20;
+La'u‘ażżibannahū ‘ażāban syadīdan au la'ażbaḥannahū au laya'tiyannī bisulṭānim mubīn(in).
 
 ## 27:22
 
@@ -12763,7 +12763,7 @@ Innahū min sulaimāna wa innahū bismillāhir-raḥmānir-raḥīm(i).
 
 ## 27:31
 
-Allā ta‘lū ‘alayya wa'tūnī muslimīn(a).&#x20;
+Allā ta‘lū ‘alayya wa'tūnī muslimīn(a).
 
 ## 27:32
 
@@ -12775,7 +12775,7 @@ Qālū naḥnu ulū quwwatiw wa ulū ba'sin syadīd(in), wal-amru ilaiki fanẓu
 
 ## 27:34
 
-Qālat innal-mulūka iżā dakhalū qaryatan afsadūhā wa ja‘alū a‘izzata ahlihā ażillah(tan), wa każālika yaf‘alūn(a).&#x20;
+Qālat innal-mulūka iżā dakhalū qaryatan afsadūhā wa ja‘alū a‘izzata ahlihā ażillah(tan), wa każālika yaf‘alūn(a).
 
 ## 27:35
 
@@ -12895,7 +12895,7 @@ Am may yahdīkum fī ẓulumātil-barri wal-baḥri wa may yursilur-riyāḥa bu
 
 ## 27:64
 
-Am may yabda'ul-khalqa ṡumma yu‘īduhū wa may yarzuqukum minas-samā'i wal-arḍ(i), a'ilāhum ma‘allāh(i), qul hātū burhānakum in kuntum ṣādiqīn(a). &#x20;
+Am may yabda'ul-khalqa ṡumma yu‘īduhū wa may yarzuqukum minas-samā'i wal-arḍ(i), a'ilāhum ma‘allāh(i), qul hātū burhānakum in kuntum ṣādiqīn(a).
 
 ## 27:65
 
@@ -12987,7 +12987,7 @@ Alam yarau annā ja‘alnal-laila liyaskunū fīhi wan-nahāra mubṣirā(n), in
 
 ## 27:87
 
-Wa yauma yunfakhu fiṣ-ṣūri fa fazi‘a man fis-samāwāti wa man fil-arḍi illā man syā'allāh(u), wa kullun atauhu dākhirīn(a).   &#x20;
+Wa yauma yunfakhu fiṣ-ṣūri fa fazi‘a man fis-samāwāti wa man fil-arḍi illā man syā'allāh(u), wa kullun atauhu dākhirīn(a).
 
 ## 27:88
 
@@ -13107,7 +13107,7 @@ Wa lammā warada mā'a madyana wajada ‘alaihi ummatam minan-nāsi yasqūn(a), 
 
 ## 28:24
 
-Fasaqā lahumā ṡumma tawallā ilaẓ-ẓilli faqāla rabbi innī limā anzalta ilayya min khairin faqīr(un).   &#x20;
+Fasaqā lahumā ṡumma tawallā ilaẓ-ẓilli faqāla rabbi innī limā anzalta ilayya min khairin faqīr(un).
 
 ## 28:25
 
@@ -13115,7 +13115,7 @@ Fajā'athu iḥdāhumā tamsyī ‘alastiḥyā'(in), qālat inna abī yad‘ūk
 
 ## 28:26
 
-Qālat iḥdāhumā yā abatista'jirh(u), inna khaira manista'jartal-qawiyyul-amīn(u).      &#x20;
+Qālat iḥdāhumā yā abatista'jirh(u), inna khaira manista'jartal-qawiyyul-amīn(u).
 
 ## 28:27
 
@@ -13155,7 +13155,7 @@ Qāla sanasyuddu ‘aḍudaka bi'akhīka wa naj‘alu lakumā sulṭānan falā 
 
 ## 28:36
 
-Falammā jā'ahum mūsā bi'āyātinā bayyinātin qālū mā hāżā illā siḥrum muftarā(n), wa mā sami‘nā bihāżā fī ābā'inal-awwalīn(a).&#x20;
+Falammā jā'ahum mūsā bi'āyātinā bayyinātin qālū mā hāżā illā siḥrum muftarā(n), wa mā sami‘nā bihāżā fī ābā'inal-awwalīn(a).
 
 ## 28:37
 
@@ -13187,7 +13187,7 @@ Wa laqad ātainā mūsal-kitāba mim ba‘di mā ahlaknal-qurūnal ūlā baṣā
 
 ## 28:44
 
-Wa mā kunta bijānibil-garbiyyi iż qaḍainā ilā mūsal-amra wa mā kunta minasy-syāhidīn(a). &#x20;
+Wa mā kunta bijānibil-garbiyyi iż qaḍainā ilā mūsal-amra wa mā kunta minasy-syāhidīn(a).
 
 ## 28:45
 
@@ -13315,7 +13315,7 @@ Wa naza‘nā min kulli ummatin syahīdan faqulnā hātū burhānakum fa‘alim�
 
 ## 28:76
 
-Inna qārūna kāna min qaumi mūsā fabagā ‘alaihim, wa ātaināhu minal-kunūzi  mā inna mafātiḥahū latanū'u bil-‘uṣbati ulil-quwwah(ti), iż qāla lahū qaumuhū lā tafraḥ, innallāha lā yuḥibbul-fariḥīn(a).&#x20;
+Inna qārūna kāna min qaumi mūsā fabagā ‘alaihim, wa ātaināhu minal-kunūzi  mā inna mafātiḥahū latanū'u bil-‘uṣbati ulil-quwwah(ti), iż qāla lahū qaumuhū lā tafraḥ, innallāha lā yuḥibbul-fariḥīn(a).
 
 ## 28:77
 
@@ -13359,7 +13359,7 @@ Wa mā kunta tarjū ay yulqā ilaikal-kitābu illā raḥmatam mir rabbika falā
 
 ## 28:87
 
-Wa lā yaṣuddunnaka ‘an āyātillāhi ba‘da iż unzilat ilaika wad‘u ilā rabbika wa lā takūnanna minal-musyrikīn(a). &#x20;
+Wa lā yaṣuddunnaka ‘an āyātillāhi ba‘da iż unzilat ilaika wad‘u ilā rabbika wa lā takūnanna minal-musyrikīn(a).
 
 ## 28:88
 
@@ -13439,7 +13439,7 @@ Wa in tukażżibū faqad każżaba umamum min qablikum, wa mā ‘alar-rasūli i
 
 ## 29:19
 
-Awalam yarau kaifa yubdi'ullāhul-khalqa ṡumma yu‘īduh(ū), inna żālika ‘alallāhi yasīr(un).&#x20;
+Awalam yarau kaifa yubdi'ullāhul-khalqa ṡumma yu‘īduh(ū), inna żālika ‘alallāhi yasīr(un).
 
 ## 29:20
 
@@ -13451,7 +13451,7 @@ Yu‘ażżibu may yasyā'u wa yarḥamu may yasyā'(u), wa ilaihi tuqlabūn(a).
 
 ## 29:22
 
-Wa mā antum bimu‘jizīna fil-arḍi wa lā fis-samā'(i), wa mā lakum min dūnillāhi miw waliyyiw wa lā naṣīr(in).&#x20;
+Wa mā antum bimu‘jizīna fil-arḍi wa lā fis-samā'(i), wa mā lakum min dūnillāhi miw waliyyiw wa lā naṣīr(in).
 
 ## 29:23
 
@@ -13483,7 +13483,7 @@ A'innakum lata'tūnar-rijāla wa taqṭa‘ūnas-sabīl(a), wa ta'tūna fī nād
 
 ## 29:30
 
-Qāla rabbinṣurnī ‘alal-qaumil-mufsidīn(a).&#x20;
+Qāla rabbinṣurnī ‘alal-qaumil-mufsidīn(a).
 
 ## 29:31
 
@@ -13531,7 +13531,7 @@ Maṡalul-lażīnattakhażū min dūnillāhi auliyā'a kamaṡalil-‘ankabūt(i
 
 ## 29:42
 
-Innallāha ya‘lamu mā yad‘ūna min dūnihī min syai'(in), wa huwal-‘azīzul-ḥakīm(u).&#x20;
+Innallāha ya‘lamu mā yad‘ūna min dūnihī min syai'(in), wa huwal-‘azīzul-ḥakīm(u).
 
 ## 29:43
 
@@ -13627,7 +13627,7 @@ Fa'iżā rakibū fil-fulki da‘awullāha mukhliṣīna lahud-dīn(a), falammā 
 
 ## 29:66
 
-Liyakfurū bimā ātaināhum wa liyatamatta‘ū, fasaufa ya‘lamūn(a).&#x20;
+Liyakfurū bimā ātaināhum wa liyatamatta‘ū, fasaufa ya‘lamūn(a).
 
 ## 29:67
 
@@ -13679,7 +13679,7 @@ Awalam yasīrū fil-arḍi fayanẓurū kaifa kāna ‘āqibatul-lażīna min qa
 
 ## 30:10
 
-Ṡumma kāna ‘āqibatal-lażīna asā'us-sū'ā an każżabū bi'āyātillāhi wa kānū bihā yastahzi'ūn(a).&#x20;
+Ṡumma kāna ‘āqibatal-lażīna asā'us-sū'ā an każżabū bi'āyātillāhi wa kānū bihā yastahzi'ūn(a).
 
 ## 30:11
 
@@ -13727,7 +13727,7 @@ Wa min āyātihī an khalaqa lakum min anfusikum azwājal litaskunū ilaihā wa 
 
 ## 30:22
 
-Wa min āyātihī khalqus-samāwāti wal-arḍi wakhtilāfu alsinatikum wa alwānikum, inna fī żālika la'āyātil lil-‘ālimīn(a).&#x20;
+Wa min āyātihī khalqus-samāwāti wal-arḍi wakhtilāfu alsinatikum wa alwānikum, inna fī żālika la'āyātil lil-‘ālimīn(a).
 
 ## 30:23
 
@@ -13819,7 +13819,7 @@ Man kafara fa ‘alaihi kufruh(ū), wa man ‘amila ṣāliḥan fali'anfusihim 
 
 ## 30:45
 
-Liyajziyal-lażīna āmanū wa ‘amiluṣ-ṣāliḥāti min faḍlih(ī), innahū lā yuḥibbul-kāfirīn(a).&#x20;
+Liyajziyal-lażīna āmanū wa ‘amiluṣ-ṣāliḥāti min faḍlih(ī), innahū lā yuḥibbul-kāfirīn(a).
 
 ## 30:46
 
@@ -13867,7 +13867,7 @@ Wa qālal-lażīna ūtul-‘ilma wal-īmāna laqad labiṡtum fī kitābillāhi 
 
 ## 30:57
 
-Fa yauma'iżil lā yanfa‘ul-lażīna ẓalamū ma‘żiratuhum wa lā hum yusta‘tabūn(a).&#x20;
+Fa yauma'iżil lā yanfa‘ul-lażīna ẓalamū ma‘żiratuhum wa lā hum yusta‘tabūn(a).
 
 ## 30:58
 
@@ -13951,7 +13951,7 @@ Yā bunayya aqimiṣ-ṣalāta wa'mur bil-ma‘rūfi wanha ‘anil-munkari waṣ
 
 ## 31:18
 
-Wa lā tuṣa‘‘ir khaddaka lin-nāsi wa lā tamsyi fil-arḍi maraḥā(n), innallāha lā yuḥibbu kulla mukhtālin fakhūr(in).&#x20;
+Wa lā tuṣa‘‘ir khaddaka lin-nāsi wa lā tamsyi fil-arḍi maraḥā(n), innallāha lā yuḥibbu kulla mukhtālin fakhūr(in).
 
 ## 31:19
 
@@ -14079,7 +14079,7 @@ Innamā yu'minu bi'āyātinal-lażīna iżā żukkirū bihā kharrū sujjadaw wa
 
 ## 32:16
 
-Tatajāfā junūbuhum ‘anil-maḍāji‘i yad‘ūna rabbahum khaufaw wa ṭama‘ā(n), wa mimmā razaqnāhum yunfiqūn(a).&#x20;
+Tatajāfā junūbuhum ‘anil-maḍāji‘i yad‘ūna rabbahum khaufaw wa ṭama‘ā(n), wa mimmā razaqnāhum yunfiqūn(a).
 
 ## 32:17
 
@@ -14283,7 +14283,7 @@ Wa mā kāna limu'miniw wa lā mu'minatin iżā qaḍallāhu wa rasūluhū amran
 
 ## 33:37
 
-Wa iż taqūlu lil-lażī an‘amallāhu ‘alaihi wa an‘amta  ‘alaihi amsik ‘alaika zaujaka wattaqillāha wa tukhfī fī nafsika  mallāhu mubdīhi wa takhsyan-nās(a), wallāhu aḥaqqu an takhsyāh(u), falammā qaḍā zaidum minhā waṭaran zawwajnākahā likai lā yakūna ‘alal-mu'minīna ḥarajun fī azwāji ad‘iyā'ihim iżā qaḍau minhunna waṭarā(n), wa kāna amrullāhi maf‘ūlā(n).&#x20;
+Wa iż taqūlu lil-lażī an‘amallāhu ‘alaihi wa an‘amta  ‘alaihi amsik ‘alaika zaujaka wattaqillāha wa tukhfī fī nafsika  mallāhu mubdīhi wa takhsyan-nās(a), wallāhu aḥaqqu an takhsyāh(u), falammā qaḍā zaidum minhā waṭaran zawwajnākahā likai lā yakūna ‘alal-mu'minīna ḥarajun fī azwāji ad‘iyā'ihim iżā qaḍau minhunna waṭarā(n), wa kāna amrullāhi maf‘ūlā(n).
 
 ## 33:38
 
@@ -14299,7 +14299,7 @@ Mā kāna muḥammadun abā aḥadim mir rijālikum wa lākir rasūlallāhi wa k
 
 ## 33:41
 
-Yā ayyuhal-lażīna āmanużkurullāha żikran kaṡīrā(n),&#x20;
+Yā ayyuhal-lażīna āmanużkurullāha żikran kaṡīrā(n),
 
 ## 33:42
 
@@ -14475,7 +14475,7 @@ Ani‘mal sābigātiw wa qaddir fis-sardi wa‘malū ṣāliḥā(n), innī bim�
 
 ## 34:12
 
-Wa lisulaimānar-rīḥa guduwwuhā syahruw wa rawāḥuhā syahr(un), wa asalnā lahū ‘ainal-qiṭr(i), wa minal-jinni may ya‘malu baina yadaihi bi'iżni rabbih(ī), wa may yazig minhum ‘an amrinā nużiqhu min ‘ażābis-sa‘īr(i). &#x20;
+Wa lisulaimānar-rīḥa guduwwuhā syahruw wa rawāḥuhā syahr(un), wa asalnā lahū ‘ainal-qiṭr(i), wa minal-jinni may ya‘malu baina yadaihi bi'iżni rabbih(ī), wa may yazig minhum ‘an amrinā nużiqhu min ‘ażābis-sa‘īr(i).
 
 ## 34:13
 
@@ -14607,7 +14607,7 @@ Wa mā ātaināhum min kutubiy yadrusūnahā wa mā arsalnā ilaihim qablaka min
 
 ## 34:45
 
-Wa każżabal-lażīna min qablihim, wa mā balagū mi‘syāra mā ātaināhum fakażżabū rusulī, fakaifa kāna nakīr(i).&#x20;
+Wa każżabal-lażīna min qablihim, wa mā balagū mi‘syāra mā ātaināhum fakażżabū rusulī, fakaifa kāna nakīr(i).
 
 ## 34:46
 
@@ -14671,7 +14671,7 @@ Innasy-syaiṭāna lakum ‘aduwwun fattakhiżūhu ‘aduwwā(n), innamā yad‘
 
 ## 35:7
 
-Allażīna kafarū lahum ‘ażābun syadīd(un), wal-lażīna āmanū wa ‘amiluṣ-ṣāliḥāti lahum magfiratuw wa ajrun kabīr(un). &#x20;
+Allażīna kafarū lahum ‘ażābun syadīd(un), wal-lażīna āmanū wa ‘amiluṣ-ṣāliḥāti lahum magfiratuw wa ajrun kabīr(un).
 
 ## 35:8
 
@@ -15087,7 +15087,7 @@ Al-yauma nakhtimu ‘alā afwāhihim wa tukallimunā aidīhim wa tasyhadu arjulu
 
 ## 36:66
 
-Wa lau nasyā'u laṭamasnā ‘alā a‘yunihim fastabaquṣ-ṣirāṭa fa annā yubṣirūn(a).&#x20;
+Wa lau nasyā'u laṭamasnā ‘alā a‘yunihim fastabaquṣ-ṣirāṭa fa annā yubṣirūn(a).
 
 ## 36:67
 
@@ -15987,7 +15987,7 @@ Fa gafarnā lahū żālik(a), wa inna lahū ‘indanā lazulfā wa ḥusna ma'ā
 
 ## 38:26
 
-Yā dāwūdu innā ja‘alnāka khalīfatan fil-arḍi faḥkum bainan nāsi bil-ḥaqqi wa lā tattabi‘il-hawā fa yuḍillaka ‘an sabīlillāh(i), innal-lażīna yaḍillūna ‘an sabīlillāhi lahum ‘ażābun syadīdum bimā nasū yaumal-ḥisāb(i).&#x20;
+Yā dāwūdu innā ja‘alnāka khalīfatan fil-arḍi faḥkum bainan nāsi bil-ḥaqqi wa lā tattabi‘il-hawā fa yuḍillaka ‘an sabīlillāh(i), innal-lażīna yaḍillūna ‘an sabīlillāhi lahum ‘ażābun syadīdum bimā nasū yaumal-ḥisāb(i).
 
 ## 38:27
 
@@ -16115,7 +16115,7 @@ Hāżā, falyażūqūhu ḥamīmuw wa gassāq(un).
 
 ## 38:58
 
-Wa ākharu min syaklihī azwāj(un).&#x20;
+Wa ākharu min syaklihī azwāj(un).
 
 ## 38:59
 
@@ -16151,7 +16151,7 @@ Rabbus-samāwāti wal-arḍi wa mā bainahumal-‘azīzul-gaffār(u).
 
 ## 38:67
 
-Qul huwa naba'un ‘aẓīm(un).&#x20;
+Qul huwa naba'un ‘aẓīm(un).
 
 ## 38:68
 
@@ -16547,7 +16547,7 @@ Tanzīlul-kitābi minallāhil-‘azīzil-‘alīm(i).
 
 ## 40:3
 
-Gāfiriż-żambi wa qābilit-taubi syadīdil-‘iqābi żiṭ-ṭaul(i), lā ilāha illā huw(a), ilaihil-maṣīr(u).&#x20;
+Gāfiriż-żambi wa qābilit-taubi syadīdil-‘iqābi żiṭ-ṭaul(i), lā ilāha illā huw(a), ilaihil-maṣīr(u).
 
 ## 40:4
 
@@ -16671,7 +16671,7 @@ Yauma tuwallūna mudbirīn(a), mā lakum minallāhi min ‘āṣim(in), wa may y
 
 ## 40:34
 
-Wa laqad jā'akum yūsufu min qablu bil-bayyināti famā ziltum fī syakkim mimmā jā'akum bih(ī), ḥattā iżā halaka qultum lay yab‘aṡallāhu mim ba‘dihī rasūlā(n), każālika yuḍillullāhu  man huwa musrifum murtāb(un).&#x20;
+Wa laqad jā'akum yūsufu min qablu bil-bayyināti famā ziltum fī syakkim mimmā jā'akum bih(ī), ḥattā iżā halaka qultum lay yab‘aṡallāhu mim ba‘dihī rasūlā(n), każālika yuḍillullāhu  man huwa musrifum murtāb(un).
 
 ## 40:35
 
@@ -16711,7 +16711,7 @@ Lā jarama annamā tad‘ūnanī ilaihi laisa lahū da‘watun fid-dun-yā wa l�
 
 ## 40:44
 
-Fa satażkurūna mā aqūlu lakum, wa ufawwiḍu amrī ilallāh(i), innallāha baṣīrum bil-‘ibād(i).&#x20;
+Fa satażkurūna mā aqūlu lakum, wa ufawwiḍu amrī ilallāh(i), innallāha baṣīrum bil-‘ibād(i).
 
 ## 40:45
 
@@ -16763,7 +16763,7 @@ Innal-lażīna yujādilūna fī āyātillāhi bigairi sulṭānin atāhum, in f�
 
 ## 40:57
 
-Lakhalqus-samāwāti wal-arḍi akbaru min khalqin-nāsi wa lākinna akṡaran-nāsi lā ya‘lamūn(a).&#x20;
+Lakhalqus-samāwāti wal-arḍi akbaru min khalqin-nāsi wa lākinna akṡaran-nāsi lā ya‘lamūn(a).
 
 ## 40:58
 
@@ -16863,7 +16863,7 @@ Wa yurīkum āyātih(ī), fa ayya āyātillāhi tunkirūn(a).
 
 ## 40:82
 
-Afalam yasīrū fil-arḍi fa yanẓurū kaifa kāna ‘āqibatul-lażīna min qablihim, kānū akṡara minhum wa asyadda quwwataw wa āṡāran fil-arḍi famā agnā ‘anhum mā kānū yaksibūn(a).&#x20;
+Afalam yasīrū fil-arḍi fa yanẓurū kaifa kāna ‘āqibatul-lażīna min qablihim, kānū akṡara minhum wa asyadda quwwataw wa āṡāran fil-arḍi famā agnā ‘anhum mā kānū yaksibūn(a).
 
 ## 40:83
 
@@ -17259,7 +17259,7 @@ Wa lamanintaṣara ba‘da ẓulmihī fa ulā'ika mā ‘alaihim min sabīl(in).
 
 ## 42:42
 
-Innamas-sabīlu ‘alal-lażīna yaẓlimūnan-nāsa wa yabgūna fil-arḍi bigairil-ḥaqq(i), ulā'ika lahum ‘ażābun alīm(un).&#x20;
+Innamas-sabīlu ‘alal-lażīna yaẓlimūnan-nāsa wa yabgūna fil-arḍi bigairil-ḥaqq(i), ulā'ika lahum ‘ażābun alīm(un).
 
 ## 42:43
 
@@ -17347,7 +17347,7 @@ Allażī ja‘ala lakumul-arḍa mahdaw wa ja‘ala lakum fīhā subulal la‘al
 
 ## 43:11
 
-Wal-lażī nazzala minas-samā'i mā'am biqadar(in), fa'ansyarnā bihī baldatam maitā(n), każālika tukhrajūn(a).&#x20;
+Wal-lażī nazzala minas-samā'i mā'am biqadar(in), fa'ansyarnā bihī baldatam maitā(n), każālika tukhrajūn(a).
 
 ## 43:12
 
@@ -17487,7 +17487,7 @@ Was'al man arsalnā min qablika mir rusulinā, aja‘alnā min dūnir-raḥmāni
 
 ## 43:46
 
-Wa laqad arsalnā mūsā bi'āyātinā ilā fir‘auna wa mala'ihī fa qāla innī rasūlu rabbil-‘ālamīn(a).&#x20;
+Wa laqad arsalnā mūsā bi'āyātinā ilā fir‘auna wa mala'ihī fa qāla innī rasūlu rabbil-‘ālamīn(a).
 
 ## 43:47
 
@@ -17495,7 +17495,7 @@ Falammā jā'ahum bi'āyātinā iżā hum minhā yaḍḥakūn(a).
 
 ## 43:48
 
-Wa mā nurīhim min āyatin illā hiya akbaru min ukhtihā, wa akhażnāhum bil-‘ażābi la‘allahum yarji‘ūn(a). &#x20;
+Wa mā nurīhim min āyatin illā hiya akbaru min ukhtihā, wa akhażnāhum bil-‘ażābi la‘allahum yarji‘ūn(a).
 
 ## 43:49
 
@@ -17751,7 +17751,7 @@ Fa da‘ā rabbahū anna hā'ulā'i qaumum mujrimūn(a).
 
 ## 44:23
 
-Fa asri bi‘ibādī lailan innakum muttaba‘ūn(a).&#x20;
+Fa asri bi‘ibādī lailan innakum muttaba‘ūn(a).
 
 ## 44:24
 
@@ -17971,7 +17971,7 @@ Wa ātaināhum bayyinātim minal-amr(i), fa makhtalafū illā mim ba‘di mā j�
 
 ## 45:19
 
-Innahum lay yugnū ‘anka minallāhi syai'ā(n), wa innaẓ-ẓālimīna ba‘ḍuhum auliyā'u ba‘ḍ(in), wallāhu waliyyul-muttaqīn(a).&#x20;
+Innahum lay yugnū ‘anka minallāhi syai'ā(n), wa innaẓ-ẓālimīna ba‘ḍuhum auliyā'u ba‘ḍ(in), wallāhu waliyyul-muttaqīn(a).
 
 ## 45:20
 
@@ -18115,7 +18115,7 @@ Wal-lażī qāla liwālidaihi uffil lakumā ata‘idāninī an ukhraja wa qad kh
 
 ## 46:18
 
-Ulā'ikal-lażīna ḥaqqa ‘alaihimul-qaulu fī umamin qad khalat min qablihim minal-jinni wal-ins(i), innahum kānū khāsirīn(a).&#x20;
+Ulā'ikal-lażīna ḥaqqa ‘alaihimul-qaulu fī umamin qad khalat min qablihim minal-jinni wal-ins(i), innahum kānū khāsirīn(a).
 
 ## 46:19
 
@@ -18419,7 +18419,7 @@ Wa‘adakumullāhu magānima kaṡīratan ta'khużūnahā fa‘ajjala lakum hā�
 
 ## 48:21
 
-Wa ukhrā lam taqdirū ‘alaihā qad aḥāṭallāhu bihā, wa kānallāhu ‘alā kulli syai'in qadīrā(n). &#x20;
+Wa ukhrā lam taqdirū ‘alaihā qad aḥāṭallāhu bihā, wa kānallāhu ‘alā kulli syai'in qadīrā(n).
 
 ## 48:22
 
@@ -18523,7 +18523,7 @@ Yamunnūna ‘alaika an aslamū, qul lā tamunnū ‘alayya islāmakum, balillā
 
 ## 49:18
 
-Innallāha ya‘lamu gaibas-samāwāti wal-arḍ(i), wallāhu baṣīrum bimā ta‘malūn(a).&#x20;
+Innallāha ya‘lamu gaibas-samāwāti wal-arḍ(i), wallāhu baṣīrum bimā ta‘malūn(a).
 
 ## 50:1
 
@@ -18535,7 +18535,7 @@ Bal ‘ajibū an jā'ahum munżirum minhum faqālal-kāfirūna hāżā syai'un �
 
 ## 50:3
 
-A'iżā mitnā wa kunnā turābā(n), żālika raj‘um ba‘īd(un).&#x20;
+A'iżā mitnā wa kunnā turābā(n), żālika raj‘um ba‘īd(un).
 
 ## 50:4
 
@@ -18935,7 +18935,7 @@ Mā urīdu minhum mir rizqiw wa mā urīdu ay yuṭ‘imūn(i).
 
 ## 51:58
 
-Innallāha huwar-razzāqu żul-quwwatil-matīn(u).&#x20;
+Innallāha huwar-razzāqu żul-quwwatil-matīn(u).
 
 ## 51:59
 
@@ -19647,7 +19647,7 @@ Wa aqīmul-wazna  bil-qisṭi wa lā tukhsirul-mīzān(a).
 
 ## 55:10
 
-Wal-arḍa waḍa‘ahā lil-anām(i).&#x20;
+Wal-arḍa waḍa‘ahā lil-anām(i).
 
 ## 55:11
 
@@ -20107,7 +20107,7 @@ Wa kānū yuṣirrūna ‘alal-ḥinṡil-‘aẓīm(i).
 
 ## 56:47
 
-Wa kānū yaqūlūn(a), a'iżā mitnā  wa kunnā turābaw wa ‘iẓāman a'innā lamab‘ūṡūn(a).&#x20;
+Wa kānū yaqūlūn(a), a'iżā mitnā  wa kunnā turābaw wa ‘iẓāman a'innā lamab‘ūṡūn(a).
 
 ## 56:48
 
@@ -20291,7 +20291,7 @@ Wa ammā in kāna minal-mukażżibīnaḍ-ḍāllīn(a).
 
 ## 56:93
 
-Fa nuzulum min ḥamīm(in).&#x20;
+Fa nuzulum min ḥamīm(in).
 
 ## 56:94
 
@@ -20467,7 +20467,7 @@ Yā ayyuhal-lażīna āmanū iżā qīla lakum tafassaḥū fil-majālisi fafsa�
 
 ## 58:12
 
-Yā ayyuhal-lażīna āmanū iżā nājaitumur-rasūla fa qaddimū baina yaday najwākum ṣadaqah(tan), żālika khairul lakum wa aṭhar(u), fa'illam tajidū fa innallāha  gafūrur raḥīm(un).&#x20;
+Yā ayyuhal-lażīna āmanū iżā nājaitumur-rasūla fa qaddimū baina yaday najwākum ṣadaqah(tan), żālika khairul lakum wa aṭhar(u), fa'illam tajidū fa innallāha  gafūrur raḥīm(un).
 
 ## 58:13
 
@@ -20751,7 +20751,7 @@ Yā ayyuhal-lażīna āmanū iżā nūdiya liṣ-ṣalāti miy yaumil-jumu‘ati
 
 ## 62:10
 
-Fa iżā quḍiyatiṣ-ṣalātu fantasyirū fil-arḍi wabtagū min faḍlillāhi ważkurullāha kaṡīral la‘allakum tufliḥūn(a). &#x20;
+Fa iżā quḍiyatiṣ-ṣalātu fantasyirū fil-arḍi wabtagū min faḍlillāhi ważkurullāha kaṡīral la‘allakum tufliḥūn(a).
 
 ## 62:11
 
@@ -20935,7 +20935,7 @@ Wa iż asarran-nabiyyu ilā ba‘ḍi azwājihī ḥadīṡā(n), falammā nabba
 
 ## 66:4
 
-In tatūbā ilallāhi faqad ṣagat qulūbukumā, wa in taẓāharā ‘alaihi fa innallāha huwa maulāhu wa jibrīlu wa ṣāliḥul-mu'minīn(a), wal-malā'ikatu ba‘da żālika ẓahīr(un).                                                                                       &#x20;
+In tatūbā ilallāhi faqad ṣagat qulūbukumā, wa in taẓāharā ‘alaihi fa innallāha huwa maulāhu wa jibrīlu wa ṣāliḥul-mu'minīn(a), wal-malā'ikatu ba‘da żālika ẓahīr(un).
 
 ## 66:5
 
@@ -20951,7 +20951,7 @@ Yā ayyuhal-lażīna kafarū lā ta‘tażīrul-yaum(a), innamā tujzauna mā ku
 
 ## 66:8
 
-Yā ayyuhal-lażīna āmanū tūbū ilallāhi taubatan naṣūḥā(n), ‘asā rabbukum ay yukaffira ‘ankum sayyi'ātikum wa yudkhilakum jannātin tajrī min taḥtihal-anhār(u), yauma lā  yukhzillāhun-nabiyya wal-lażīna āmanū ma‘ah(ū), nūruhum yas‘ā baina aidīhim wa bi'aimānihim yaqūlūna rabbanā atmim lanā nūranā wagfir lanā, innaka ‘alā kulli syai'in qadīr(un).&#x20;
+Yā ayyuhal-lażīna āmanū tūbū ilallāhi taubatan naṣūḥā(n), ‘asā rabbukum ay yukaffira ‘ankum sayyi'ātikum wa yudkhilakum jannātin tajrī min taḥtihal-anhār(u), yauma lā  yukhzillāhun-nabiyya wal-lażīna āmanū ma‘ah(ū), nūruhum yas‘ā baina aidīhim wa bi'aimānihim yaqūlūna rabbanā atmim lanā nūranā wagfir lanā, innaka ‘alā kulli syai'in qadīr(un).
 
 ## 66:9
 
@@ -21227,7 +21227,7 @@ Inna lil-muttaqīna ‘inda rabbihim jannātin-na‘īm(i).
 
 ## 68:35
 
-Afanaj‘alul-muslimīna kal-mujrimīn(a).  &#x20;
+Afanaj‘alul-muslimīna kal-mujrimīn(a).
 
 ## 68:36
 
@@ -21367,7 +21367,7 @@ Wal-malaku ‘alā arjā'ihā, wa yaḥmilu ‘arsya rabbika fauqahum yauma'iżi
 
 ## 69:18
 
-Yauma'iżin tu‘raḍūna lā takhfā minkum khāfiyah(tun).&#x20;
+Yauma'iżin tu‘raḍūna lā takhfā minkum khāfiyah(tun).
 
 ## 69:19
 
@@ -21887,7 +21887,7 @@ Illā balāgam minallāhi wa risālātih(ī), wa may ya‘ṣillāha wa rasūlah
 
 ## 72:24
 
-Ḥattā iżā ra'au mā yū‘adūna fasaya‘lamūna man aḍ‘afu nāṣiraw wa aqallu ‘adadā(n). &#x20;
+Ḥattā iżā ra'au mā yū‘adūna fasaya‘lamūna man aḍ‘afu nāṣiraw wa aqallu ‘adadā(n).
 
 ## 72:25
 
@@ -22303,7 +22303,7 @@ Ilā rabbihā nāẓirah(tun).
 
 ## 75:24
 
-Wa wujūhuy yauma'iżim bāsirah(tun).&#x20;
+Wa wujūhuy yauma'iżim bāsirah(tun).
 
 ## 75:25
 
@@ -22531,7 +22531,7 @@ Wa iżas-samā'u furijat.
 
 ## 77:10
 
-Wa iżal-jibālu nusifat.&#x20;
+Wa iżal-jibālu nusifat.
 
 ## 77:11
 
@@ -23383,7 +23383,7 @@ Yaṣlaunahā yaumad-dīn(i).
 
 ## 82:16
 
-Wa mā hum ‘anhā bigā'ibīn(a).&#x20;
+Wa mā hum ‘anhā bigā'ibīn(a).
 
 ## 82:17
 
@@ -23459,7 +23459,7 @@ Kallā innahum ‘ar rabbihim yauma'iżil lamaḥjūbūn(a).
 
 ## 83:16
 
-Ṡumma innahum laṣālul-jaḥīm(i).&#x20;
+Ṡumma innahum laṣālul-jaḥīm(i).
 
 ## 83:17
 
@@ -23527,7 +23527,7 @@ Wa iżā ra'auhum qālū inna hā'ulā'i laḍāllūn(a).
 
 ## 83:33
 
-Wa mā ursilū ‘alaihim ḥāfiẓīn(a).&#x20;
+Wa mā ursilū ‘alaihim ḥāfiẓīn(a).
 
 ## 83:34
 
@@ -23551,23 +23551,23 @@ Wa ażinat lirabbihā wa ḥuqqat.
 
 ## 84:3
 
-Wa iẓal-arḍu muddat.&#x20;
+Wa iẓal-arḍu muddat.
 
 ## 84:4
 
-Wa alqat mā fīhā wa takhallat.&#x20;
+Wa alqat mā fīhā wa takhallat.
 
 ## 84:5
 
-Wa ażinat lirabbihā wa ḥuqqat.&#x20;
+Wa ażinat lirabbihā wa ḥuqqat.
 
 ## 84:6
 
-Yā ayyuhal-insānu innaka kādiḥun ilā rabbika kadḥan fa mulāqīh(i).&#x20;
+Yā ayyuhal-insānu innaka kādiḥun ilā rabbika kadḥan fa mulāqīh(i).
 
 ## 84:7
 
-Fa ammā man ūtiya kitābahū biyamīnih(ī).&#x20;
+Fa ammā man ūtiya kitābahū biyamīnih(ī).
 
 ## 84:8
 
@@ -23959,7 +23959,7 @@ Fa żakkir, innamā anta mużakkir(un).
 
 ## 88:22
 
-Lasta ‘alaihim bimusaiṭir(in).&#x20;
+Lasta ‘alaihim bimusaiṭir(in).
 
 ## 88:23
 
@@ -24015,7 +24015,7 @@ Wa ṡamūdal-lażīna jābuṣ-ṣakhra bil-wād(i).
 
 ## 89:10
 
-Wa fir‘auna żil-autād(i).&#x20;
+Wa fir‘auna żil-autād(i).
 
 ## 89:11
 
@@ -24163,7 +24163,7 @@ Au miskīnan żā matrabah(tin).
 
 ## 90:17
 
-Ṡumma kāna minal-lażīna āmanū wa tawāṣau biṣ-ṣabri wa tawāṣau bil-marḥamah(ti).&#x20;
+Ṡumma kāna minal-lażīna āmanū wa tawāṣau biṣ-ṣabri wa tawāṣau bil-marḥamah(ti).
 
 ## 90:18
 
@@ -24275,7 +24275,7 @@ Wa każżaba bil-ḥusnā.
 
 ## 92:10
 
-Fa sanuyassiruhū lil-‘usrā.  &#x20;
+Fa sanuyassiruhū lil-‘usrā.
 
 ## 92:11
 
@@ -24475,7 +24475,7 @@ Ara'aita in kāna ‘alal-hudā.
 
 ## 96:12
 
-Au amara bit-taqwā.&#x20;
+Au amara bit-taqwā.
 
 ## 96:13
 
@@ -24523,7 +24523,7 @@ Tanazzalul-malā'ikatu war rūḥu fīhā bi'iżni rabbihim min kulli amr(in).
 
 ## 97:5
 
-Salāmun hiya ḥattā maṭla‘il-fajr(i).&#x20;
+Salāmun hiya ḥattā maṭla‘il-fajr(i).
 
 ## 98:1
 
@@ -24591,7 +24591,7 @@ Wa may ya‘mal miṡqāla żarratin syarray yarah(ū).
 
 ## 100:1
 
-Wal-‘ādiyāti ḍabḥā(n).&#x20;
+Wal-‘ādiyāti ḍabḥā(n).
 
 ## 100:2
 
@@ -24679,7 +24679,7 @@ Nārun ḥāmiyah(tun).
 
 ## 102:1
 
-Alhākumut-takāṡur(u).&#x20;
+Alhākumut-takāṡur(u).
 
 ## 102:2
 
