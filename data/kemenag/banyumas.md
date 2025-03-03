@@ -21,8 +21,6 @@ Sing Mahawelas lan Mahaasih,
 
 Sing kagungan dina piwales. [^1]
 
-[^1]: Yaumiddin (dina piwales), dina nalikané menungsa nampa piwales ingatasé penggawéané, apik utawa ala. Déarani uga yaumul qiyamah, yaumul hisab, lan liya-liyané
-
 ## 1:5
 
 Mung maring Penjenengan kula padha nyembah, lan mung maring Penjenengan kula padha nyuwun pitulungan.
@@ -31,37 +29,25 @@ Mung maring Penjenengan kula padha nyembah, lan mung maring Penjenengan kula pad
 
 Tidhokna kula kabéh dalan sing jejeg, [^2]
 
-[^2]: Dalan sing jejeg, yakuwé dalan urip sing bener sing bisa njalari begya neng dunya lan neng akhérat
-
 ## 1:7
 
 (yakuwé) dalané wong-wong sing wis Penjenengan paringi nékmat, udu (dalané) wong-wong sing Penjenengan bendoni lan (uga) udu (dalané) wong sing padha kesasar. [^3]
-
-[^3]: Wong-wong sing kebendon (kenang bendu), yakuwé wong-wong sing nguja nglawan Islam. Wong-wong sing kesasar yakuwé wong-wong sing nguja ngambah dalan seliyané ajaran Islam.
 
 ## 2:1
 
 Alif Lam Mim. [^4]
 
-[^4]: Sewetara surat-surat neng Al-Qur’an débukak kambi hurup abjad kayadéné, Alif Lam Mim, Alif Lam Mim Ra, lan liyané. Maknané hurup -hurup kuwé mung Gusti Allah sing priksa. Ana sing duwé penemu lamona hurup-hurup jeneng surat lan ana uga sing duwé penemu lamona gunané nggo narik kawigatén, utawa nggo nidhokna lamona Al-Qur’an kuwé déturunaken nganggo Basa Arab sing désungsun sekang hurup-hurup abjad mau.
-
 ## 2:2
 
 Kitab (Al-Qur’an) kiyé ora nana kemamang-an neng njeroné, nggo pituduh tumrap wong-wong sing padha semarah (takwa), [^5]
-
-[^5]: Takwa yakuwé manut sekabéhé dhawuhé Gusti Allah lan ngedohi sekabéhé larangan-É.
 
 ## 2:3
 
 (yakuwé) wong-wong sing padha precaya maring barang sing ora keton (gaib), nglakoni sembayang, tur nyumbangna [^6] sebagéan sekang rejekiné sing Ingsun paringna maring dhéwéké kabéh,
 
-[^6]: Sing démaksud nyumbangna bandha neng dalané Gusti Allah, kayadéné blanja nggo kebutuhan jihad, mbangun sekolahan, rumah sakit, usaha nliti-nliti babagan ilmu lan liyané.
-
 ## 2:4
 
 lan wong-wong sing padha precaya maring (Al-Qur’an) sing wis déturunaken maring sliramu (Muhammad) lan (kitab-kitab) sing wis déturunaken (maring Nabi) seurungé sliramu [^7] , lan wong-wong mau padha precaya maring anané akhérat.
-
-[^7]: Sing déturunaken maring Nabi-nabi seurungé Nabi Muhammad s.a.w yakuwé; Taurat, Zabur, Injil, lan shuhuf-shuhuf (lembaran-lembaran) sing ora wujud kitab.
 
 ## 2:5
 
@@ -71,13 +57,9 @@ Wong-wong kuwé sing padha olih pituduh sekang Pengérané, lan wong-wong kuwé 
 
 Setemené wong-wong kapir [^8] (mbangkang), padha baé tumrap dhéwéké, sliramu (Muhammad) paringi pepénget utawa ora sliramu paringi pepénget, dhéwéké kabéh ora bakal precaya.
 
-[^8]: Kapir (kafir, jamaké kuffar), yakuwé wong sing ora precaya maring anané Gusti Allah, utusan-utusan-É, malaékat-malaékat-É, kitab-kitab-É, lan dina Kiyamat.
-
 ## 2:7
 
 Gusti Allah wis ngunci ati lan pengrungoné wong-wong mau [^9] , pendelengané wong-wong mau wis détutup, lan wong-wong mau bakal olih siksa sing abot.
-
-[^9]: Saéngga naséhat utawa hidayah kuwé ora bisa mlebu maring atiné wong-wong mau.
 
 ## 2:8
 
@@ -91,13 +73,9 @@ Dhéwéké padha ngapusi Gusti Allah lan wong-wong sing padha precaya, mangka-n�
 
 Neng njero atiné wong-wong mau ana prenyakit [^10] , banjur Gusti Allah nambahi prenyakité; lan dhéwéké padha olih siksa sing perih, merga dhéwéké padha ngapusi.
 
-[^10]: Prenyakit ati kayadéné rasa mamang lan ora precaya maring prekara sing bener, lamis (munapék) lan mbangkang.
-
 ## 2:11
 
 Lan umpamané déomongna maring wong-wong mau, “Aja padha gawé rusak neng bumi!” [^11] Wong-wong mau padha semaur, “Setemené inyong padha malah wong-wong sing gawé bagus.”
-
-[^11]: Nglanggar tatanan sing détetepna agama bakal njalari ngalam kiyé rusak, malah ancur.
 
 ## 2:12
 
@@ -131,8 +109,6 @@ Wong-wong mau padha budheg, bisu, lan picek, mulané ora bisa mbalik maning.
 
 Utawa kayadéné (wong sing ketiban) udan deres sekang langit sing débarengi peteng karo bledhég lan kilat. Wong-wong mau padha nyumpeli kupingé karo jenthik-jenthiké, (ngindhani) sewara bledhég mau jalaran wedi mati. Gusti Allah ngewasani wong-wong sing padha kapir [^12] .
 
-[^12]: Ngélmu lan kuwasané Gusti Allah nglingkupi wong-wong kapir.
-
 ## 2:20
 
 Meh baé bledhég kuwé nyamber pende-lengané. Aben (kilat mau) madhangi, wong-wong mau padha mlaku neng ngisoré (cahya) kuwé, lan angger petengé nutupi wong-wong mau, wong-wong mau padha mandheg. Umpamané Gusti Allah kersa, mesthi Gusti Allah ngilangna pengrungoné lan pendelengané wong-wong mau. Temen, Gusti Allah kuwé kewasa maring samubarang kabéh.
@@ -161,10 +137,6 @@ Lan butulna kabar bebungah maring wong-wong sing padha precaya lan gawé becik, 
 
 Setemené Gusti Allah ora sungkan gawé paumpaman lemud sewiji utawa sing lewih cilik sekang kuwé. Anadéné wong-wong sing padha precaya, dhéwéké padha ngerti lamona kuwé kasunyatan sekang Pengéran. Ning, wong-wong sing kapir padha ngomong, “Apa maksudé Gusti Allah gawé paumpaman-paumpaman kiyé?” Kanthi (paumpaman) kuwé akéh wong sing déjorna kesasar [^13] déning Gusti Allah, lan jalaran sekang kuwé akéh (uga) wong sing déparingi pituduh. Ning ora nana sing désasarna déning Gusti Allah kanthi (paumpaman-paumpaman) kuwé seliyané wong-wong pasék, [^14]
 
-[^13]: Wong kuwé kesasar sebab dhéwéké mbangkang tur ora gelem mahami pituduh-pituduhé Gusti Allah. Neng ayat kiyé, sebab dhéwéké mbangkang tur ora gelem mahami apa sebabé Gusti Allah ndadékna lemud minangka conto, dadiné dhéwéké padha kesasar.
-
-[^14]: Wong pasék yakuwé wong sing nerak aturané agama, mbuh omongané utawa kelakuané.
-
 ## 2:27
 
 (yakuwé) wong-wong sing padha ngingkari janjiné Gusti Allah sewisé (janjiné) kuwé déteguhna, lan medhot apa sing dépréntahna déning Gusti Allah supayané désambung, lan padha gawé rusak neng lumahing bumi. Dhéwéké kabéh kuwé wong-wong sing padha kapitunan.
@@ -180,8 +152,6 @@ Penjenengané (Gusti Allah) sing ndadékna apa baé sing ana neng bumi nggo ko k
 ## 2:30
 
 Lan (élinga) rikala Pengéranmu ngendika maring para malaékat: “Ingsun arep ndadékna khalifah [^15] neng bumi.” Para malaékat padha matur: “Napa Penjene-ngan ajeng damel menungsa sing sami ngrusak lan mutahna getih wonten mrika, mangkané kula sami teras maos tasbéh ngalembana Penjenengan lan nyucékna Penjenengan?”  Penjenengané dhawuh, “Temen, Ingsun ngawuningani  apa sing ko  padha ora ngerti.”
-
-[^15]: Khalifah tegesé wong sing ngganténi, makili, pemimpin utawa penggawa.
 
 ## 2:31
 
@@ -199,27 +169,17 @@ Penjenengané (Gusti Allah) dhawuh, “Hé Adam, tidhokna maring dhewéké kabé
 
 Lan, (élinga) rikala Ingsun dhawuh maring para malaékat, “Sujuda ko kabéh maring Adam!” Mangka kiyambéké padha sujud kejaba Iblis. [^16] Dhéwéké ora gelem lan ngedirna awaké dhéwék, lan dhéwéké klebu golongan sing mbangkang.
 
-[^16]: Iblis kepélu golongané jin lan klebu sing dépréntah kon sujud.
-
 ## 2:35
 
 Lan Ingsun dhawuh, “Hé Adam! Manggona sliramu karo bojomu neng njero suwarga, lan mangana kanthi nékmat (serupané panganan) sing ana neng kana sesenengmu. (Ningén) aja nganti sliramu méreki wit kiyé, [^17] mengko sliramu bakal klebu wong-wong sing padha aniaya (gawé kapitunan) [^18] .
-
-[^17]: Apus-apusé sétan, sapa sing mangan wohé wit kuwé, bakal langgeng neng suwarga, deleng Taha (20): 120.
-
-[^18]: Dolim tegesé  gawé aniaya. Wong sing dolim yakuwé wong sing nglakoni penggawé aniaya, sing gawé kapitunan maring awaké dhéwék utawa wong liya.
 
 ## 2:36
 
 Banjur sétan ngrékadayani sekloroné (Adam karo bojoné) sekang suwarga [^19] saéngga sekloroné détokna sekang (sekabéhé nékmat) rikala sekloroné neng suwarga. Lan Ingsun dhawuh, “Temuruna ko kabéh! Sebagéane ko padha dadi mungsuh tumrap sebagéan sing liyané. Lan kanggo sliramu ana papan panggonan lan kesenengan neng bumi butul mangsa sing détemtokna.
 
-[^19]: Nabi Adam a.s. lan Hawa padha ndhahar wohé wit sing délarang kuwé, sing njalari sekloroné déurak déning Gusti Allah sekang suwarga lan déturunaken maring dunya.
-
 ## 2:37
 
 Banjur Adam nampa pira-pira pengucap [^20] sekang Pengérané, terus Penjenengané nampa tobaté. Temen Gusti Allah Maha Nampani Tobat, Mahaasih.
-
-[^20]: Pengucap kuwé miturut sebagéan juru tapsir yakuwé pengucap nggo njaluk pengampura (tobat).
 
 ## 2:38
 
@@ -233,10 +193,6 @@ Anadéné wong-wong sing padha mbangkang lan nggorohna ayat-ayat Ingsun, dhéwé
 
 Hé Bani Israil [^21] , Émuta nékmat Ingsun sing wis Ingsun paringna maring ko kabéh. Lan buktékna janjimu maring Ing-sun [^22] , mesthi Ingsun buktékna janji Ingsun maring ko kabéh, lan semaraha (takwa) ko kabéh mung maring Ingsun baé.
 
-[^21]: Israil yakuwé sebutan kanggo Nabi Yakub a.s. Bani Israil yakuwé anak-turuné Nabi Yakub a.s lan siki kewentar kambi aran bangsa Yahudi.
-
-[^22]: Neng antarané janji Bani Israil maring Gusti Allah yakuwé mung nyembah maring Gusti Allah, ora gawé tandhingan tumrap Gusti Allah, lan precaya maring Nabi Muhammad s.a.w kayadéné sing désebut neng njeroné Taurat.
-
 ## 2:41
 
 Lan padha precayaa ko kabéh maring apa (Al-Qur’an) sing wis Ingsun turunaken sing mbenerna apa (Taurat) sing ana neng ko kabéh, lan aja nganti ko kabéh dadi wong sing kawitan mbangkang maring apa (Al-Qur’an) kuwé. Aja nganti ko padha adol ayat-ayat Ingsun kanthi rega sing murah, lan padha manuta ko padha mung maring Ingsun.
@@ -244,8 +200,6 @@ Lan padha precayaa ko kabéh maring apa (Al-Qur’an) sing wis Ingsun turunaken 
 ## 2:42
 
 Lan ko aja padha nyampur-bawurna prekara bener karo prekara ala (batil) [^23] , lan (aja) padha ngumpetna prekara bener, mangkané ko padha ngerti.
-
-[^23]: Batil tegesé luput, penggawé aniaya, mungkar lan seliyané,
 
 ## 2:43
 
@@ -271,13 +225,9 @@ Hé Bani Israil! Élinga maring nékmat Ingsun sing wis Ingsun paringna maring k
 
 Lan padha wedia ko kabéh maring dina, (rikala) ora nana sewiji wong sing bisa mbélani wong liya semendhing-mendhinga, rikalané syafaat [^24] (pitulung) lan tebusan apa baé sekang wong-wong mau ora détampa lan wong-wong mau ora bakal détulungi.
 
-[^24]: Syafaat yakuwé pitulungan sing déparingna déning Rasul utawa wong-wong pinesthi nggo ngénthéngna siksa utawa rénggané wong neng akhérat, kanthi keparengé Gusti Allah.
-
 ## 2:49
 
 Lan (élinga) rikalané Ingsun nylametna ko kabéh sekang (Fir’aun) lan bala-balané Fir’aun [^25] . Wong-wong mau padha nibakna siksa sing banget aboté maring ko kabéh. Dhéwéké kabéh padha nyembeléh anak-anakmu lanang lan ngejorna urip anak-anakmu wadon. Lan sing mengkana kuwé minangka coban sing gedhé sekang Pengéranmu.
-
-[^25]: Fira’un kuwé parabané ratu-ratu Mesir jaman kuna. Miturut sejarah, fir’aun rikala jaman Nabi Musa a.s. arané Menephthan (1232-1224 SM) anaké Ramses.
 
 ## 2:50
 
@@ -287,8 +237,6 @@ Lan (élinga) rikala Ingsun miyak segara nggo ko kabéh, saéngga ko padha bisa 
 
 Lan (élinga) rikala Ingsun paring janji maring (Nabi) Musa patang puluh wengi. [^26]  Banjur ko (Bani Israil) ndadékna (reca) pedhét (dadi sembahan) sewisé (lungané) kiyambéké (Musa), lan ko (dadi) wong sing padha nganiaya (kapitunan).
 
-[^26]: Sewijiné wates wektu sing déjanjékna déning Gusti Allah nggo nampa pituduh (Taurat), ning umaté Nabi Musa a.s ora padha sabar ngenténi, akhiré umaté Nabi Musa padha nyembah reca pedhét (anak sapi) gawéané Samiri.
-
 ## 2:52
 
 Banjur Ingsun paring ampura maring ko kabéh sewisé kuwé, supayané ko padha kesuwun.
@@ -297,13 +245,9 @@ Banjur Ingsun paring ampura maring ko kabéh sewisé kuwé, supayané ko padha k
 
 Lan (élinga), rikala Ingsun paring maring Musa Kitab lan Furqan, supayané ko kabéh padha olih pituduh. [^27]
 
-[^27]: Sing démaksud kitab yakuwé Taurat. Lan sing démaksud Furqan yakuwé keterangan-keterangan liya nggo mbédakna sing becik karo sing ala.
-
 ## 2:54
 
 Lan (élinga) rikala Musa ngucap maring kaumé, “Hé kaumku! Ko nyata-nyata wis nganiaya awakmu dhéwék kanthi ndadékna (reca) pedhét (dadi sembahan), mula padha tobata maring Sing Nyipta awakmu lan paténana baé awakmu. [^28] Kuwé lewih apik tumrap ko neng sisihé Sing Nyipta awakmu. Penjenengané bakal nampa tobatmu. Temen, Penjenengané kuwé Sing Maha Nampa Tobat, Mahawelas.
-
-[^28]: “Maténi awakmu” ana sing negesi, wong-wong sing ora nyembah reca pedhét kuwé maténi wong sing padha nyembah. Ana uga sing negesi, wong sing nyembah reca pedhét kuwé kon padha patén-paténan, lan ana uga sing negesi wong-wong mau dékongkon maténi awaké dhéwék-dhéwék minangka nggo tobat.
 
 ## 2:55
 
@@ -317,8 +261,6 @@ Banjur, Ingsun nangékna ko sewisé ko mati, supayané ko padha kesuwun.
 
 Lan Ingsun ngaubi ko kabéh karo lamuk, lan Ingsun ngedunaken maring ko mann lan salwa [^29] . Padha mangana (panganan) sing apik-apik sekang rejeki sing wis Ingsun paringna maring ko kabéh. Wong-wong mau ora nganiaya Ingsun, ning malah dhéwéké kabéh sing nganiaya maring awaké dhéwék.
 
-[^29]: Mann yakuwé sewenéh madu. Salwa yakuwé sewenéh manuk puyuh.
-
 ## 2:58
 
 Lan (élinga) nalikané Ingsun dhawuh, ”Mlebua maring negara kiyé (Baitulmaq-dis), mangka mangana kanthi nékmat (panganan apa baé) sing ana neng kana sesenengmu. Lan leboni lawang sekéthéngé karo ndhong-ko, lan ngucapa, ”Bebasna inyong kabéh (sekang dosa-dosanku kabéh),” mesthi Ingsun bakal ngampura salah-salahmu. Lan Ingsun bakal nambahi (kanugrahan) nggo wong-wong sing padha nglakoni kebecikan.”
@@ -331,8 +273,6 @@ Banjur wong-wong sing aniaya padha ngganti préntah karo préntah (liyané) sing
 
 Lan (élinga) rikala Musa nyuwun banyu nggo kaumé, banjur Ingsun dhawuh, “Gebuga watu kuwé karo tekenmu!” Mangka mancur sekang watu kuwé rolas tuk banyu. Saben golongan wis ngerténi panggonan nginumé (dhéwék-dhéwék) [^30] , mangana lan nginuma sekang rejeki (sing déparingna) Gusti Allah, lan ko aja padha nglakoni kejahatan neng dunya kanthi gawé kerusakan.
 
-[^30]: Saben golongan sekang 12 golongan Bani Israil, kaya sing désebut neng Al-A’raf (7): 160
-
 ## 2:61
 
 Lan (élinga), rikala ko padha ngucap, ”Hé, Musa! Inyong kabéh ora tahan mung (mangan) panganan sewerna thok, mula njaluka maring Pengéranmu nggo inyong kabéh, supayané Penjenengané maringi inyong kabéh apa sing déthukulna neng bumi, kayadéné janganan, timun, bawang, kacang adas lan brambang.” Kiyambeké (Musa) njawab, ”Apa ko njaluk apa sing ala nggo ngganti sekang apa sing becik? Mangkata maring sewiji kota, mesthi ko bakal olih sing dadi penjalukanmu.” Banjur wong-wong mau padha dégawé ina lan mlarat, lan wong-wong mau bali olih benduné Gusti Allah. Sing mengkana kuwé (kelakon) merga wong-wong mau padha mblénjani ayat-ayat-É Gusti Allah lan maténi para nabi tanpa hak (alesan sing bener). Sing kaya kuwé merga wong-wong mau padha duraka lan padha ngléwati wates.
@@ -340,8 +280,6 @@ Lan (élinga), rikala ko padha ngucap, ”Hé, Musa! Inyong kabéh ora tahan mun
 ## 2:62
 
 Setemené wong-wong sing padha precaya, wong-wong Yahudi, wong-wong Nasrani, lan wong-wong sabi’in [^31] , sapa wongé (antarané wong-wong mau) sing precaya maring Gusti Allah lan dina akhérat, lan nglakoni kebecikan, wong-wong mau padha olih ganjaran sekang Pengérané, ora nana rasa wedi ingatasé wong-wong mau, lan wong-wong mau ora padha susah atiné.
-
-[^31]: Sabi’in kuwé umat seurungé  Nabi Muhammad s.a.w sing padha ngerti anané Pengéran Sing Mahatunggal, lan precaya maring  pengaruh lintang-lintang.
 
 ## 2:63
 
@@ -355,10 +293,6 @@ Banjur sewisé kuwé ko padha mléngos. Mangka umpamané udu merga kanugrahané 
 
 Lan temen, ko wis ngerti wong-wong sing padha nglanggar neng antarané ko kabéh  neng dina Sabat [^32] , banjur Ingsun dhawuh maring wong-wong mau, “Dadia ko kabéh kethék sing ina!” [^33]
 
-[^32]: Dina Sabat yakuwé dina Setu, dinané  wong Yahudi nggo ngibadah.
-
-[^33]: Kethék: temen dadi kethék minangka supatané Gusti Allah. Ana juru tapsir sing ngartékna, nduwéni wateké kethék.
-
 ## 2:66
 
 Mangka Ingsun dadékna (sing kaya kuwé) pengéling-éling nggo wong-wong neng wektu kuwé lan kanggo wong-wong sing padha teka sewisé kuwé, lan dadi piwulang nggo wong-wong sing padha semarah (takwa).
@@ -366,8 +300,6 @@ Mangka Ingsun dadékna (sing kaya kuwé) pengéling-éling nggo wong-wong neng w
 ## 2:67
 
 Lan (élinga) rikala Musa ngucap maring kaumé, “Gusti Allah ndhawuhi ko supaya nyembeléh sapi wadon siji.” Wong-wong mau padha takon, “Apa sliramu arep gawé inyong kabéh dadi écéan?” [^34] (Musa) njawab, “Inyong ngayom maring Gusti Allah supaya ora klebu golongané wong-wong sing bodho.”
-
-[^34]: Wewadi Gusti Allah ndhawuhi nyembeléh sapi, supayané ilang rasa ormaté wong-wong mau maring reca pedhét sing padha désembah déning wong-wong mau.
 
 ## 2:68
 
@@ -401,13 +333,9 @@ Banjur sewisé kuwé, atimu dadi atos, saéngga (atimu) kaya watu, malah lewih a
 
 Mula apa ko kabéh  (wong-wong muslim) banget ngarepna wong-wong mau bakal precaya maring sliramu, mangkan segolongané dhéwéké mau padha krungu pengendikané Gusti Allah, banjur dhéwéké mau padha ngowahi sewisé padha mahami (pengendikan kuwé), mangkané wong-wong mau padha ngaweruhi? [^35]
 
-[^35]: Maksudé wong-wong Yahudi sing padha ngowahi isiné Taurat utamané bab Nabi Muhammad s.a.w.
-
 ## 2:76
 
 Lan angger wong-wong mau ketemu karo wong-wong sing padha precaya, dhéwéké padha ngomong, “Inyong wis padha precaya.” Ning angger bali maring wong-wong sepadhané, dhéwéké padha takon, “Apa ko arep nyritakna maring dhéwéké kabéh apa sing déterangna déning Gusti Allah maring ko, nganti dhéwéké bisa mbantah ko neng ngarsané Pengéranmu? Mbokan ko ngerti?” [^36]
-
-[^36]: Neng njeroné Taurat déterangna bab Nabi Muhammad s.a.w. Sing arep rawuh minangka nabi pungkasan, ning keterangan kuwé déumpetna neng wong Yahudi, merga wedi bakal mbalik maring awaké dhéwék.
 
 ## 2:77
 
@@ -420,8 +348,6 @@ Lan neng antarané wong-wong mau ana sing wuta aksara, ora mahami kitab (Tau-rat
 ## 2:79
 
 Mangka cilaka temen wong-wong sing nulis kitab nganggo tangané dhéwéké, banjur ngomong, “Kiyé sekang Gusti Allah,” (maksudé) nggo dédol kanthi rega murah. Mangka cilaka temen wong-wong mau, merga tulisan tangané, lan cilaka temen dhéwéké kuwé merga apa sing dhéwéké padha lakoni. [^37]
-
-[^37]: Malsukna lan ngowahi ayat nggo kepentingané dhéwék.
 
 ## 2:80
 
@@ -447,8 +373,6 @@ Lan (élinga) rikala Ingsun mundhut janjimu, ”Ko kabéh aja padha mutahna geti
 
 Banjur ko kabéh (Bani Israil) maténi awakmu (sebangsamu), lan ngurak sewijiné golongan-mu dhéwék sekang désané. Ko padha brayan (ngadhepi) wong-wong mau neng njeroné dosa lan memungsuhan. Lan angger wong-wong mau teka maring ko dadi tawanan, ko nebus wong-wong mau, mangkané ko délarang ngurak wong-wong mau. Apa jané ko precaya maring sebagéan kitab (Taurat) lan ngingkari maring sebagéan (sing liyané)? Mangka ora nana piwales (sing pantes) nggo wong sing nglakoni prekara kuwé neng antaramu seliyané kenisthan urip neng dunya, lan neng dina Kiyamat wong-wong mau débalékna maring siksa sing paling abot. Lan Gusti Allah ora supé maring apa sing ko kabéh lakoni. [^38]
 
-[^38]: kabéh janji lan sumpah sing déucapna déning Bani Israil kaya sing kesebut neng njeroné ayat 83 lan 84 neng ndhuwur, wong-wong mau nglanggar. Nyatané sejarahé neng antarané rong golongan Yahudi neng Medinah yakuwé Bani Quraizah utawa Khazraj balané Bani Nadir gawéné perang. Angger ana wong Yahudi neng antarané rong golongan kuwé détawan neng liyané, contoné neng Bani Aus, balané Bani Quraizah utawa Bani Khazraj balané Bani Nadzir, padha brayan nebus.
-
 ## 2:86
 
 Dhéwéké kabéh kuwé nyata wong-wong sing tuku penguripan dunya nganggo (penguripan) akhérat. Mangka ora bakal dé-énthéngna siksané lan wong-wong mau ora bakal détulung.
@@ -465,15 +389,9 @@ Lan wong-wong mau padha ngucap, “Atiné inyong kabéh ketutup.” Ora! Gusti A
 
 Lan sewisé butul maring wong-wong mau Kitab (Al-Qur’an) sekang Gusti Allah sing mbenerna apa sing ana neng dhéwéké mau [^39] , mangkané seurungé dhéwéké padha njaluk menang sekang wong-wong kapir, nyatané sewisé butul maring dhéwéké apa sing wis dhéwéké padha ngerténi, dhéwéké mau padha ngingkari. Mula laknaté Gusti Allah kanggo wong-wong sing padha ingkar.
 
-[^39]: Al-Qur’an uga mulangna tauhid (nyewijékna Gusti Allah) kaya sing déwulangna Taurat.
-
 ## 2:90
 
 Banget alané (temindaké) wong-wong mau adol awaké, kanthi ngingkari apa sing déturu-naken déning Gusti Allah, merga drengki lamon Gusti Allah nurunaken kanugrahané nggo sapa sing dékersakna Penjenengané neng antarané para kawulané. [^40] Merga kuwé wong-wong mau pada bali nanggung bendu-pari-bendu [^41] . Lan maring wong-wong kapir mau (détibakna) siksa sing gawé nistha.
-
-[^40]: Wahyu (kenabian) maring Nabi Muhammad s.a.w.
-
-[^41]: Bendu nomer siji merga mbangkang maring Nabi Musa a.s, lan bendu nomer loro merga ngingkari Nabi Muhammad s.a.w.
 
 ## 2:91
 
@@ -498,8 +416,6 @@ Ning wong-wong mau ora bakal kepéngin pati babar pisan, merga dosa-dosa sing wi
 ## 2:96
 
 Lan temen sliramu (Muhammad) bakal ngaweruhi wong-wong mau (Yahudi) menungsa sing paling srakah maring penguripan (dunya), malah (lewih srakah) ketimbang wong-wong musrik. [^42] Saben-saben sekang wong-wong mau, kepéngin déwéhi umur séwu taun, mangkané umur dawa kuwé ora bakal ngadohna dhéwéké sekang siksa. Lan Gusti Allah Maha Mriksani apa sing dhéwéké lakoni.
-
-[^42]: Musrik yakuwé wong sing nyekuthokna Gusti Allah karo seliyané (mangro tingal).
 
 ## 2:97
 
@@ -533,8 +449,6 @@ Lan angger wong-wong mau padha precaya tur semarah, ganjaran sekang Gusti Allah 
 
 Hé, wong-wong sing padha precaya! Aja pisan-pisan ko ngucap “Raina”, [^43] tapi ngucapa “unzurna” lan rungokna. Lan wong-wong sing padha kapir bakalan olih siksa sing perih.
 
-[^43]: Raina tegesé mara gatékna inyong kabéh. Ning wong Yahudi kambi mrengut goli ngomongna, dadiné sing démaksud neng wong Yahudi mau yakuwé “Ru’unah sing tegesé bodo banget, sing dadi pengala-ala kanggo Rasulullah. Kuwé sebabé Gusti Allah ndhawuhi batir-batiré Nabi ngganti Raina karo unzurna sing tegesé padha karo “Raina”.
-
 ## 2:105
 
 Wong-wong sing mbangkang (kapir) sekang Ahli Kitab lan wong-wong sing padha musrik ora kepéngin déturunaken maring ko babagan kebecikan sekang Pengéranmu. Ning Gusti Allah paring welas-É maring wong pinilih sing Panjenengané kersakna tur Gusti Allah pamengku kanugrahan sing gedhé.
@@ -562,8 +476,6 @@ Lan lakonana sembayang lan bayara jakat. Lan sekabéh kebecikan sing ko padha la
 ## 2:111
 
 Lan wong-wong mau (Yahudi karo Nasrani) padha ngomong, “Ora bakal mlebu suwarga kejaba wong Yahudi utawa wong Nasrani.” [^44] Kuwé (mung) angen-angené wong-wong mau. Ngucapa, “Tidhokna bukti benermu, angger ko kabéh wong-wong sing bener.”
-
-[^44]: Wong Yahudi padha ngucap, mung dhéwéké sing bakal padha mlebu maring suwarga. Wong-wong Nasrani uga padha ngucap, mung dhéwéké  sing bakal padha mlebu suwarga.
 
 ## 2:112
 
@@ -621,8 +533,6 @@ Lan (élinga), rikala Ibrahim déuji déning Pengérané karo pirang-pirang temb
 
 Lan (élinga), rikala Ingsun ndadékna umah (Ka’bah) panggonan kumpul lan panggonan sing aman tumrap menungsa. Lan dadékna maqam Ibrahim [^45] kuwé panggonan sembayang. Lan wis Ingsun dhawuhna maring Ibrahim karo Ismail, “Bresihi umah Ingsun (Ka’bah) nggo wong-wong sing padha tawaf, wong-wong sing padha iktikaf, wong-wong sing padha ndhongko (rukuk) lan wong-wong sing padha ndhepa (sujud)!”
 
-[^45]: yakuwé panggonané Nabi Ibrahim a.s jumeneng nalikané mbangun ka’bah
-
 ## 2:126
 
 Lan (élinga) rikala Ibrahim nyenyuwun, “Dhuh Pengéran kula, dadosaken negari Mekah niki negari sing aman lan mugi paringa rejeki rupi woh-wohan dhateng warginé, nggih niku teng antawisé tiyang-tiyang wau sing sami precaya dhateng Gusti Allah lan dinten pungkasan,” Penjenengané (Gusti Allah) dhawuh, “Lan maring wong sing mbangkang bakal Insun paringi seneng sewetara, seterusé bakal Ingsun peksa wong mau maring neraka lan kuwé nyata panggonan bali sing paling ala.”
@@ -675,8 +585,6 @@ Mangka angger wong-wong mau wis padha precaya kayadéné sing sliramu andel, tem
 
 Sibgah Allah,” [^46] sapa wongé sing lewih becik sibgahé ketimbang Gusti Allah? Lan maring Penjenengané inyong kabéh padha nyembah.
 
-[^46]: sibgah Allah, tegesé celupané Gusti Allah, maksudé agamané Gusti Allah
-
 ## 2:139
 
 Dhawuha (Muhammad), “Apa ko arep dhebadan karo inyong ngenani Gusti Allah, mangka Penjenengané Pengéranku lan Pengéranmu kabéh. Nggo inyong kabéh ngamal-ngamalku, lan nggo ko kabéh ngamal-ngamalmu, lan mung maring Penjenengané inyong kabéh kanthi tulus oléhé kemawula.
@@ -684,8 +592,6 @@ Dhawuha (Muhammad), “Apa ko arep dhebadan karo inyong ngenani Gusti Allah, man
 ## 2:140
 
 Utawa ko kabéh (wong-wong Yahudi lan Nasrani) ngucap lamona Ibrahim, Ismail, Ishak, Yakub lan anak putuné padha mélu Yahudi utawa Nasrani? Ngucapa, “Ko kabéh sing lewih ngerti apa Gusti Allah, lan sapa wongé sing lewih aniaya (kapitunan) ketimbang wong sing ngumpetna perseksén sekang Gusti Allah [^47] sing ana neng dhéwéké?” Gusti Allah ora linglap maring apa sing ko padha pergawé.
-
-[^47]: Yakuwé persekséné Gusti Allah sing ana neng njero Taurat lan Injil, setemené Nabi Ibrahim a.s. Lan anak putuné dudu wong sing manut agama Yahudi utawa Nasrani, lan setemené Gusti Allah bakal ngutus Nabi Muhammad s.a.w.
 
 ## 2:141
 
@@ -699,8 +605,6 @@ Wong-wong sing kurang ngakal neng antarané menungsa bakal ngucap, “Apa sing n
 
 Lan mengkana uga Ingsun wis ndadékna ko kabéh (wong Islam) “umat sing tengah-tengah” [^48] supaya ko kabéh dadi seksi ingatasé (temindaké) menungsa lan supaya Rasul (Muhammad) dadi seksi maring temindakmu kabéh. Ingsun ora ndadékna kiblat sing (gemiyén) sliramu padha (ngiblat) maring kaé kejaba supayané Ingsun priksa sapa sing ngetutna Rasul lan sapa sing mbalék maring mburi. Temen, (pindhahé kiblat) kuwé abot banget, kejaba tumrap wong sing wis déparingi pituduh déning Gusti Allah. Lan Gusti Allah ora bakal siya-siya maring precayamu kabéh. Temen, Gusti Allah Mahaasih, Mahawelas maring menungsa.
 
-[^48]: Umat sing adil, sing ora abot sesisih, maring dunya utawa maring akhérat, ning seimbang antarané sekaroné.
-
 ## 2:144
 
 Ingsun mriksani pesuryanmu (Muhammad) sering madhep maring langit, mangka Ingsun bakal ngadhepna sliramu maring kiblat sing sliramu senengi. Mangka adhepna pesuryanmu maring prenah Masjidilharam. Lan neng endi baé sliramu ana, adhepna pesuryanmu maring prenah kuwé. Lan setemené wong-wong sing déparingi kitab (Taurat lan Injil) ngerti, lamon (pindhahé kiblat) kuwé kesunyatan (bebener) sekang Pengérané wong-wong mau. Lan Gusti Allah ora linglap maring apa sing dhéwéké padha pergawé.
@@ -712,8 +616,6 @@ Lan senajan sliramu (Muhammad) maringi kabéh ayat (keterangan) maring wong-wong
 ## 2:146
 
 Wong-wong sing wis Ingsun paringi kitab (Taurat lan Injil) padha ngerti kiyambeké (Muhammad) [^49] , kaya wong-wong mau ngerti anak-anaké dhéwék. Setemené sebagéan wong-wong mau mesthi ngumpetna bebener, mangkané dhéwéké padha ngerti.
-
-[^49]: Padha ngerti kenabiané Muhammad s.a.w lan sipat-sipaté kaya sing désebut neng Taurat lan Injil.
 
 ## 2:147
 
@@ -739,8 +641,6 @@ Kayadéné Ingsun wis ngutus maring ko kabéh sewiji Rasul (Muhammad) sekang (ka
 
 Mangka élinga sliramu kabéh maring Ingsun, Ingsun uga bakal kélingan maring ko kabéh. [^50] Padha kesuwuna ko kabéh maring Ingsun, lan ko aja padha mbangkang maring Ingsun.
 
-[^50]: Ingsun paring welas lan pengampura maring sliramu kabéh.
-
 ## 2:153
 
 Hé wong-wong sing padha precaya! Nyuwuna pitulungan (maring Gusti Allah) kanthi sabar lan sembayang. Temen, Gusti Allah mbarengi wong-wong sing padha sabar.
@@ -748,8 +648,6 @@ Hé wong-wong sing padha precaya! Nyuwuna pitulungan (maring Gusti Allah) kanthi
 ## 2:154
 
 Lan ko kabéh aja padha ngucap (ngarani) lamon wong-wong sing tiwas neng dalané Gusti Allah (dhéwéké kabéh) wis padha mati. Setemené (dhéwéké kabéh) padha urip, [^51] ning ko kabéh ora padha ngerténi kuwé.
-
-[^51]: Urip neng ngalam séjén sing dudu ngalamé inyong kabéh, neng endi dhéwéké padha olih pirang-pirang nékmat neng ngersané Gusti Allah, lan mung Gusti Allah sing mriksani kepriwé kahanané penguripan neng ngalam kuwé.
 
 ## 2:155
 
@@ -759,8 +657,6 @@ Lan Ingsun mesthi bakal nguji sliramu kabéh kambi rasa mandan wedi, kencot, kur
 
 (yakuwé) wong-wong sing angger kenang bilai, dhéwéké padha ngucap ”Inna Lillahi wa inna Ilaihi raji’un” [^52] (setemené inyong kabéh kagungan-É Gusti Allah lan mung maring Penjenengan-É inyong padha bali).
 
-[^52]: Pengucap kiyé déarani istirja’ (pengucap mbalekna maring Gusti Allah). Sunah déucapna rikala kenang bilai, gedhé utawa cilik.
-
 ## 2:157
 
 Wong-wong mau sing nyata padha olih pengampura lan kewelasan sekang Pengérané, lan dhéwéké kabéh kuwé nyata wong-wong sing olih pituduh.
@@ -769,12 +665,6 @@ Wong-wong mau sing nyata padha olih pengampura lan kewelasan sekang Pengérané,
 
 Setemené Shafa lan Marwah rupa sebagéan kuncarané (agama-Né) Gusti Allah. [^53] Mangka sapa wongé ngibadah haji maring Baétullah utawa umrah, ora nana dosa tumrap dhéwéké nglakoni sa’i [^54] neng antara sekloroné. Lan sapa wongé kanthi rila atiné gawé kebecikan, mangka Gusti Allah Maha Ngesuwuni, [^55] Maha Ngawuningani.
 
-[^53]: Panggonan-panggonan ngibadah maring Gusti Allah
-
-[^54]: Mlaku lan mlayu-mlayu dhologan ping pitu antarané Shafa lan Marwah rikala nglakoni ngibadah haji utawa umrah. Gusti Allah mertélakna kanthi dhawuh, “Ora nana dosa” merga sebagéan sahabat ngrasa abot nglakoni sa’i neng kono, krana panggonan kuwé tilas panggonan brehala. Lan wektu jaman jahiliyah papan  kuwé uga dénggo panggonan sa’i. Supayané ngilangna rasa abot kuwé Gusti Allah nurunaken ayat kiyé.
-
-[^55]: Gusti Allah kesuwun maring kawula-Né, maringi ganjaran maring ngamalé, ngapurani luputé, nambahi nékmaté lan liyané.
-
 ## 2:159
 
 Temen, wong-wong sing padha ngumpetna apa sing wis Ingsun turunaken rupa pirang-pirang keterangan lan pituduh, sewisé Ingsun genahna maring menungsa neng njeroné kitab (Al-Qur’an), wong-wong mau sing désupatani Gusti Allah lan désupatani (uga) neng wong-wong sing padha nyupatani,
@@ -782,8 +672,6 @@ Temen, wong-wong sing padha ngumpetna apa sing wis Ingsun turunaken rupa pirang-
 ## 2:160
 
 kejaba wong-wong sing wis padha tobat, padha nganakna perdandan becik lan padha njelasna (prekara mau). [^56] Wong-wong mau sing Ingsun tampani tobaté lan Ingsun kuwé nyata Sing Maha Nampa Tobat, Mahaasih.
-
-[^56]: Tegesé nglakoni penggawé-penggawé apik nggo ngilangna tinggalan ala sekang keluputan-keluputan sing wis délakoni, lan njelasna bebener sing déumpetna.
 
 ## 2:161
 
@@ -804,8 +692,6 @@ Setemené neng sejeroné penyiptané langit lan bumi, gonta-gantiné wengi lan a
 ## 2:165
 
 Lan neng antarané menungsa ana wong sing padha nyembah pengéran seliyané Gusti Allah minangka pepadhan, sing wong-wong mau padha dhemen kaya dhemené maring Gusti Allah. Anadéné wong-wong sing padha precaya gedhé banget tresnané maring Gusti Allah. Énggané wong-wong sing padha aniaya kuwé [^57] weruh, rikala dhéwéké padha ndeleng siksa (neng dina Kiyamat), lamon kekuwatan mau sekabéhé kagungané Gusti Allah lan kesinggihan Gusti Allah kuwé abot banget siksa-Né (mesthi wong-wong mau padha ngajog).
-
-[^57]: Wong sing aniaya (kapitunan/dolim) neng kéné yakuwé wong sing nyembah seliyané Gusti Allah. Maksudé, rikala wong sing aniaya kuwé weruh sembahané ora awéh piguna babar blas neng dina Kiyamat, dhéwéké mesthi precaya lamon sekabéhé daya (kekuwatan) mung kagungané Gusti Allah.
 
 ## 2:166
 
@@ -843,8 +729,6 @@ Setemené Penjenengané mung nglarang (ngaramna) ingatasé ko kabéh bathang, ma
 
 Temen, wong-wong sing padha ngumpetna apa sing wis déturunaken déning Gusti Allah, yakuwé Kitab, lan adol kuwé kanthi rega murah, dhéwéké kabéh mau mung nguntal geni neraka maring njero wetengé [^58] , lan Gusti Allah ora bakal takon maring wong-wong mau neng dina Kiyamat, lan ora bakal nyucékna dhéwéké kabéh. Wong-wong mau bakal padha nampa siksa sing banget perihé.
 
-[^58]: Panganan sing dépangan asalé sekang pekolih adol ayat-ayat sing déturunaken déning Gusti Allah, ndadékna sebab wong-wong mau padha mlebu geni neraka.
-
 ## 2:175
 
 Wong-wong mau sing nyata padha tuku sasar kambi pituduh lan siksa kambi pengampura. Mangka banget wanine wong-wong mau padha nantang geni neraka.
@@ -861,8 +745,6 @@ Kebecikan kuwé udu ngedhépna raimu kabéh maring prenah wétan lan prenah kulo
 
 Hé wong-wong sing padha precaya! Déwajib-na ingatasé ko kabéh  (nglakoni) qisas [^59] gandhéng karo wong sing dépaténi. Wong merdhéka karo wong merdhéka, kewula (batur-tukon) karo kewula, wong wadon karo wong wadon. Ning sapa wongé sing olih pengampura sekang seduluré, preyoga wong mau ngetutna dhéwéké kanthi becik, lan mbayar diyat (tebusan) maring dhéwéké kanthi becik (uga). Sing kaya kuwé mau pengénthéng-énthéng lan piwelas sekang Pengéranmu. Sapa wongé sing ngliwati wates sewisé kuwé, mangka dhéwéké bakal olih siksa sing banget perihé.
 
-[^59]: Qisas yakuwé ukuman sing sepadhan karo penggawé élék sing délakoni ingatasé awak menungsa.
-
 ## 2:179
 
 Lan sejeroné qisas kuwé ana (tanggungan) penguripan nggo ko kabéh, hé wong-wong sing padha duwé akal, supayané ko padha wedi (maring Gusti Allah).
@@ -870,8 +752,6 @@ Lan sejeroné qisas kuwé ana (tanggungan) penguripan nggo ko kabéh, hé wong-w
 ## 2:180
 
 Déwajibna ingatasé ko kabéh, angger pati bakal marani salah siji wong neng antarané ko kabéh, angger dhéwéké ninggalna bandha, wasiyat kanggo wong tuwa loro lan sedulur-sedulur nganggo cara sing apik, [^60] (minangka) kewajiban tumrap wong-wong sing padha wedi (maring Gusti Allah).
-
-[^60]: Wasiyat kuwé ora nglewihi sepertelu sekang sekabéhé bandha wong sing wasiyat, ayat kiyé mligi nggo ahli waris sing dénasakh (déganti ukumané) karo ayat bab waris (An Nisa (4) : 11).
 
 ## 2:181
 
@@ -881,8 +761,6 @@ Sapa wongé ngowahi (wasiyat mau) sewisé krungu, mangka setemené dosané mung 
 
 Ning sapa wongé kewatir angger sing awéh wasiyat (temindak) abot sesisih utawa luput, banjur wong mau ngakurna [^61] antarané wong-wong mau, mangka wong kuwé ora dosa. Temen Gusti Allah Maha Ngampura, Mahaasih.
 
-[^61]: Ngakurna yakuwé préntah wong sing wasiyat gawé adil sejeroné wasiyat padha karo wates-wates sing détemtokna syara (aturané agama).
-
 ## 2:183
 
 Hé wong-wong sing padha precaya, déwajibna ingatasé  ko kabéh puasa kayadéné déwajibna ingatasé wong-wong seurungé ko kabéh supayané ko kabéh padha tuhu (takwa).
@@ -890,10 +768,6 @@ Hé wong-wong sing padha precaya, déwajibna ingatasé  ko kabéh puasa kayadén
 ## 2:184
 
 (Yakuwé) sewetara dina tinemtu. Mangka sapa wongé neng antarané ko kabéh mriyang utawa neng sejeroné lelungan (banjur ora puasa), mangka (wajib ngliru) seakéhé dina (sing wong mau ora puasa) neng dina-dina sing liya. Lan kanggoné wong sing abot nglakoniné [^62] wajib mbayar fidyah, yakuwé awéh pangan maring wong miskin siji. Ning sapa wongé kanthi rilané ati nglakoni kebecikan [^63] mangka kuwé lewih apik kanggo dhéwéké, lan puasamu kuwé lewih apik kanggo ko kabéh angger ko padha ngerti.
-
-[^62]: Wong sing mriyangé nemen, wong sing banget tuwané, wong sing meteng lan nyusoni.
-
-[^63]: Awéh pangan maring lewih sekang wong melarat siji neng sedina.
 
 ## 2:185
 
@@ -907,8 +781,6 @@ Lan angger kewula-kewula Ingsun padha takon maring sliramu (Muhammad) ngenani In
 
 Déparengna tumrap ko kabéh neng wenginé puasa campur karo bojomu. Dhéwéké kabéh kuwé sandhangan tumrap ko, lan ko uga dadi sandhangan tumrap dhéwéké kabéh. Gusti Allah ngawuningani  lamon ko ora padha bisa nahan awakmu dhéwék, ning Penjenengané nampa tobatmu lan paring pengampura maring awakmu. Mangka siki campuria dhéwéké (bojo-bojomu) lan goléta apa sing wis détetepna déning Gusti Allah nggo ko kabéh. Mangana lan nginuma saéngga genah tumrap ko kabéh (bédané) antarané benang putih karo benang ireng, yakuwé fajar. Bar kuwé sempurnakna puasané nganti (tekané) wengi. Ning ko aja padha nyampuri dhéwéké kabéh, rikala ko padha iktikaf [^64] neng njero mesjid. Kuwé nyata ketetepané Gusti Allah, mangka ko aja padha méreki prekara kuwé. Mengkana kuwé Gusti Allah nerangna ayat-ayat-É maring menungsa, supayané menungsa kuwé padha semarah (takwa).
 
-[^64]: I’tikaf yakuwé ana neng njeroné mesjid kambi niyat ngibadah lan dhépé-dhépé maring Gusti Allah.
-
 ## 2:188
 
 Lan ko aja padha mangan bandha antarané ko kabéh kanthi dalan sing ora bener lan (aja pisan) ko kabéh padha nyogok kambi bandha kuwé maring para hakim, sing maksudé sangkané ko kabéh bisa mangan sebagéan bandhané wong liya kuwé kanthi dalan dosa, mangkané ko padha ngerti.
@@ -917,8 +789,6 @@ Lan ko aja padha mangan bandha antarané ko kabéh kanthi dalan sing ora bener l
 
 Wong-wong mau padha takon maring sliramu (Muhammad) ngenani wulan anyar. Ngucapa, ”Kuwé pituduh wektu kanggo menungsa lan (ngibadah) haji”. Lan udu sewiji kebecikan mlebu ngumah sekang ndhuwuré [^65] , ning kebejikan yakuwé (kebejikan) wong sing wedi maring Gusti Allah. Mlebua maring umah-umah sekang lawang-lawangé, lan padha wedia maring Gusti Allah supayané ko kabéh padha begya.
 
-[^65]: Rikala jaman jahiliyah, wong-wong sing padha ihram dhong haji, wong-wong mau padha mlebu umah sekang ndhuwur, udu sekang ngarep. Prekara kiyé uga détakokna déning sahabat-sahabat maring Rasulullah s.a.w, mula banjur ayat kiyé temurun.
-
 ## 2:190
 
 Lan perangi baé neng dalané Gusti Allah wong-wong sing padha merangi ko kabéh, ning aja ngliwati wates. Temen, Gusti Allah ora karenan  (maring) wong-wong sing padha ngliwati wates.
@@ -926,8 +796,6 @@ Lan perangi baé neng dalané Gusti Allah wong-wong sing padha merangi ko kabéh
 ## 2:191
 
 Lan paténi baé wong-wong mau neng endi papan ko kabéh ketemu dhéwéké, lan uraka dhéwéké sekang ngendi baé dhéwéké wis ngurak ko kabéh. Lan pitenah [^66] kuwé lewih jahat tenimbang rajapati. Lan ko aja padha merangi wong-wong mau neng Masjidilharam, kejaba angger dhéwéké padha merangi ko neng panggonan kuwé. Angger wong-wong mau merangi ko, mangka perangi baé dhéwéké. Kaya kuwé dadi piwales kanggo wong-wong padha mbangkang (kapir).
-
-[^66]: Pitenah (gawé kisruh), kayadéné ngurak sahabat sekang désa kelairané, ngrampas bandha lan nglarani utawa ngganggu wong ngamalaken agamané.
 
 ## 2:192
 
@@ -941,10 +809,6 @@ Lan perangi baé wong-wong mau nganti ora nana pitenah maning, lan agama mligi m
 
 Wulan haram kambi wulan haram [^67] lan (tumrap) sewenéh sing déormati [^68] tematrap (hukum) qisas. Déning merga kuwé sapa wongé sing nyerang ko kabéh, mangka seranga wong kuwé imbang karo serangané dhéwéké maring ko kabéh. Wedia maring Gusti Allah lan ngertia Gusti Allah kuwé mbarengi wong-wong sing padha semarah (takwa).
 
-[^67]: Angger wong Islam déserang neng wulan haram, sing sebeneré neng wulan haram ora olih perang, mangka déolihna males nyerang neng wulan kuwé uga.
-
-[^68]: Maksudé kayadéné wulan haram (wulan Dzulkaidah, Dzulhijah, Muharam, lan Rajab), tanah haram (Mekah) lan ihram.
-
 ## 2:195
 
 Lan sumbangna (bandhamu) neng dalané Gusti Allah, lan ko kabéh aja nibakna (awakmu dhéwék) maring sejeroné kerusakan kambi tanganmu dhéwék, lan padha gawéa kebecikan. Temen, Gusti Allah karenan  maring wong-wong sing padha nglakoni kebagusan.
@@ -953,15 +817,9 @@ Lan sumbangna (bandhamu) neng dalané Gusti Allah, lan ko kabéh aja nibakna (aw
 
 Lan sempurnakna ngibadah haji lan umrah krana Gusti Allah. Ning angger ko kabéh kekepung (mungsuh) mangka (sembeléha) hadyu [^69] sing gampang dégolét lan ko aja padha nyukur sirahmu, seurungé hadyu butul maring nggon sembeléhané. Angger ana neng antarané ko kabéh sing mriyang utawa ana gangguan neng sirahé (banjur wong mau cukur), mangka wong mau kudu mbayar fidyah, yakuwé puasa, sodakoh utawa awéh kurban. Angger ko padha neng kahanan aman, mangka sapa wongé nglakoni umrah seurungé haji, wong mau (kudu nyembeléh) hadyu sing gampang dégolét. Ning angger wong mau ora nemu, mangka dhéwéké (kudu) puasa telung dina sejeroné (mangsa) haji lan pitung (dina) sewisé ko padha bali. Kuwé kabéh sepuluh (dina). Mengkana kuwé kanggo wong sing kulawargané ora nana (manggon) neng seubengé Masjidilharam. Padha manuta maring Gusti Allah lan ngertia lamon Gusti Allah banget keras ukuman-É.
 
-[^69]: Hadyu yakuwé kéwan sing désembeléh minangka ganti (dam) penggawéyan wajib sing ora délakoni; utawa minangka dhendha merga nglanggar apa-apa sing ora kena délakoni sejeroné ngibadah haji.
-
 ## 2:197
 
 (Mangsan) haji kuwé (neng) wulan-wulan sing wis démaklumi. [^70] Sapa wongé nglakoni (ibadah) haji sejeroné (wulan-wulan) kuwé, mangka wong mau aja ngomong saru (rafas) [^71] , nglakoni maksiyat lan padu sejeroné (nglakoni ngibadah) haji. Sekabéhé sing becik sing ko padha lakoni, Gusti Allah mriksani. Padha nggawa sangu, merga setemené sangu sing paling apik yakuwé takwa. Lan manuta maring Ingsun, hé wong-wong sing padha nduwéni nalar waras!
-
-[^70]: Yakuwé wulan Syawal, Dzulkaidah, lan Dzulhijah
-
-[^71]: Saru (rafats) tegesé ngetokna omongan sing nyebabna tekané brahi, penggawéyan sing saru utawa nglakoni karonsih (junub).
 
 ## 2:198
 
@@ -975,8 +833,6 @@ Banjur mangkata ko kabéh sekang panggonan wong akéh padha mangkat (Arafah), la
 
 Angger ko kabéh wis padha ngrampungna ngibadah haji, mangka élinga maring Gusti Allah, kayadéné ko kabéh nyebut-nyebut kaki-ninimu [^72] , malah élinga sing lewih sekang kuwé. Mangka neng antarané menungsa ana sing nyenyuwun, “Dhuh Gusti, paringana kula sedaya (kebecikan) teng dunya,” lan  neng akhérat wong mau ora keduman bagéan apa-apa.
 
-[^72]: Biasané wong jahiliyah sewisé nglakoni haji padha ngedir-dirna kaki-nininé. Sewisé ayat kiyé temurun, padatan kuwé déganti karo dzikir maring Gusti Allah.
-
 ## 2:201
 
 Lan neng antarané wong-wong mau ana sing ndonga, “Dhuh Gusti kula sami, mugi paring dhateng kula sedaya kesaénan teng dunya lan kesaénan teng akhérat, lan mugi ngreksa dhateng kula sedaya saking siksa neraka.”
@@ -988,8 +844,6 @@ Wong-wong kuwé mau sing padha olih bagéan sekang apa sing wis dhéwéké lakon
 ## 2:203
 
 Lan padha élinga maring Gusti Allah neng dina sing wis dépesthékna cacahé. [^73] Sapa wongé nyepetna (ninggalna Mina) sewisé rong dina, mangka ora nana dosa tumrap dhéwéké. Lan sapa wongé ngahirna ora nana dosa (uga) tumrap dhéwéké, (yakuwé) kanggo wong-wong sing padha semarah (takwa). Lan manuta maring Gusti Allah, lan ngertia lamon ko kabéh bakal dékumpulna déning Penjenengan-É.
-
-[^73]: Maksudé zikir neng kéné, maca takbir, tasbih, tahmid lan liya-liyané. Dina-dina sing kepétung yakuwé telung dina sewisé dina riyaya haji, yakuwé tanggal 11, 12, lan 13 wulan Dzulhijjah. Dina-dina kuwé déarani dina tasrék (tasyriq).
 
 ## 2:204
 
@@ -1047,8 +901,6 @@ Déwajibna maring ko kabéh nglakoni perang, mangkané perang kuwé ora nyenengn
 
 Wong-wong mau padha takon maring sliramu (Muhammad) ngenani nglakoni perang neng wulan haram. Dhawuha, “Nglakoni perang neng wulan kuwé (dosa) gedhé. Ning ngalang-ngalangi (wong) sekang dalané Gusti Allah, duraka maring Penjenengané, (ngalang-ngalangi wong sing mlebu) Masjidilharam, lan ngurak warga sekang lingkungané, lewih gedhé (dosané) mungguhé Gusti Allah. Éwadéné pitnah, [^74] lewih jahat tenimbang rajapati. Wong-wong mau ora bakal padha mandheg merangi ko kabéh saéngga ko padha murtad (metu) sekang agamamu, énggané wong-wong mau padha sanggup. Sapa wongé sing murtad neng antarané ko kabéh sekang agamané, banjur wong kuwé mati sejeroné kapir, mangka wong kuwé amalé muspra neng dunya lan neng akhérat, lan wong-wong mau manggon neng neraka, dhéwéké kabéh selawasé manggon neng njeroné.”
 
-[^74]: Pitnah neng kéné tegesé penggawé nganiaya lan sekabéhé penggawé sing maksudé njajah Islam lan wong-wong muslim.
-
 ## 2:218
 
 Setemené wong-wong sing padha precaya, lan wong-wong sing padha boyong (hijrah) lan padha jihad neng dalané Gusti Allah, dhéwéké kabéh mau nyata sing ngarep-arep welasé Gusti Allah. Gusti Allah Maha Ngampura, Mahawelas.
@@ -1056,8 +908,6 @@ Setemené wong-wong sing padha precaya, lan wong-wong sing padha boyong (hijrah)
 ## 2:219
 
 Wong-wong mau padha takon maring sliramu (Muhammad) ngenani khamar [^75] lan main kertu. Dhawuha, “Neng karo-karoné ana dosa gedhé lan sewetara piguna tumrap menung-sa. Ning dosané lewih gedhé tenimbang pigunané.” Lan wong-wong mau padha takon maring sliramu (ngenani) apa sing (kudu) désumbangna. Dhawuhna, “Lewihané (sekang apa sing déperlokna).” Kaya kuwé Gusti Allah nerangna ayat-ayat-É maring ko kabéh supayané ko padha mikirna,
-
-[^75]: Sekabéhé inuman sing gawé wuru/mabok
 
 ## 2:220
 
@@ -1071,10 +921,6 @@ Lan ko kabéh aja padha mbojo wong-wong wadon musrik, seurungé dhéwéké padha
 
 Lan dhéwéké padha takon maring sliramu (Muhammad) ngenani héd. Dhawuhna, “Héd kuwé barang kotor.” Merga kuwé adohi [^76] bojo rikala padha héd; lan aja ko péreki seurungé wong-wong wadon kuwé padha suci. [^77] Angger dhéwéké wis padha suci, kumpulana dhéwéké kuwé laras karo (tuntunan) sing dédhawuhna déning Gusti Allah maring ko kabéh. Temen, Gusti Allah karenan maring wong-wong sing tobat lan padha nyucékna awaké.
 
-[^76]: Aja nyampur karo bojo neng wektu héd.
-
-[^77]: Sing démaksud suci yakuwé seuwisé adus wajib bar héd. Ana sing nepsiri sewisé getihé mandheg ora metu maning.
-
 ## 2:223
 
 Bojo-bojomu minangka sawah tumrap ko kabéh, mangka tekania sawahmu kapan baé lan kanthi cara sing désenengi déning ko kabéh. Lan utamakna (sing apik) nggo ko kabéh. Padha wedia ko kabéh maring Gusti Allah lan ngertia lamon ko kabéh (mbésuk) bakal nemoni Penjenengané. Lan butulna werta bebungah maring wong-wong sing padha precaya.
@@ -1083,19 +929,13 @@ Bojo-bojomu minangka sawah tumrap ko kabéh, mangka tekania sawahmu kapan baé l
 
 Lan aja padha ndadékna (asmané) Gusti Allah neng sumpahmu dadi pepalang nggo gawé kebecikan, wedi maring Gusti Allah, lan gawé tentrem neng antarané menungsa. [^78] Gusti Allah Maha Midhanget, Maha Ngawuningani.
 
-[^78]: Nglarang sumpah nganggo asmané Gusti Allah nggo ora nglakoni sing ora apik, kayadéné: Demi Allah inyong arep ora nulung bocah yatim. Ning angger sumpah kuwé wis keucap, kudu mbayar kafarat.
-
 ## 2:225
 
 Gusti Allah ora ngukum ko kabéh sebab sumpahmu sing ora ko jarag, ning Gusti Allah ngukum niyat sing ana neng atimu. Gusti Allah Maha Ngampura, Mahawelas. [^79]
 
-[^79]: Sing démaksud penyantun (halim) yakuwé ora secepeté nyiksa wong sing nglakoni dosa.
-
 ## 2:226
 
 Tumrap wong lanang sing sumpah ila’ maring bojoné [^80] kudu nunggu patang wulan. Banjur angger wong lanang kuwé bali (maring bojoné), mangka temen Gusti Allah Maha Ngampura, Mahaasih.
-
-[^80]: Sumpah illa maring bojo, maksudé sumpah ora arep ngumpuli bojo. Kanthi sumpah kiyé bojo lara ati, sebab ora dékumpuli utawa décampuri lan ora dépegat. Kanthi temuruné ayat kiyé mengko wong lanang seuwisé patang wulan kudu milih antarané kumpul karo bojoné lan bayar kafarat (dhendha) sumpah apa megat bojoné.
 
 ## 2:227
 
@@ -1105,15 +945,9 @@ Lan angger wong-wong mau netepna arep megat (bojo), mangka temen Gusti Allah Mah
 
 Lan para bojo sing padha dépegat (wajib) nahan awak dhéwék (nunggu) telung quru’. [^81] Ora kena tumrap dhéwéké kabéh ngumpetna apa sing décipta déning Gusti Allah neng njero wetengé angger dhéwéké padha precaya maring Gusti Allah lan dina Kiyamat. Lan para lanangé lewih nduwéni hak bali maning maring wong-wong wadon kaé neng senjeroné wektu kuwé, angger dhéwéké padha kepéngin apik-apikan. Lan dhéwéké mau (para wadon) nduwéni hak sing imbang karo kewajibané miturut cara sing patut. Ning para lanang nduwéni lewih sendhuwuré wong-wong wadon kaé. [^82] Gusti Allah Mahadigdaya, Mahawicaksana.
 
-[^81]: Quru’ jamak sekang qor’u sing tegesé suci, utawa héd.
-
-[^82]: Sebab lanang duwé tanggungjawab maring keslametané lan kejembarané balé-somah utawa keluwarga (An-Nisa’ (4): 34).
-
 ## 2:229
 
 Pegatan (sing olih débaléni) kuwé ping pindho. (Sewisé lanangé bisa) nahan kanthi becik, utawa ngeculna kanthi becik. Ora kena tumrap ko kabéh njikot maning apa-apa sing wis déwéhna maring dhéwéké kabéh, kejaba wong sekloroné (lanang lan bojoné) kewatir ora sanggup nglakoni hukum-hukumé Gusti Allah. Angger ko (wali) kewatir sekaroné ora sanggup nglakoni hukum-hukumé Gusti Allah, mangka sekaroné ora dosa ingatasé bayaran sing (kudu) déwéhna (déning bojo) nggo nebus awaké dhéwék. [^83] kuwé hukum-hukumé Gusti Allah, mangka ko kabéh aja padha nerak hukum kuwé. Sapa baé sing nerak hukum-hukumé Gusti Allah, dhéwéké kabéh kuwé wong-wong aniaya (kapitunan).
-
-[^83]: Ayat kiyé dadi dhasar hukum khulu’ lan penampanan ‘iwad. Khulu’ kuwé hak bojo nggo pegatan sekang lanangé kanthi mbayar ‘iwad liwat pengadilan.
 
 ## 2:230
 
@@ -1123,13 +957,9 @@ Banjur angger wong lanang wis nibakna pegat maring wong wadon (sewisé pegat sin
 
 Lan angger ko kabéh megat bojo-bojo(mu), banjur butul (akhir) idahé, [^84] mangka tahanen bojo-bojo mau kanthi cara sing apik, utawa pegaten dhéwéké kanthi cara seng apik (uga). Lan ko kabéh aja nahan dhéwéké kanthi maksud ala nggo nglarani dhéwéké kabéh. Sapa wongé sing temindak kaya kuwé dhéwéké wis gawé tuna maring awake dhéwék. Lan aja pisan ko kabéh gawé ayat-ayat-É Gusti Allah dadi pengécéan. Élinga maring nékmaté Gusti Allah maring ko kabéh, lan apa sing wis déturunaken déning Gusti Allah maring ko kabéh yakuwé kitab (Al-Qur’an) lan hikmah (Sunnah), nggo awéh piwulangan maring ko kabéh. Lan padha wedia ko kabéh maring Gusti Allah lan ngertia Gusti Allah Maha Mriksani  samubarang kabéh.
 
-[^84]: Idah kuwé wektu nunggu (ora olih umah-umah) nggo wong wadon sebab pegatan utawa détinggal mati lanangé.
-
 ## 2:232
 
 Lan angger ko padha megat bojo-bojo (mu), banjur butul idahé, mangka ko kabéh aja nyegah dhéwéké umah-umah (maning) karo calon lanangé, [^85] angger wis padha cocog neng antarané sekloroné kanthi cara sing apik. Kuwé sing déwarahna maring wong-wong neng antarané ko kabéh sing padha precaya maring Gusti Allah lan dina Kiya-mat. Kuwé lewih suci tumrap ko kabéh lan lewih bresih. Lan Gusti Allah Ngawuningani, mangkané ko ora padha ngerténi.
-
-[^85]: Umah-umah maning karo jat lanangé utawa wong lanang liya.
 
 ## 2:233
 
@@ -1139,33 +969,21 @@ Lan para biyung peryoga padha nyusoni anak-anaké lawasé rong taun penuh, tumra
 
 Lan wong-wong sing mati neng antarané ko kabéh lan ninggali bojo-bojo, dhéwéké (bojo-bojo sing détinggal mati) kudu ngenténi patang wulan sepuluh dina. Banjur angger wis (akhir) idahé dhéwéké, mangka ora nana dosa kanggo ko ngenani apa sing dhéwéké lakokna ingatasé dhéwéké [^86] nganggo cara sing patut. Lan Gusti Allah Maha Ngawuningni apa sing ko kabéh pergawé.
 
-[^86]: Dandan, lungan, utawa nampani gotékan.
-
 ## 2:235
 
 Lan ora ana dosa tumrap ko kabéh goték wong-wong wadon kuwé kanthi pesemon [^87] utawa ko ngumpet (kekarepanmu) neng njero ati. Gusti Allah ngawuningani lamon ko kabéh bakal nyebut-nyebut maring wong-wong mau. Ning ko kabéh aja gawé janji (kanggo umah-umah) karo wong-wong kaé kanthi cara meneng-menengan (rahasia), kejaba mung ngucapna tembung-tembung sing apik. [^88] Lan aja nganti ko kabéh netepna akad nikah, seurungé entong wektu idahé. Kawruhana lamon Gusti Allah ngawuningani apa sing ana neng atimu, mangka wedia ko kabéh maring Gusti Allah. Lan kawruhana lamon Gusti Allah Maha Ngampura, Mahawicaksana.
-
-[^87]: Wong wadon sing olih dégotéki kanthi pesemon yakuwé wong wadon sing neng wektu idah merga matiné sing lanang utawa merga pegatan bain. Éwadéné wong wadon sing lagi idah pegat roj’i ora kena dégotéki senajan nganggo pesemon.
-
-[^88]: Tembung pesemon sing apik.
 
 ## 2:236
 
 Ora nana dosa tumrap ko kabéh angger ko padha megat bojo-bojomu sing urung ko sénggol (kumpuli) utawa sing urung ko temtokna mas kawiné. Lan ko kudu padha awéh maring dhéwéké mut’ah, [^89] tumrap sing mampu miturut kesanggupané lan kanggo sing ora mampu miturut kesanggupané, yakuwé perwéwéh kanthi cara sing patut, sing dadi kewajiban tumrap wong-wong sing gawé kebagusan.
 
-[^89]: Yakuwé sing lanang utawa wali. Angger wali sing mbébasna mangka sing lanang débébasna ora mbayar separoné mas kawin. Éwadéné angger sing lanang sing mbébasna, mangka dhéwéké mbayar sekabéhané mas kawin.
-
 ## 2:237
 
 Lan angger ko padha megat wong-wong wadon seurungé ko kabéh sénggol (kumpuli), mangkané ko kabéh wis nemtokna mas kawiné, mangka (bayara) separo sekang sing wis ko kabéh temtokna, kejaba dhéwéké (mbébasna) utawa débebasna déning wong sing akad nikah ana neng tangané. [^90] Mbébasna kuwé lewih pérek maring takwa. Lan aja pisan ko padha kelalén kebecikan neng antarané ko kabéh. Temen, Gusti Allah ngawuningani apa sing ko kabéh lakokna.
 
-[^90]: Ya kuwé lanangé utawa wali, Angger wali sing mbébasna mangka sing lanang débébasna sekang mbayar separo mas kawin. Banjur angger sing lanang sing mbébasna mangka dhéwéké mbayar mas kawin sekabéhé.
-
 ## 2:238
 
 Reksanen kabéh sembayang lan sembayang wustho [^91] . Lan leksanakna sembayang merga Gusti Allah kanthi gentur (khusuk).
-
-[^91]: Sembayang wusta miturut hadits sing soheh yakuwé sembayang ngasar.
 
 ## 2:239
 
@@ -1195,13 +1013,9 @@ Lan padha peranga ko kabéh neng dalané Gusti Allah (ngluhurna agama-Né) lan k
 
 Sapa wongé nyilihi [^92] Gusti Allah karo silihan sing apik (iklas) mangka Gusti Allah nikelaken liru maring dhéwéké kanthi akéh. Gusti Allah nyupet lan ngombérna (rejeki) lan mung maring Penjenengané ko kabéh débalékna.
 
-[^92]: Maksud nyilihi maring Gusti Allah yakuwé nginfakna (nyumbang) bandha neng dalané Gusti Allah.
-
 ## 2:246
 
 Apa ko kabéh ora nggatékna maring para pengarep Bani Israil sewisé Nabi Musa seda, rikala dhéwéké padha ngomong maring sewiji nabiné. “Jumenengna raja nggo inyong kabéh, mesthi inyong padha perang neng dalané Gusti Allah.” Nabiné semaur, “Aja-aja angger déwajibna perang ingatasé ko kabéh, ko padha ora arep gelem perang baé?” Dhéwéké pada semaur, “Kenangapa inyong padha ora arep perang neng dalané Gusti Allah, suprandéné inyong kabéh wis déurak sekang désaku dhéwék, lan (dépisah sekang) anak-anaku kabéh?” [^93] Ning rikala perang déwajibna maring wong-wong kuwé, dhéwéké padha mléngos kejaba sebagéan cilik sekang dhéwéké. Lan Gusti Allah Maha Ngawuninganiu  wong-wong sing aniaya.
-
-[^93]: Dhéwéké kabéh lan anak-anaké détawan.
 
 ## 2:247
 
@@ -1210,8 +1024,6 @@ Lan nabiné wong-wong mau dhawuh maring dhéwéké kabéh. “Setemené Gusti Al
 ## 2:248
 
 Lan nabiné dhéwéké kabéh dhawuh maring wong-wong mau, “Setemené pertandha praja (kuwasa) yakuwé tekané Tabut [^94] maring ko kabéh, sing neng njeroné ana ketentreman sekang Pengéranmu kabéh lan tilas tinggalan kulawargané Musa lan kulawargané Harun sing degawa neng malaékat.” Temen, neng sing mengkana kuwé ana tandha (keagungané Gusti Allah) tumrap ko kabéh, angger ko wong sing padha precaya.
-
-[^94]: Tabut kuwé pethi sing nggo nyimpén kiyab Taurat.
 
 ## 2:249
 
@@ -1233,8 +1045,6 @@ Nyata kuwé tandha-tandhané (kewasané) Gusti Allah, Ingsun wacakna maring ko k
 
 Utusan-utusan kuwé Ingsun punjulna sebagéan dhéwéké sekang sebagéan liyané. Antarané dhéwéké ana sing (langsung) Gusti Allah dhawuh maring dhéwéké lan sebagéan maning ana sing Penjenengané dhuwurna sewetara drajat. Lan Ingsun paring maring Isa putra Maryam sewetara mukjijat (kesektén) lan Ingsun kuwatna dhéwéké (Isa) karo rohulkudus. [^95] Angger Gusti Allah ngersakna, mesthi wong-wong sewisé dhéwéké ora arep patén-paténan, sewisé bukti-bukti butul maring dhéwéké. Ning dhéwéké padha pesulayan, mangka ana neng antarané dhéwéké kabéh sing padha precaya lan ana (uga) sing kapir. Angger Gusti Allah ngersakna, ora bakal dhéwéké padha patén-paténan. Ning Gusti Allah temindak miturut kersa-Né.
 
-[^95]: Miturut sebagéan ahli tapsir sing démaksud rohul kudus kuwé Malaékat Jibril.
-
 ## 2:254
 
 Hé wong-wong sing padha precaya. Sumbangna (infakna) sebagéan sekang rejeki sing wis Ingsun paringna maring ko kabéh seurungé teka dina wis ora nana dol-tinuku, ora nana maning peseduluran lan ora ana maning pitulungan. Wong-wong kapir kaé nyata sing padha aniaya.
@@ -1243,13 +1053,9 @@ Hé wong-wong sing padha precaya. Sumbangna (infakna) sebagéan sekang rejeki si
 
 Gusti Allah, ora nana Pengéran kejaba Penjenengané. Sing Mahasugeng, Sing terus-terusan ngreksa (ciptanan-É) ora arip lan ora saré. Kagungan-É kabéh apa sing neng langit lan apa sing ana neng bumi. Ora nana sing bisa awéh pitulungan (sapangat) neng sisih-É tanpa idin-É. Penjenengané Ngawuningani apa sing ana neng ngarepé dhéwéké kabéh lan apa sing ana neng mburiné, lan dhéwéké padha ora ngerténi apa-apa ngenani ilmuné Gusti Allah kejaba sing Penjenengané kersakna. Kursi-Né [^96] nglingkupi sing ana neng langit lan bumi. Lan Penjenengané ora krasa abot ngreksa sekaroné (langit lan bumi). Lan Penjenengané Mahaluhur, Mahaagung.
 
-[^96]: Sebagéan ahli tapsir negesna karo ilmuné Gusti Allah, ana sing negesna karo kuwasané lan ana sing negesna liyané.
-
 ## 2:256
 
 Ora nana paripeksa neng (urusan) nganut agama (Islam), setemené wis cetha (bédané) antarané dalan sing bener lan dalan sing sasar. Sapa wongé sing ingkar maring Tagut [^97] lan precaya maring Gusti Allah, mangka temen dhéwéké wis cekelan kenceng maring tali sing banget kuwaté sing ora arep pedhot. Gusti Allah Maha Midhanget, Maha Ngawuningani.
-
-[^97]: Sétan lan apa baé sing désembah seliyané Gusti Allah
 
 ## 2:257
 
@@ -1258,10 +1064,6 @@ Gusti Allah pengayomé wong-wong sing padha precaya, Penjenengané ngetokna dhé
 ## 2:258
 
 Apa ko kabéh ora padha nggatékna wong [^98] sing padha ndhebad Ibrahim ngenani Pengérané, merga Gusti Allah wis paring maring dhéwéké praja (kuwasa). Rikala Ibrahim ngucap, “Pengéranku kuwé Sing nguripna lan matékna.” dhéwéké ngucap, “Aku uga bisa nguripna lan matékna” [^99] . Ibrahim ngucap, “Gusti Allah ngetokna srengéngé sekang wétan, mangka tokna srengéngé kuwé sekang kulon.” Mangka padha bingung wong kapir kuwé. Gusti Allah ora paring pituduh maring wong-wong aniaya.
-
-[^98]: Miturut sebagéan riwayat yakuwé Namrud raja Babilonia
-
-[^99]: Nguripna yakuwé ngejorna urip lan sing démaksud maring sing matékna yakuwé maténi. Ucapané kuwé nggo ngina maring Nabi Ibrahim a.s.
 
 ## 2:259
 
@@ -1283,8 +1085,6 @@ Wong sing nyumbangna bandhané neng dalané Gusti Allah, banjur ora nututi apa s
 
 Ucapan sing apik lan perwéwéh ngampura [^100] lewih apik tenimbang sedekah sing débarengi temindak sing nglarani. Gusti Allah Mahasugih, Mahawicaksana.
 
-[^100]: Ucapan sing apik, nolak nganggo cara sing apik, lan awéh pengampura yakuwé ngampurani penggawé sing kurang sopan sekang sing njaluk,
-
 ## 2:264
 
 Hé wong-wong sing padha precaya. Aja nganti ko kabéh ngrusak sedekahmu karo nyebut-nyebut sedhekah mau lan gawé lara (maring sing nampa) kaya wong sing nyumbangna bandhané merga pamér (riya) maring menungsa lan dhéwéké ora precaya maring Gusti Allah lan dina Kiyamat. Perumpamané (wong kuwé) kaya watu sing lunyu sing neng ndhuwuré ana lebu. Banjur wektu kuwé déguyur udan gedhé, mangka dadiné watu kuwé lunyu maning. Dhéwéké ora olih apa-apa sekang apa sing dhéwéké lakokna. Lan Gusti Allah ora paring pituduh maring wong-wong kapir.
@@ -1296,8 +1096,6 @@ Lan perumpamané wong sing nyumbangna bandhané nggo nggolét karenané  Gusti A
 ## 2:266
 
 Apa ana salah siji wong neng antarané ko kabéh sing kepéngin duwé kebon korma lan anggur sing mili kali-kali neng ngisoré, neng kana dhéwéké duwé sewernané woh-wohan, banjur teka mangsa tuwané, mangkané dhéwéké duwé keturunan ésih sing cilik-cilik. Banjur kebon kuwé kedamu angin gedhé sing mawa geni, saéngga (kebon mau) kobaran. [^101] Kaya kuwé Gusti Allah nerangna ayat-ayat-É maring ko kabéh supayané ko padha mikirna.
-
-[^101]: kiyé peumpamané wong sing nyumbangna bandhané krana pamer, mbanggakna perwéwéhé maring wong liya lan nglarani atiné wong sing déwéhi.
 
 ## 2:267
 
@@ -1311,19 +1109,13 @@ Sétan njanjékna (medén-medéni) kemlaratan maring ko kabéh lan préntah ko k
 
 Penjenengané (Gusti Allah) maringi hikmah [^102] maring sapa sing Penjenengané kersakna. Sapa wongé sing déparingi hikmah setemené dhéwéké wis déparingi kebecikan sing akéh. Lan ora nana sing ngalap tuladha (nyonto) kejaba wong-wong sing nduwéni nalar sehat.
 
-[^102]: Hikmah yakuwé kesanggupané ngerténi kesunyatan syariat agama.
-
 ## 2:270
 
 Lan sumbangan apa baé sing ko kabéh wéhna utawa nadar [^103] sing ko janjékna, mangka setemené Gusti Allah ngawuningani (ngaweruhi). Lan nggo wong sing aniaya ora nana sijia wong sing tulung.
 
-[^103]: Janji nggo nindakna sewiji kebecikan maring Gusti Allah, nggo ngepérek maring Gusti Allah, peryoga nganggo sarat utawa ora.
-
 ## 2:271
 
 Angger ko kabéh ngedhéngna perwéwéh-perwéwéhmu [^104] mangka kuwé apik. Lan angger ko padha ngumpet lan ngewéhna maring wong-wong ora duwé, sing kaya kuwé lewih becik tumrap ko lan Gusti Allah bakal mbusek sebagéan keluputan-keluputanmu. Lan Gusti Allah Mahanastiti (maring) apa sing ko pergawé.
-
-[^104]: Ngedhéngna sodakoh supayané détiru neng wong liya udu nggo pamer (riya).
 
 ## 2:272
 
@@ -1341,17 +1133,9 @@ Wong-wong sing padha nyumbangna bandhané wengi lan awan (nganggo cara) sidhem-s
 
 Wong-wong sing padha mangan riba (rénten) ora njanggleng kejaba kaya njangglengé  wong sing kelebon sétan merga gemblung. [^105] Sing kaya kuwé merga dhéwéké ngomong lamon dol-tinuku padha karo riba. Mangkané Gusti Allah wis marengna dol-tinuku lan nglarang riba. Sapa wongé olih pengéling-éling sekang Pengéra-né, banjur dhéwéké mandheg, mangka apa sing wis dépekolih ganu, dadi duwéke [^106] lan urusané (désumanggakna) maring Gusti Allah. Sapa wongé sing mbaléni, mangka dhéwéké kuwé manggoni neraka. Dhéwéké kabéh langgeng neng njeroné.
 
-[^105]: Wong sing ngalap riba ora tentrem jiwané kaya wong sing kelebon sétan.
-
-[^106]: Riba sing wis déjikot (dépangan) seurungé temurun ayat kiyé kena ora débalékna.
-
 ## 2:276
 
 Gusti Allah nyirnakna riba lan nyuburna sedekah. [^107] Gusti Allah ora karenan maring wong tetep neng njeroné kapir lan gupak dosa. [^108]
-
-[^107]: Nyirnakna riba yakuwé nyirnakna bandha kuwé apa ngilangna berkahé. Lan ngakéhna sedekah yakuwé mundhakna bandha sing wis détokna sedhekahé apa nikelna berkahé.
-
-[^108]: Wong-wong sing ngalalna riba lan tetep nglakoken.
 
 ## 2:277
 
@@ -1401,8 +1185,6 @@ Alif lam mim
 
 Gusti Allah, ora nana Pengéran kejaba Penjenengané. Sing Mahasugeng, Sing terus-terusan ngopéni (ciptanan-É). [^109]
 
-[^109]: Gusti Allah sing ngatur langit lan seisiné bumi
-
 ## 3:3
 
 Penjenengané nurunaken kitab (Al-Qur’an) maring sliramu (Muhammad) sing isiné bebener, mbenerna (kitab-kitab) seurungé, lan nurunaken Taurat lan Injil,
@@ -1410,8 +1192,6 @@ Penjenengané nurunaken kitab (Al-Qur’an) maring sliramu (Muhammad) sing isin�
 ## 3:4
 
 seurungé, minangka pituduh nggo menungsa, lan Penjenengané nurunaken Al-Furqon. [^110] Temen, wong-wong sing ingkar maring ayat-ayat-É Gusti Allah bakal olih siksa sing abot. Gusti Allah Mahadigdaya tur kagungan paukuman.
-
-[^110]: Al-Furqon (Al-qur’an) yakuwé kitab sing mbédakna antarané sing bener lan sing salah.
 
 ## 3:5
 
@@ -1424,10 +1204,6 @@ Penjenengané sing ngukir ko neng njero kandhutan (gua garba) miturut sing Penje
 ## 3:7
 
 Penjenengané sing nurunaken kitab (Al-Qur’an) maring sliramu (Muhammad). Neng antarané ana ayat-ayat sing muhkamat, [^111] kuwé pokok-pokoké kitab (Al-Qur’an) lan sing liyané mutasyabihat. [^112] Anadéné wong-wong sing neng njero atiné dhoyong maring sesasar, dhéwéké mélu sing mutasyabihat nggo nggolét pitnah lan nggo nggolét tegesé (takwilé), mangkané ora nana sing ngerti takwilé kejaba Gusti Allah. Lan wong-wong sing ilmuné jero padha ngucap, “Inyong padha precaya maring kuwé (Al-qur’an), kabéhané sekang sisihé Pengérané inyong kabéh.“ Ora nana sing bisa ngalap piwulang kejaba wong sing padha duwé nalar.
-
-[^111]: Ayat-ayat sing gamblang lan tegas maksudé, bisa dépahami kanthi gampang.
-
-[^112]: Ayat-ayat sing maksudé samar, angél dépahami utawa mung Gusti Allah sing priksa.
 
 ## 3:8
 
@@ -1453,13 +1229,9 @@ Dhawuha (Muhammad) maring wong-wong sing padha mbangkang (kapir), “Ko kabéh (
 
 Temen, wis ana tandha nggo ko kabéh neng rong golongan sing padha adhep-adhepan. [^113] Segolongan perang neng dalané Gusti Allah lan sing liyané (golongan) kapir sing weruh karo matané dhéwék, lamon wong-wong (golongan muslim) tikel loro akéhé ketim-bang dhéwéké kabéh. Gusti Allah nguwatna kelawan pitulungan-É, maring sapa baé sing Penjenengané kersakna. Temen, neng sing kaya kuwé ana wulangan tumrap wong-wong sing duwé peningalan (mata batin).
 
-[^113]: Ketemuné rong golongan kuwé antarané kaum Muslimin karo kaum musrikin, kedadéané neng Perang Badar. Badar kuwé sewijiné panggonan sing ana neng kidul Medinah.
-
 ## 3:14
 
 Dédadékna rinasa éndah neng sesawangané menungsa (sipat) tresna maring apa sing dégayuh, sing rupané wong-wong wadon, anak-anak, dunya-brana sing tumpuk-undhung rupa emas lan pérak, jaran sing pinilih, raja-kaya [^114] lan sawah-pegagan. Kuwé kabéh kesenengan urip neng dunya, lan mung neng sisihé Gusti Allah panggonan bali sing apik.
-
-[^114]: Kéwan-kéwan kayadéné onta, sapi, wedhus, lan gembel.
 
 ## 3:15
 
@@ -1481,13 +1253,9 @@ Gusti Allah mertélakna lamon ora nana Pengéran kejaba Penjenengané (mengkana 
 
 Setemené agama neng sisihé Gusti Allah yakuwé Islam. Ora padha pesulayan wong-wong sing wis déparingi Kitab [^115] kejaba sewisé dhéwéké padha olih ilmu, merga drengki neng antarané dhéwéké kabéh. Sapa baé sing ingkar maring ayat-ayat-É Gusti Allah, mangka temen, Gusti Allah cepet banget étungan-É.
 
-[^115]: Yakuwé kitab-kitab sing déturunaken seurungé Al-Qur’an.
-
 ## 3:20
 
 Banjur umpama dhéwéké padha mbantah sliramu (Muhammad) dhawuha, “Ingsun semarah maring Gusti Allah lan (semana uga) wong-wong sing mélu maring ingsun.” Lan ucapna maring wong-wong sing wis dépa-ringi Kitab lan maring wong-wong sing wuta aksara, [^116]  “Apa ko kabéh wis mlebu Islam?” umpama dhéwéké padha mlebu Islam, ateges dhéwéké padha olih pituduh, ning angger dhéwéké padha mléngos, kewajibanmu mung mbutulna. Lan Gusti Allah Maha Mriksani kewulané kabéh.
-
-[^116]: Wuta aksara maksudé wong sing ora ngerti maca lan nulis. Miturut sebagéan juru tapsir sing démaksud ummi yakuwé wong musrik Arab sing ora ngerti maca lan nulis, ujaré sebagéan liya yakuwé wong-wong sing ora déparingi Kitab.
 
 ## 3:21
 
@@ -1516,8 +1284,6 @@ Dhawuha (Muhammad), “Dhuh Pengéran ingkang kagungan wenang, Penjenengan parin
 ## 3:27
 
 Penjenengan nglebetaken dalu wonten selebetipun siang lan Penjenengan nglebetaken siang wonten selebetipun dalu lan Penjenengan ngedalaken ingkang gesang saking ingkang pejah lan Penjenengan ngedalaken ingkang pejah saking ingkang gesang, [^117] lan ugi Penjenengan paring rejeki dhateng sinten kémawon ingkang Penjenengan kersakaken tanpi étangan.”
-
-[^117]: Sebagéan juru tapsir awéh conto nggo ayat kiyé karo metuné pitik sekang endhog lan endhog sekang pitik.
 
 ## 3:28
 
@@ -1567,8 +1333,6 @@ Ya neng kana Zakaria nyenyuwun maring Pengérané. Zakaria ngucap, “Dhuh Peng�
 
 Banjur para malaékat nimbali dhéwéké, rikala dhéwéké ngadeg nglakoni sembayang neng mihrab. “Gusti Allah paring werta apik maring sliramu kanthi (lairé) Yahya. Sing mbenerna sewiji kalimah (firman) [^118] sekang Gusti Allah, panutan, nduwéni kesaguhan nahan awak (sekang hawa napsu) lan sewiji nabi neng antarané wong-wong apik (saléh).
 
-[^118]: Mbenerna (ngiyakna) tekané siji nabi sing décipta karo kalimah “kun” (dadia) tanpa rama yakuwé Nabi Isa a.s.
-
 ## 3:40
 
 Dhéwéké (Zakaria) ngucap, “Dhuh Pengéran kula, kados pundi kula saged pikantuk anak ing mangka kula empun sepuh lan bojo kula ugi gabug?” Penjenengané (Gusti Allah) dhawuh, “Mengkana Gusti Allah temindak apa baé sing Penjenengané kersakna.”
@@ -1589,8 +1353,6 @@ Hé Maryam! Manuta maring Pengéranmu, sujud (sembah) lan rukuk (ndhongko) baren
 
 Kuwé sebagéan sekang kabar-kabar gaib (wisik) sing Ingsun wahyokna maring sliramu (Muhammad), mangkané sliramu ora bareng karo wong-wong mau rikala dhéwéké padha mbalang pen [^119] (nggo ngogan) sapa neng antarané dhéwéké sing bakal ngrumat Maryam. Lan sliramu (Muhammad) uga ora bareng karo wong-wong mau rikala dhéwéké padha pesulayan (padu).
 
-[^119]: Ana sebagéan juru tapsir sing nepsiri jemparing (anak panah). Maksudé ngogan (undian) nganggo cara mbalang jemparing.
-
 ## 3:45
 
 (Élinga), rikala para malaékat ngucap, “Hé Maryam! Setemené Gusti Allah paring werta apik maring sliramu ngenani sewiji kalimah (sabda) sekang Penjenengané (yakuwé sewiji anak lanang), arané Al-Masih Isa putra Maryam, sewiji wong sing pinunjul neng dunya lan neng akhérat, lan klebu wong-wong sing kepérek (maring Gusti Allah),
@@ -1606,8 +1368,6 @@ Dhéwéké (Maryam) ngucap, “Dhuh Pengéran kula, kados pundi kula ajeng gadhe
 ## 3:48
 
 Lan Penjenengané (Gusti Allah) ngajarna maring dhéwéké (Isa) Kitab, [^120] Hikmah, Taurat, lan Injil.
-
-[^120]: Al-Kitab neng kéné ana sing nepsiri karo piwulang nulis lan ana uga sing nepsiri kitab-kitab sing déturunaken déning Gusti Allah seurungé, kejaba Taurat lan Injil.
 
 ## 3:49
 
@@ -1661,8 +1421,6 @@ Bebener (al-haq) kuwé sekang Pengéranmu, merga kuwé aja nganti sliramu (Muham
 
 Sapa sing mbantah sliramu ngenani prekara kiyé, seuwisé sliramu olih ilmu, dhawuha (Muhammad), ”Ayuh dhéwék kabéh padha ngundang anak-anak dhéwék kabéh lan anak-anakmu kabéh, bojo-bojo inyong kabéh lan bojo-bojoné ko kabéh, inyong dhéwék kabéh lan ko kabéh uga, banjur ayuh padha mubahalah [^121] supaya laknaté Gusti Allah détibakna maring wong-wong sing padha cidra (ngapusi).”
 
-[^121]: Mubahalah yakuwé saben-saben golongan neng antarané wong-wong sing béda penemuné padha-padha nyuwun maring Gusti Allah kanthi temenan, moga-moga Gusti Allah nibakna laknat maring golongan sing ngapusi. Nabi aséng utusan Nasrani Najran bareng-bareng nglakoni mubahalah, ning dhéwéké ora wani, lan kiyé dadi bukti beneré Nabi Muhammad s.a.w.
-
 ## 3:62
 
 Temen, kiyé minangka crita sing apik, ora nana Pengéran kejaba Gusti Allah, lan temen Gusti Allah Mahadigdaya Mahawicaksana.
@@ -1679,21 +1437,13 @@ Dhawuha (Muhammad), “Hé Ahli Kitab! Ayuh (dhéwék kabéh) padha nuju maring 
 
 Hé Ahli Kitab! Kenangapa ko kabéh padha dhebadan [^122] ngenani Ibrahim, mangkané Taurat lan Injil déturunaken seuwisé kiyambeké (Ibrahim). Apa ko padha ora ngerti?
 
-[^122]: Wong Yahudi lan Nasrani karo-karoné padha nganggep Nabi Ibrahim a.s sekang golongané. Banjur Gusti Allah mbantah wong-wong kaé kanthi alesan lamon Nabi Ibrahim a.s. Kuwé teka seurungé dhéwéké kabéh.
-
 ## 3:66
 
 Kaya kuwé anané ko kabéh! Ko padha dhebadan ngenani apa sing ko padha ngerténi, [^123] ning kenangapa ko padha dhebadan uga ngenani apa sing ko padha ora ngerti? [^124] Gusti Allah ngawuningani, mangkané ko padha ora ngerti.
 
-[^123]: Yakuwé ngenani Nabi Musa as, Nabi Isa as, lan Nabi Muhammad s.a.w.
-
-[^124]: Yakuwé masalah Nabi Ibrahim as.
-
 ## 3:67
 
 Ibrahim kuwé udu wong Yahudi lan (uga) udu wong Nasrani, ning dhéwéké kuwé wong sing jejeg, [^125] Muslim, lan dhéwéké ora kegolong wong-wong sing musrik (nyekuthokna Gusti Allah).
-
-[^125]: Jejeg yakuwé adoh sekang lakon nyekutokna Gusti Allah) lan adoh sekang sesasar.
 
 ## 3:68
 
@@ -1707,15 +1457,9 @@ Segolongan Ahli Kitab kepéngin nyasarna ko. Mangkané (setemené), dhéwéké o
 
 Hé Ahli Kitab! Kenangapa ko kabéh padha ngingkari ayat-ayat-É Gusti Allah, [^126] mangkané ko kabéh ngerténi (beneré)?
 
-[^126]: Ayat-ayaté Gusti Allah sing déturunaken maring Nabi Muhammad s.a.w.
-
 ## 3:71
 
 Hé Ahli Kitab! Kenangapa ko kabéh padha nyampur-bawur bebener (prekara sing bener) karo kebatilan [^127] (prekara sing ora bener) lan ko kabéh padha ngumpetna bebener  [^128] mangkané ko padha ngerti?
-
-[^127]: Nutupi dhawuh-dhawuhé Gusti Allah sing wis ketulis neng Taurat lan Injil kanthi omongan sing dégawé-gawé neng wong (Ahli Kitab) dhéwék.
-
-[^128]: Bener ngenani kenabiané Muhammad s.a.w. Sing wis ana neng Taurat lan Injil.
 
 ## 3:72
 
@@ -1724,8 +1468,6 @@ Lan segolongan Ahli Kitab ngucap (maring sepadhané), “Padha precayaa ko kabé
 ## 3:73
 
 Lan ko kabéh aja padha precaya kejaba maring wong sing mélu maring agamamu.” [^129] Dhawuha (Muhammad), “Setemené pituduh kuwé mung pituduhé Gusti Allah (aja nganti ko padha precaya) lamon sewiji wong arep déparingi kaya apa sing déparingna maring ko kabéh, utawa lamon dhéwéké arep padha nyanggah ko kabéh neng ngersané Pengéranmu.” Dhawuha (Muhammad), “Setemené kanugrahan kuwé neng astané Gusti Allah, Penjenengané paringna maring sapa baé sing Penjenengané kersakna. Gusti Allah Mahajembar, Maha Ngawuningani.
-
-[^129]: Maring wong-wong sing seagama karo sliramu (Yahudi utawa Nasrani) supayané dhéwéké ora sida mlebu Islam utawa maring wong-wong Islam sing mauné sekang agamamu kon goyang precayané lan bali maring kapir.
 
 ## 3:74
 
@@ -1758,8 +1500,6 @@ lan ora (gadhang uga ingatasé dhéwéké) préntah ko kabéh ndadékna para mal
 ## 3:81
 
 Lan (élinga), rikala Gusti Allah mundhut janji sekang para nabi, “Arikala Ingsun paring kitab lan hikmah maring sliramu banjur teka maring sliramu sewiji Utusan sing mbenerna apa sing ana neng sliramu kabéh, mesthi sliramu kabéh bakal nyata-nyata precaya maring dhéwéké lan nulungi utusan kuwé. [^130] Gusti Allah dhawuh, “Apa sliramu kabéh padha serujuk lan nampa janji karo Ingsun ingatasé sing kaya kuwé?” Dhéwéké padha ngucap, “Kula sedaya serujuk.” Gusti Allah dhawuh, “Angger kaya kuwé padha dadia seksi sliramu (para nabi) lan Ingsun dadi seksi karo sliramu kabéh.”
-
-[^130]: Nabi-nabi janji dhateng Gusti Allah angger teka siji Rasul sing asmané Muhammad dhéwéké arep precaya maring Muhammad lan nulungi. Perjanjian nabi-nabi kiyé kejiret uga neng umaté.
 
 ## 3:82
 
@@ -1809,13 +1549,9 @@ Ko kabéh ora bakal olih kebagusan, seurungé ko padha nyumbangna sebagéan band
 
 Kabéh panganan kuwé halal nggo Bani israil, kejaba panganan sing déharamna (délarang) neng Israil (Yakub) ingatasé awaké dhéwék seurungé Taurat déturunaken. [^131] Dhawuha (Muhammad), “Mangka gawakna Taurat banjur wacanen, angger ko kabéh kuwé wong-wong sing bener.”
 
-[^131]: Sewisé Taurat déturunaken, ana sewetara panganan sing déharamna ingatasé dhéwéké kabéh minangka ukuman. Jeneng-jeneng panganan kuwé kesebut neng njeroné. Seterusé delengen surat An-Nisa’ (4): 160 lan Al-An’am (6): 146.
-
 ## 3:94
 
 Mangka sapa wongé sing ngana-anakna goroh maring Gusti Allah [^132] sewisé kuwé, mangka dhéwéké kuwé wong-wong sing aniaya (dolim).
-
-[^132]: Goroh maring Gusti Allah yakuwé ngomongna lamon seurungé Taurat déturunaken, Gusti Allah wis ngaramna sewetara panganan maring Bani Israil
 
 ## 3:95
 
@@ -1825,15 +1561,9 @@ Dhawuha (Muhammad), “Mula bener (apa baé sing dédhawuhna) Gusti Allah.” Mu
 
 Setemené umah (pesembahan) sing dhisit dhéwék dégawé nggo menungsa, kuwé (Baitullah) sing ana neng Bakkah (Mekah) [^133] sing déberkahi lan nggo pituduh (ancer-ancer) nggo sekabéhané ngalam.
 
-[^133]: Ahli Kitab ngomongna lamon umah sembahan sing dhisit dhéwék débangun neng Baitul Maqdis, mulané kuwé Gusti Allah nyewala (mbantah).
-
 ## 3:97
 
 Neng kana ana tetenger sing genah (antarané) makom Ibrahim. [^134] Sapa wongé sing ngleboni (Baitullah) dhéwéké bakal aman. Lan (antarané) kewajibané menungsa maring Gusti Allah kuwé nindakna ngibadah haji maring Baitullah, kuwé kanggoné wong-wong sing kuwat [^135] nglakoni lelungan maring nganah. Sapa wongé sing ngingkari (kewajibané) haji, mangka padha ngertia lamon Gusti Allah Mahasugih (ora butuh maring sewiji-wiji) sekang sekabéhané ngalam.
-
-[^134]: Delengen surat al-Baqoroh (2): 125
-
-[^135]: Wong sing sanggup nganakna sangu lan uba-rampéné lelungan tur sehat raga, lan dalané maring Tanah Suci aman tur keluwarga sing détinggal déjamin penguripané
 
 ## 3:98
 
@@ -1842,8 +1572,6 @@ Dhawuha (Muhammad), “Hé Ahli Kitab! Kenangapa ko padha ngingkari ayat-ayat-É
 ## 3:99
 
 Dhawuha (Muhammad), “Hé Ahli Kitab! Kenangapa ko padha ngalang-ngalangi wong-wong sing padha precaya sekang dalané Gusti Allah, ko padha karep (dalané Gusti Allah) bengkok, mangkané ko kabéh nyekséni?” [^136] Lan Gusti Allah ora supé maring apa baé sing ko kabéh pergawé.
-
-[^136]: Nyekséni maksudé ngaweruhi lamon agama sing kepareng mungguh Gusti Allah kuwé agama Islam.
 
 ## 3:100
 
@@ -1864,8 +1592,6 @@ Lan padha cekelana ko kabéh sing kenceng maring taliné (agama) Gusti Allah, la
 ## 3:104
 
 Lan preyogané neng antarané ko kabéh ana segolongan wong sing ajek-ajek maring kebagusan, préntah (nglakoni) sing apik (ma’ruf) lan nyegah maring sing ala (mungkar) [^137] lan dhéwéké mau klebu wong-wong sing begya.
-
-[^137]: Ma’ruf kuwé penggawéyan apa baé sing merekna kepérek maring Gusti Allah. Mungkar kuwé penggawéyan apa baé sing ngadohna awak sekang Gusti Allah.
 
 ## 3:105
 
@@ -1903,8 +1629,6 @@ Dhéwéké kabéh dékubengi kenisthan neng endi baé dhéwéké ana, kejaba ang
 
 Wong-wong mau ora (sekabéhé) padha. Neng antarané Ahli Kitab ana golongan sing tulus, [^138] dhéwéké padha maca ayat-ayat-É Gusti Allah neng wektu wengi lan dhéwéké (uga) padha manembah (sembayang).
 
-[^138]: Segolongan Ahli Kitab sing wis ngrasuk agama Islam.
-
 ## 3:114
 
 Dhéwéké padha precaya maring Gusti Allah lan dina wekasan, ngongkon (nglakoni) sing ma’ruf lan nyegah sing mungkar lan cepet-cepet (nglakoni) rupa-rupa kebagusan. Dhéwéké klebu wong-wong sing pantes (saléh).
@@ -1937,19 +1661,13 @@ Angger ko kabéh olih kebecikan (mesthi) dhéwéké padha susah atiné, ning ang
 
 Lan (élinga) rikala sliramu (Muhammad) mangkat ésuk-ésuk ninggalna keluwargamu nggo ngatur wong-wong sing padha precaya neng pos-pos peperangan. [^139] Gusti Allah Maha Midhanget, Maha Ngawuningani,
 
-[^139]: Kedadéan kiyé kelakon rikala Perang Uhud sing miturut ahli sejarah kelakon neng taun kaping-3 H.
-
 ## 3:122
 
 rikala rong golongan sekang péhaké sliramu [^140] kepéngin (mundur) merga wedi, mangkané Gusti Allah kuwé penulungé dhéwéké kabéh. Merga kuwé, preyoga mung maring Gusti Allah wong mukmin padha pasrah.
 
-[^140]: Yakuwé Bani Salamah sekang trah Khazraj lan Bani Haritsah sekang trah Aus, loroné sekang barisan kaum muslimin.
-
 ## 3:123
 
 Lan temen, Gusti Allah wis paring tulung maring ko kabéh neng Perang Badar, mangkané ko kabéh lagi ora pideksa. [^141]  Mula kuwé padha sumaraha maring Gusti Allah supayané ko kabéh padha kesuwun maring Penjenengané.
-
-[^141]: Kahanané wong Muslim ora pideksa (ora daya) merga cacahé semendhing lan bekakas perangé kurang.
 
 ## 3:124
 
@@ -1967,13 +1685,9 @@ Lan Gusti Allah ora ndadékna (peparing wadya pitulung kuwé) aming dadi werta b
 
 (Gusti Allah nulungi ko kabéh neng Perang Badar lan paring pengayoman) yakuwé nggo nyirnakna segolongan wong kapir [^142] utawa nggo ndadékna wong-wong mau ina, nganti dhéwéké padha bali kanthi ora olih apa-apa.
 
-[^142]: Yakuwé kanthi matiné wong pitung puluh pemimpin wong-wong kapir lan ketawané pitung puluh wong kapir liyané.
-
 ## 3:128
 
 Kuwé udu dadi urusan sliramu (Muhammad) [^143] apa Gusti Allah nampa tobaté wong-wong mau, utawa nyiksa dhéwéké kabéh, merga setemené dhéwéké wong-wong aniaya (dolim).
-
-[^143]: Miturut riwayat Bukhari ngenani temuruné ayat kiyé, merga Nabi Muhammad s.a.w nyuwun maring Gusti Allah nyelametna sebagéan penggedhé kaum musrikin lan nyirnakna sebagéan sing liya.
 
 ## 3:129
 
@@ -1982,8 +1696,6 @@ Lan kagungané Gusti Allah apa baé sing ana neng langit lan apa baé sing ana n
 ## 3:130
 
 Hé wong-wong sing padha precaya! Aja nganti ko kabéh aja mangan riba sing tikel-matikel [^144] lan padha semaraha maring Gusti Allah supayané ko kabéh padha begya.
-
-[^144]: Sing démaksud riba neng kéné yakuwé riba nasi’ah. Miturut akéh-akéhé ulama, nek riba nasi’ah kuwé selawasé haram, ora ketang ora tikel-matikel.
 
 ## 3:131
 
@@ -2005,8 +1717,6 @@ Lan padha gagiyan ko kabéh nggolét pengampura sekang Pengéranmu lan olih suwa
 
 lan (uga) wong-wong sing angger nglakoni penggawéyan ala utawa aniaya maring awaké dhéwék, [^145] (gagiyan) éling maring Gusti Allah, banjur nyuwun ngampura ingatasé dosa-dosané, lan sapa (maning) sing bisa ngampurani dosa-dosa seliyané Gusti Allah? Lan dhéwéké padha ora nerusna penggawéyan dosa mau, mangka dhéwéké padha ngaweruhi.
 
-[^145]: Sing déarani penggawéyan ala (Fahisyah) yakuwé dosa gedhé sing akibaté ora mung nggo awaké dhéwék ning uga wong liya, kayadéné jina, riba, aniaya (gawé kapitunan) maring awaké dhéwék yakuwé nglakoni dosa, sing akibaté nggo awaké dhéwék, gedhé utawa cilik.
-
 ## 3:136
 
 Piwales nggo dhéwéké kabéh kuwé pengampura sekang Pengérané lan suwarga-suwarga sing mili kali-kali neng ngisoré, dhéwéké langgeng neng njeroné. Lan (kuwé) sebagus-bagusé kanugrahan nggo wong-wong sing padha temindak.
@@ -2014,8 +1724,6 @@ Piwales nggo dhéwéké kabéh kuwé pengampura sekang Pengérané lan suwarga-s
 ## 3:137
 
 Temen, wis keliwat seurungé ko kabéh sunah-sunah (pepesthen Gusti Allah), [^146] merga kuwé padha mlakua ko maring (sekabéh paran) bumi lan gatékna kepriwé pungkasané wong-wong sing padha nyulayani (para utusan).
-
-[^146]: Sing démaksud sunahé Gusti Allah neng kéné yakuwé ukuman-ukumané Gusti Allah sing rupané marabaya, musibah sing tiba maring wong-wong sing nggorohna para utusan.
 
 ## 3:138
 
@@ -2037,8 +1745,6 @@ lan supayané Gusti Allah mbrésihi wong-wong sing padha precaya (sekang dosa-do
 
 Apa ko kabéh ngira lamon ko padha arep mlebu suwarga, mangkané urung kebukti mungguhé Gusti Allah wong-wong sing padha lelabuh (jihad) [^147] neng antarané ko kabéh, lan urung kebukti wong-wong sing sabar.
 
-[^147]: Jihad bisa détegesi: a). Perang nggo ngedegna Islam lan ngayomi wong Islam; b). Merangi hawa nepsu; c). Ngewéhna bandha nggo kebagusan Islam lan umat Islam; d). Ngilangna penggawéyan jahat lan ngadegna kebecikan.
-
 ## 3:143
 
 Lan ko kabéh nyata-nyata ngarep-arep mati (syahid) seurungé ko padha ngadhepi; mangka (siki) ko kabéh temen, wis ngaweruhi lan wis nyekséni.
@@ -2046,8 +1752,6 @@ Lan ko kabéh nyata-nyata ngarep-arep mati (syahid) seurungé ko padha ngadhepi;
 ## 3:144
 
 Lan Muhammad mung sewijiné Utusan; seurungé wis keliwat pirang-pirang utusan. [^148] Apa angger slirané séda utawa déperjaya, ko padha balik maring asal (murtad)? Sapa wongé balik maring asal, mangka dhéwéké arep ora gawé kapitunan maring Gusti Allah semendhing-mendhinga. Gusti Allah arep paring piwales maring wong sing padha kesuwun.
-
-[^148]: Nabi Muhammad s.a.w, kuwé sewijiné menungsa sing deangkat déning Gusti Allah dadi Utusan.Utusan-utusan seurungé wis padha séda sebab dépaténi, ana uga sing séda biasa. Merga kuwé Nabi Muhammad s.a.w uga bakal séda kayadéné Utusan-utusan sing wis keliwat. Rikala kedadéan Perang Uhud kesebar crita lamon Nabi Muhammad s.a.w séda dépaténi. Crita kiyé ngacokna kaum muslimin dadi ana sing duwé maksud njaluk pengayoman maring Abu Sufyan (pemimpiné kaum Quraisy). Neng wektu kuwé wong munapék (uga) ngomong lamon bener Muhammad kuwé sewijiné nabi mesthiné dhéwéké ora bakal séda dépaténi. Mangka Gusti Allah nurunaken ayat kiyé nggo nentremna atiné kaum muslimin lan mbantah omongané wong munapék kuwé (Sahih Bukhari bab Jihad). Abu Bakar r.a nerangna ayat kiyé – nggo ngilangna bombing neng kalangané para sahabat rikala sédané Nabi Muhammad s.a.w, utamané nggo ngleremna Umar Ibnu Katab r.a lan para kanca sing ora precaya maring sédané Nabi Muhammad kuwé. (Sahih Bukhari bab Takwané para sahabat).
 
 ## 3:145
 
@@ -2061,13 +1765,9 @@ Lan sepira akéhé nabi sing padha perang déapingi akéh pisan sekang pendhér�
 
 Lan ora liya pengucapé dhéwéké kabéh kejaba penyuwun, “Dhuh Pengéran kula, mugi ngampura dosa-dosa kula lan lampah-lampah kula ingkang kelewihen (selebeté) urusan kula sami [^149] lan mugi tetepaken tekad kula, lan mugi paring pitulung dhateng kula sedaya ingatasé tiyang-tiyang kapir.”
 
-[^149]: Ngliwati wewates hukum sing wis détetepna déning Gusti Allah SWT.
-
 ## 3:148
 
 Mangka Gusti Allah maringi dhéwéké kabéh ganjaran neng dunya [^150] lan ganjaran sing apik neng akhérat, Lan Gusti Allah dhemen (maring) wong-wong sing gawé kebagusan.
-
-[^150]: Ganjaran dunya bisa rupa kemenangan-kemenangan, olih bandha rampasan, pengalem, lan liya-liyané.
 
 ## 3:149
 
@@ -2085,33 +1785,17 @@ Bakal Ingsun lebokna rasa wedi maring njero atiné wong-wong kapir, merga dhéw�
 
 Lan temen Gusti Allah wis netepi janji-Né maring ko kabéh, rikala ko padha maténi wong-wong mau kanthi idin-Né nganti (butul) wektuné ko padha apes lan pesulayan ngenani urusan kuwé [^151] lan padha ngapéngna préntahé Utusan (Muhammad) sewisé Gusti Allah paring weruh maring ko kabéh apa sing ko padha senengi. [^152] Neng antarané ko kabéh ana wong sing ngarepna dunya lan neng antarané ko kabéh ana (uga) wong sing ngarepna akhérat. Banjur Gusti Allah mléngosna ko kabéh sekang dhéwéké [^153] nggo nguji ko, ning Penjenengané nyata-nyata wis ngampurani ko kabéh. Lan Gusti Allah kagungan kanugrahan (sing déparingna) maring wong-wong padha precaya (mukmin).
 
-[^151]: Yakuwé nglakoni préntahé Nabi Muhammad s.a.w,supayané regu juru panah tetep neng panggonan sing wis détudhuhna neng kahanan sing kaya apa baé.
-
-[^152]: Yakuwé menang perang lan bandha rampasan.
-
-[^153]: Kaum muslimin ora téyéng ngalahna dhéwéké kabéh.
-
 ## 3:153
 
 (Élinga) rikala ko padha mlayu lan ora nylinguk maring sapa baé, lan Utusan (Muhammad) sing ana neng antarané (batir-batir)mu liyané nimbali ko kabéh (golongan sing mlayu), merga kuwé Gusti Allah nibakna maring ko kesusahan-pari-kesusahan, [^154] supayané ko kabéh ora susah neng ati (maning) ingatasé apa sing mlését sekang ko lan ingatasé apa sing tiba maring ko kabéh. Lan Gusti Allah Mahanastiti ingatasé apa sing ko pergawé.
-
-[^154]: Susahé kaum muslimin désebabna dhéwéké kabéh ora manut préntahé Kanjeng Nabi sing dadi kalah sekang wong-wong kapir.
 
 ## 3:154
 
 Banjur sewisé ko kabéh ketiban susah, Penjenengané nurunaken rasa aman maring ko kabéh (rupa) rasa arip sing nglingkupi sebagéan sekang ko kabéh, [^155] éwadéné sebagéan sing liyané, [^156] wis dégawé kewatir déning awaké dhéwék kabéh; wong-wong kuwé padha nyana ora bener maring Gusti Allah kayadéné penyanané (wong) jahiliyyah. [^157] Dhéwéké padha ngucap, “Apa ana sewiji-wiji sing bisa inyong kabéh lakoni neng sejeroné urusan kiyé?” Dhawuhna (Muhammad), “Setemené sekabéhé urusan kuwé ana neng astané Gusti Allah.” Dhéwéké padha ngumpetna neng jero atiné apa sing ora dhéwéké terangna maring ko kabéh. Dhéwéké padha ngucap, “Sekirané ana sewiji sing bisa inyong padha lakoni neng sejeroné urusan kiyé, mesthi inyong kabéh ora bakal dépaténi (dékalahna) neng kéné.” Dhawuhna (Muhammad), “Senajan ko kabéh ana neng umahmu, mesthi wong-wong sing wis détetepna mati dépaténi bakal metu (uga) maring panggonané dhéwéké kabéh dépaténi.” Gusti Allah (temindak kaya kuwé) nggo nguji apa sing ana neng njero dhadhamu lan nggo mbrésihna apa sing ana neng njero atimu. Lan Gusti Allah Maha Ngawuningani isiné ati.
 
-[^155]: Wong-wong Islam sing teguh keyakinané.
-
-[^156]: Wong-wong Islam sing ésih mamang.
-
-[^157]: Penyana angger pancén Muhammad s.a.w kuwé nyata-nyata Nabi lan Utusané Gusti Allah, mesthi Penjenengané ora bakal dékalahna neng peperangan.
-
 ## 3:155
 
 Setemené wong sing padha mléngos neng antarané ko kabéh rikala kedadéan ketemuné (perang) antarané rong wadyabala kuwé, [^158] setemené dhéwéké kabéh déplésétna déning sétan, désebabna sebagéan kesalahan (dosa) sing wis dhéwéké kabéh pergawé (neng wektu kepungkur), ning Gusti Allah nyata-nyata wis paring ngampura (maring) dhéwéké kabéh. Temen, Gusti Allah Maha Ngampura, Mahaasih.
-
-[^158]: Rong wadyabala kuwé, wadyabala kaum Muslimin lan wadyabala kaum musrikin neng Perang Uhud.
 
 ## 3:156
 
@@ -2121,8 +1805,6 @@ Hé wong-wong sing padha precaya! Aja nganti ko kabéh kaya wong mbangkang (kapi
 
 Lan temen, sekirané ko kabéh tiwas neng dalané Gusti Allah utawa mati, [^159] temen, mesthi ampurané Gusti Allah lan kewelasan-É lewih apik (nggo ko kabéh) tenimbang apa (bandha rampasan) sing dhéwéké padha kumpulna.
 
-[^159]: Mati neng dalané Gusti Allah ning udu merga perang.
-
 ## 3:158
 
 Lan temen, sekirané ko padha mati utawa tiwas, mesthi maring Gusti Allah ko kabéh dékumpulna.
@@ -2130,8 +1812,6 @@ Lan temen, sekirané ko padha mati utawa tiwas, mesthi maring Gusti Allah ko kab
 ## 3:159
 
 Mangka merga kewelasan-É Gusti Allah sliramu (Muhammad) temindak alus maring dhéwéké kabéh. Sekirané sliramu temindak keras lan (nganggo) ati kasar mesthi dhéwéké padha ngadohi sekang kiwé-tengené sliramu. Merga kuwé ampuranen dhéwéké lan nyuwuna ngampura nggo dhéwéké kabéh, lan rembugana karo dhéwéké neng urusan kuwé. [^160] Banjur, angger ko kabéh wis serujuk mangka padha semaraha maring Gusti Allah. Temen, Gusti Allah nresnani wong sing padha pasrah (tawakal).
-
-[^160]: Urusan perang lan masalah-masalah dunya liyané kaya urusan politik, ekonomi, kemasrakatan lan liya-liyané.
 
 ## 3:160
 
@@ -2165,8 +1845,6 @@ Lan apa sing ngenani ko kabéh rikala kedadéan ketemuné (perang) antarané ron
 
 Lan nggo nguji wong-wong sing omongé lamis (munapék), maring dhéwéké kabéh déucapna, “Ayuh padha perang neng dalané Gusti Allah utawa jaganen (awakmu)”. Dhéwéké padha ngucap, “Sekirané inyong kabéh ngerti (carané) perang, mesthi inyong kabéh mélu sliramu.” [^161] Dhéwéké kabéh neng dina kuwé lewih pérek maring kapir tenimbang maring precaya. Dhéwéké kabéh ngomongna karo cangkemé apa sing ora padha karo isi atiné. Lan Gusti Allah lewih priksa apa sing dhéwéké kabéh umpetna.
 
-[^161]: Omongan kiyé détujokna maring Nabi lan kanca-kancané nggo pengenyékan, merga dhéwéké kabéh nganggep lamon Nabi ora ngerti strategi perang, sebab Nabi nglakoni perang rikala cacahé kaum Muslimin semendhing. Omongan kiyé kena dégunakna nggo nampik pengenyékan sing détujokna maring wong munapék dhéwék.
-
 ## 3:168
 
 (Dhéwéké kabéh kuwé) wong-wong sing ngomong maring sedulur-seduluré lan dhéwéké padha ora mélu lunga perang,”Sekirané dhéwéké padha mélu inyong kabéh, mesthi dhéwéké padha ora kenang pati.” Omongna, “Cegahen pati kuwé sekang awakmu, angger ko wong sing padha bener.
@@ -2175,13 +1853,9 @@ Lan nggo nguji wong-wong sing omongé lamis (munapék), maring dhéwéké kabéh
 
 Lan aja pisan-pisan ko padha nyana lamon wong-wong sing tiwas neng dalané Gusti Allah kuwé mati. Setemené dhéwéké kuwé urip neng sisihé Pengérané (tur) déparingi rejeki, [^162]
 
-[^162]: Urip neng sejeroné ngalam liya sing udu ngalamé dhéwék kiyé. dhéwéké kabéh olih werna-werna kenékmatan neng sisihé Gusti Allah. Lan mung Gusti Allah sing ngerténi kaya apa kahanané urip neng ngalam kuwé.
-
 ## 3:170
 
 dhéwéké padha seneng-seneng karo kanugrahan sing déparingna déning Gusti Allah maring dhéwéké kabéh, lan atiné bungah maring wong sing ésih keri ning mburi sing urung nyusul dhéwéké, [^163] senyatané ora nana rasa wedi mungguh dhéwéké lan dhéwéké kabéh ora susah neng ati.
-
-[^163]: Batir-batiré sing ésih urip lan tetep jihad neng dalané Gusti Allah.
 
 ## 3:171
 
@@ -2207,8 +1881,6 @@ Setemené dhéwéké kabéh mung sétan sing medén-medéni (ko kabéh) karo bat
 
 Lan aja nganti sliramu (Muhammad) dégawé kewatir déning wong-wong sing gampang bali dadi kapir; [^164] setemené dhéwéké semendhing baé ora mitunani Gusti Allah. Gusti Allah ora bakal maringi bagéan (ganjaran) maring dhéwéké neng akhérat, lan dhéwéké kabéh bakal olih siksa sing gedhé.
 
-[^164]: Wong-wong kapir Mekah utawa wong-wong munapék sing tetep ngalangi agama Islam.
-
 ## 3:177
 
 Setemené wong-wong sing padha tuku kapir nganggo precaya, semendhing baé ora mitunani Gusti Allah; lan dhéwéké bakal padha olih siksa sing perih.
@@ -2217,15 +1889,9 @@ Setemené wong-wong sing padha tuku kapir nganggo precaya, semendhing baé ora m
 
 Lan aja pisan-pisan wong-wong kapir kuwé padha ngira lamon tundhan wektu sing Ingsun paringna maring dhéwéké [^165] lewih apik tumrap dhéwéké. Setemené tundhan wektu sing Ingsun paringna maring dhéwéké kabéh mung supayané dosané dhéwéké sengsaya tambah; lan dhéwéké kabéh bakal olih siksa sing gawé ina.
 
-[^165]: Karo ndawakna umuré dhéwéké kabéh ngejorna dhéwéké nggawé dosa sesenengé atiné.
-
 ## 3:179
 
 Gusti Allah arep ora ngejorna wong-wong sing precaya kayadéné sejeroné kahananmu siki kiyé, [^166] saéngga Penjenengané mbédakna sing ala sekang sing apik. Gusti Allah ora arep ngatonaken maring ko kabéh prekara-prekara sing gaib, ning Gusti Allah milih sapa sing Penjenengané kersakna neng antarané para utusan-É. [^167] Merga kuwé padha precayaa maring Gusti Allah lan utusan-utusan-É. Angger ko padha precaya lan semarah, mangka ko kabéh bakal olih ganjaran sing gedhé.
-
-[^166]: Kahanan kaum muslimin campur dadi siji karo kaum munapék.
-
-[^167]: Neng antarané Rosul-Rasul, Nabi Muhammad s.a.w depilih ning Gusti Allah karo ngawéhna kelewihan maring slirané wujud pengertén nggo ngerténi isi atiné menungsa, nganthi slirané téyéng nentukna sapa wongé ning antarané dhéwéké kabéh sing bener-bener nduwéni precaya lan sapa wongé ning antarané dhéwéké sing munapék apa kapir.
 
 ## 3:180
 
@@ -2247,10 +1913,6 @@ Kaya kuwé mau déjalari déning polahé tanganmu dhéwék, lan setemené Gusti 
 
 Mangka angger dhéwéké padha ngapusi sliramu (Muhammad), mangka (kawruhana) utusan-utusan seurungé sliramu uga wis deapusi (uga), dhéwéké (para utusan) nggawa mukjijat sing nyata, Zubur [^168] lan Kitab sing awéh penerangan sing sempurna [^169] .
 
-[^168]: Zubur yakuwé lembaran-lembaran sing isi wahyu sing déparingna maring nabi–nabi seurungé Nabi Muhammad s.a.w sing isiné amot hikmah-hikmah.
-
-[^169]: Kitab-kitab sing déturunaken maring nabi-nabi sing isiné hukum syariat kayadéné Taurot, Injil lan Zabur.
-
 ## 3:185
 
 Saben-saben sing duwé nyawa bakal ngrasakna mati. Lan mung neng dina Kiyamat déparingna kanthi sempurna piwalesmu. Sapa wongé dédohna sekang neraka lan délebokna maring njero suwarga, temen, dhéwéké olih kemenangan. Penguripan dunya mung kesenengan sing nyasarna.
@@ -2262,8 +1924,6 @@ Ko kabéh mesthi bakal déuji kanthi bandhamu lan awakmu. Lan mesthi ko kabéh b
 ## 3:187
 
 Lan (élinga), rikala Gusti Allah mundhut janji sekang wong-wong sing wis déparingi Kitab (yakuwé), “Preyoha ko kabéh temen-temen nerangna (isi kitab kuwé) maring menungsa, lan aja nganti ko padha ngumpetna,” [^170] banjur dhéwéké kabéh mbalangna (janji kuwé) maring mburi pundhaké lan adol kanthi rega murah. Mangka kuwé seala-alané dol-tinuku sing dhéwéké padha lakoni.
-
-[^170]: Neng antarané keterangan sing déumpetna mau yakuwé prekara bakal rawuhé Nabi Muhammad s.a.w.
 
 ## 3:188
 
@@ -2297,8 +1957,6 @@ Dhuh Pengéran kula, mugi paring dhateng kula napa ingkang empun Penjenengan jan
 
 Mangka Pengérané dhéwéké kabéh ngijabahi penyuwuné (kanthi pengendikan), “Setemené Ingsun ora nyiya-nyiyakna amalé wong sing padha ngamal neng antarané ko kabéh, becik nggo wong lanang utawa wadon, (merga) sebagéané ko kabéh kuwé (turunan) sekang sebagéan sing liyané. [^171] Mangka wong sing padha boyong, sing déurak sekang désané, sing boyongdélarani neng dalan Ingsun, sing padha perang lan padha dépaténi, mesthi bakal Ingsun ilangna kesalahanékabéh lan mesthi Ingsun lebokna dhéwékékabéh maring njero suwarga-suwarga sing neng ngisoré mili kali-kali, minangka ganjaran sekang Gusti Allah. Lan neng sisihéGusti Allah ana ganjaransing apik.”
 
-[^171]: Maksudé kayadéné wong lanang asalé sekang wong lanang lan wong wadon, mangka kayadéné wong wadon asalé sekang wong lanang lan sekang wong wadon. Karo-karoné padha-padha menungsa, ora nana kelewihané sing siji karo liyané prekara precaya lan amalé.
-
 ## 3:196
 
 Aja pisan-pisan ko kapusan déning polahé wong-wong kapir (sing padha polah) neng sekabéhané negari.
@@ -2323,8 +1981,6 @@ Hé wong-wong sing padha precaya! Padha sabara ko kabéh lan kuwatana kesabaranm
 
 Hé menungsa! Padha semaraha maring Gustimu sing wis nyipta ko kabéh sekang awak sing siji (Adam), lan (Gusti Allah) nyipta pasangané (Hawa), sekang (awak)é; lan sekang sekaroné Gusti Allah nganak-pinakna lanang lan wadon sing akéh. Padha semaraha maring Gusti Allah sing kanthi asma-Né ko padhadéné jejaluk, [^172] lan (jaganen) sesambungan keluwargan. Setemené Gusti Allah tetep njaga lan ngawasi ko kabéh.
 
-[^172]: Miturut adaté wong Arab, angger dhéwéké takon sewiji-wiji utawa njaluk maring wong liya dhéwéké padha ngucap asmané Gusti Allah kayadéné As’aluka billah, tegesé, Inyong takon utawa njaluk maring ko kanthi asmané Gusti Allah.
-
 ## 4:2
 
 Lan wéhna maring bocah-bocah yatim (sing wis gedhé) bandhané dhéwéké kabéh, aja nganti ko padha nglambangi sing apik karo sing ala, lan aja nganti ko padha mangan bandhané dhéwéké kabéh bareng karo bandhamu. Temen (penggawéyan nglambangi lan mangan) kuwé mau dosa sing gedhé.
@@ -2333,29 +1989,17 @@ Lan wéhna maring bocah-bocah yatim (sing wis gedhé) bandhané dhéwéké kabé
 
 Lan angger ko padha kewatir ora bakal téyéng temindak adil maring (hak-hak) wong wadon yatim (angger ko rabi), mangka tingkahen wong wadon (liyané) sing ko senengi: loro, telu utawa papat. Ning angger ko kewatir ora bakal téyéng temindak adil, [^173] mangka (rabéni) sewiji wong baé, [^174] utawa batur-tukon wadon sing ko duwéni. [^175] Sing kaya kuwé mau lewih kepérek supayané ko padha ora gawé aniaya (dolim).
 
-[^173]: Temindak adil yakuwé penggawéyan sing adil goli nyukupi kebutuhané bojoné kayadéné sandhang, panggonan, giliran lan liya-liyané sing sipaté lair lan batin.
-
-[^174]: Islam ngolihna poligami kanthi sarat-sarat kusus. Seurungé temurun ayat kiyé poligami wis ana, lan wis tau délakoni déning nabi-nabi seurungé Nabi Muhammad s.a.w. Ayat kiyé matesi poligami nganti mung wong papat baé.
-
-[^175]: Batur-tukon lan perbudakan neng pengertian kiyé neng mangsa siki wis ora nana.
-
 ## 4:4
 
 Lan wéhna mas kawin (mahar) maring wong wadon (sing ko rabi) minangka perwéwéh sing seiklas-iklasé. [^176] Banjur, angger dhéwéké masrahna maring ko sebagéan sekang (mas kawin) kuwé kanthi ati seneng, mangka tampanen lan nékmati perwéwéh kuwé kanthi ati seneng.
-
-[^176]: Perwéwéh kiyé yakuwé mas kawin sing gedhé-ciliké détetepna kanthi sepakaté rong péhak, merga perwéwéh kuwé kudu délakoni kanthi iklas.
 
 ## 4:5
 
 Lan aja nganti ko kabéh masrahna maring wong sing urung sempurna akalé, [^177] bandha-né (dhéwéké kabéh sing ana neng kuwasané) ko kabéh sing dédadékna déning Gusti Allah nggo pokok penguripan. Wenéhi dhéwéké kabéh pengupa jiwa lan sandhangan (sekang kasilé bandha kuwé) lan ucapna maring dhéwéké pengucap sing apik.
 
-[^177]: Wong sing urung sempurna akalé yakuwé bocah yatim sing urung baligh (diwasa) utawa wong diwasa sing urung téyéng ngatur bandhané.
-
 ## 4:6
 
 Lan ujinen [^178] bocah-bocah yatim kuwé nganti dhéwéké cukup umur nggo umah-umah. Banjur angger ujarmu dhéwéké wis pinter (ngopéni bandha), mangka wéhna maring dhéwéké bandhané. Lan aja nganti ko kabéh mangan (bandhané bocah yatim) nglewihi wates (sing) lumrah lan (aja nganti ko padha) gugup (masrahna bandha kuwé) seurungé dhéwéké diwasa. Sapa wongé (neng antarané sing padha ngrumat bocah yatim kuwé) sugih, mangka preyoga dhéwéké nyegah awaké (sekang mangan bandha bocah yatim kuwé). Lan sapa wongé mlarat, mangka désekolihi dhéwéké mangan bandha kuwé miturut cara sing lumrah. Banjur angger ko masrahna bandha kuwé maring dhéwéké (yatim), mangka preyoga ko padha nganakna seksi-seksi. Lan wis cukup Gusti Allah minangka pengawat-awat.
-
-[^178]: Nylidhiki (pendadaran = ujian) maring dhéwéké neng prekara agama, usaha-usahané dhéwéké, penggawéyan lan liya-liyané nganti dékaweruhi menawa bocah kuwé kena déprecaya.
 
 ## 4:7
 
@@ -2364,10 +2008,6 @@ Nggo wong lanang ana hak bagéan sekang bandha tinggalané wong tuwa loro lan se
 ## 4:8
 
 Lan angger neng wektu débaginé kuwé teka sewetarané sedulur, [^179] bocah-bocah yatim lan wong miskin, mangka wéhi dhéwéké kabéh sekang bandha kuwé [^180] (sekadaré) lan ucapna maring dhéwéké kabéh omongan sing apik.
-
-[^179]: Sedulur sing ora nduwéni hak waris sekang banda warisan.
-
-[^180]: Piwéwéh sekedaré ora kena lewih sekang sepertelon banda warisan.
 
 ## 4:9
 
@@ -2381,13 +2021,9 @@ Setemené wong-wong sing padha mangan bandhané bocah yatim kanthi cara aniaya (
 
 Gusti Allah nyaréngatna (ngudokna) maring ko kabéh ngenani (mbagi warisan nggo) anak-anakmu, (yakuwé) bagéané wong lanang siji padha karo bagéané wong wadon loro. [^181] Lan angger anak kuwé wadon kabéh sing cacahé lewih sekang loro, mangka bagéané dhéwéké kabéh rong-pertelon sekang bandha sing détinggalna. Angger dhéwéké (anak wadon) kuwé mung siji, mangka dhéwéké olih separoné (bandha sing détinggalna). Lan nggo sekaroné rama-biyung, bagéané dhéwék-dhéwék sepranem (1/[^6] sekang bandha sing détinggalna, angger dhéwéké (sing mati) duwé anak. Angger dhéwéké (sing mati) ora duwé anak lan dhéwéké déwarisi neng rama-biyung (thok), mangka si biyung olih sepertelu. Angger dhéwéké (sing mati) duwé pirang-pirang sedulur, mangka biyungé olih sepranem. (Bagén-bagén sing kasebut ning dhuwur kuwé) sewisé (délaksanakna) wasiyat sing dégawe (neng sing mati) utawa (lan sewisé débayar) utangé. (Ngenani) wong tuwamu lan anak-anakmu, ko kabéh ora ngerti sapa wongé neng antarané dhé-wéké kabéh sing lewih akéh pigunané tumrap ko kabéh. Kiyé (anané) pepesthéné Gusti Allah. Temen, Gusti Allah Maha Ngawuningani, Maha-wicaksana.
 
-[^181]: Bagéané wong lanang tikel loro sekan wong wadon yakuwé sebab kewajibané wong lanang lewih abot sekang wong wadon, kayadéné kewajiban mbayar maskawin lan awéh napkah (deleng An-Nisa’ (4) : 34).
-
 ## 4:12
 
 Lan nggo ko kabéh (sing lanang) kuwé setengah sekang bandha sing détinggalna déning bojo-bojomu, angger dhéwéké ora duwé anak. Angger dhéwéké kabéh (bojo-bojomu) kuwé duwé anak, mangka ko padha olih seprapat sekang bandha sing détinggalna sewisé (délaksanakna) wasiyat sing dhéwéké gawé utawa (lan sewisé débayar) utangé. Para bojo olih seprapat bandha sing ko kabéh tinggal angger ko padha ora duwé anak. Angger ko padha duwé anak, mangka bojo-bojomu olih seprawolu sekang bandha sing ko tinggal (sewisé décukupi) wasiyat sing ko kabéh amu gawé utawa (lan sewisé débayar) utangmu. Angger sewijiné menungsa mati, lanang utawa wadon sing ora ninggalna rama lan ora ninggalna anak, ning ninggalna sedulur lanang (tunggal biyung) utawa sedulur wadon (tunggal biyung) mangka nggo dhéwéké sekang rong werna sedulur kuwé sepranem bandha. Ning angger sedulur-sedulur tunggal biyung kuwé lewih sekang siji, mangka dhéwéké kabéh bareng-bareng neng bagéan sing seperteluné kuwé, sewisé (décukupi wasiyat) sing dégawé utawa (lan sewisé débayar) utangé kanthi ora nyusahna (maring ahli waris) [^182] . Kaya kuwé ketetepané Gusti Allah. Gusti Allah Maha Ngawuningani, Mahaaris.
-
-[^182]: Nyusahna maring ahli waris yakuwé penggawéyan-penggawéyan kayadéné : (a) masiyatna lewih sekang sepertelon bandha tinggalané. (b) awéh wasiyat kanthi maksud ngurangi bandha warisan. Senajan kurang sekang sepertelon angger ana niyat ngurangi hak waris, uga ora désekolihi.
 
 ## 4:13
 
@@ -2400,10 +2036,6 @@ Lan sapa wongé duraka maring Gusti Allah lan Utusan-É lan mlanggar wates-wates
 ## 4:15
 
 Lan wong-wong wadon sing padha nglakoni penggawéyan jember [^183] neng antarané wadon-wadoné ko, preyoga ingatasé dhéwéké ana seksi papat neng antarané ko kabéh (sing nyekséni). Angger dhéwéké wis padha awéh perseksén, mangka kurungen (wong wadon kuwé) neng umah nganti dhéwéké mati, utawa nganti Gusti Allah paring dalan (liyané) maring dhéwéké. [^184]
-
-[^183]: Miturut sebagéan juru tapsir yakuwé penggawéyan jina, ning miturut pinemu sing liyané yakuwé sekabéhané penggawéyan saru kayadéné : jina, homoseks, lan sing serupané. Miturut pinemuné Muslim lan Mujahid yakuwé musahakah (lesbian: wadon dhemen wadon).
-
-[^184]: Miturut sebagéan juru tapsir, dalan sing liyané kuwé yakuwé kanthi temuruné An-Nur (24) : 2, ngenani hukum pecut.
 
 ## 4:16
 
@@ -2421,8 +2053,6 @@ Lan tobat kuwé ora (détampa déning Gusti Allah) sekang wong-wong sing nglakon
 
 Hé wong-wong sing padha precaya! Ora kena (halal) kanggoné ko kabéh marisi wong wadon kanthi cara paksa [^185] lan aja nganti ko gawé susah dhéwéké merga arep njikot balik sebagéan sekang apa sing wis ko wéhna maring dhéwéké, kejaba angger dhéwéké nglakoni penggawéyan jember sing nyata. Lan kembulana dhéwéké karo cara sing pantes. Angger ko padha ora seneng dhéwéké, (mangka sabara) merga bisa uga ko kabéh ora seneng maring sewiji-wiji, mangkané Gusti Allah ndadékna kebagusan sing akéh maring dhéwéké.
 
-[^185]: Ayat kiyé ora ateges marisna wong wadon ora karo dalan paksa kuwé désekolihi. Miturut sebagéan adaté wong Arab Jahiliyah angger sewijiné menungsa mati, mangka anaké sing paling tuwa utawa anggota kulawargané sing liya marisi randha kuwé. Randha kuwé kena débojo dhéwéké utawa débojokna karo wong liya sing maharé déjikot neng pewaris utawa ora dékenakna rabi maning.
-
 ## 4:20
 
 Lan angger ko kabéh kepéngin ngganti bojomu karo bojo sing liyané, ning ko kabéh wis awéh maring salah siji neng antarané dhéwéké bandha sing akéh, mangka aja ko jikot balik semendhing baé sekang dhéwéké. Apa ko kabéh arep njikot balik kanthi dalan dakwan sing goroh lan karo (nanggung) dosa sing nyata?
@@ -2439,17 +2069,9 @@ Lan aja nganti ko padha mbojo wong wadon sing wis (nglakon) débojo neng ramamu,
 
 Délarang (haram) tumrap ko kabéh (mbojo) biyung-biyungmu, anak-anakmu wadon, sedulur-sedulurmu wadon, sedulur-seduluré ramamu sing wadon, sedulur-seduluré biyungmu sing wadon, anak wadon sekang sedulur-sedulurmu sing lanang, anak wadon sekang sedulur-sedulurmu sing wadon, biyung-biyungmu sing nyusoni ko, sedulur-sedulur wadonmu sesuson, biyung-biyungé bojomu (mertua wadon), anak-anak wadon sekang bojomu (anak kewalon), sing neng sajeroné rumatanmu [^186] sekang bojomu sing wis ko kembuli. Ning angger ko urung kembul karo bojomu kuwé (lan wis ko pegat), mangka ora dosa ko (mbojo dhéwéké), (lan déharamna tumrap ko kabéh) bojo-bojoné anakmu lanang cer (yakuwé mantu wadon) lan (déharamna) ngumpulna (neng sajeroné perkawinan) wong wadon loro tunggal sedulur (kakang-adhi), kejaba sing wis kelakon neng jaman sing kepungkur. Temen, Gusti Allah Maha Ngampura, Mahaasih.
 
-[^186]: Maksudé biyung neng awal ayat kiyé yakuwé biyung, nini, lan seterusé maring ndhuwur, lan sing démaksud anak wadon yakuwé anak wadon, putu wadon lan seterusé maring ngisor, semana uga sing liyané. Éwadéné démaksud “anak-anaké bojomu sing ana neng pengreksanmu” miturut umumé para ulama klebu anak kewalon sing ora neng pengreksané.
-
 ## 4:24
 
 Lan ko kabéh délarang mbojo wong wadon sing duwé lanang, kejaba batur-tukon wadon (budhak, tawanan perang) sing ko duwéni [^187] minangka ketetepané Gusti Allah ingatasé ko kabéh. Lan désekolihi ingatasé ko kabéh (mbojo) seliyané (wong-wong wadon) sing klebu larangan mau, [^188] angger ko usaha kanthi bandhamu, nggo mbojo dhéwéké udu nggo jina. Mangka merga kenékmatan sing wis ko padha pekolih sekang dhéwéké kabéh, bayaren mas kawiné maring dhéwéké kabéh minangka dadi kewajiban. Ning ora dadi apa angger nyatané neng antarané ko kabéh wis padha déné ngrilakna, sewisé détetepna. [^189] Temen, Gusti Allah Maha Ngawuningani, Mahawicaksana.
-
-[^187]: Wong-wong wadon sing déduwéni sing lanangé ora mélu détawan bareng dhéwéké. Keterangan seterusé deleng An-Nisa (4) : 3.
-
-[^188]: Seliyané wong wadon sing wis désebut neng An-Nisa (4) : 23.
-
-[^189]: Nambahi, ngelong utawa ora mbayar babar pisan mas kawin sing wis détetepna.
 
 ## 4:25
 
@@ -2466,8 +2088,6 @@ Lan Gusti Allah kersa nampa tobatmu, ning wong-wong sing ngetutna kepénginané 
 ## 4:28
 
 Gusti Allah kersa paring pengénthéng-énthéng maring ko kabéh [^190] merga menungsa déciptakna (duwé sipat) apes.
-
-[^190]: Neng jero saréngat antarané kena mbojo batur-tukon (budak) angger wis cukup sarat-saraté.
 
 ## 4:29
 
@@ -2493,10 +2113,6 @@ Lan nggo dhéwék-dhéwék (wong lanang lan wong wadon) Ingsun wis netepna para 
 
 Wong lanang (sing lanang) kuwé pengayom (dadi pemimpin) nggo wong wadon (bojoné), merga Gusti Allah wis nglewihna sebagéan sekang dhéwéké kabéh (wong lanang) ingatasé sebagéan sing liya (wong wadon), lan merga dhéwéké kabéh (wong lanang) wis napkahi nganggo bandhané. Mulané wong-wong wadon sing apik kelakuané (saléh) yakuwé dhéwéké sing manut (maring Gusti Allah) lan njaga awaké rikala (lanangé) ora nana, merga Gusti Allah wis ngreksa (dhéwéké kabéh). [^191] Wong-wong wadon sing ko kabéh kewatir arep sléntha (nusyuz) [^192] preyoga ko padha awéh pitutur maring dhéwéké kabéh, tinggalen dhéwéké kabéh neng nggon turuné (pisah ambén), lan (kepeksané) taboka dhéwéké kabéh. Ning angger dhéwéké padha manut maring ko, mangka aja nganti ko padha golét-golét alésan nggo nyusahna dhéwéké kabéh. Temen, Gusti Allah Mahaluhur, Mahaagung.
 
-[^191]: Gusti Allah wis majibna maring lanangé kon ngembuli bojoné kanthi apik.
-
-[^192]: Nusyuz yakuwé ninggalna kewajibané dadi bojo, kayadéné lunga sekang ngumah ora pamit maring sing lanang.
-
 ## 4:35
 
 Lan angger ko padha kewatir ana pesulayan antarané karoné (sing lanang karo bojoné), mangka kirimna hakim siji (wong sing ngakurna) sekang kulawargané sing lanang lan hakim siji sekang kulawargané sing wadon. Angger karoné (hakim-hakim kuwé) karep ndandani (gawé rukun), mesthi Gusti Allah bakal paring pitulung maring selaki-rabi mau. Temen, Gusti Allah Mahanastiti, Maha Ngawuningani.
@@ -2504,10 +2120,6 @@ Lan angger ko padha kewatir ana pesulayan antarané karoné (sing lanang karo bo
 ## 4:36
 
 Lan sembaha Gusti Allah lan aja nganti ko padha nyekuthok-Na (mangro-tingal) Penjenengané karo sewiji-wiji. Lan gawéa apik maring wong tuwa loro, sanak-sedulur, bocah-bocah yatim, wong-wong miskin, tangga-teparo sing pérek lan tangga-teparo sing adoh, [^193] batir nyambut gawé, ibnu sabil [^194] (wong sing lagi lelungan) lan réwang sing ko padha duwéni. Temen, Gusti Allah ora dhemen (maring) wong sing gemedhé lan ngagulna awaké dhéwék,
-
-[^193]: Pérek lan adoh neng kéné ana sing napsiri karo panggonan, srawung keluwarga, lan ana uga sing napsiri antarané sing Islam lan sing ora Islam.
-
-[^194]: Ibnu Sabil yakuwé wong sing lagi neng dalan udu maksiyat lan kentongan sangu. Klebu uga bocah yatim sing ora genah rama-biyungé.
 
 ## 4:37
 
@@ -2525,8 +2137,6 @@ Lan apa (kabotén) tumrap dhéwéké kabéh angger dhéwéké padha precaya mari
 
 Temen, Gusti Allah ora arep nganiaya (ngapitunani) sewiji wong senajan mung se-zarrah [^195] gedhéné lan angger ana kebecikan (ciliké se-zarrah), mesthi Gusti Allah bakal nikelna kebecikan mau lan paring ganjaran sing gedhé sekang sisihé Gusti Allah.
 
-[^195]: Zarrah kuwé barang sing paling lembut lan paling énthéng.
-
 ## 4:41
 
 Lan kaya apa (kahanané wong kapir mengko), angger Ingsun nekakna sewijiné seksi (Rasul) sekang saben-saben kaum lan Ingsun nekakna sliramu (Muhammad) nggo seksi ingatasé dhéwéké kabéh.
@@ -2538,8 +2148,6 @@ Neng dina kuwé, wong sing mbangkang (kapir) lan wong sing ndurakani Utusan (Muh
 ## 4:43
 
 Hé wong-wong sing padha precaya! Aja nganti ko kabéh méreki sembayang, angger ko lagi wuru (mendem), saéngga ko kabéh ngerti apa sing ko ucapna, lan uga aja (mérek maring mesjid angger ko padha) lagi junub kejaba sekadar liwat dalané thok, seurungé ko padha adus (adus junub). Anadéné angger ko padha mriyang utawa lagi neng dalan utawa sewisé buwang hajat utawa ko kabéh wis ngemék wong wadon, [^196] selaginé ko ora nemu banyu, mangka ko padha tayamum-a nganggo lebu sing apik (suci); usapen raimu lan tanganmu nganggo (lebu) kuwé. Temen, Gusti Allah Mahaaris, Maha Ngampura.
-
-[^196]: Akéh ngulama njelasna tegesé ngemék neng kéné yakuwé mék-mékan kulit, lan sebagéan sing liya negesna kembulan selaki-rabi utawa karon-sih.
 
 ## 4:44
 
@@ -2553,19 +2161,9 @@ Lan Gusti Allah lewih ngawuningani ngenani mungsuh-mungsuhmu. Cukup mung Gusti A
 
 (Yakuwé) neng antarané wong Yahudi, sing ngowahi tembung sekang nggon-nggoné. [^197] Lan dhéwéké padha ngucap, “Inyong kabéh krungu, ning inyong padha ora gelem nuruti.” Lan (dhéwéké uga padha ngucap), “Rungokna,” selaginé (sliramu Muhammad sebeneré) ora krungu apa-apa. [^198] Lan (dhéwéké kabéh ngucapna), “Raa’iina” [^199] kanthi muter-walikna ilaté lan ngala-ala agama. Sekirané dhéwéké padha ngucapna, “Inyong kabéh krungu lan manut, lan rungokna, lan gatékna inyong kabéh,” mesthi kuwé lewih apik nggo dhéwéké kabéh lan lewih pas, ning Gusti Allah nglaknati dhéwéké, merga kapiré dhéwéké kabéh. Dhéwéké padha ora duwé precaya kejaba semendhing pisan. [^200]
 
-[^197]: Ngowahi tegesé, nggon, utawané nambahi lan ngurangi tembung.
-
-[^198]: Dhéwéké kabéh ngucapna, “Rungokna,” ning atiné padha ngucap, “Moga-moga ko ora téyéng ngrungu (budheg)”.
-
-[^199]: Sekang omongan raa’inaa padha baé unzurna sing tegesé ‘gatékna Inyong kabéh’. Seterusé delengen Al-Baqoroh (2) : 104.
-
-[^200]: Ana sing ngarani ukuran keprecayaan sing tipis, lan ana sing ngarani cacahé wong sing semendhing.
-
 ## 4:47
 
 Hé wong-wong sing wis déparingi kitab! Padha precayaa ko kabéh maring apa sing wis Ingsun turunaken (Al-Qur’an) sing mbenerna Kitab sing ana neng ko kabéh, seurungé Ingsun ngowahi rai-rai(mu), banjur Ingsun puter maring mburi [^201] utawa Ingsun laknati dhéwéké kabéh kayadéné Ingsun laknati wong (sing gawé maksiyat) neng dina Sabat (Setu). Lan ketetepané Gusti Allah mesthi keleksanan.
-
-[^201]: Miturut akéh-akéhé juru tapsir, maksudé yakuwé ngganti rainé dhéwéké kabéh terus députer maring mburi nggo pengasoran.
 
 ## 4:48
 
@@ -2582,8 +2180,6 @@ Gatékna, sepira nggoné dhéwéké padha ngana-anakna goroh maring Gusti Allah!
 ## 4:51
 
 Apa ko ora padha nggatékna wong-wong sing déparingi bagéan sekang Kitab (Taurat)? Dhéwéké kabéh precaya maring Jibt lan Tagut [^202] lan ngomongna maring wong-wong kapir (musrik Mekah), lamon dhéwéké kabéh lewih bener dalané tenimbang wong-wong sing padha precaya.
-
-[^202]: Jibt padha baé Tagut yakuwé sétan lan apa baé sing désembah seliyané Gusti Allah SWT.
 
 ## 4:52
 
@@ -2617,13 +2213,9 @@ Temen, Gusti Allah dhawuh maring ko kabéh (supaya) mbutulna titipan (amanat) ma
 
 Hé wong-wong sing padha precaya! Manuta maring Gusti Allah lan manuta maring Utusané (Muhammad), lan Ulil Amri (sing nyekel kuwasa) [^203] neng antarané ko kabéh. Banjur, angger ko padha béda penemu ngenani sewijiné prékara, mangka balékna maring Gusti Allah (Al-Qur’an) lan Utusané (sunnah-É), angger ko padha precaya maring Gusti Allah lan dina wekasan. Sing kaya kuwé lewih utama (tumrap ko kabéh) lan lewih apik akibaté.
 
-[^203]: Angger sing nyekel kuwasa medhomani kitabé Gusti Allah lan sunnah Rasul.
-
 ## 4:60
 
 Apa sliramu (Muhammad) ora nggatékna wong-wong sing padha ngaku lamon dhéwéké kabéh wis precaya maring apa sing déturunaken maring sliramu lan maring apa sing déturunaken seurungé sliramu? Ning dhéwéké kabéh [^204] ésih kepéngin putusan hukum maring Tagut, mangkané dhéwéké kabéh wis dédhawuhi supayané ngingkari Tagut kuwé. Lan sétan kepéngin nyasarna dhéwéké kabéh kanthi kesasar sing seadoh-adohé.
-
-[^204]: Wong sing ajeg mungsuhi Nabi Muhammad s.a.w lan wong Islam. Ana sing napsiri kuwé Abu Zahrah tukang tenung neng jamané Nabi, lan ana sing ngarani, kuwé Ka’ab bin Asyraf (wong lamis/munapék).
 
 ## 4:61
 
@@ -2640,8 +2232,6 @@ Dhéwéké kabéh kuwé wong-wong sing (setemené) Gusti Allah kawuningani apa s
 ## 4:64
 
 Lan Ingsun ora ngutus sewiji utusan kejaba mung supaya déturuti kanthi idiné Gusti Allah. Lan temen, sekirané dhéwéké kabéh sewisé nganiaya awaké dhéwék [^205] teka maring sliramu (Muhammad), banjur nyuwun pengampura maring Gusti Allah, lan Utusan-É uga nyuwunaken pengampura nggo dhéwéké kabéh, mesthi dhéwéké padha ngawéruhi (lamon) Gusti Allah Maha Nampani Tobat, Mahaasih.
-
-[^205]: Njaluk keputusan maring liyané Nabi Muhammad s.a.w.
 
 ## 4:65
 
@@ -2695,8 +2285,6 @@ Wong-wong sing precaya, padha perang neng dalané Gusti Allah lan wong-wong sing
 
 Apa ko ora padha nggatékna wong-wong sing déucapna maring dhéwéké kabéh, [^206] “Tahan tanganmu (sekang temindak perang), leksanakna sembayang lan lunasi jakat!” Rikala dhéwéké kabéh déwajibna perang, dadakan sebagéané dhéwéké (wong lamis/munapék) padha wedi maring menungsa (mungsuh), kaya wediné maring Gusti Allah, malah lewih wedi maning (sekang kuwé). Dhéwéké padha ngucap, “Dhuh Pengéran kula sedaya, kenging napa Penjenengan majibaken perang dhateng kula? Kenging napa Penjenengan mboten nundha (wajibé perang niku) dhateng kula sewetawis wekdal malih?” Ucapna, “Kesenengan neng dunya kiyé mung semendhing lan akhérat kuwé lewih apik tumrap wong-wong sing padha semarah maring Gusti Allah (olih ganjaran mélu perang) lan ko kabéh ora bakal déaniaya (dékapitunani) semendhing-mendhinga.”
 
-[^206]: Wong sing mbuktékna awaké duwé precaya lan njaluk idin mangkat perang seurungé ana préntah kon perang.
-
 ## 4:78
 
 Neng ngendi baé anané ko kabéh, pati bakal nemoni, senajan ko padha ana neng njero bénténg sing dhuwur lan teguh. Angger dhéwéké olih kebagusan, dhéwéké padha ngucap, “Kiyé sekang sisihé Gusti Allah,” lan angger dhéwéké kenang apes (ketiban ala) dhéwéké padha ngucap, “Kiyé sekang sliramu (Muahammad).” Dhawuhna, “Kabéhan tekané sekang sisihé Gusti Allah.” Mangka kenangapa wong-wong kuwé (wong-wong lamis/muanfik) méh ora mahami ucapan semendhing-mendhinga?”
@@ -2708,8 +2296,6 @@ Kebecikan apa baé sing ko kabéh pekolih, anané sekang sisihé Gusti Allah, la
 ## 4:80
 
 Sapa wongé manut maring Utusan (Muhammad) mangka setemené dhéwéké wis manut maring Gusti Allah. Lan sapa wongé mléngos (sekang pemanut kuwé) mangka (kawruhana) Ingsun ora ngutus sliramu (Muhammad) nggo dadi pengreksané dhéwéké kabéh [^207] .
-
-[^207]: Utusan (Kanjeng Nabi Muhammad) ora nanggung-jawab ingatasé tindakanné dhéwéké kabéh lan ora njamin wong-wong kuwé ora nglakoni keluputan.
 
 ## 4:81
 
@@ -2723,15 +2309,9 @@ Mangka apa dhéwéké ora padha nyecep (isiné) Al-Qur’an? Sekirané (Al-Qur�
 
 Lan angger butul maring dhéwéké sewiji kabar ngenani ketentreman utawané kemirisan, dhéwéké padha (gagiyan) nyiyarna. (Mangkané) angger dhéwéké padha masrahna maring Utusan (Muhammad) lan Ulil Amri [^208] neng antarané dhéwéké kabéh, mesthi wong-wong sing kepéngin ngerti beneré (arep bisa) ngawéruhi (secara sah) sekang slirané kabéh (Utusan lan Ulil Amri). [^209] Sekirané udu merga peparing lan welas-asihé Gusti Allah maring ko kabéh, mesthiné ko padha ngetutna sétan, kejaba mung sebagéan cilik (neng antarané ko kabéh).
 
-[^208]: Wong-wong penting batiré Rasul.
-
-[^209]: Miturut juru tapsir sing liyané, maksudé yakuwé: angger sewijiné kabar ngenani ketrenteman lan kemirisan kuwé débutulna maring Rasul lan Ulil Amri, mesti Rasul lan Ulil Amri sing ahli bisa netepna pengertén (istimbat) sekang kabar kuwé.
-
 ## 4:84
 
 Mangka peranga sliramu (Muhammad) neng dalané Gusti Allah, sliramu ora debot-boti kejaba awaké sliramu pribadi. [^210] Gugahen (semangaté) wong sing padha precaya (nggo perang). Moga-moga Gusti Allah nolak (nglumpuhna) serangané wong-wong sing kapir kuwé. Gusti Allah banget gedhé kekuwatan-É lan banget keras siksa-Né.
-
-[^210]: Préntah perang kuwé kudu déleksanakna déning Nabi Muhammad s.a.w, merga sing ketiban préntah slirané pribadi. Ayat kiyé ana gandhéng-cenengé karo warga Medinah sing akéh-akéhé padha ngedhap mélu perang Badar  bareng Kanjeng Nabi. Mulané temurun ayat kiyé sing akon maring Kanjeng Nabi mangkat perang senajan dhéwékan.
 
 ## 4:85
 
@@ -2749,21 +2329,13 @@ Gusti Allah, ora nana Pengéran seliyané Penjenengané. Penjenengané mesthi ba
 
 Mangka kenangapa ko padha (pecah) dadi rong golongan [^211] sejeroné (ngadhepi) wong-wong lamis (munapék), mangkané Gusti Allah wis mbalékna dhéwéké (maring kapir) merga usahané dhéwéké kabéh? Apa ko padha duwé maksud awéh pitudhuh maring wong sing wis déjorna kesasar déning Gusti Allah? Sapa wongé sing déjorna kesasar déning Gusti Allah, ko kabéh ora bakal olih dalan (nggo awéh pitudhuh) maring dhéwéké.
 
-[^211]: Golongané wong precaya sing mbélani golongané wong lamis (munapék) lan golongané wong precaya sing dadi mungsuhé dhéwéké kabéh.
-
 ## 4:89
 
 Dhéwéké kabéh kepéngin supayané ko padha dadi kapir (mbangkang) kayadéné dhéwéké kabéh wis dadi kapir saéngga ko dadi padha (karo dhéwéké). Aja nganti ko padha ndadékna sekang antarané dhéwéké minangka batir-batir(mu), seurungé dhéwéké padha boyong maring dalané Gusti Allah. Angger dhéwéké padha mléngos [^212] mangka tawanen dhéwéké lan paténana dhéwéké neng endi baé dhéwéké ko temokna, lan aja nganti ko padha ndadékna wong siji baé neng antarané dhéwéké kabéh minangka batir setiya lan penulung,
 
-[^212]: Décritakna, lamon sewetara wong Arab sing teka maring Kanjeng Nabi s.a.w neng Medinah, terus padha mlebu Islam, ning banjur dhéwéké padha kenang prenyakit Medinah. Merga kuwé dhéwéké padha bali kapir maning, lan padha metu sekang Medinah. Banjur wong-wong kuwé ketemu karo batir-batiré Kanjeng Nabi, sing banjur takon apa sebabé dhéwéké padha ninggalna Medinah. Wong-wong kuwé padha crita lamon dhéwéké padha kenang prenyakit Medinah. Para batiré Kanjeng Nabi takon, “Kenangapa ko ora padha nyonto sing apik sekang Kanjeng Nabi?”. Neng prekara kiyé para batiré Kanjeng Nabi pecah dadi rong golongan. Separoné duwé penemu lamon wong-wong kuwé wis dadi lamis (munapék). Separoné maning duwé penemu lamon dhéwéké kabéh kuwé ésih klebu Islam. Banjur temurun ayat kiyé sing nyalahna kaum muslimin merga pecah dadi rong golongan kuwé, lan mréntahna supayané wong-wong Arab mau décekel lan dépaténi, angger dhéwéké padha ora boyong maring Medinah, merga dhéwéké kabéh dépadhakna karo wong musrik liyané.
-
 ## 4:90
 
 kejaba wong-wong sing njaluk déayomi maring sewiji golongan, sing antarané ko kabéh lan golongan kuwé wis ana janjian (akur) [^213] utawa wong sing teka maring ko kabéh ning atiné padha krasa kabotan merangi ko kabéh utawa merangi kaumé. [^214] Sekirané Gusti Allah ngersakna, masthi déparingna (déning Penjenengané) kuwasa maring dhéwéké (sejeroné) ngadhepi ko kabéh, mangka mesthi dhéwéké padha merangi ko kabéh. Ning angger dhéwéké padha ngejorna ko kabéh, lan ora merangi ko lan nawakna kerukunan maring ko kabéh (teluk), mangka Gusti Allah ora paring dalan maring ko kabéh (nggo nyekel lan maténi) dhéwéké kabéh.
-
-[^213]: Ayat kiyé dadi dhasar hukum suaka.
-
-[^214]: Ora mbalani lan wis nganakna sesrawungan karo wong-wong muslimin.
 
 ## 4:91
 
@@ -2781,10 +2353,6 @@ Lan sapa wongé maténi siji baé wong sing precaya kanthi sengaja, mangka piwal
 
 Hé wong-wong sing padha precaya! Angger ko kpadha lunga (mangkat perang) neng dalané Gusti Allah, mangka détliti (goléta keterangan) lan ko aja padha ngucap maring wong sing ngucapna ’salam’ maring ko kabéh, [^215] “Ko kabéh udu wong sing precaya” (banjur ko padha maténi wong mau) nggo tujuan golét bandha penguripan dunya, mangkané neng sisihé Gusti Allah ana bandha sing akéh banget. Kaya kuwé uga anané ko kabéh gemiyén, [^216] banjur Gusti Allah paring nékmat-É maring ko kabéh, mangka tlitinen. Temen, Gusti Allah Mahanastiti maring apa sing ko kabéh pergawé.
 
-[^215]: Uga démaksud wong sing padha ngucapna kalimah Laa ilaaha illallah.
-
-[^216]: Wong kuwé urung genah Islamé tumrap wong akéh, ko uga padha kaya kuwé gemiyén.
-
 ## 4:95
 
 Ora padha antarané wong precaya sing padha njagong (sing ora mélu perang) tanpa uzur (alangan) karo wong sing toh-pati neng dalané Gusti Allah nganggo bandhané lan awaké. Gusti Allah munjulna drajaté wong-wong sing padha toh-pati nganggo bandhané lan awaké ingatasé wong-wong sing padha njagong baé (ora mélu perang tanpa alangan). Maring dhéwék-dhéwék, Gusti Allah njanjékna ganjaran sing apik (suwarga) lan Gusti Allah munjulna wong-wong sing toh-pati (mbéla agamané Gusti Allah) ingatasé wong sing njagong kanthi ganjaran sing gedé,
@@ -2796,8 +2364,6 @@ Ora padha antarané wong precaya sing padha njagong (sing ora mélu perang) tanp
 ## 4:97
 
 Setemené wong-wong sing déjabud nyawané déning malaékat neng sejeroné kahanan nganiaya (gawé tuna) awaké dhéwék, [^217]  dhéwéké (para malaékat) takon, “Kepriwé jané ko?” Wong-wong kuwé semaur, “Inyong kabéh wong-wong kaniaya neng bumi (Mekah).” Dhéwéké (para malaékat) takon, “Mbok iya buminé Gusti Allah kuwé amba, saéngga ko padha téyéng hijrah (bayang-boyong) neng bumi kuwé?” Mangka wong-wong kuwé panggonané neng neraka Jahanam, lan (Jahanam) kuwé seala-alané panggonan bali,
-
-[^217]: Wong-wong Islam Mekah sing ora gelem boyong bareng Kanjeng Nabi s.a.w, mangkané dhéwéké kabéh jané sanggup. Dhéwéké kabéh détindhes lan dépeksa neng wong kapir kon mélu bareng dhéwéké lunga maring Perang Badar; akhiré neng antarané dhéwéké kabéh ana sing mati (kenang panah) neng peperangan kuwé.
 
 ## 4:98
 
@@ -2815,17 +2381,9 @@ Lan sapa wongé boyong neng dalané Gusti Allah, mesthi dhéwéké kabéh bakal 
 
 Lan angger ko kabéh lelungan neng bumi, mangka ora dosa ko padha nglakoni (qasar), [^218] angger ko padha wedi déserang déning wong kapir. Setemené wong kapir kuwé mungsuh sing cetha tumrapé ko kabéh.
 
-[^218]: Miturut tapsir umum, tegesé qasar kuwé sembayang sing patang rekangat dédadékna rong rekangat.
-
 ## 4:102
 
 Lan angger sliramu (Muhammad) ana neng tengah-tengahé dhéwéké kabéh (batiré-batiré sliramu), banjur sliramu arep nglakoni sem-bayang bareng-bareng dhéwéké, mangka preyoga serombongan sekang dhéwéké njanggleng (sembayang) bareng sliramu lan padha nyekel pedhamané (senjatané), banjur angger dhéwéké kabéh (sing sembayang bareng sliramu) sujud (wis nyempurnakna serékangat) [^219] mangka preyoga dhéwéké padha boyong sekang mburiné sliramu (nggo ngadhepi mungsuh) lan preyoga teka serombongan liya sing urung sembayang, banjur dhéwéké padha sembayang bareng sliramu, [^220] lan preyoga dhéwéké padha siyap-siyaga nyekel pedhamané dhéwék. Wong-wong kapir padha kepéngin ko kabéh ora serilik maring pedhama lan dunya-bandhamu, banjur dhéwéké nglurug ko kabéh sepisan bres. Lan kena baé ko padha nggletakna pedhama-pedhamamu, angger ko padha kenang palangan merga udan, utawa merga ko padha mriyang, lan padha siyap-siyaga ko kabéh. [^221] Temen, Gusti Allah wis nyedhiakna siksa sing gawé nisthané nggo wong-wong sing mbangkang (kapir) kuwé.
-
-[^219]: Miturut sebagéan akéh juru tapsir, angger wis rampung serekangat, terus dérampungna serekangat maning dhéwékan, lan Kanjeng Nabi lenggah nunggu klompok sing nomer loro.
-
-[^220]: Rekangat sing sepisanan, lan rekangat pindhoné uga padha dérampungi dhéwék lan dhéwéké kabéh ngrampungi sembayang bareng-bareng Kanjeng Nabi s.a.w.
-
-[^221]: Carané sembayang khauf kaya kesebut neng ayat 102, kiyé délakokna neng kahanan sing kira-kira ésih bisa délakoni. Angger kahanané ora bisa, mangka sembayang kuwé délakokna sebisa-bisané, senajan mung karo ngucapna tasbéh (ucapan subhanallah).
 
 ## 4:103
 
@@ -2838,8 +2396,6 @@ Lan aja nganti ko atiné padha nglokro neng sejeroné ngudag dhéwéké kabéh (
 ## 4:105
 
 Temen, Ingsun wis nurunaken Kitab (Al-Qur’an) maring sliramu (Muhammad) nggawa bebener, supaya sliramu ngadili menungsa kanthi apa sing wis dewulangna déning Gusti Allah maring sliramu lan aja nganti ko padha dadi wong sing nglawan maring (wong sing ora salah), merga mbélani wong sing nyidrani (khianat), [^222]
-
-[^222]: Ayat kiyé lan sewetara ayat seterusé déturunaken gandhéng sangkut karo laku maling sing délakokna déning Tu’mah lan dhéwéké ngumpetna barang colongané neng umahé wong Yahudi. Tu’mah ora ngakoni penggawéyané kuwé, malah ndakwa sebeneré sing nyolong barang kuwé wong Yahudi. Prekara kiyé déwadulna déning sedulur-seduluré Tu’mah maring Kanjeng Nabi s.a.w, lan dhéwéké padha nyuwun supayané Kanjeng Nabi mbélani Tu’mah lan ngukum wong Yahudi mau, Ning dhéwéké padha ngerti jan-jané sing nyolong barang kuwé Tu’mah. Nabi s.a.w, pribadhi méh baé mbenerna dakwanané Tu’mah lan seduluré ingatasé wong Yahudi.
 
 ## 4:106
 
@@ -2889,21 +2445,13 @@ Gusti Allah ora arep ngampura dosa syirik (nyekuthokna Gusti Allah karo sewiji-w
 
 Sing dhéwéké padha kabéh sembah seliyané Gusti Allah, kuwé ora liya, mung inasan (brehala) [^223] lan dhéwéké ora liya mung nyembah sétan sing duraka,
 
-[^223]: Asal maknané tembung inasan kuwé wadon-wadon. Reca-reca brehala sing désembah neng wong Arab Jahiliyah kuwé biasané déarani karo aran-aran wadon, umpamané al-Lata, al-Uzza lan Manah. Bisa uga tegesé wong-wong mati, barang-barang sing ora keton lan barang-barang sing ora duwé daya.
-
 ## 4:118
 
 sing désupatani déning Gusti Allah, lan (sétan) kuwé ngucapna, “Kula mesthi ajeng mendhet bagéan ingkang pinésthi saking kawula-kawula Penjenengan, [^224]
 
-[^224]: Neng kabéh menungsa ana daya nggo temindak apik, uga ana daya nggo temindak ala. Sétan arep nggunakna daya kuwé nggo gawé ala, nggo nyilakani menungsa.
-
 ## 4:119
 
 lan mesti ajeng kula sasaraken kiyambeké sami, lan ajeng kula tangékna angen-angen suwung nggé kiyambeké, lan ajeng kula préntah kiyambeké kén sami motong kuping-kuping kéwan ingon (lajeng kiyambeké éstu-éstu motong kuping kéwan niku), [^225] lan ajeng kula préntah kiyambeké ngewahi ciptananipun Gusti Allah, (lajeng kiyambeké sami éstu-éstu ngewahi).” [^226] Sapa wongé sing ndadékna sétan dadi pengayom seliyané Gusti Allah, mangka temen dhéwéké, nanggung kapitunan sing cetha.
-
-[^225]: Miturut peprecayaé wong Arab jahiliyah, kéwan-kéwan sing arep nggo korban maring reca brehala, kudu dépotong kupingé dhisit, lan kéwan sing kaya kiyé ora olih nggo détunggangi lan ora kena dénggo ngapa-apa lan kudu déculna maning.
-
-[^226]: Ngowahi ciptanané Gusti Allah bisa ateges ngowahi apa sing décipta déning Gusti Allah kayadéné ngebiri kéwan. Ana sing napsiri karo ngowahi agamané Gusti Allah.
 
 ## 4:120
 
@@ -2921,8 +2469,6 @@ Lan wong sing padha precaya lan nglakoni penggawéyan becik mbésuk bakal Ingsun
 
 (Ganjaran sekang Gusti Allah) kuwé udu pengangen-angenmu [^227] lan udu (uga) angen-angené Ahli Kitab. Sapa wongé sing mergawé ala, mesthi déwales setimpal karo penggawé ala kuwé, lan dhéwéké kabéh ora bakal olih pengayom lan penulung seliyané Gusti Allah.
 
-[^227]: “mu” neng kéné ana sing napsiri kaum Muslimin lan ana uga sing napsiri kaum musrikin. Maksudé ganjaran neng akhérat ora kaya angen-angen lan kekarepané dhéwéké kabéh, ning patrap karo pepesthén agama.
-
 ## 4:124
 
 Lan sapa wongé nglakoni tindak kebagusan, becik lanang utawa wadon turan dhéwéké padha precaya, mangka dhéwéké kabéh bakal mlebu maring suwarga lan dhéwéké ora dégawé tuna semendhing-mendhinga.
@@ -2939,19 +2485,9 @@ Lan kagungané Gusti Allah apa sing ana neng langit lan apa sing ana neng bumi l
 
 Lan dhéwéké padha njaluk ketetepan hukum (fatwa) maring sliramu ngenani wong wadon. Dhawuhna, “Gusti Allah paring ketetepan hukum (fatwa) maring ko kabéh ngenani dhéwéké, [^228] lan apa sing déwa-cakna maring ko kabéh senjeroné Al-Qur’an (uga paring putusan hukum) ngenani wong-wong wadon yatim sing ora ko wéhi apa-apa (mas kawin) sing détetepna nggo dhéwéké, mangkané ko padha kepéngin mbojo wong wadon kuwé [^229] lan (ngenani) bocah-bocah sing ésih keton ora daya. Lan (Gusti Allah dhawuh maring ko kabéh) supaya ngrumat bocah-bocah yatim kanthi adil. Lan kebecikan apa baé sing ko lakoni, setemené Gusti Allah Maha Ngawuningani.
 
-[^228]: Waca An-Nisa (4): 2 lan 3
-
-[^229]: Miturut adat Arab jahiliyah, sewiji wali nguwasani wong wadon yatim sing dadi rumatané, lan ngewasani bandhané. Agger wadon yatim kuwé ayu rupané, banjur débojo lan déjikot bandhané. Angger wong wadon yatim kuwé ala rupané déalang-alangi kawin karo wong lanang liya supayané bisa ngewasani bandhané. Ayat kiyé nglarang adat kuwé.
-
 ## 4:128
 
 Lan upamané ana wong wadon kewatir lanangé arep nusyuz [^230] utawa temindak ora preduli (ora opén) mangka sekaroné kena nganakna geguyuban sing temen, [^231] lan guyub kuwé lewih apik (tumrap dhéwéké kabéh) senajan menungsa kuwé miturut wateké mbethithil. [^232] Lan angger ko padha ngapiki (srawung-apik karo bojomu) lan ngreksa awakmu (sekang nusyuz lan laku ora opén), mangka temen, Gusti Allah Mahanastiti maring apa sing ko padha pergawé.
-
-[^230]: Deleng tegesé nusyuz tumrap wong wadon neng cathetan An-Nisa (4) : 34. Nusyuz tumrap wong lanang kuwé temindak keras maring bojo, ora gelem ngembuli lan ora gelem awéh apa sing dadi haké.
-
-[^231]: Kaya wong wadon nrima sewetara haké dékurangi asal lanangé gelem becik maning.
-
-[^232]: Wateké menungsa kuwé ora gelem ngeculna bagéan haké maring wong liya kanthi rila atiné, senajan kaya kuwé angger bojo ngrilakna sebagéan haké, mangka sing lanang kena nampani.
 
 ## 4:129
 
@@ -3005,15 +2541,9 @@ Lan temen Gusti Allah wis nurunaken (plang-geran) kanggo ko kabéh neng njero Ki
 
 (yakuwé) wong sing nunggu-nunggu (kedadéan) sing arep teka ingatasé ko kabéh. Angger ko padha olih kamenangan sekang Gusti Allah dhéwéké padha ngucap, “Toli inyong padha (melu perang) bareng ko kabéh?” Lan angger wong kapir olih bagéan, dhéwéké padha ngucap, “Toli inyong padha mélu gawé menang maring ko, [^233] lan mbélani ko kabéh sekang wong mukmin?” Mangka Gusti Allah bakal paring putusan neng antarané ko kabéh neng dina kiyamat. Gusti Allah ora bakal paring dalan maring wong kapir nggo ngalahna wong-wong sing precaya.
 
-[^233]: Kanthi cara mbukak wadi-wadiné wong mukmin lan mbutulna théthék-bengéké maring wong kapir, utawa angger dhéwéké perang neng péhaké wong mukmin dhéwéké goli perang ora temekan ati.
-
 ## 4:142
 
 Setemené wong-wong lamis (munapék) kuwé arep ngapusi Gusti Allah, ning Gusti Allah sing arep ngapusi dhéwéké kabéh. [^234] Angger dhéwéké padha njanggleng nggo sembayang, dhéwéké kabéh temandang kanthi bebeh. Dhéwéké duwé tujuan pamér (kepéngin déalem) neng ngarepé menungsa. Lan dhéwéké ora padha éling (maring) Gusti Allah kejaba mung semendhing pisan. [^235]
-
-[^234]: Gusti Allah ngejorna dhéwéké neng pengakon precaya, mula kuwé dhéwéké déladheni kaya ngladheni para mukmin. Sewetara kuwé Gusti Allah wis nyedhiakna neraka nggo dhéwéké minangka dadi piwales apus-apusé dhéwéké kuwé.
-
-[^235]: Dhéwéké sembayang mung kalan-kalan, yakuwé angger dhéwéké ana neng ngarepé wong.
 
 ## 4:143
 
@@ -3031,19 +2561,13 @@ Temen, wong-wong lamis (munapék) kuwé (dépanggona) neng lapis sing paling ngi
 
 Kejaba wong-wong sing padha tobat lan ngapiki awaké dhéwék [^236] lan cekelan kenceng maring (agamané) Gusti Allah lan kanthi tulus iklas (nindakna) agamané krana Gusti Allah. Mangka dhéwéké kuwé padha bareng-bareng karo wong-wong sing precaya lan mbésuk Gusti Allah bakal maringi ganjaran sing gedhé karo wong-wong sing padha precaya.
 
-[^236]: “Ngapiki awak” tegesé nyambet gawé sing apik nggo ngilangna ngakibat sing ala lan kesalahan sing kelakon.
-
 ## 4:147
 
 Gusti Allah ora bakal nyiksa ko kabéh, angger ko padha kesuwun (maring Gusti Allah) lan precaya. Lan Gusti Allah Mahasukur, [^237] Maha Ngawuningani.
 
-[^237]: Maringi ganjaran ingatasé amal kawula-Né ngampura kesalahané, nambahi nékmat-É.
-
 ## 4:148
 
 Gusti Allah ora karenan (maring) pengucap ala, (sing déucapna) blakasuta kajaba déning wong sing kenang aniaya. [^238]  Lan Gusti Allah Maha Midhanget, Maha Ngawuningani.
-
-[^238]: Wong sing kenang aniaya olih ngajokna maring hakim utawa penguwasa ala-alané wong sing nganiaya.
 
 ## 4:149
 
@@ -3052,8 +2576,6 @@ Angger ko padha ngedhéngna sewijiné kebagusan, ngumpetna utawa ngampurani sewi
 ## 4:150
 
 Setemené wong-wong sing padha ingkar maring Gusti Allah lan utusan-utusan-É, lan duwe karep mbedak-mbédakna [^239]  antarané (precayaé maring) Gusti Allah lan utusan-utusan-É kanthi pengucap, “Inyong kabéh precaya maring sebagéan lan inyong kabéh ngingkari sebagéan (sing liya),” karo duwé maksud ngalap dalan tengah (precaya utawa kapir),
-
-[^239]: Precaya maring Gusti Allah, ora precaya maring utusan-utusan-É.
 
 ## 4:151
 
@@ -3067,19 +2589,13 @@ Anadéné wong-wong sing padha precaya maring Gusti Allah lan utusan-utusan-É l
 
 (Wong-wong) Ahli Kitab njaluk maring slira-mu (Muhammad) supaya sliramu nurunaken sewiji kitab sekang langit maring dhéwéké kabéh. Setemené dhéwéké wis padha njaluk maring Musa sing lewih gedhé sekang kuwé. Dhéwéké padha ngucap, “Ketonakna Gusti Allah maring inyong kabéh sewantahé. Mangka dhéwéké kabéh désamber bledhég merga kejahatané. Terusé dhéwéké nyembah pedhét (anak sapi) [^240] sewisé dhéwéké padha weruh bukti-bukti sing wantah (nyata). Sena-jan kaya kuwé Ingsun ampurani dhéwéké, lan wis Ingsun paring maring Musa praja (kewasa) sing nyata.
 
-[^240]: Reca anak sapi kuwé dégawé sekang emas nggo désembah
-
 ## 4:154
 
 Lan Ingsun junjung gunung (Sinai) neng ndhuwuré dhéwéké nggo (ngukuhna) janjiné dhéwéké, lan Ingsun dhawuh maring dhéwéké, “Lebonana lawang sekéthéng (Baitulmaqdis) kuwé karo sujud.” Lan Ingsun dhawuhna (uga) maring dhéwéké, “Aja nganti ko padha nglanggar aturan ngenani dina Sabat, [^241] lan Ingsun wis ngasta sekang dhéwéké janji sing kukuh.
 
-[^241]: Dina Sabat kuwé dina Setu, dina sing mligi nggo wong Yahudi.
-
 ## 4:155
 
 Mangka (Ingsun ukum dhéwéké kabéh) [^242] merga dhéwéké padha nyidrani janji kuwé, merga mbangkangé (kapiré) dhéwéké maring keterangan-keterangan-É Gusti Allah, karo merga dhéwéké wis padha merjaya (maténi) nabi-nabi tanpa hak (alesan sing bener) lan merga dhéwéké ngucapna, “Atiné inyong kabéh wis ketutup.” Sebeneré Gusti Allah wis ngancing (ngunci) atiné dhéwéké merga kapiré, merga kuwé mung sebagéan cilik sekang dhéwéké sing padha precaya.
-
-[^242]: Kelakuan-kelakuan kuwé nglaknati dhéwéké, dhéwéké désamber gludhug, rikala dhéwéké dadi kethek.
 
 ## 4:156
 
@@ -3089,19 +2605,13 @@ Lan (ingsun ukum uga) merga mbangkangé dhéwéké (maring Nabi Isa) lan dakwana
 
 lan (Ingsun ukum uga) merga omongané dhé-wéké, “setemené inyong kabéh wis merjaya Al-Masih, Isa putrané Maryam, Utusan Gusti Allah,” [^243] mangkané dhéwéké padha ora merjaya (Isa) lan ora (uga) ménthéng (nyalib) Penjenengané, ning (sing dhéwéké perjaya kuwé) wong sing dépadha-rupakna karo Penjenengané (Isa). Setemené dhéwéké sing padha sulaya penemuné ngenani (rajapatiné) Isa, padha terus neng sejeroné semang nge-nani (wong) sing déperjaya kuwé. Dhéwéké nyata-nyata ora ngerti (sapa jané wong sing déperjaya kuwé) anging mung ngetutna pengira-ira thok, dadi dhéwéké padha ora precaya wis merjaya slirané (Isa).
 
-[^243]: Dhéwéké ngarani Isa putrané Maryam kuwé utusané Gusti Allah mung nggo ngécé, merga wong-wong kuwé dhéwék ora precaya kenabiané Isa a.s.
-
 ## 4:158
 
 Ning Gusti Allah wis ngangkat (Nabi) Isa maring pengarsa-Ne. [^244] Gusti Allah Mahamulya, Mahawicaksana.
 
-[^244]: Ayat kiyé minangka bantahan ingatasé anggepané wong Yahudi, lamon dhéwéké wis padha merjaya Nabi Isa a.s.
-
 ## 4:159
 
 Ora nana sewiji wong neng antarané Ahli Kitab sing ora precaya maring slirané (Isa) neng wektu méh sédané. [^245] Lan neng dina Kiyamat slirané (Isa) arep dadi seksi ingatasé dhéwéké kabéh.
-
-[^245]: Saben wong Yahudi lan Nasrani rikala pérek mati arep padha precaya maring Nabi Isa a.s lan ngakoni seurungé Penjenengané séda, lamon Penjenengané kuwé utusané Gusti Allah, udu putrané Gusti Allah. Ning precayaé dhéwéké kuwé wis kasép.
 
 ## 4:160
 
@@ -3122,8 +2632,6 @@ Setemené Ingsun wis paring wahyu maring sliramu (Muhammad) kayadéné Ingsun wi
 ## 4:164
 
 Lan ana sewetara utusan sing Ingsun ceritakna dhéwéké maring sliramu seurungé, lan ana sewetara utusan (liya) sing ora Ingsun ceritakna dhéwéké maring sliramu. Lan maring Musa Gusti Allah dhawuh langsung [^246] .
-
-[^246]: Gusti Allah dhawuh langsung maring Nabi Musa a.s ngetonaken istiméwané slirané, lan mula kuwé Nabi Musa a.s désebut kalimullah. Éwadéné utusan-utusan sing liya déparingi wahyu sekang Gusti Allah lantaran Malaékat Jibril. Anadéné Nabi Muhammad s.a.w nglakon pangendikan langsung karo Gusti Allah neng wektu wenginé isro’-mi’raj.
 
 ## 4:165
 
@@ -3153,17 +2661,9 @@ Hé menungsa! Temen, wis teka Utusan (Muhammad) maring ko kabéh kanthi (ngas-ta
 
 Hé Ahli Kitab! Aja nganti ko padha nglewi-hi wates neng sejerone agamamu, [^247] lan aja nganti ko padha matur maring Gusti Allah kejaba sing bener. Temen, Al-Masih Isa putrané Maryam kuwé, utusané Gusti Allah lan (sing déciptakna) karo sabda-Né [^248] sing débutulna maring Maryam, lan (karo semprongan) roh sekang Penjenengané. [^249] Mangka padha precayaa maring Gusti Allah lan utusan-utusan-É lan aja padha ngucap “(Gusti Allah kuwé) telu,” mandhega (sekang ucapan kuwé). (Kuwé) lewih apik kanggo ko kabéh. Setemené Gusti Allah Pengéran sing Mahatunggal, Mahasuci Penjenengané sekang (anggepan) kagungan putra. Kagungan-É apa sing ana neng langit lan apa sing neng bumi. Lan cukup Gusti Allah dadi pengayom.
 
-[^247]: Aja ngasi ko kabéh ngomongna nabi Isa.as kuwé Pengéran, kayadéné wong nasrani
-
-[^248]: Maksudé kalimah (sabda) yakuwé “kun”, dadiné Nabi Isa a.s déciptakna tanpa rama.
-
-[^249]: Désebut semprongan (sebulan) sekang Gusti Allah merga semprongan kuwé sekang Gusti Allah.
-
 ## 4:172
 
 Al-Masih babar pisan ora kabotan dadi kawulané Gusti Allah, lan mengkana uga para malaékat sing kepérek (maring Gusti Allah). [^250] Lan sapa wongé kabotan (ngedhap) nyembah Penjenengané lan ngagul-agulna awaké dhéwék, mangka Gusti Allah bakal ngumpulna dhéwéké kabéh maring Penjenengané.
-
-[^250]: Malaékat sing ana neng sekubeng ‘Arsyi, kaya Jibril, Mikail lan Israfil.
 
 ## 4:173
 
@@ -3181,67 +2681,33 @@ Anadéné wong-wong sing padha precaya maring Gusti Allah lan cekelan kenceng ma
 
 Dhéwéké padha njaluk keterangan maring sliramu (ngenani kalalah). [^251] Dhawuha, “Gusti Allah paring ketetepan hukum (fatwa) maring ko kabéh ngenani kalalah (yakuwé), angger sewiji wong mati lan dhéwéké ora duwé anak tapi duwé sedulur wadon, mangka bagéané (sedulur wadon kuwé) separoné sekang bandhané sing détinggalna, lan seduluré sing lanang marisi (kabéh bandhané seduluré sing wadon) angger dhéwéké ora duwé anak. Ning angger sedulur wadon kuwé ana loro, mangka tumrap loroné rong pertelon sekang bandha sing détinggalna lan angger dhéwéké (ahli waris kuwé ana) lanang lan wadon, mangka bagéané sedulur lanang siji padha karo bagéané sedulur wadon loro. Gusti Allah nerangna (hukum kiyé) maring ko kabéh supayané ko padha ora kesasar. Gusti Allah Maha Ngawuningani samubarang kabéh.”
 
-[^251]: Kalalah, kuwé wong mati sing ora ninggalna rama lan anak.
-
 ## 5:1
 
 Hé wong-wong sing padha precaya! Leksanakna janji-janji. [^252] Kéwan ingon-ingon désekolihna (halal) tumrap ko kabéh, kejaba sing arep désebutna maring ko kabéh, kanthi ora nyekolihna buru kéwan rikala ko padha lagi ihram (kaji utawa umrah). Setemené Gusti Allah netepna hukum laras karo sing Penjenengané kersakna.
-
-[^252]: Janji neng kéné janji tuhu (manut-miturut) kawula maring Gusti Allah lan janji sing dégawé déning menungsa neng jeroné sesrawungan sepadhané.
 
 ## 5:2
 
 Hé wong-wong sing padha precaya! Aja nganti ko kabéh nerak kuncara-kuncara (syi’ar-syi’ar)  kesuciané Gusti Allah [^253] lan aja (nglanggar kemulyané) wulan-wulan haram [^254] aja ngganggu hadyu (kéwan-kéwan korban) [^255] lan qala’id (kéwan-kéwan kurban sing déwéhi tandha) [^256] , lan aja (uga) ngganggu wong-wong sing nekani baitulharam; dhéwéké padha nggolét kanugrahan lan karenané Pengérané. [^257] Ning angger ko kabéh wis ngrampungna ihram, mangka désekolihi ko padha buru kéwan. Aja nganti kewadhéhanmu maring sewiji kaum merga dhéwéké padha ngalang-alangimu sekang Masjidilharam merekna ko kabéh temindak nglewihi wates (maring wong-wong mau). Lan padha tulung-tinulunga ko kabéh sejeroné (nglakoni) kebecikan lan semarah. Lan aja padha tulung-tinulung neng sejeroné nglakoni dosa lan cecongkrahan. Semaraha maring Gusti Allah, temen, Gusti Allah banget abot siksané.
 
-[^253]: Syi’ar-syi’ar kesuciane Gusti Allah yakuwé kabéh amalan sing délakoni mung sejeroné ibadah haji kaya tata cara nglakokna thawaf lan sa’i, lan panggonan-panggonané nglakoni kaya ka’bah Safa lan Marwa.
-
-[^254]: Wulan haram yakuwé Dzulkaidah, Dzulhijjah, Muharram lan Rajab. Neng wulan-wulan kuwé délarang nglakoni perang.
-
-[^255]: Hadyu, yakuwé kéwan sing désembeléh nggo ngganti (dam) pegawéan  wajib sing détinggalna. Utawa nggo dhendha merga nglanggar bab-bab sing délarang nglakokna neng jerone ngibadah  haji.
-
-[^256]: Qolaid yakuwé kéwan hadyu sing déwéhi kalung supayané déngerténi wong lamon kéwan kuwé wis dékanggokna nggo dégawa maring ka’bah
-
-[^257]: Maksudé karo kanugrahan yakuwé kebegyan sing déparingi Gusti Allah sejeroné lelungan  ngibadah haji. Anadéné karenané Gusti Allah yakuwé ganjaran ngibadah  haji
-
 ## 5:3
 
 Délarang (haram) tumrap ko kabéh (mangan) bathang, getih, [^258] daging babi lan (daging) kéwan sing désembeléh udu merga (asmané) Gusti Allah, sing ketekek (kendhat), sing dégebug, sing tiba, sing kenang sungu lan sing décengkerem kéwan galak, kejaba sing ésih bisa ko sembeléh. [^259] Lan (déharamna uga) sing désembeléh kanggo brehala, lan (déharamna uga) ngogan (ngramal) nasib karo azlam (jemparing) [^260] merga kuwé sewiji penggawéan pasék. Neng dina kiyé [^261] wong-wong kapir wis padha pedhot pengarep-arepé nggo (ngalahna) agamamu, mula kuwé aja nganti ko padha wedi maring dhéwéké, ning padha wedia maring Ingsun. Neng dina kiyé wis Ingsun sempurnakna agamamu kanggo ko kabéh lan wis Ingsun cukupna nékmaté Ingsun tumrap ko kabéh, lan wis Ingsun keparengaken (ridhani) Islam minangka agamamu kabéh. Ning sapa wongé kepeksa [^262] merga kencot ora merga kepéngin gawé dosa, mangka temen, Gusti Allah Maha Ngampura, Mahaasih.
-
-[^258]: Getih sing metu sekang awak, kayadéné désebutna neng Al An’am (6) : 145
-
-[^259]: Kéwan sing ketekek (kendhat), sing dégebug, sing tiba, sing désrudug lan sing décengkerem kéwan galak kuwé halal angger konangan ésih urip lan ésih bisa désembeléh seurungé mati.
-
-[^260]: Al-azlam tegesé jemparing (anak panah – Ind.) sing urung nganggo wulu. Wong Arab jahiliyah nganggo barang kuwé nggo nemtokna apa dhéwéké arep nglakoni sewiji pegawéan apa ora. Carané : dhéwéké njikot jemparing telu sing urung nganggo wulu, sewisé détulisi dhéwék-dhéwék yakuwé karo “lakonana” karo “aja lakonana”, lan sing nomer telu ora détulisi apa-apa. Jemparing telu kuwé désogna neng sewijiné wadhah lan dédelah neng njero Ka’bah. Angger dhéwéké arep padha nglakoni sewiji penggawéyan mangka dhéwéké njaluk supayané juru kunci Ka’bah njikot jemparing siji kuwé. Dhéwéké arep nglakoni utawa ora nglakoni penggawéyan kuwé manut maring tulisan sing ana neng jemparing sing déjikot. Angger sing kejikot jemparing sing ora nana tulisané, ngogané débaléni maning.
-
-[^261]: Sing démaksud karo dina kiyé yakuwé, wektuné haji wada’, haji pungkasan sing délakoni déning Nabi Muhammad s.a.w.
-
-[^262]: Désekolihi mangan panganan sing déharamna neng ayat kiyé angger kepeksa.
 
 ## 5:4
 
 Dhéwéké padha takon maring sliramu (Muhammad), “Apa sing kena dépangan (déhalalna) tumrap dhéwéké?” Dhawuha, “Sing déhalalna tumrap ko kabéh (yakuwé panganan) sing apik-apik lan (kéwan buron sing wis décekel) neng kéwan sing wis délatih nggo buru, sing ko ajari manut apa sing déajarna déning Gusti Allah maring ko kabéh. Mangka panganen apa sing décekel (neng kéwan sing délatih kuwé) nggo ko kabéh [^263] lan sebuten asmané Gusti Allah wektu (ngeculna kéwan kuwé). Lan padha semaraha maring Gusti Allah, temen Gusti Allah banget cepet perétungan-E.
 
-[^263]: Kéwan buron sing décekel déning kéwan galak (contoné alap-alap sing délatih nyekel manuk) mligi nggo wong sing ngingu lan kéwan galak kuwé ora mangan kéwan buroné semendhing-mendhinga.
-
 ## 5:5
 
 Neng dina kiyé déhalalna tumrap ko kabéh apa baé sing apik-apik. Panganan (sembelé-hané) Ahli Kitab kuwé halal tumrap ko kabéh, lan pangananmu halal kanggo dhéwéké. Lan (déhalalna tumrap ko kabéh mbojo) wong-wong wadon sing ngreksa kemulyané [^264] neng antarané wong-wong wadon sing precaya, lan wong-wong wadon sing ngreksa kemulyané neng antarané wong-wong sing déparingi kitab seurungé ko kabéh. Angger ko padha mbayar mas kawiné dhéwéké nggo débojo, ora karo maksud jina lan ora nggo ndadékna gundhik. Sapa wongé mbangkang (kapir) sewisé precaya, mangka temen, muspra amalé dhéwéké, lan neng akhérat dhéwéké padha klebu wong-wong sing kapitunan.
-
-[^264]: Ana sing duwe penemu,  wong-wong wadon sing bébas.
 
 ## 5:6
 
 Hé wong-wong sing padha precaya. Angger ko kabéh arep nindakna sembayang (solat) mangka wasuhen raimu, lang tanganmu butul maring sikut, lan usapen sirahmu lan kumbah sikilmu loro butul maring thontho. Angger junub, mangka adusa. Angger ko padha mriyang [^265] utawa lagi neng dalan utawa bali sekang peturasan (kakus) utawa nyénggol [^266] wong wadon, mangka angger ko kabéh ora olih banyu, mangka tayamum-a karo lebu sing apik (suci), usapana raimu lan tanganmu karo (lebu) kuwé. Gusti Allah ora kersa paring angél maring ko kabéh, ning Penjenengané kersa mbrésihna ko kabéh lan nyempurnakna nékmaté nggo ko kabéh supayané ko padha kesuwun.
 
-[^265]: Lara sing ora olih kenang banyu
-
-[^266]: Nyénggol miturut teges sing umum yakuwé “sénggolan kulit”. Ning miturut sebagéan juru tapsir, yakuwé “kembulan karo bojo”.
-
 ## 5:7
 
 Lan élinga maring nékmaté Gusti Allah nggo ko kabéh lan janji-Né [^267] sing wis déjiretna maring ko kabéh, rikala ko padha ngucapna, “Inyong kabéh krungu lan inyong kabéh manut,” lan padha semaraha maring Gusti Allah, temen, Gusti Allah Maha Mriksani sekabéh isiné ati.
-
-[^267]: Janji arep ngrungokna lan mélu Nabi neng sejeroné apa baé sing déikrarna wektu bai’ah (prasetia).
 
 ## 5:8
 
@@ -3263,13 +2729,9 @@ Hé wong-wong sing padha precaya! Élinga nékmaté Gusti Allah (sing déparingn
 
 Lan temen, Gusti Allah wis mundhut janji sekang Bani Israil lan Ingsun wis ngangkat rolas pemimpin neng antarané dhéwéké kabéh. Lan Gusti Allah dhawuh, “Ingsun bareng ko kabéh.” Temen, angger ko kabéh nglakoni sembayang (solat) lan mbayar jakat uga precaya maring utusan-utusan Ingsun lan ko padha ngréwangi para utusan mau lan ko padha ngutangi maring Gusti Allah kanthi utangan sing apik, [^268] mesthi bakal Ingsun busek kesalah-kesalahanmu, lan mesthi bakal Ingsun lebokna maring njero suwarga, sing mili neng ngisoré kali-kali. Ning sapa wongé kapir neng antarané ko kabéh sewisé kuwé, mangka setemené dhéwéké kabéh wis kesasar sekang dalan sing jejeg.”
 
-[^268]: Nyumbangna bandha nggo netepi kewajiban kanthi ati sing iklas.
-
 ## 5:13
 
 (Ning) merga dhéwéké padha nglanggar janjiné, mangka Ingsun supatani dhéwéké kabéh, lan Ingsun dadékna atiné dhéwéké atos kaya watu. Dhéwéké padha seneng ngowahi sabdané Gusti Allah sekang panggonané [^269] lan dhéwéké padha (nguja) nglalékna sebagéan wélingan sing wis (wanti-wanti) deélingna maring dhéwéké. Sliramu (Muhammad) selawasé bakal nyekséni cecidran sekang dhéwéké, kejaba segolongan cilik neng antarané dhéwéké (sing ora nyidrani), mangka ampuranen dhéwéké lan jorna dhéwéké kabéh. Temen, Gusti Allah ngrenani wong-wong sing mergawé apik.
-
-[^269]: Ngowahi maksud tembung-tembung, panggonan utawa nambahi lan ngurangi.
 
 ## 5:14
 
@@ -3278,8 +2740,6 @@ Lan neng antarané wong-wong sing padha ngucap, “Inyong kiyé wong Nasrani,”
 ## 5:15
 
 Hé ahli kitab! Temen, Utusan Ingsun wis teka maring ko kabéh, nggenahna maring ko pirang-pirang prékara sekang (isiné) kitab sing ko padha umpetna. Lan akéh uga sing déapengna (déjorna). Temen, wis teka maring ko kabéh cahya sekang Gusti Allah, lan Kitab [^270] sing gawé genah.
-
-[^270]: Cahya, maksudé Nabi Muhammad s.a.w lan kitab maksudé Al-Qur’an.
 
 ## 5:16
 
@@ -3305,8 +2765,6 @@ Lan (élinga) rikala Musa ngucap maring kaumé, “Hé kaumku! Padha émuta mari
 
 Hé kaumku! Padha mlebua maring tanah suci (Palestina) sing wis détemtokna déning Gusti Allah nggo ko kabéh [^271] lan aja pisan-pisan ko kabéh balik maring mburi (merga wedi maring mungsuh), mengko ko kabéh dadi wong sing padha kapitunan.
 
-[^271]: Tanah Palestina kuwé détemtokna déning Gusti Allah nggo kaum Yahudi selagi dhéwéké padha precaya lan manut maring Gusti Allah.
-
 ## 5:22
 
 Wong-wong mau padha ngucap, “Hé Musa! Setemené neng tanah (Palestina) kuwé ana wong-wong sing banget kuwaté tur mbrangas, inyong ora arep padha mlebu nganah seurungé wong-wong mau padha metu sekang kana. Angger dhéwéké metu sekang kana, mesthi inyong padha bakal mlebu.”
@@ -3331,8 +2789,6 @@ Slirané (Musa) ngucap, “Dhuh Pengéran kula, kula namung ngewasani awak kula 
 
 Lan critakna (Muhammad) sing sebeneré maring dhéwéké kabéh ngenani riwayaté putra loroné Adam, [^272] rikala anaké loro kuwé padha asok kurban, mangka (kurbané) salah sijiné sekang wong loro mau (Habil) ketrima lan sekang sing liyané (Qabil) ora ketrima. Dhéwéké (Qabil) ngucap, “Temen, inyong mesthi merjaya ko!” Dhéwéké (Habil) ngucap. “Setemené Gusti Allah mung nampa (ngamal) sekang wong sing semarah (takwa).”
 
-[^272]: Para ahli tapsir ngucap, arané Qabil lan Habil.
-
 ## 5:28
 
 “Temen, angger ko (Qobil) ngobahna tanganmu maring inyong nggo merjaya inyong, inyong ora bakal ngobahna tanganku maring ko nggo merjaya ko. Inyong wedi maring Gusti Allah, Pengérané ngalam kabéh.”
@@ -3353,15 +2809,9 @@ Banjur Gusti Allah ngutus sewiji manuk gaok (kon) ngoreh lemah nggo déweruhna m
 
 Déning merga kuwé Ingsun tetepna (sewiji hukum) nggo Bani Israil, lamon sapa wongé merjaya siji wong udu merga wong kuwé merjaya wong liya [^273] utawa udu merga dhéwéké gawé rusak neng bumi, mangka kaya-kaya dhéwéké wis merjaya sekabéh menungsa. [^274] Sapa wongé ngupakara uripé menungsa siji, mangka kaya-kaya dhéwéké wis ngreksa uripé sekabéh menungsa. Setemené Utusan Ingsun wis teka maring wong-wong mau karo (nggawa) pirang-pirang keterangan sing cetha. Ning banjur akéh neng antarané wong-wong mau sewisé kuwé padha ngliwati wates neng bumi.
 
-[^273]: Yakuwé merjaya (maténi) wong udu merga qisas.
-
-[^274]: Hukum kiyé ora mung ngenani Bani Israil baé, ning uga ngenani menungsa sekabéhané. Neng ngarsané Gusti Allah merjaya (maténi) wong siji padha karo merjaya sekabéh menungsa, kaya kuwé uga sewaliké.
-
 ## 5:33
 
 Ukuman nggo wong-wong sing merangi (nglawan) Gusti Allah lan Utusan-É lan gawé rusak neng bumi mung dépaténi utawa désalib (dépenthéng), utawa détugel tangan lan sikilé nganggo cara selang-seling, [^275] utawa désingkirna sekang papan sing dénggoni. Sing kaya kuwé (dadi) kenisthan kanggo dhéwéké kabéh neng dunya, lan neng akhérat wong-wong mau olih siksa sing gedhé.
-
-[^275]: Nugel tangan tengen lan sikil kiwé, lan angger nglakoni kejahatan sepisan maning mangka détugel tangan kiwé lan sikil tengen.
 
 ## 5:34
 
@@ -3395,15 +2845,9 @@ Apa ko padha ora ngerti, lamon Gusti Allah kagungan sekabéh praja langit lan bu
 
 Hé Utusan (Muhammad)! Aja nganti sliramu dégawe susah merga wong-wong kaé padha ayon-ayonan neng njero kapiré. Yakuwé wong-wong (munapék) sing ngucap karo cangkemé dhéwéké kabéh, “Inyong wis padha precaya,” mangkané atiné dhéwéké urung padha precaya, lan uga wong-wong Yahudi sing seneng banget ngrungokna (werta-werta) goroh [^276] lan seneng banget ngrungokna (omongan-omongané) wong liya sing urung tau teka maring sliramu. [^277] Wong-wong mau ngowahi tembung-tembung (Taurat) sekang teges sing sebeneré. Wong-wong mau ngucap, “Angger kiyé sing déwéhna maring ko kabéh (sing wis déowahi) tampanen, lan angger ko kabéh déwéhi sing udu kiyé, mangka ngati-atia.” Sapa wongé dékersakna (déning) Gusti Allah nggo déjorna kesasar, semendhing baé ko ora bakal bisa nolak sewiji-wiji sekang Gusti Allah (nggo nulungi dhéwéké). Dhéwéké kabéh kuwé wong-wong sing wis ora dékersakna déning Gusti Allah nggo nyucékna atiné dhéwéké. Neng dunya dhéwéké padha olih kenisthan lan neng akhérat bakal olih siksa sing gedhé.
 
-[^276]: Wong-wong Yahudi banget seneng ngrungokna omongan-omongan pendhitané  sing goroh, utawa banget seneng ngrungokna dhawuh-dhawuh/ngendikané Nabi Muhammad s.a.w. Nggo débutulna maring pendhita-pendhita lan kanca-kancané wong-wong mau nganggo cara sing ora jujur.
-
-[^277]: Wong-wong mau banget seneng ngrungokna omongan-omongané pemimpin-pemimpine sing goroh sing urung tau ketemu karo Nabi Muhammad s.a.w. Merga banget wadheh maring slirane  utawa banget senengé ngrungokna pengendikané Nabi Muhammad s.a.w nggo débutulna kanthi ora jujur maring kanca-kancané.
-
 ## 5:42
 
 Wong-wong mau seneng pisan ngrungokna werta goroh, akéh mangan (panganan) sing haram. [^278] Angger dhéwéké kabéh (wong Yahudi) teka maring sliramu (Muhammad nggo njaluk putusan), mangka paringana putusan antarané dhéwéké mau utawa mléngosa sekang wong-wong mau, lan angger sliramu mléngos sekang wong-wong mau mangka dhéwéké kabéh ora bakal mbebayani apa-apa maring sliramu. Ning angger sliramu mutusna (prékarané wong-wong mau), mangka mutusana kanthi adil. Setemené Gusti Allah nresnani wong-wong sing adil.
-
-[^278]: Kayadéné dhuwit sogok lan sepadhané.
 
 ## 5:43
 
@@ -3425,17 +2869,9 @@ Lan Ingsun terusna lampahé wong-wong mau kanthi ngutus Isa putrané Maryam, mbe
 
 Lan preyoga wong sing manut maring Injil mutusna prékara miturut apa apa sing déturunaken déning Gusti Allah neng sejeroné, [^279] sapa wongé ora mutusna prékara miturut apa sing déturunaken déning Gusti Allah, mangka dhéwéké kabéh kuwé wong-wong pasék. [^280]
 
-[^279]: Wong-wong sing nuruti kitab Injil kuwé déwajibna mutus (ngukumi) prekara miturut apa sing déturunaken déning Gusti Allah neng jero kitab Injil kuwé, nganti tekan wektuné déturunaken Al-Qur’an.
-
-[^280]: Wong sing ora mutusna prekara karo hukumé Gusti Allah ana telung werna: a). Merga wadheh lan ingkaré maring hukumé Gusti Allah, wong sing kaya kiyé kapir (Al-Maidah (5) 44). b). Merga mélu hawa napsu lan gawé tuna maring wong liya déarani dolim (aniaya), (Al-Maidah (5) 45) c). Merga pasék kayadéné sing ana jeroné ayat 47 surat kiyé.
-
 ## 5:48
 
 Lan Ingsun wis nurunaken Kitab (Al-Qur’an) maring sliramu (Muhammad) kanthi nggawa bebener sing mbenerna kitab-kitab sing déturunaken seurungé, lan ngreksa [^281] (Al-Qur’an), mangka mutusana prékarané wong-wong mau kanthi apa sing déturunaken déning Gusti Allah lan aja nganti ko kabéh nuruti kepénginané wong-wong mau kanthi ninggalna bebener sing wis teka maring sliramu. Nggo saben umat neng antarané ko kabéh [^282] Ingsun paringna aturan lan dalan sing padhang. Angger Gusti Allah ngersakna, mesthi ko kabéh Penje-nengané dadékna siji umat (baé). Ning Gusti Allah kersa nguji ko kabéh ingatasé peparing sing wis déparingna maring ko kabéh. Mangka padha ayon-ayonana gawé kebagusan. Mung maring Gusti Allah ko kabéh bali, banjur Penjenengané kawruhna maring ko kabéh ingatasé apa sing ganu ko kabéh persulayakna.
-
-[^281]: Al-Qur’an kiyé dadi ukuran nggo nemtokna bener lan orané ayat-ayat sing déturunaken senjeroné kitab-kitab seurungé.
-
-[^282]: Umaté Nabi Muhammad s.a.w lan umat-umat seurungé.
 
 ## 5:49
 
@@ -3485,8 +2921,6 @@ Dhawuha, “Hé para Ahli Kitab! Apa ko padha nganggep inyong kabéh salah, mung
 
 Dhawuha (Muhammad), “Apa bakal ingsun wertakna maring ko kabéh ngenani wong sing lewih ala piwalesé tenimbang (wong pasék) neng sisihé Gusti Allah? Yakuwé wong sing désupatani lan dédukani déning Gusti Allah, neng antarané wong-wong mau (ana) sing dédadékna kethék, lan céléng [^283] lan (wong sing) nyembah Tagut.” Wong-wong kuwé lewih ala panggonané lan lewih kesasar sekang dalan sing jejeg.
 
-[^283]: Wong-wong Yahudi sing nglanggar kemulyané dina Sabat (deleng Al-Baqarah (2) : 65).
-
 ## 5:61
 
 Lan angger wong-wong mau (Yahudi utawa munapék) teka maring ko kabéh, dhéwéké padha ngucap, “Inyong kabéh wis padha precaya,” mangkané wong-wong mau teka maring ko kabéh kanthi kapiré lan dhéwéké padha lunga uga kaya kuwé. Lan Gusti Allah lewih mriksani apa sing dhéwéké kabéh umpetna.
@@ -3503,10 +2937,6 @@ Kenangapa para ulamané lan para pendhitané wong-wong mau ora nglarang dhéwék
 
 Lan wong-wong Yahudi padha ngucap, “Astané Gusti Allah kebanda,” [^284] setemené tangané wong-wong mau sing débanda lan dhéwéké kabéh sing débendoni merga apa sing wong-wong mau ucapna kuwé, mangkané astané loro Gusti Allah [^285] mbukak; Penjenengané paring rejeki kayadéné sing Penjenengané kersakna. Lan (Al-Qur’an) sing déturunaken maring ko kabéh sekang Pengéranmu kuwé mesthi bakal nambahi durakané lan kapiré tumrap akéh-akéhé wong-wong mau. Lan Ingsun tuwuhna sesatronan lan wewadhéhan neng antarané dhéwéké kabéh nganti butul dina Kiyamat. Saben dhéwéké padha nguripna geni peperangan, Gusti Allah maténi geni mau. Lan wong-wong mau molah (nuwuhna) kerusakan neng bumi. Lan Gusti Allah ora nresnani wong-wong sing gawé kerusakan.
 
-[^284]: Maksudé yakuwé medhit.
-
-[^285]: astané Gusti Allah ora padha karo tangan menungsa (mahluk).
-
 ## 5:65
 
 Lan sekirané wong Ahli Kitab kuwé padha precaya lan semarah, mesthi Ingsun busek (ilangna) kesalahan-kesalahané dhéwéké kabéh, lan wong-wong mau mesthi Ingsun lebokna maring njero suwarga-suwarga sing kebek kenékmatan.
@@ -3515,13 +2945,9 @@ Lan sekirané wong Ahli Kitab kuwé padha precaya lan semarah, mesthi Ingsun bus
 
 Lan sekirané wong-wong mau nyata-nyata padha nindakna (hukum) Taurat, Injil lan (Al-Qur’an) sing déturunaken maring dhéwéké kabéh sekang Pengérané, mesthi wong-wong mau bakal olih panganan sekang sendhuwuré dhéwéké lan sekang sengisor sikilé dhéwéké kabéh. [^286] Neng antarané wong-wong mau ana segolongan sing tulus lan miturut. Lan akéh neng antarané wong-wong mau banget alané apa sing dhéwéké kabéh pergawé.
 
-[^286]: Gusti Allah bakal paring welas-asih sekang langit kanthi nurunaken udan, nukulna wit-witan sing wohé rémbél-rémbél.
-
 ## 5:67
 
 Hé Utusan! Butulna apa sing déturunaken déning Pengérané sliramu maring sliramu. Angger ora sliramu lakoni (apa sing dépréntahna kuwé) mangka tegesé sliramu ora mbutulna amanat-É. Lan Gusti Allah ngreksa sliramu sekang (gangguané) menungsa. [^287] Temen, Gusti Allah ora paring pitudhuh maring wong-wong kapir.
-
-[^287]: Ora nana wong sijia sing bisa merjaya (maténi) Nabi Muhammad s.a.w.
 
 ## 5:68
 
@@ -3534,8 +2960,6 @@ Setemené wong-wong sing padha precaya, wong-wong Yahudi, lan wong-wong Shabiin,
 ## 5:70
 
 Setemené Ingsun wis mundhut janji sekang Bani Israil, [^288] lan wis Ingsun utus maring dhéwéké kabéh utusan-utusan. Ning saben utusan teka maring wong-wong mau kanthi nggawa apa sing ora cocog karo kepénginané (mangka) sebagéan (sekang utusan mau) dhéwéké cidrani, lan sebagéan liyané dhéwéké perjaya.
-
-[^288]: Perjanjian kuwé isiné, wong-wong mau precaya maring Gusti Allah lan utusan-utusan-É.
 
 ## 5:71
 
@@ -3556,8 +2980,6 @@ Kenangapa wong-wong mau ora padha tobat maring Gusti Allah lan nyuwun pengampura
 ## 5:75
 
 Al-Masih putrané Maryam ora liya mung sawiji Utusan. Seurungé uga wis keliwat pirang-pirang utusan. Lan biyungé sewiji wong sing banget ngugemi bebener. Sekaroné biasa dhahar panganan. [^289] Padha dégatékna kepriwé Ingsun nerangna ayat-ayat (tandha-tandha kewasané) maring wong-wong mau (Ahli Kitab), banjur gatékna kepriwé wong-wong mau padha déslewengna (déning kepénginané).
-
-[^289]: Lamon Nabi Isa a.s. lan biyungé kuwé menungsa biasa, sing butuh apa sing débutuhna menungsa liya, kayadéné mangan, nginum lan sepadhané.
 
 ## 5:76
 
@@ -3639,29 +3061,13 @@ Hé wong-wong sing padha precaya! Gusti Allah mesthi bakal nguji ko kabéh kanth
 
 Hé wong-wong sing padha precaya! Aja nganti ko kabéh maténi kéwan buron, [^290] rikala ko lagi padha nglakoni ihram (haji utawa umroh). Sapa wongé neng antarané ko kabéh maténi (kéwan kuwé) kanthi sengaja mangka dhendhané yakuwé ngganti karo kéwan ingon sing setimbang karo buron sing dépaténi, manut putusané wong loro sing adil neng antarané ko kabéh minangka hadyu (pisungsun) sing dégawa maring Ka’bah, [^291] utawa kafarat (mbayar tebusan kanthi) awéh panganan maring wong-wong miskin, [^292] utawa puasa, setimbang karo panganan sing détokna kuwé, [^293] supayané dhéwéké ngrasakna akibat alané kelakuané. Gusti Allah wis ngampura apa sing wis keliwat. [^294] Lan sapa wongé bali nglakoni keluputan mau, mesthi Gusti Allah bakal nyiksa dhéwéké. Lan Gusti Allah Mahadigdaya, kagungan (kuwasa nggo) paring siksa.
 
-[^290]: Kéwan buron padha sing olih dépangan utawa ora, kejaba manuk gaok, manuk dok, ketunggéng, sremet lan asu galak. Neng sewiji riwayat klebu uga ula.
-
-[^291]: Sing dégawa nganti butul tanah haram nggo désembeléh neng kono lan dagingé déwéhna maring fakir miskin.
-
-[^292]: Sepadhané karo rega kéwan ingon nggenténi kéwan sing dépaténi kuwé.
-
-[^293]: Puasa sing jumlah dinané seakéhé mud (takeran) sing déwéhna maring fakir miskin, serega kéwan sing dépaténi, carané wong siji fakir miskin olih siji mud (luwih kurang 6,5 ons).
-
-[^294]: Maténi kéwan seurungé temurun ayat sing ngaramna kiyé.
-
 ## 5:96
 
 Déhalalna (déparengna) tumrap ko kabéh kéwan buron segara [^295] lan panganan (sing asalé) sekang segara [^296] minangka panganan sing enak nggo ko kabéh, lan nggo wong-wong sing lagi neng lelungan; lan déharam-na (ora kepareng) nggo ko kabéh (buru) kéwan dharat, sedawané ko padha lagi ihram. Lan padha semaraha maring Gusti Allah sing maringi Penjenengané ko kabéh bakal dékumpulna (bali).
 
-[^295]: Kéwan buron segara sing olihé nganggo dalan usaha kayadéné mancing, njaring lan sepadhané. Klebu pengertén segara yakuwé kali, tlaga, blumbang lan sepadhané.
-
-[^296]: Iwak utawa kéwan segara sing goli olih kanthi gampang merga wis mati kemambang utawa nggletak neng kisik segara lan sepadhané.
-
 ## 5:97
 
 Gusti Allah wis ndadékna Ka’bah, umah suci panggonané menungsa padha kumpul. [^297] Kaya kuwé uga wulan haram, hadyu lan qalaid. Sing kaya kuwé mau supayané ko kabéh ngerténi lamon Gusti Allah Ngawuningani apa sing ana neng langit lan apa sing ana neng bumi, lan lamon Gusti Allah Maha Ngawuningani ingatasé samubarang kabéh.
-
-[^297]: Ka’bah lan seubengé dadi panggonan sing aman tumrapé menungsa nggo nglakoni urusan-urusan sing ana gandhéng-cenengé karo dunya lan akhérat, lan pusaté ngibadah haji.
 
 ## 5:98
 
@@ -3687,14 +3093,6 @@ Setemené seurungé ko kabéh wis ana segolongan menungsa sing takon prékara-pr
 
 Gusti Allah ora tau nyaréngatna anané Bahirah, [^298] Sa’ibah, [^299] Wasilah, [^300] lan Ham. [^301] Ning wong-wong kapir gawé-gawé penggorohan ingatasé Gusti Allah, lan akéh-akéhé wong-wong mau padha ora nalar (ora ngerténi).
 
-[^298]: Bahirah: onta wadon sing wis manak ping lima lan anak sing nomer lima kuwé lanang. Banjur onta wadon kuwé déiris kupingé, déumbar, ora kena détunggangi maning lan ora kena déjikot banyu susuné.
-
-[^299]: Sa’ibah: onta wadon sing déjorna lunga maring endi baé merga sawijiné nadar, kaya dené, angger sewijiné wong Arab jahiliyah arep nglakoni sawiji-wiji utawa lelungan sing ngrekasa, mangka dhéwéké biasané gawé nadar arep ndadékna ontané sa’ibah angger maksudé utawa lelungané kasil lan slamet.
-
-[^300]: Washilah: sewiji wedhus gémbél wadon manak kembar lanang lan wadon, mangka sing lanang kiyé déarani wasilah, ora kena désembeléh lan kudu dépasrahna maring brehala.
-
-[^301]: Ham: onta lanang sing ora kena déganggu-ganggu maning, merga wis bisa gawé meteng onta wadon ping sepuluh. Perlakon maring bahirah, saibah, wasilah, lan ham kiyé kepercayané wong Arab jahiliyah.
-
 ## 5:104
 
 Lan angger déucapna maring wong-wong mau, “Mayuh (ngetutna) apa sing déturuna-ken déning Gusti Allah lan (ngetutna) Utusan.” Dhéwéké kabéh semaur, “(Wis) cukup tumrapé inyong kabéh apa sing inyong pekolih sekang kaki-nininé inyong (nglakoniné).” Apa (dhéwéké kabéh arep ngetutna) uga para kaki-nininé senajan para kaki-nininé kuwé ora ngawéruhi apa-apa lan ora (uga) olih pitudhuh?
@@ -3711,13 +3109,9 @@ Hé wong-wong sing padha precaya! Angger sewijiné wong (neng antarané) ko kab�
 
 Angger kebukti seksi loro kuwé mergawé dosa [^302] mangka wong loro sing seliyané ngganti seksi loro mau, yakuwé sekang antarané ahli waris sing lewih pérek maring wong sing mati, mangka wong loro mau désumpah kanthi asmané Gusti Allah. “Temen, persekséné inyong kabéh lewih pantes détampa tenimbang persekséné seksi loro mau, lan inyong padha ora nglanggar wates. Setemené angger inyong padha nglakoni kaya kuwé mesthi inyong padha klebu wong-wong aniaya (dolim).
 
-[^302]: Nglakoni cidra (ora bares) neng persekséné dhéwéké lan kiyé nembé konangan sewisé dhéwéké nglakoni sumpah.
-
 ## 5:108
 
 Kanthi cara kuwé wong-wong mau lewih pantes awéh perseksén miturut sing sebeneré, lan dhéwéké padha krasa wedi mbok débalékna sumpahé (maring ahli warise) sewisé wong-wong mau sumpah. [^303] (Padha) semaraha maring Gusti Allah lan padha derungokna (dhawuhé Gusti Allah). Lan Gusti Allah ora paring pitudhuh maring wong-wong sing pasék.
-
-[^303]: Sumpah kuwé débalékna, maksudé sumpahé seksi-seksi sing sejen agama kuwé détolak karo sumpahé seksi-seksi, yakuwé sekang sanak-sedulur utawa wong-wong sing sumpah kuwé bakal olih piwales neng dunya lan akhérat, merga nglakoni sumpah palsu.
 
 ## 5:109
 
@@ -3783,8 +3177,6 @@ Lan Penjenengané Gusti Allah sing (désem-bah), neng langit uga neng bumi; Penj
 
 Lan saben ayat sekang ayat-ayat [^304] Pengéran sing butul maring dhéwéké kabéh (wong kapir), sekabéhané mesthi padha deingkari.
 
-[^304]: “ayat” neng kéné tegesé mukjizat utawa ayat Al-Qur’an utawa kedadéan-kedadéan sing ana neng ngalam sing mbuktikna kewasané Gusti Allah.
-
 ## 6:5
 
 Temen, wong-wong mau wis nggorohi bebener (Al-Qur’an) rikala butul maring dhéwéké kabéh, mangka mbésuk bakal butul maring dhéwéké kabéh (kesunyatan sekang) werta-werta sing biasa dhéwéké perguyu.
@@ -3801,15 +3193,9 @@ Lan umpama Ingsun turunaken maring sliramu (Muhammad) tulisan neng kertas, saén
 
 Lan dhéwéké padha ngucap, “Kenangapa ora déturunaken malaékat maring slirané (Muhammad)?” [^305] Angger Ingsun turunaken malaékat (maring slirané), mesthi rampung urusané [^306] ning dhéwéké kabéh ora déparingi kelonggaran (senajan semendhing).
 
-[^305]: Nggo nggenahna  lamon Nabi Muhammad s.a.w kuwé  nabi temen.
-
-[^306]: Umpama déturunaken malaékat maring wong-wong kaé, mangkané dhéwéké padha ora precaya, mesthi dhéwéké bakal désiksa déning Gusti Allah, nganti wong-wong mau mati kabéh.
-
 ## 6:9
 
 Lan sekirané utusan kuwé Ingsun dadékna (sekang) malaékat, mesthi Ingsun dadékna (wujudé) wong lanang, lan (kanthi kaya kuwé) mesthi Ingsun dadékna wong-wong mau tetep mamang kayadéné siki dhéwéké padha mamang. [^307]
-
-[^307]: Angger Gusti Allah ngutus malaékat dadi Rasul mesthi Gusti Allah ngutus dhéwéké wujud menungsa, merga menungsa ora bisa weruh malaékat, lan wong-wong mau mesthi uga bakal ngucap, “Kiyé udu malaékat, ning menungsa kayadéné dhéwék.” Wong-wong mau bakal tetep mamang.
 
 ## 6:10
 
@@ -3822,8 +3208,6 @@ Dhawuha (Muhammad), “Jlajahen bumi, banjur gatékna kepriwé wekasané wong-wo
 ## 6:12
 
 Dhawuha (Muhammad), “Kagungané sapa sekabéhané sing ana neng langit lan neng bumi?” Dhawuha, “Kagungané Gusti Allah.” Penjenengané wis netepna (sipat) welas-asih maring Penjenengané pribadi. [^308] Penjenengané temen bakal ngumpulna ko kabéh neng dina Kiyamat sing ora demamangna maning. Wong-wong sing gawé tuna (maring) awaké dhéwék, dhéwéké kabéh kuwé ora padha precaya.
-
-[^308]: Gusti Allah wis janji, minangka wujud lomané Penjenengané bakal nglubéri welas-asih maring kabéh sing décipta (makhluk-É).
 
 ## 6:13
 
@@ -3929,8 +3313,6 @@ Lan dhéwéké kabéh (wong-wong musrik mau) ngucap, “Kenangapa ora déturunak
 
 Lan ora nana sewijiné kéwan sing ana neng bumi lan manuk-manuk sing mabur nganggo cewiwiné loro, ning kabéh mau kuwé umat-umat (uga) kayadéné ko kabéh. Ora nana sewijiné barang sing Ingsun supékna neng sejeroné Kitab, [^309] banjur maring Pengérané dhéwéké dékumpulna.
 
-[^309]: Sebagéan juru tapsir nepsiri Kitab kuwé Lauh Mahfuz sing tegesé nasibé kabéh makhluk wis detulis (détetepna) neng Lauh Mahfuz. Lan ana uga sing nepsiri Al-Qur’an, maksudé neng Al-Qur’an kuwé wis ana pokok-pokok agama, aturan-aturan, hukum-hukum, hikmah-hikmah lan tuntunan murih begyané menungsa neng dunya lan akhérat.
-
 ## 6:39
 
 Lan wong-wong sing nggorohna ayat-ayat-É Ingsun kuwé budheg, bisu, lan ana neng sejeroné peteng-dhédhet. Sapa wongé dékersakna déning Gusti Allah (neng sejrone sasar), mesthi désasarna déning Penjenengané. Lan sapa wongé dékersakna Gusti Allah (olih pitudhuh), mesthi Penjenengané ndadékna dhéwéké ana neng dalan sing jejeg.
@@ -3987,8 +3369,6 @@ Emutna kanthi kuwé (Al-Qur’an) wong-wong sing wedi bakal dékumpulna ngadhep 
 
 Aja nganti ko ngurak wong-wong sing sesambat (maring) Pengérané neng wektu ésuk lan soré, dhéwéké kabéh ngarep-arep renané Penjenengané. Sliramu ora mikul tanggung jawab semendhing-mendhinga ingatasé penggawéyané dhéwéké lan dhéwéké (uga) ora mikul tanggung jawab semendhing-mrndhinga ingatasé penggawéyanmu, sing merekna sliramu (duwé hak) ngurak dhéwéké, saéngga sliramu klebu wong-wong sing aniaya (dolim). [^310]
 
-[^310]: Wektu Rasulullah s.a.w. Lagi lenggahan bareng karo sewetara wong mukmin sing déanggep asor lan mlarat déning kaum Quraisy, teka para pemimpin Quraisy arep wicara karo Kanjeng Nabi, ning dhéwéké padha ora gelem njagong bareng karo wong mukmin mlarat kuwé, lan dhéwéké padha usul supayané wong-wong mukmin mlarat kuwé déurak baé, dadi dhéwéké kabéh bisa wicara karo Kanjeng Nabi, banjur temurun ayat kiyé.
-
 ## 6:53
 
 Mengkana kuwé Ingsun wis nguji sebagéan sekang dhéwéké kabéh (wong-wong sing sugih) kanthi sebagéan liyané (wong sing mlarat), supayané dhéwéké (wong-wong sing sugih kuwé) padha ngucap, “(Apa) wong-wong kaya kiyé neng antarané inyong kabéh sing déparingi kanugrahan déning Gusti Allah?” (Gusti Allah dhawuh), “Apa Gusti Allah ora lewih ngawuningani ingatasé dhéwéké sing padha ngrasa kesuwun (maring Penjenengané)?”
@@ -4012,8 +3392,6 @@ Dhawuha (Muhammad), “Inyong (ana) neng ndhuwuré keterangan sing nyata (Al-Qur
 ## 6:58
 
 Dhawuha (Muhammad), “Umpamané ana neng inyong apa (siksa) sing ko padha jaluk supayané desigrakna tekané, mesthi rampung kabéh urusan antarané inyong karo ko kabéh.” [^311] Lan Gusti Allah lewih ngawuningani wong-wong sing padha aniaya (dolim).
-
-[^311]: Mesthi Gusti Allah nurunaken siksa maring ko kabéh nganti ko padha sirna
 
 ## 6:59
 
@@ -4043,15 +3421,9 @@ Dhawuha (Muhammmad), “Gusti Allah sing nylametna ko kabéh sekang bebaya kuwé
 
 Dhawuha (Muhammad), “Penjenengané sing kewasa ngirimna siksa maring ko kabéh, sekang ndhuwur utawa sekang ngisor sikilmu [^312] utawa Penjenengané nyampurna ko kabéh neng golongan-golongan (sing pandha pesulayan) lan paring rasa maring sebagéané ko kabéh kejemé sebagéan liyané.” Gatékna, kepriwé Ingsun nerangna bola-bali tandha-tandha (kewasané Ingsun) [^313] supayané dhéwéké padha ngerténi (kuwé).
 
-[^312]: Siksa sing teka sekang ndhuwur contoné udan watu, samberan bledhég, lan liya-liyané. Sing teka sekang ngisor contoné lindhu, blabur, lan liya-liyané.
-
-[^313]: Gusti Allah nerangna tandha-tandha kewasa-Né neng werna-werna rupa karo cara sing gonta-ganti. Ana uga juru tapsir sing negesna ayat kiyé karo ayat-ayat sing wujudé pengéling-éling, crita-crita, aturan hukum, lan liya-liyané.
-
 ## 6:66
 
 Lan kaumé ko padha nggorohi (siksa) [^314] mangkané (siksa) kuwé bener anané. Dhawuha (Muhammad), “Inyong kiyé udu sing nanggung-jawabi ko kabéh.”
-
-[^314]: Sebagéan juru tapsir nerangna lamon sing dégorohna mau yakuwé Al-Qur’an.
 
 ## 6:67
 
@@ -4073,8 +3445,6 @@ Tinggalna wong-wong sing padha ndadékna agamané nggo dolanan lan guyonan, lan 
 
 Dhawuha (Muhammad), “Apa dhéwék padha arep nyenyuwun maring sewiji-wiji seliyané Gusti Allah, sing ora bisa awéh piguna (manpangat) lan ora (uga) nekakna rubéda (mudarat) maring dhéwék kabéh, apa dhéwék bakal débalékna maring mburi, [^315] sewisé Gusti Allah paring pituduh maring awaké dhéwék, kayadéné wong sing wis désasarna déning sétan neng bumi, neng sejeroné kahanan bingung.” Batir-batiré padha ajék maring dalan sing jejeg (kanthi ngucapna), “Melua maring inyong kabéh.” Dhawuha, “Setemené pituduhé Gusti Allah kuwé pitudhuh (sing sejati); lan inyong kabéh dedhawuhi supaya pasrah awak maring Pengérané sekabéhé ngalam,
 
-[^315]: Maksudé yakuwé syirik
-
 ## 6:72
 
 lan supaya nglakoni sembayang lan semarah (takwa) maring Penjenengané.” Lan Penjenengané Pengéran sing maring Penjenengané ko kabéh bakal dékumpulna.
@@ -4086,8 +3456,6 @@ Penjenengané sing nyiptakna langit lan bumi kanthi hak (bener), rikala Penjene-
 ## 6:74
 
 Lan (élinga) rikala Ibrahim matur maring ramané (sing asmané) Azar, [^316]  “Apa pantes rika ndadékna reca-reca kaé minangka Pengéran? Setemené inyong weruh rika karo kaumé rika ana neng sejeroné kesasar sing nyata.”
-
-[^316]: Neng antarané juru tapsir  ana sing napsirna lamon sing démaksud abihi (ramané) yakuwé pamané.
 
 ## 6:75
 
@@ -4116,8 +3484,6 @@ Lan kaumé padha mbantah dhéwéké. Dhéwéké (Ibrahim) ngucap, “Apa ko kab�
 ## 6:81
 
 Kepriwé inyong wedi maring apa sing ko padha sekuthokna (karo Gusti Allah), mangkané ko kabéh ora wedi maring apa sing Gusti Allah pribadi ora nurunaken keterangan maring ko kabéh supayané nyekuthokna Penjenengané. Endi sekang rong golongan kuwé sing lewih duwé hak olih pengayoman (sekang marabaya), angger ko mengerténi? [^317]
-
-[^317]: Sewisé dedhéngna déning Gusti Allah maring Nabi Ibrahim tetenger keagungan-E lan tambah teguh precayaé maring Gusti Allah (ayat 75), mangka Nabi Ibrahim a.s mimpin kaumé maring tauhid kanthi ngetutna ngalam pikirané wong-wong mau.
 
 ## 6:82
 
@@ -4159,8 +3525,6 @@ Wong-wong kuwé (nabi-nabi) sing wis déparingi pituduh déning Gusti Allah, man
 
 Wong-wong kuwé ora ngagungna Gusti Allah kaya sing semesthiné rikala dhéwéké ngucap, “Gusti Allah ora nurunaken apa-apa maring menungsa.” Dhawuha (Muhammad), “Sapa sing nurunaken Kitab (Taurat) sing degawa Musa minangka cahya lan pituduh kanggo menungsa, ko padha ndadékna Kitab kuwé lembaran-lembaran kertas sing pating prethil, ko kabéh ngedhéngna (sebagéané) lan akéh sing ko padha umpetna, mangkané wis dewarahna maring ko kabéh apa sing ora dengerténi neng ko utawa neng kaki-ninimu.” Dhawuha, “Gusti Allah (sing nurunaken),” banjur (sewisé kuwé), jorna dhéwéké padha dolanan neng dalan kesasaré. [^318]
 
-[^318]: Nggo pesemon maring wong-wong kesasar kayadéné dhéwéké déanggep bocah cilik sing urung duwé nalar.
-
 ## 6:92
 
 Lan kiyé (Al-Qur’an), Kitab sing wis Ingsun turunaken kanthi lubér berkah; mbenerna kitab-kitab sing (déturunaken) seurungé lan supayané sliramu awéh pengéling-éling maring (wargané) Ummul Qura (Mekah) lan wong-wong sing ana neng seubengé. Wong-wong sing precaya maring (penguripan) akhérat mesthi ngprecayai (Al-Qur’an), dhéwéké mesthi padha ngreksa sembayangé.
@@ -4189,8 +3553,6 @@ Lan Penjenengané sing ndadékna lintang-lintang nggo ko kabéh, supayané ko pa
 
 Lan Penjenengané sing nyiptakna ko kabéh sekang awak sing siji (Adam), mangka (nggo ko kabéh) ana papan manggon lan papan simpenan. [^319] Setemené wis Ingsun terangna tandha-tandha (agungé Ingsun) maring wong-wong sing padha ngawéruhi.
 
-[^319]: Neng antarané juru tapsir ana sing duwé penemu sing démaksud “papan manggon” yakuwé balung sulbiné ramané lan “papan simpénan” yakuwé gua garba (rahimé) biyung. Lan ana uga sing ngarani papan manggon yakuwé neng dhuwur bumi wektu menungsa ésih urip lan panggonan simpénan yakuwé neng njero bumi (kuburan) wektu menungsa wis mati.
-
 ## 6:99
 
 Lan Penjenengané sing nurunaken banyu sekang langit, banjur Ingsun thukulna karo banyu kuwé werna-werna thethukulan, mangka Ingsun tokna sekang thethukulan kuwé tanduran sing ijo, Ingsun tokna sekang tanduran sing ijo kuwé wiji sing akéh; lan sekang manggar kurma, megar gagang-gagangé sing mengkelung, lan kebon-kebon anggur, lan (Ingsun tokna uga) zaitun lan delima sing serupa lan sing ora serupa. Gatékna wohé rikala woh, lan dadi mateng. Temen, neng sing mengkana kuwé ana tandha-tandha (kewasané Gusti Allah) tumrap wong-wong sing padha precaya.
@@ -4198,8 +3560,6 @@ Lan Penjenengané sing nurunaken banyu sekang langit, banjur Ingsun thukulna kar
 ## 6:100
 
 Lan wong-wong (musrik) padha ndadékna jin minangka sekuthon-sekuthoné Gusti Allah, mangkané Penjenengané sing nyiptakna (jin-jin kuwé), lan dhéwéké padha apus-apus (kanthi ngucapna), “Gusti Allah duwé anak lanang lan anak wadon,” tanpa (dhasar) ilmu. [^320] Mahasuci Gusti Allah lan Mahaluhur sekang sipat-sipat sing dhéwéké padha gambarna.
-
-[^320]: Dhéwéké ngucap lamon  Gusti Allah duwé anak kaya wong Yahudi ngucap Uzair putrané Gusti Allah, lan wong-wong musrik ngomong lamon malaékat anak wadoné Gusti Allah. Dhéwéké padha ngomong kaya kuwé sebab bodho.
 
 ## 6:101
 
@@ -4216,8 +3576,6 @@ Penjenengané ora bisa decandhak nganggo pendelengé mata, ning Penjenengané bi
 ## 6:104
 
 Temen, bukti-bukti nyata wis teka sekang Pengérané ko kabéh. Sapa wongé weruh (bebener kuwé), [^321] mangka (pigunané) nggo awaké dhéwék; lan sapa wongé picek (ora weruh bebener kuwé), mangka dhéwéké sing kapitunan. Lan inyong (Muhammad) udu sing njagani ko kabéh.
-
-[^321]: Sapa wongé ngerténi sing bener lan nglakoni kebagusan, lan olih pituduh, mula uwis butul maring puncaké kesenengan.
 
 ## 6:105
 
@@ -4238,8 +3596,6 @@ Lan aja nganti ko padha ngumpa-umpa sembahan sing dhéwéké sembah seliyané Gu
 ## 6:109
 
 Lan wong-wong mau padha sumpah karo asmané Gusti Allah kanthi temen pisan, lamon angger teka mukjijat maring dhéwéké kabéh, mesthi dhéwéké padha bakal precaya maring Penjenengané. Dhawuha, “Mukjijat-mukjijat kuwé mung ana neng sisihé Gusti Allah.” Lan apa sliramu ngerti lamon angger mukjijat (ayat-ayat) teka, dhéwéké ora bakal precaya uga. [^322]
-
-[^322]: Wong musrik sumpah, angger teka sekang Gusti Allah mukjijat,dhéwéké bakal precaya, sebab kuwé wong mukmin njaluk maring Nabi supayané Gusti Allah nurunaken mukjijat sing démaksud kuwé. Gusti Allah nolak kekarepané wong-wong mukmin mau karo ayat kiyé.
 
 ## 6:110
 
@@ -4297,8 +3653,6 @@ Lan apa wong sing wis mati banjur Ingsun uripna lan Ingsun paringi dhéwéké ca
 
 Lan mengkana kuwé neng saben negari Ingsun dadékna penggedhé-penggedhé sing jahat [^323] supayané padha nglakoni apus-apus neng negari kuwé. Ning dhéwéké kabéh mung ngapusi awaké dhéwék tanpa ngrumangsani.
 
-[^323]: Penemu sebagéan mufasir Akabiramujrimiha tegesé yakuwé penjahat-penjahat gedhé.
-
 ## 6:124
 
 Lan angger teka sewijiné ayat maring dhéwé-ké kabéh, dhéwéké padha ngucap, “Inyong kabéh ora bakal precaya seurungé déwéhna maring inyong kabéh kaya apa sing déwéhna maring utusan-utusané Gusti Allah.” Gusti Allah lewih ngawuningani neng ngendi Penjenengané ndhodhokna kewajiban kerasulan-É. Wong-wong sing dosa mengko bakal détibani kenisthan neng sisihé Gusti Allah lan siksa sing keras merga apus-apus sing dhéwéké lakoni.
@@ -4318,8 +3672,6 @@ Tumrap wong-wong kuwé (désedhiakna) panggonan sing tentrem (suwarga) neng sisi
 ## 6:128
 
 Lan (élinga) maring dina rikala Penjeneng-ané ngumpulna wong-wong mau kabéh (lan Gusti Allah dhawuh), “Hé golongan jin! Ko kabéh wis akéh (nyasarna) menungsa.” Lan batir-batiré dhéwéké sekang golongan menungsa padha ngucap, “Dhuh Pengéran, kula sami empun sami-dénten angsal kesenengan [^324] lan seniki wekdal sing empun Penjenengan tetepaken nggé kula sedaya empun dugi.” Gusti Allah dhawuh, “Neraka kuwé panggonané ko kabéh selawas-lawasé, kejaba angger Gusti Allah ngersakna liyané.” Temen, Pengéranmu Mahawicak-sana lan Maha Ngawuningani.
-
-[^324]: Jin (sétan) wis kasil ngapusi menungsa lan mélu krisikané, lan ngrasakna werna-werna kenékmatan dunya.
 
 ## 6:129
 
@@ -4353,13 +3705,9 @@ Dhawuha (Muhammad), “Hé kaumku! Padha mergawéa miturut pilungguhmu, inyong u
 
 Lan dhéwéké padha nyedhiakna sebagéan kasil tanduran lan kéwan (sebagéan) nggo Gusti Allah karo ngucap miturut pengujaré dhéwéké kabéh, “Kiyé nggo Gusti Allah lan sing kiyé nggo brehala-brehalané inyong kabéh.” Bagéan sing nggo brehala-brehalané ora bakal butul maring Gusti Allah, lan bagéan sing nggo Gusti Allah bakal butul maring brehala-brehalané dhéwéké. [^325] Banget alané penetepané dhéwéké kuwé.
 
-[^325]: Dériwayatna lamon kasil tanduran lan kéwan ingon sing dhéwéké sedhiakna nggo Gusti Allah, dhéwéké wéhna maring fakir, miskin, lan ngamal sosial malah maring brehala. Lan sing nggo brehala-brehala, déwéhna maring sing njaga brehala ora nggo fakir, miskin, utawa ngamal sosial. Padatan kuwé délaknat déning Gusti Allah.
-
 ## 6:137
 
 Lan mengkana kuwé brehala-brehalané dhéwéké (sétan) ndadékna krasa apik tumrap akéh-akéhé wong-wong musrik maténi anak-anaké, nggo ngrusak dhéwéké lan ngorak-arik agamané dhéwéké. [^326] Lan angger Gusti Allah ngersakna, mesthi dhéwéké ora bakal nglakoni kuwé. Jorna dhéwéké bareng karo apa (apus-apus) sing dhéwéké padha réka-réka.
-
-[^326]: Sebagéan wong Arab nganut saréngaté Nabi Ibrahim. Nabi Ibrahim a.s nglakon  dépréntah Gusti Allah ngorbanaken putrané Ismail. Banjur pemimpin-pemipin agamané wong-wong mau padha mblangsakna tegesé kurban kuwé, saéngga bisa awéh kawruh lamon maténi anak kuwé apik kanthi alesan nggo dhépé-dhépé maring Gusti Allah, mangkané alesan sebeneré yakuwé merga dhéwéké padha wedi mlarat lan wedi kewirangan.
 
 ## 6:138
 
@@ -4397,8 +3745,6 @@ Dhawuha, “Ora inyong temoni neng njeroné apa sing dewahyokna maring inyong, s
 
 Lan maring wong-wong Yahudi, Ingsun nglarang (ngaramna) kabéh (kéwan) sing duwé kuku. [^327] Lan Ingsun ngaramna maring dhéwéké gajih sapi lan wedhus gembel, kejaba sing kraket neng gigiré, utawa sing ana neng njero isi wetengé, utawa sing campur karo balung. Kayakuwé Ingsun ngukum dhéwéké merga goli padha duraka. Lan temen, Ingsun Mahabener.
 
-[^327]: Sing démaksud kéwan duwé kuku kuwé kéwan-kéwan sing jenthik-jenthiké ora misah sing siji karo sing liyané, kayadéné: onta, bébék, banyak, lan liya-liyané. Sebagéan juru tapsir negesi kéwan sing duwé kuku kaya jaran, keledai, lan liya-liyané.
-
 ## 6:147
 
 Mangka angger dhéwéké ngapusi sliramu, dhawuha, “Pengérané ko kabéh kagungan welas sing ombér, lan siksa-Né tumrap wong-wong sing dosa ora bisa detampik.”
@@ -4418,8 +3764,6 @@ Dhawuha (Muhammad), “Gawanen seksi-seksimu sing bisa mbuktékna lamon Gusti Al
 ## 6:151
 
 Dhawuha (Muhammad), “Ngénéh inyong wacakna apa sing délarang (déharamna) déning Pengéran maring ko kabéh. Aja padha nyekuthokna Penjenengané karo apa baé, gawé becika maring rama-biyung, aja merjaya (maténi) anak-anakmu merga mlarat. Ingsun sing paring rejeki maring ko lan maring dhéwéké kabéh. Aja nganti ko padha méreki penggawéyan kotor, sing keton utawa sing ora keton, aja nganti ko padha merjaya (maténi) wong sing délarang (déharamna) déning Gusti Allah kejaba kanthi dhasar sing bener. [^328] Mengkana kuwé Penjenengané ndhawuhna maring ko kabéh supayané ko padha ngerti.
-
-[^328]: Sing débenerna déning saréngat kayadéné qisas, maténi wong murtad, rajam, lan liya-liyané.
 
 ## 6:152
 
@@ -4589,8 +3933,6 @@ Hé anak-putu Adam! Aja nganti ko kabéh kapusan déning sétan kayadéné dhéw
 
 Lan angger dhéwéké nglakoni penggawéyan sing ngeres (keji), dhéwéké ngucap, “Inyong weruh kaki-niniku nglakoni sing kaya kuwé, lan Gusti Allah dhawuh inyong padha kon nglakoni kuwé.” Ucapna, “Setemené Gusti Allah ora nglakon ndhawuhna supaya nglakoni sing ngeres (keji). [^329] Kenangapa ko padha ngomongna ngenani Gusti Allah sing ko kabéh ora ngerténi?”
 
-[^329]: Kayadéné syirik, ngubengi Ka’bah karo wuda lan liya-liyané.
-
 ## 7:29
 
 Ngucapa, “Pengéranku dhawuh maring inyong supaya temindak adil. Adhepna raimu (maring Gusti Allah) saben sembayang, lan sembah Penjenengané kanthi nulusna ngabekti mung maring Penjenengané. Ko bakal padha débalékna maring Penjenengané kayadéné ko kabéh déciptakna sekawitané.
@@ -4606,8 +3948,6 @@ Hé anak-putu Adam! Nggonén sandhangan-mu sing apik saben-saben (mlebu) mesjid,
 ## 7:32
 
 Dhawuha (Muhammad), “Sapa sing nglarang (ngaramna) pepaés sekang Gusti Allah sing wis desedhiakna nggo para kewulané Penjenengané lan rejeki sing apik-apik?” Dhawuha, “Kabéh kuwé nggo wong-wong sing padha precaya sejeroné uripé neng dunya, lan mligi (nggo dhéwéké baé) neng dina Kiyamat.” [^330] Mengkana kuwé Ingsun nerangna ayat-ayat kuwé nggo wong-wong sing mengerténi.
-
-[^330]: Pepaés sekang Gusti Allah lan panganan sing apik kuwé bisa dérasakna neng dunya kiyé déning wong sing precaya lan wong sing ora precaya, lan neng akhérat mbésuk mung mligi nggo wong sing padha precaya.
 
 ## 7:33
 
@@ -4640,10 +3980,6 @@ Lan wong sing (mlebu) lewih dhisit ngucap maring wong sing (mlebu) kéri. “Ko 
 ## 7:40
 
 Setemené wong-wong sing nggorohna ayat-ayat-É Ingsun lan ngagulna awaké maring (ayat-ayat) kuwé, ora bakal debukakna lawang-lawang langit nggo dhéwéké kabéh, [^331] lan dhéwéké ora bakal padha mlebu suwarga, seurungé onta mlebu maring bolongan dom. [^332] Mengkana kuwé Ingsun paring piwales maring wong-wong sing nglakoni penggawé ala.
-
-[^331]: Tegesé penyuwunan lan ngamalé dhéwéké ora détampa déning Gusti Allah.
-
-[^332]: Tegesé dhéwéké ora gadhang mlebu suwarga kayadéné ora gadhangé onta mlebu maring bolongan dom.
 
 ## 7:41
 
@@ -4700,8 +4036,6 @@ Apa dhéwéké kabéh ora mung ngenténi bukti beneré (Al-Qur’an) kuwé. Neng
 ## 7:54
 
 Temen, Pengéranmu (yakuwé) Gusti Allah sing nyiptakna langit lan bumi sejeroné nem mangsa, banjur Penjenengané pilenggah neng ndhuwur ‘Arsy. [^333] Penjenengané nutupna wengi maring awan sing nututi kuwé (wengi) kanthi sigra. (Penjenengané nyiptakna) srengéngé, wulan, lan lintang-lintang manut maring dhawuhé Penjenengané. Élinga! Sekabéhé penyiptanan lan urusan dadi haké Penjenengané. Mahasuci Gusti Allah, Pengéran sekabéhé ngalam.
-
-[^333]: Pilenggah neng ndhuwur ‘Arsy yakuwé sewiji sipaté Gusti Allah sing wajib déprecayai, kayadéné ingatasé keagungané Gusti Allah lan kesuciané Penjenengané.
 
 ## 7:55
 
@@ -4967,8 +4301,6 @@ Mangka dhéwéké padha dékalahna neng panggonan kuwé lan dhéwéké padha dad
 
 Lan tukang-tukang sihir kuwé dadakan padha nibakna awaké dhéwéké lan sujud. [^334]
 
-[^334]: Dhéwéké padha gagiyan sujud maring Gusti Allah merga precaya sing bener pengajéké Nabi Musa a.s. Lan udu sihir kaya sing dhéwéké padha nyana seurungé.
-
 ## 7:121
 
 Dhéwéké padha ngucap, “Inyong kabéh precaya maring Pengérané sekabéhé ngalam,
@@ -5037,10 +4369,6 @@ Mangka Ingsun ukum sebagéan neng antarané dhéwéké, banjur Ingsun lelepna dh
 
 Lan Ingsun warisna maring kaum sing kaniaya kuwé bumi sisih wétan lan bagéan kuloné [^335] sing wis Ingsun berkahi. Lan wis sempurna sabdané Pengéranmu sing bagus kuwé (minangka janji) nggo Bani Israil merga kesabarané dhéwéké kabéh. Lan Ingsun sirnakna apa sing wis dégawe déning Fir’aun lan kaumé lan apa sing wis dhéwéké padha bangun. [^336]
 
-[^335]: Negari Syam lan Mesir lan negari-negari sekubengé sing nglakon dékuwasani déning Fir’aun gemiyén, sewisé kerajan Fir’aun rubuh negari-negari kuwé déwarisi neng Bani Israil.
-
-[^336]: Sing démaksud bangunan-bangunané Fir’aun sing déancurna déning Gusti Allah yakuwé bangunan-bangunan sing dédegna neng dhéwéké kanthi nganiaya Bani Israil, kayadéné kota Ramses, menara sing débangun Haman sekang préntahé Fir’aun.
-
 ## 7:138
 
 Lan Ingsun slametna Bani Israil nyabrang segara kuwé (bagéan lor Laut Merah). Rikala dhéwéké kabéh butul maring sewijiné kaum sing tetep nyembah brehala, dhéwéké (Bani Israil) ngucap, “Hé Musa! Gawéa nggo inyong kabéh sewiji sembahan (brehala) kayadéné dhéwéké padha duwé pirang-pirang sembahan (brehala).” (Musa) semaur, “Temen, ko kabéh wong-wong sing bodho.”
@@ -5065,8 +4393,6 @@ Lan Ingsun wis njanjékna maring Musa (paring Taurat) telung puluh wengi, lan In
 
 Lan rikala Musa teka seperlu (munajat) neng wektu sing wis Ingsun tetepna lan Pengéran wis dhawuh (langsung) maring dhéwéké, (Musa) matur, “Dhuh Pengéran kula, ketingalaken (pribadi Penjenengané) dhateng kula supados kula saged semerep Penjenengan.” (Gusti Allah) dhawuh, “Sliramu ora bakal (sanggup) nyawang Ingsun, ning delengen maring gunung kaé, angger gunung kaé tetep neng panggonané (kaya mauné) mesthi sliramu bisa nyawang Ingsun.” Mangka rikala Pengérané ngetonaken (keagungan-É) maring gunung kuwé, [^337] gunung kuwé lebur lan Musa semaput. Sewisé Musa emut, dhéwéké matur, “Mahasuci Penjenengan, kula tobat dhateng Penjenengan lan kula niku tiyang ingkang paling krihin pitados (precaya).”
 
-[^337]: Para juru tapsir ana sing duwé penemu, tegesé yakuwé agunge lan kuwasané Gusti Allah, lan ana uga sing nepsirna lamon sing keton kuwé sunaré Gusti Allah. Kaya apa baé ketoné Gusti Allah kuwé ora kaya ketoné makhluk, mung keton sing sepadhan karo sipat-sipaté Gusti Allah sing ora bisa déukur karo ukuran menungsa.
-
 ## 7:144
 
 (Gusti Allah) dhawuh, “Hé Musa! Setemené Ingsun milih (munjulna) sliramu sekang menungsa liyané (neng jamanmu) nggo nggawa risalah-Ku lan sabda-Ku, merga kuwé, cekelana sing kenceng maring apa sing wis Ingsun paringna maring sliramu lan dadia sliramu klebu wong-wong sing kesuwun (sukur).”
@@ -5074,12 +4400,6 @@ Lan rikala Musa teka seperlu (munajat) neng wektu sing wis Ingsun tetepna lan Pe
 ## 7:145
 
 Lan wis Ingsun tulisna nggo Musa lauh-lauh (Taurat) [^338] sekabéhané minangka pengajaran lan keterangan nggo sekabéhané prékara; mangka (Ingsun dhawuh), “Cekelana sing kenceng maring kuwé, lan préntahen kaumu cekelan maring kuwé kanthi seapik-apiké, [^339] Ingsun bakal ngawéruhna maring ko kabéh negariné wong-wong pasék.” [^340]
-
-[^338]: Lauh yakuwé pethilan sekang watu utawa kayu sing ketulis isi Taurat sing détampa déning Nabi Musa a.s. Sewisé tapa neng Gunung Sinai.
-
-[^339]: Utamakna sing wajib-wajib dhisit sekang sing sunah lan mubah.
-
-[^340]: Gusti Allah bakal ngetona negariné wong-wong sing pasék kaya Fir’aun, ‘Ad, Samud, lan liyané sing musnah bareng dhéwéké merga kejahatané lan kepasékané dhéwéké.
 
 ## 7:146
 
@@ -5093,8 +4413,6 @@ Lan wong-wong sing padha nggorohna tandha-tandha (kewasané) Ingsun lan (nggoroh
 
 Lan kaumé Musa sewisé lungané (Musa maring Gunung Sinai) dhéwéké padha gawé reca pedhét (anak sapi) sing ana awaké lan bisa mbengah (swarané sapi) sekang pepaés (emas). [^341] Apa dhéwéké padha ora ngerti lamon (reca) pedhét kuwé ora bisa ngucap karo dhéwéké lan ora bisa (uga) nuduhna dalan maring dhéwéké? Dhéwéké padha ndadékna kuwé nggo sembahan. Dhéwéké kabéh wong-wong sing aniaya (dolim).
 
-[^341]: Dhéwéké padha gawé reca anak sapi sekang emas. Mufasir-mufasir duwé penemu lamon  reca kuwé tetep ora ora duwe  nyawa. Swara sing kaya sapi kuwé merga ana angin sing mlebu maring njero bolongan patung kuwé karo cara sing dékenal neng Samiri wektu kuwé lan sebagéan mufasir ana sing napsirna  patung sing dégawé kuwé banjur dadi awak sing duwe nyawa  lan duwé swara sapi
-
 ## 7:149
 
 Lan sewisé dhéwéké kabéh kajogan karo penggawéané lan mengerténi lamon wis kesasar dhéwéké padha ngucap, “Temen, angger Pengérané inyong kabéh ora paring kewelasan maring inyong kabéh, mesti inyong padha dadi wong-wong sing kapitunan.”
@@ -5102,8 +4420,6 @@ Lan sewisé dhéwéké kabéh kajogan karo penggawéané lan mengerténi lamon w
 ## 7:150
 
 Lan rikala Musa wis bali maring kaumé, kanthi jéngkél lan ati susah dhéwéké ngucap, “Banget alané penggawéan sing ko padha lakoni sesuwéné inyong lungan! Apa ko kabéh arep ndhisiti janjiné Pengéran-mu?” [^342] Musa mbalangna lauh-lauh (Taurat) kuwé lan nyekel sirahé seduluré (Harun) karo narik maring dhéwéké. (Harun) ngucap, “Hé anaké biyungku! Kaum kiyé wis nganggep inyong ora pideksa lan méh baé dhéwéké padha maténi inyong. Merga kuwé aja ko ndadékna mungsuh-mungsuh nyuraki weruh kesengsaranku, lan aja ko ndadékna inyong kaya wong-wong sing aniaya (dolim).”
-
-[^342]: Apa ko ora sabar ngenténi tekané Inyong bali sewisé tapa (munajat) maring Pengéran, saéngga ko padha gawé reca pedhét nggo désembah kayadéné nyembah Gusti Allah.
 
 ## 7:151
 
@@ -5125,8 +4441,6 @@ Lan sewisé jéngkélé Musa kurang, déjikot (maning) lauh-lauh (Taurat) kuwé;
 
 Lan Musa milih wong pitung puluh sekang kaumé nggo (nyuwun tobat maring Ingsun) neng wektu sing wis Ingsun tetepna. Rikala dhéwéké kabéh dégoyang lindhu, Musa matur, “Dhuh Pengéran kula, menawi Pe-njenengan kersakaken, mesthi Penjenengan pejahi kiyambeké sedaya kaliyan kula sedéréngé niki. Napa Penjenengan ajeng mejahi kula sami mergi lampahipun tiyang-tiyang ingkang kirang nalar wonten antawisipun kula sami? Niku namung coban saking Penjenengan, Penjenengan sasaraken kanthi coban niku sinten ingkang Penjeneng-an kersakaken lan Penjenengan paringi pitedah dhateng sinten ingkang Penjenengan kersakaken. [^343] Nggih Penjenengan pemimpiné kula sedaya, mangka mugi paring pengapunten dhateng kula sami lan paringi kula kewelasan. Penejenengan ingkang paring pangapunten ingkang paling saé.”
 
-[^343]: Pegawéané dhéwéké gawé patung anak sapi lan nyembah kuwé  sewijining coba sekang Gusti Allah nggo nguji dhéwéké padha, sapa sing sebeneré kuwat precayaé lan sapa sing ésih mamang. Wong sing ora kuwat precayaé kuwé sing mélu Samiri lan nyembah reca pedhét kuwé. Ning wong-wong sing kuwat piandelé (precayaé), tetep neng peprecayaé (precayaé).
-
 ## 7:156
 
 Lan tetepna nggo inyong kabéh kebagusan neng dunya kiyé lan neng akhérat. Temen, inyong kabéh bali (tobat) maring Penjeneng-an. (Gusti Allah) dhawuh, “Siksané Ingsun bakal Ingsun tibakna maring sapa sing Ingsun kersakna lan kewelasan Ingsun nglingkupi samubarang kabéh. Mangka bakal Ingsun tetepna kewelasan Ingsun nggo wong-wong sing semarah (takwa), sing awéh jakat, lan wong-wong sing precaya maring ayat-ayat-É Ingsun.”
@@ -5135,8 +4449,6 @@ Lan tetepna nggo inyong kabéh kebagusan neng dunya kiyé lan neng akhérat. Tem
 
 (Yakuwé) wong-wong sing ngetutna Utusan, Nabi sing ummi, (ora bisa maca nulis) sing (asmané) dhéwéké padha détemoni ketulis neng njero Taurat lan Injil sing ana neng dhéwéké kabéh, sing mréntah dhéwéké nglakoni sing apik (ma’ruf) lan ngedohi sekang sing ala (mungkar), lan sing nyekolihi (ngalalna) sekabéhé sing apik kanggo dhéwéké, lan nglarang (ngaramna) sekabéhé sing ala kanggo dhéwéké kabéh, lan mbébasna rénggan-rénggan lan blenggu-blenggu sing ana neng dhéwéké. [^344] Anadéné wong-wong sing padha precaya maring slirané, mulyakna, nulungi, lan ngetutna sunaré sing padhang sing déturunaken maring slirané (Al-Qur’an), dhéwéké kabéh kuwé wong-wong sing begya.
 
-[^344]: Neng saréngat sing dégawa neng Nabi Muhammad s.a.w. ora nana maning renggan sing abot sing dépikulna maring Bani Israil. Umpamané: nyaréngatna maténi awaké dhéwék nggo sempurnané tobat, wajib pidana pati ingatasé rajapati sing désengaja utawa ora tanpa olih mbayar diyat (dhendha), motong bagéan awak sing nglakoni keluputan, mbuwang utawa nggunting bujur sing kenang kotoran (najis).
-
 ## 7:158
 
 Dhawuha (Muhammad), “Hé menungsa! Setemené inyong kiyé utusané Gusti Allah nggo ko kabéh, sing Kagungan praja langit lan bumi; ora nana Pengéran (sing kuduné désembah) kejaba Penjenengané, sing nguripna lan matékna, mangka precayaa (precayaa) ko kabéh maring Gusti Allah lan Utusané, (yakuwé) Nabi sing ummi sing precaya maring Gusti Allah lan maring kalimah-kalimahé Penjenengané (kitab-kitab-É). Mélua maring slirané, supayané ko padha olih pitudhuh.”
@@ -5144,8 +4456,6 @@ Dhawuha (Muhammad), “Hé menungsa! Setemené inyong kiyé utusané Gusti Allah
 ## 7:159
 
 Lan neng antarané kaumé Musa kuwé ana sewijiné umat sing awéh pituduh (maring menungsa) kanthi (dhasar) sing bener lan kanthi kuwé (uga) dhéwéké padha temindak adil goli nglakoni keadilan. [^345]
-
-[^345]: Dhéwéké awéh pituduh lan nuntun karo pathokan maring pituduh lan tuntunan sing teka sekang Gusti Allah. Lan uga neng hal ngadili prekara, dhéwéké mesthi nggoléti keadilan karo pathokané maring pituduh lan tuntunané Gusti Allah.
 
 ## 7:160
 
@@ -5159,21 +4469,13 @@ Lan (élinga), rikala déucapna maring dhéwéké (Bani Israil), “Manggona nen
 
 Mangka wong-wong sing aniaya (dolim) neng antarané dhéwéké padha ngganti (ucapan kuwé) karo ucapan sing ora déucapna maring dhéwéké, [^346] mangka Ingsun tibakna maring dhéwéké kabéh siksa sekang langit merga aniayané (dolimé) dhéwéké kabéh.
 
-[^346]: Dhéwéké padha dépréntah ngucap, “Hittatun” (njaluk déluwarna sekang dosa) ning dhéwéké ngowahi karo ngenyék lan ngucapna, “hittun fi sya’irah” (tegesé gandum).
-
 ## 7:163
 
 Lan takokna maring Bani Israil ngenani negari [^347] sing ana neng pérek segara rikalané dhéwéké padha nerak aturan neng dina sabat, [^348] (yakuwé) rikala teka maring dhéwéké iwak-iwak (sing ana neng seubengé) dhéwéké kabéh padha kemambang neng ndhuwur banyu, mangkané neng dina-dina sing udu sabat iwak-iwak kuwé padha ora teka maring dhéwéké kabéh. Mengkana kuwé Ingsun nguji dhéwéké merga dhéwéké padha nglakoni dosa (pasék).
 
-[^347]: Kota Eilah, neng pesisir Laut Merah antarané Kota Madyan lan Gunung Sinai.
-
-[^348]: Manut aturan, dhéwéké ora kena nyambet gawé  neng dina Sabat, merga dina sabat kuwé mligi mung nggo ngibadah.
-
 ## 7:164
 
 Lan (élinga) rikala sewijiné umat neng antarané dhéwéké ngucap, “Kenangapa ko padha mituturi kaum sing bakal désirnakna utawa désiksa déning Gusti Allah karo siksa sing keras banget?” Dhéwéké padha semaur, “Supayané inyong kabéh duwé alésan (bébas tanggung jawab) maring Pengéranmu, [^349] lan supayané dhéwéké padha semarah (takwa).”
-
-[^349]: Alesan dhéwéké yakuwé dhéwéké uwis nglakoni dhawuhé Gusti Allah kon aweh pengéling.
 
 ## 7:165
 
@@ -5211,8 +4513,6 @@ Lan (élinga) rikala Pengéranmu ngetokna sekang sulbi (balung gigir) anak-putu 
 
 Utawa supayané ko padha ngucap, “Seteme-né kaki-nininé inyong kabéh wis nyekuthok-na Pengéran kawit gemiyén, lan inyong kabéh kuwé keturunané sing (teka) sewisé dhéwéké kabéh. Mangka apa Penjenengan arep nyirnakna inyong kabéh merga penggawéané wong-wong (gemiyén) sing kesasar?” [^350]
 
-[^350]: Supaya wong-wong musrik kuwé aja ngucap lamon kaki-nininé gemiyén wis nyekuthokna Pengéran, lan dhéwéké ora ngerti babar pisan lamon nyekuthokna Pengéran kuwé luput, ora nana dalan maning nggo dhéwéké, mung tiru kaki-nininé sing nyekuthokna Pengérané. Merga kuwé dhéwéké nganggep dhéwéké ora patut désiksa merga keluputané kaki-nininé dhéwéké kabéh.
-
 ## 7:174
 
 Lan mengkana kuwé Ingsun nerangna ayat-ayat kuwé, supaya dhéwéké padha bali (maring bebener).
@@ -5240,8 +4540,6 @@ Lan temen, bakal Ingsun iséni neraka Jahanam akéh-akéhé sekang bangsa jin la
 ## 7:180
 
 Lan Gusti Allah kagungan Asma’ul Husna (asma-asma sing paling bagus), mangka nyuwuna maring Penjenengané kanthi nyebut Asma’ul Husna kuwé lan tinggalana wong-wong sing nyalah-artékna asma-asmané Penjenengané. [^351]  Dhéwéké mbésuk bakal padha olih piwales sekang apa sing wis dhéwéké kabéh pergawé.
-
-[^351]: Aja dépikirna wong-wong sing nyembah Gusti Allah kanthi nyebut asma-asma sing ora padha karo sipat-sipat keagungané Gusti Allah, utawa kanthi nyebut asma-asma Asma’ul Husna ning maksudé nggo ngotori asmané Gusti Allah utawa nyebut Asma’ul Husna nggo jeneng-jeneng seliyané Gusti Allah.
 
 ## 7:181
 
@@ -5283,8 +4581,6 @@ Penjenengané sing nyiptakna ko kabéh sekang jiwa sing siji (Adam) lan sekang d
 
 Mangka sewisé Penjenengané paring maring sekloroné anak sing apik (saléh), dhéwéké [^352] ndadékna sekuthon tumrap Gusti Allah maring anak sing uwis dénugrahakna déning Penjenengané kuwé. Mangka Mahaluhur Gusti Allah sekang apa sing dhéwéké padha sekuthokna.
 
-[^352]: Wong-wong musrik ndadékna sekuthon nggo Pengéran neng ciptanané anak kuwé maksudé anaké dhéwéké padha déanggep kewulané brehala sing dhéwéké sembah. Merga kuwé dhéwéké njenengi anak-anaké karo aran Abdul Uzza, Abdul Manat, Abdus Syam lan liya-liyané.
-
 ## 7:191
 
 Kenangapa dhéwéké padha nyekutokna (Gusti Allah karo) sewiji-wiji (brehala) sing ora bisa nyiptakna apa-apa? Mangkané (brehala) kuwé dhéwék déciptakna.
@@ -5304,8 +4600,6 @@ Setemené dhéwéké (brehala-brehala) sing ko padha sambati seliyané Gusti All
 ## 7:195
 
 Apa dhéwéké (brehala-brehala) padha duwé sikil nggo mlaku, utawa duwé tangan nggo nyekel sing kenceng, [^353] utawa duwé mata nggo nyawang utawa duwé kuping nggo ngrungokna? Dhawuha (Muhammad), “Celuken (brehala-brehngalamu) sing ko padha anggep sekuthoné Gusti Allah, banjur lakonana apus-apus (nggo nyilakani) inyong, lan aja ko padha tundha maning.
-
-[^353]: Ukara yabtisyun neng kéné détegesi sing keras, maksudé nempiling, ngrusak, nggebug sing rosa lan liyané.
 
 ## 7:196
 
@@ -5327,8 +4621,6 @@ Dadia (wong) sing awéh ngampura lan préntahna wong supaya nglakoni kebecikan (
 
 Lan angger sétan teka nggodha ko, mangka nyuwuna pengayoman maring Gusti Allah. [^354] Temen, Penjenengané Maha Midhanget, Maha Ngawuningani.
 
-[^354]: Maca A’udzubillahiminasy-syaitanir-rajim.
-
 ## 7:201
 
 Setemené wong-wong sing padha semarah (takwa) angger dhéwéké détutna déning pikiran jahat (nglakoni dosa) sekang sétan, dhéwéké padha gagiyan éling maring Gusti Allah, mangka wektu kuwé uga dhéwéké padha weruh (keluputan-keluputané).
@@ -5345,8 +4637,6 @@ Lan angger sliramu (Muhammad) ora macakna sewijiné ayat maring dhéwéké kabé
 
 Lan angger déwacakna Al-Qur’an, mangka rungokna lan menenga, supayané ko padha olih kewelasan. [^355]
 
-[^355]: Angger padha déwacakna Al-Qur’an inyong kabéh déwajibna ngrungokna lan nggatékna karo meneng, neng njero sembayang utawa neng njaba sembayang, kejaba neng sembayang bebarengan (jamangah), makmum kena maca surah Al-Fatihah dhéwék utawa ngrungokna thok wektu imam maca ayat-ayat Al-Qur’an.
-
 ## 7:205
 
 Lan élinga (maring) Pengéranmu neng njero atimu kanthi andhap asor lan rasa wedi, lan kanthi ora nyerokna sewara, neng wektu ésuk lan soré, lan aja nganti ko klebu wong-wong sing ora ngati-ati.
@@ -5355,8 +4645,6 @@ Lan élinga (maring) Pengéranmu neng njero atimu kanthi andhap asor lan rasa we
 
 Setemené wong-wong sing ana neng sisihé Pengéranmu ora ngrasa ngedhap nyembah Gusti Allah lan dhéwéké padha nyucékna Penjenengané lan mung maring Penjenengané dhéwéké padha nyembah (sujud). [^356]
 
-[^356]: kiyé salah sijiné ayat sajadah sing désunahna dhéwék sujud seuwisé wacané utawa ngrungu,nalika lagi sembayang utawa neng njaba sembayang. Sujud kiyé déjenengi sujud tilawah.
-
 ## 8:1
 
 Wong-wong padha takon maring sliramu (Muhammad) ngenani (bagénan) bandha rampasan perang. Dhawuha, “Bandha rampasan perang kuwé kagungané Gusti Allah lan Utusan (manut ketetepané Gusti Allah lan Utusan-E), mangka semaraha (takwa) ko kabéh maring Gusti Allah lan apiki sambung-brayan neng antarané ko kabéh, lan manuta maring Gusti Allah lan Utusa-Né angger ko kabéh wong-wong sing padha precaya.”
@@ -5364,8 +4652,6 @@ Wong-wong padha takon maring sliramu (Muhammad) ngenani (bagénan) bandha rampas
 ## 8:2
 
 Setemené wong-wong sing padha precaya kuwé wong sing angger désebut asmané Gusti Allah [^357] gemeter atiné, lan angger déwacakna ayat-ayat-É Penjenengané maring dhéwéké, tambah (kuwat) precayaé lan mung maring Pengéran dhéwéké padha pasrah (tawakal),
-
-[^357]: Nyebut sipat-sipat sing ngagungna lan mulyakna Penjenengané.
 
 ## 8:3
 
@@ -5379,8 +4665,6 @@ Dhéwéké kuwé wong-wong sing temen-temen precaya. Dhéwéké bakal padha olih
 
 Kayadéné Pengéranmu ndhawuhi ko kabéh lunga sekang umahmu kanthi bebener, [^358] senajan setemené sebagéan wong-wong sing precaya kuwé padha ora seneng maring kuwé,
 
-[^358]: Miturut Al Maragi, Gusti Allah ngatur pembagéan bandha rampasan perang kanthi bener, kayadéné Gusti Allah ndhawuhi wong-wong kuwé lunga sekang umahé (neng Medinah) kon perang maring Badar kanthi bener uga. Miturut At Tabari, metu sekang umah maksudé perang.
-
 ## 8:6
 
 dhéwéké padha mbantah sliramu (Muhammad) ngenani bebener sewisé genah (lamon dhéwéké mesthi menang), kaya-kaya dhéwéké dégiring maring kematian, lan dhéwéké weruh (jalarané kematian kuwé).
@@ -5388,8 +4672,6 @@ dhéwéké padha mbantah sliramu (Muhammad) ngenani bebener sewisé genah (lamon
 ## 8:7
 
 Lan (élinga) rikala Gusti Allah njanjékna maring ko kabéh salah sijiné sekang rong golongan (sing ko adhepi) kuwé nggo ko, lan ko padha kepéngin sing ora duwé kekuwatan senjata [^359] baé sing nggo ko kabéh. Ning Gusti Allah kersa mbenerna sing bener karo ayat-ayat-É Penjenengané lan numpes wong-wong sing mbangkang (kapir) nganti butul oyod-oyodé,
-
-[^359]: Rombongan Abu Sufyan sing nggawa dagangan sekang Suriah. Lan kelompok sing duwé kekuwatan senjata yakuwé kelompok sing teka sekang Mekah sing dépimpin déning Utbah bin Rabi’ah bareng karo Abu Jahal.
 
 ## 8:8
 
@@ -5410,8 +4692,6 @@ Lan ora pisan-pisan Gusti Allah ndadékna kuwé kejaba nggo werta bebungah supay
 ## 8:12
 
 (Élinga) rikala Pengéranmu mahyokna maring para malaékat, “Setemené Ingsun bareng karo ko kabéh, mangka kuwatna (tekad) wong-wong sing wis precaya.” Mbésuk bakal Ingsun paringi rasa wedi maring njero atiné wong-wong sing mbangkang (kapir), mangka gebuga neng sendhuwur guluné dhéwéké lan thuthuka saben-saben pucuk jenthiké dhéwéké kabéh. [^360]
-
-[^360]: Kiyé kedadéan neng sejeroné perang, nggon wadi sing gawé mati yakuwé gulu. Ning angger mungsuh nganggo klambi wesi, dadi angél dékalahna, mangka tangané sing délumpuhna, supayané ora bisa nyekel pedhama (senjata), kaya pedhang, tumbak, lan liya-liyané dadi gampang détahan.
 
 ## 8:13
 
@@ -5457,13 +4737,9 @@ Setemené makhluk obah sing duwé nyawa sing paling ala neng peningalané Gusti 
 
 Lan sekirané Gusti Allah ngerti ana kebagu-san neng dhéwéké kabéh, mesthi Penjeneng-ané dadékna dhéwéké bisa krungu. [^361] Lan angger Gusti Allah ndadékna dhéwéké bisa krungu, mesthi dhéwéké mléngos, lan dhéwéké mléngosna awaké dhéwék.
 
-[^361]: Peumpaman neng njero ayat kiyé ora tegesé Gusti Allah ora ngerti, ning Gusti Allah Maha Ngerténi lamon neng dhéwéké ora nana kebagusan.
-
 ## 8:24
 
 Hé wong-wong sing padha precaya! Turuti pengundangé Gusti Allah lan Utusan, angger slirané ngundang ko kabéh maring samubarang sing awéh penguripan maring ko kabéh, [^362] lan ngertia lamon setemené Gusti Allah matesi antarané menungsa lan atiné lan setemené maring Penjenengané ko kabéh bakal dékumpulna.
-
-[^362]: Ngundang (préntah) ko padha perang nggo ngegungna kalimaté Gusti Allah lan nguripna Islam lan muslimin. Uga tegesé ngundang ko kabéh maring precaya, pituduh, lelabuh (jihad), lan sekabéhané sing ana gandhéngé karo kebegyan neng dunya lan akhérat.
 
 ## 8:25
 
@@ -5533,19 +4809,9 @@ Lan angger dhéwéké padha mléngos, mangka ngertia lamon setemené Gusti Allah
 
 Lan kawruhana, setemené sekabéhé sing ko pekolih minangka rampasan perang, [^363] mangka sepralprecayaé konjuk maring Gusti Allah, Utusan, keluwarga Utusan, bocah yatim, wong mlarat, lan ibnu sabil, [^364] (mengkana) angger ko padha precaya maring Gusti Allah lan maring apa sing Ingsun turunaken maring kewulané Ingsun (Muhammad) neng dina Furqon, [^365] yakuwé neng dina ketemuné rong wadyabala. Gusti Allah Maha kuwasa ingatasé samubarang kabéh.
 
-[^363]: Bandha sing dépekolih sekang wong-wong kapir liwat perang, lan sing olih ora karo perang déjenengi fa’i, pembagéan kuwé neng ayat kiyé yakuwé sing gandhéngé karo bandha rampasan perang (gonimah) thok.
-
-[^364]: Sepralima sekang gonimah kuwé débagi maring: a) Gusti Allah karo Rasulé, b) Kulawargané Rasul (Bani Hasyim lan Bani Mutolib), c) bocah yatim, d) Wong mlarat, e) Ibnu Sabil, yakuwé wong sing lagi neng dalan, f) lan pat-pralima sekang gonimah kuwé débagi maring wong-wong sing padha mélu perang.
-
-[^365]: Dina ketemuné rong wadyabala neng perang Badar, dina Jemuah tangggal 17 Puasa taun Hijriyah. Sebagéan juru tapsir duwé penemu lamon ayat kiyé ngisaratna maring kawitané medhunné Al-Qur’anul Karim neng malem 17 Puasa.
-
 ## 8:42
 
 (Yakuwé) rikala ko kabéh ana neng pingir lebak sing pérek lan dhéwéké padha ana neng pinggir lebak sing adoh, lan barisan (kafilah) kuwé ana neng panggonan sing lewih endhép ketimbang ko kabéh. [^366] Sekirané ko padha nganakna sepakat (nggo netepna dina perangé), mesthi ko padha béda penemu rikala netepna (dina perangé kuwé), ning Gusti Allah kersa ngleksanakna sewijiné urusan sing kudu déléksanani, [^367] yakuwé supayané wong sing mati kuwé mati kanthi bukti sing nyata lan supayané wong sing urip kuwé urip kanthi bukti sing nyata. Temen, Gusti Allah Maha Midhanget, Maha Ngawuningani.
-
-[^366]: Kaum muslimin wektu kuwé ana neng pinggir lebak (tanah endhép) sing pérek maring Medinah, lan wong-wong kapir ana neng pinggir lebak sing adoh sekang Medinah lan kafilah sing dépimpin neng Abu Sufyan ana neng pinggir kisik kurang lewih 5 mil sekang Badar.
-
-[^367]: Menangé kaum muslimin lan ancuré kaum musrikin.
 
 ## 8:43
 
@@ -5639,8 +4905,6 @@ Hé Nabi (Muhammad)! Cukup Gusti Allah (dadi pengayom) tumrap sliramu lan tumrap
 
 Hé Nabi (Muhammad)! Urubna semangaté wong-wong mukmin nggo perang. Angger ana rongpuluh wong sing sabar neng antarané ko kabéh, mesthi dhéwéké kabéh bisa ngalahna mungsuh wong rongatus. Lan angger ana satus wong (sing sabar) neng antarané ko kabéh, mesthi dhéwéké kabéh bisa ngalahna wong kapir sewu, merga wong-wong kapir kuwé kaum sing ora ngerténi. [^368]
 
-[^368]: Dhéwéké padha ora ngerti lamon perang kuwé kuduné nggo mbéla piandel (agama) lan manut dhawuhé Gusti Allah. Dhéwéké perang mung mligi nggo mbéla adat jahiliyah lan tujuan-tujuan dunya liyané.
-
 ## 8:66
 
 Siki Gusti Allah uwis ngenthéngna ko kabéh merga Penjenengané mengerténi lamon ana sipat apes neng awakmu. Mangka angger neng antarané ko kabéh ana satus wong sing sabar, mesthi dhéwéké kabéh bisa ngalahna rongatus (mungsuh); lan angger neng antarané ko kabéh ana séwu wong (sing sabar), mesthi dhéwéké padha bisa ngalahna rongéwu wong kanthi keparengé Gusti Allah. Gusti Allah mbarengi wong-wong sing padha sabar.
@@ -5693,8 +4957,6 @@ Mangka mlakua ko kabéh (wong musrik) neng bumi patang wulan suwéné, lan ngert
 
 Lan sijiné wara-wara sekang Gusti Allah lan Utusan-É maring umat menungsa rikala haji akbar [^369] , lamon setemené Gusti Allah lan Utusan-É ora cawé-cawé maring wong sing padha nyekuthokna (musrik). Banjur angger ko kabéh (wong musrik) padha tobat kuwé lewih apik tumrap ko kabéh; lan angger ko padha mléngos, ngertia lamon setemené ko kabéh ora bisa gawé apesé Gusti Allah. Lan awéha kabar maring wong-wong kapir (lamon dhéwéké kabéh bakal) olih siksa sing perih.
 
-[^369]: Sulaya pendapat para juru tapsir masalah haji akbar, ana sing ngomongna dina nahar, ana sing ngomongna dina ‘arofah. Sing démaksud haji akbar neng kéné ya kuwé kedadéan taun kaping-9 hijriyah.
-
 ## 9:4
 
 Kejaba wong-wong musrik sing nganakna janji karo ko kabéh lan dhéwéké ora padha nyuda (isiné janji) semendhing-mendhinga, lan dhéwéké ora padha ngréwangi sapa baé sing mungsuhi ko kabéh, mangka maring dhéwéké kabéh cukupna janjiné tekan wates wektuné. Temen, Gusti Allah dhemen maring wong-wong sing padha semarah (takwa).
@@ -5702,8 +4964,6 @@ Kejaba wong-wong musrik sing nganakna janji karo ko kabéh lan dhéwéké ora pa
 ## 9:5
 
 Angger wis entong wulan-wulan haram [^370] mangka perangia wong-wong sing nyeku-thokna (musrik) neng endi papan ko padha ketemu, cekelen, kubengi lan awasi neng panggonan nginggeng. Angger dhéwéké kabéh tobat lan ngleksanakna sembayang tur nglunasi jakat, mangka wéhna kebébasan maring dhéwéké kabéh. Temen, Gusti Allah Maha Ngampura, Mahaasih.
-
-[^370]: Sing démaksud wulan-wulan harom neng kéné kuwé mangsa pathang wulan sing déwéhna tempo maring wong-wong musrik kuwé, ya kuwé mulai 10 zulhijah (dina temuruné ayat kiyé), nganti 10 rabi’ul akhir.
 
 ## 9:6
 
@@ -5797,8 +5057,6 @@ Sewisé kuwé Gusti Allah nampa tobaté wong-wong sing Penjenengané kersakna. G
 
 Hé wong-wong sing padha precaya! Setemené wong-wong sing nyekuthokna (musrik) kuwé kotor (jiwané), merga kuwé aja nganti dhéwéké padha mérek maring Masjidilharam sewisé taun kiyé. [^371] Lan angger ko padha kewatir dadi mlarat (merga wong-wong kapir ora teka), Gusti Allah bakal maringi kecukupan maring ko kabéh sekang peparing-É, angger Penjenengané ngersakna. Setemené Gusti Allah Maha Ngawuningani, Mahawicaksana.
 
-[^371]: Ora débenerna nglakoni haji lan umrah miturut sebagéan ahli tapsir, yakuwé kaum musrik mlebu tanah haram, mbuh nggo haji utawa umrah utawa keperluan liyané neng taun 9 hijriyah.
-
 ## 9:29
 
 Perangia wong-wong sing ora padha precaya maring Gusti Allah lan dina wekasan, wong-wong sing ora nglarang (ngaramna) apa sing wis délarang (déharamna) déning Gusti Allah lan Utusan-É lan dhéwéké padha ora nganggo agama kanthi agama sing bener (agamané Gusti Allah), (yakuwé wong-wong) sing wis déparingi Kitab, saéngga dhéwéké padha mbayar jizyah (pajeg) kanthi manut lan dhéwéké kabéh neng kahanan asor.
@@ -5810,8 +5068,6 @@ Lan wong-wong Yahudi padha ngucap “Uzair putrané Gusti Allah,” lan wong-won
 ## 9:31
 
 Dhéwéké padha ndadikna wong-wong pinter (Yahudi) lan pendhita-pendhitané (wong Nasrani) minangka pengéran seliyané Gusti Allah [^372] , lan Isa putrané Maryam; mangkané dhéwéké padha mung dépréntah supaya nyembah Pengéran Sing Mahatunggal, ora nana sesembahan kejaba Penjenengané. Mahasuci Penjenengané sekang apa sing dhéwéké padha sekuthokna.
-
-[^372]: Dhéwéké kabéh nuruti ajaran wong-wong pinter lan pendhita-pendhitané kanthi apa anané, senajan wong-wong pinter kuwé lan para pendhitané ngongkon gawé dosa utawa nglarang apa sing désekolihi (halal).
 
 ## 9:32
 
@@ -5856,8 +5112,6 @@ Padha mangkata kanthi rasa enteng utawa abot, lan padha lelabuha (jihad) kanthi 
 ## 9:42
 
 Sekirané (sing ko padha omongna maring dhéwéké kebeh) ana bathiné sing gampang dégolét, lan lakon sing ora patiya adoh, mesthi dhéwék kabéh ngetutna ko, ning panggonan sing détuju kuwé krasa adoh banget tumrap dhéwéké. Dhéwéké bakal padha sumpah kanthi (asmané) Gusti Allah, “Angger inyong sanggup mesti inyong padha mangkat bareng karo ko.” Dhéwéké padha gawé sirna maring awaké dhéwék [^373] lan Gusti Allah ngawuningani dhéwéké nyata-nyata wong-wong sing padha apus-apus.
-
-[^373]: Dhéwéké kabéh bakal sirna merga sumpah apus-apusé dhéwék.
 
 ## 9:43
 
@@ -5987,8 +5241,6 @@ Hé Nabi! Lelabuha (jihad) nglawan wong-wong kapir lan munapék, lan temindaka k
 
 Dhéwéké kabéh (wong-wong lamis/muna-pék) padha supata kanthi asmané Gusti Allah lamon dhéwéké ora padha ngomong-na (apa-apa sing nglarani Muhammad). Temen, dhéwéké wis padha ngomongna ucapan kekapiran, lan dadi kapir sewisé Islam lan ngarep-arep sing dhéwéké kabéh ora bisa pekolih, [^374] lan dhéwéké ora ngala-ala (Gusti Allah lan Utusan-É), sekirané Gusti Allah lan Utusan-É wis paring kanugrahan maring dhéwéké kabéh. Mangka lamon dhéwéké padha tobat, kuwé lewih apik tumrap dhéwéké kabéh lan angger dhéwéké padha mléngos, mesti Gusti Allah bakal nyiksa dhéwéké kabéh kanthi siksa sing perih neng dunya lan akhérat; lan dhéwéké ora padha duwé pengayom lan penulung neng bumi.
 
-[^374]: Dhéwéké kabéh kepéngin merjaya Kanjeng Nabi.
-
 ## 9:75
 
 Lan neng antarané dhéwéké kabéh ana wong sing wis janji maring Gusti Allah. “Setemené angger Gusti Allah paring sebagéan sekang kanugrahané maring inyong kabéh mesti inyong padha bakal awéh sedekah lan mesti inyong padha klebu wong-wong sing pantes (saléh)”.
@@ -6040,8 +5292,6 @@ Lan rikala déturunaken sewijiné surah (sing mréntahna maring wong-wong munap�
 ## 9:87
 
 Dhéwéké kabéh padha seneng bareng-bareng karo wong-wong sing ora lunga perang [^375] lan atiné dhéwéké padha ketutup nganti dhéwéké padha ora mengerténi (kebegyan precaya lan jihad).
-
-[^375]: Wong wadon, bocah-bocah, wong sing ora pideksa, wong sing pilara lan wong tuwa.
 
 ## 9:88
 
@@ -6107,10 +5357,6 @@ Lan (ana uga) wong liya sing ngakoni dosa-dosané, dhéwéké padha nyampur-bawu
 
 Jikoten jakat sekang bandhané dhéwéké kabéh nggo mbrésihna [^376] lan nyucékna [^377] dhéwéké kabéh, lan nyenyuwuna nggo dhéwéké kabéh. Setemené penyuwunmu kuwé (nuwuhna) ketentreman jiwa tumrap dhéwéké. Gusti Allah Maha Midhanget, Maha Ngawuningani.
 
-[^376]: Jakat mbresihna dhéwéké kabéh sekang sipat medhit lan mata dunya.
-
-[^377]: Jakat nyuburna sipat-sipat apik neng njero atiné dhéwéké kabéh lan ngrembakakna bandhané.
-
 ## 9:104
 
 Apa dhéwéké padha ora ngerti lamon Gusti Allah kuwé nampa tobaté para kawula-Né lan nampa jakaté, lan lamon Gusti Allah Maha Nampa Tobat, Mahawelas?
@@ -6127,8 +5373,6 @@ Lan ana (uga) wong-wong liya sing désemayani nganti ana keputusané Gusti Allah
 
 Lan (neng antarané wong-wong lamis/ munapék kuwé) ana sing mbangun mesjid nggo gawé kerusakan (tumrap wong-wong sing padha precaya), nggo kekapiran, lan nggo gawé bubrah antarané wong-wong sing precaya lan nggo ngenténi tekané wong-wong sing wis merangi Gusti Allah lan Utusan-É kawit gemiyén [^378] . Dhéwéké kanthi cetha padha sumpah, “Inyong kabéh mung kepéngin kebecikan.” Lan Gusti Allah dadi seksi lamon dhéwéké padha goroh (neng njero sumpahé).
 
-[^378]: Sing démaksud karo wong sing merangi Gusti Allah lan Utusan-É kawit gemiyén, yakuwé sewiji pendhita Nasrani sing jeneng Abu Amir sing dhéwéké padha ngenténi tekané wong sekang Syiria nggo nglakoni sembayang neng mesjid sing débangun neng dhéwéké, temuli nggawa tentara Romawi sing bakal merangi kaum muslimin. Ning Abu Amir ora sida teka, merga dhéwéké mati neng Syiria. Lan mesjid sing débangun neng kaum munapék kuwé dérubuhna kanthi dhawuhé Nabi. Ngepasi karo wahyu sing détampa sewisé kondur sekang perang Tabuk.
-
 ## 9:108
 
 Aja pisan-pisan sliramu nglakoni sembayang neng mesjid kuwé selawasé. Temen, mesjid sing débangun kanthi dhasar semarah (takwa), wiwit dina kawitan kuwé lewih pantes sliramu ngelakoni sembayang neng njeroné. Neng jeroné ana wong-wong sing kepéngin mbrésihna awaké. Gusti Allah karenan (maring) wong wong-sing bresih.
@@ -6141,8 +5385,6 @@ Mangka apa wong-wong sing padha ngedegna mesjid kanthi dhasar semarah (takwa) ma
 
 Bangunan sing dhéwéké padha degna kuwé selawasé dadi merga kemamangan neng atiné dhéwéké kabéh, nganti atiné dhéwéké padha remuk [^379] . Lan Gusti Allah Maha Ngawuningani, Mahawicaksana.
 
-[^379]: Nganti dhéwéké kabéh mati. Ana sing napsirna lamon dhéwéké kabéh ora bisa tobat maning.
-
 ## 9:111
 
 Setemené Gusti Allah mundhut sekang wong-wong mukmin ya awaké ya bandhané kanthi maringi suwarga nggo dhéwéké kabéh. Dhéwéké padha perang neng dalané Gusti Allah, nganti dhéwéké padha maténi utawa dépaténi, (minangka) janji sing bener sekang Gusti Allah neng Taurat, Injil lan Al-Qur’an. Lan sapa sing lewih nuhoni janjiné seliyané Gusti Allah? Mangka padha bungaha kanthi dol-tinuku sing wis ko padha lakokna, lan sing kaya kuwé mau kebegyan sing agung.
@@ -6150,8 +5392,6 @@ Setemené Gusti Allah mundhut sekang wong-wong mukmin ya awaké ya bandhané kan
 ## 9:112
 
 Dhéwéké kabéh kuwé wong-wong sing tobat, ngabekti (ngibadah), ngalembana (maring Gusti Allah), lungan nggo (golét) ilmu lan agama [^380] , ruku’, sujud, mréntah nglakoni sing apik lan nyegah sekang sing ala (mungkar), lan sing ngreksa hukum hukumé Gusti Allah. Lan awéha kabar bebungah nggo wong-wong sing padha precaya.
-
-[^380]: Ana uga sing napsirna karo wong sing padha puasa.
 
 ## 9:113
 
@@ -6165,8 +5405,6 @@ Anadéné penyuwunan pengampurané Ibrahim (maring Gusti Allah) nggo ramané, or
 
 Lan Gusti Allah ora pisan-pisan bakal nyasarna sewiji kaum, sewisé dhéwéké Penjenengané paringi pituduh, saéngga bisa déterangna maring dhéwéké kabéh apa sing kudu padha dédohi. [^381] Temen, Gusti Allah Maha Ngawuningani samubarang kabéh.
 
-[^381]: Sewiji kawula ora bakal désiksa déning Gusti Allah kur sebab kesasaré. Kejaba angger kawula kuwé nerjang dhawuh-dhawuh sing wis déjelasna.
-
 ## 9:116
 
 Setemené Gusti Allah ngasta kekuwasan langit lan bumi. Penjenengané nguripna lan matékna. Ora nana pengayom lan penulung nggo ko kabéh kejaba Gusti Allah.
@@ -6178,8 +5416,6 @@ Temen, Gusti Allah wis nampa tobaté Nabi, wong-wong boyongan (muhajirin) lan wo
 ## 9:118
 
 lan maring wong telu [^382] sing détinggalna. Nganti rikala bumi krasa sesek kanggo dhéwéké kabéh, mangkané bumi kuwé amba lan jiwané dhéwéké kabéh wis (uga kerasa) sesek kanggo dhéwéké kabéh, lan dhéwéké padha wis ngerti lamon ora nana papan nggo mlayu sekang (siksa) Gusti Allah, kejaba mung maring Penjenengané, banjur Gusti Allah nampa tobaté dhéwéké kabéh supayané dhéwéké padha tetep neng tobaté. Setemené Gusti Allah Maha Nampani Tobat, Mahaasih.
-
-[^382]: Ka’b bin Malik, Hilal bin Umayyah, lan Maroroh bin Rabi’. Dhéwéké kabéh désalahna merga ora gelem mélu perang.
 
 ## 9:119
 
@@ -6208,8 +5444,6 @@ Lan angger déturunaken sewiji surah mangka neng antarané dhéwéké kabéh (wo
 ## 9:125
 
 Lan anadéné wong-wong sing neng njero atiné ana prenyakit [^383] mangka (kanthi surah kuwé) bakal nambahi kapiré sing wis ana lan dhéwéké bakal padha mati neng sejeroné kahanan kapir.
-
-[^383]: Prenyakit batin, kayadéné mbangkang (kufur), lamis (munapék), mamang lan liyané.
 
 ## 9:126
 
@@ -6299,13 +5533,9 @@ Mangka sapa sing lewih aniaya (dolim) tenimbang wong sing ngréka-réka goroh ma
 
 Lan dhéwéké padha nyembah seliyané Gusti Allah, sewiji-wiji sing ora bisa nekakna bebaya maring dhéwéké kabéh lan ora (uga) ngawéhi piguna, lan dhéwéké padha ngucap, “Dhéwéké kabéh kuwé penulungé inyong kabéh neng ngersané Gusti Allah.” Dhawuha, “Apa ko kabéh arep ngaturi priksa maring Gusti Allah prekara sing ora dékaweruhi déning Penjenengané neng langit lan ora (uga) sing neng bumi?” [^384] Mahasuci Gusti Allah lan Mahaluhur Penjenengané sekang apa sing dhéwéké padha sekuthokna kuwé.
 
-[^384]: Kalimah kiyé painan maring wong sing nyembah reca, sing déarani lamon reca-reca kuwé bisa awéh pitulung neng ngersané Gusti Allah.
-
 ## 10:19
 
 Lan menungsa kuwé gemiyéné mung umat sewiji, banjur dhéwéké padha pesulayan. Angger ora merga sewiji ketetepan sing wis ana sekang Pengéranmu, [^385] mesthi wis déparingi ketetepan (neng dunya) neng antarané dhéwéké kabéh, ngenani apa sing dhéwéké padha persulayakna.
-
-[^385]: Katetepané Gusti Allah yakuwé angger pasulayane menungsa neng dunya kuwé bakal députusna neng akhérat.
 
 ## 10:20
 
@@ -6327,8 +5557,6 @@ Ning rikala Gusti Allah nylametna dhéwéké kabéh, malah dhéwéké padha gaw�
 
 Setemené peumpaman penguripan dunya kuwé, mung kaya banyu (udan) sing Ingsun turunaken sekang langit, banjur thukul tetanduran bumi kanthi subur (merga banyu kuwé), neng antarané ana sing dépangan (déning) menungsa lan kéwan ingon. Saéngga angger bumi kuwé wis sempurna kaéndahané lan pepaés, [^386] lan sing duwé nyana lamon dhéwéké kabéh mesti ngewasani (ngundhuh kasilé), (mangka) teka maring dhéwéké siksané Ingsun neng wektu wengi utawa awan, banjur Ingsun dadékna (tandurané) kaya taduran sing wis débabad, kaya-kaya urung tau thukul wingi. Kaya kuwé Ingsun nerangna tandha-tandha (kewasané Ingsun) maring wong-wong sing padha mikir.
 
-[^386]: Bumi sing éndah karo gunung-gunung lan tanah-tanah lebak wis ijo karo tanduran-tandurané.
-
 ## 10:25
 
 Lan Gusti Allah ngajék-ajék (menungsa) maring Darus-salam (suwarga). Lan paring pituduh maring wong sing Penjenengané kersakna temuju dalan sing jejeg (Islam).
@@ -6344,8 +5572,6 @@ Anadéné wong-wong sing temindak jahat (bakal olih) piwalesé kejahatan sing im
 ## 10:28
 
 Lan (élinga) maring dina (rikala) kuwé Ingsun ngumpulna dhéwéké sekabéhané, banjur Insun dhawuh maring wong sing nyekuthokna (Gusti Allah), “Tetepa neng panggonanmu, ko kabéh lan para sekuthoné ko kabéh.” Banjur Ingsun pisahna dhéwéké, lan sekuthon-sekuthoné dhéwéké padha ngucap, “Ko sepisan baé ora padha nglakon nyembah inyong kabéh. [^387]
-
-[^387]: Wong-wong sing nyembah brehala kuwé sebeneré udu nyembah brehala, ning nyembah hawa nefsuné dhéwéké, merga hawa nefsuné dhéwéké kabéh sing ngakon nyembah brehala.
 
 ## 10:29
 
@@ -6383,8 +5609,6 @@ Lan akéh-akéhé dhéwéké padha mung ngetutna pengira-ira. Setemené pengira-
 
 Lan ora gadhang Al-Qur’an kiyé dégawé-gawé neng seliyané Gusti Allah; ning (Al-Qur’an) mbenerna (kita-kitab) sing seurungé lan nggenahna hukum-hukum sing wis détetepna, [^388] ora nana kemamangan neng njeroné, (déturunaken) sekang Pengérané sekabéhé ngalam.
 
-[^388]: Sebagéan ayat-ayat Al-Qur’an kuwé nerangna kanthi terwaca (rinci) hukum-hukum sing wis désebutna uga neng njero Al-Qur’an kuwé.
-
 ## 10:38
 
 Apa pantes dhéwéké padha ngomongna kiyambeké (Muhammad) sing wis ngréka-réka (Al-Qur’an kuwé)? Ucapna, “Gawéa siji surah sing sepadhan karo surah (al-Qur’an), lan ajéka sapa baé neng antarané ko kabéh wong sing bisa (gawé surah kuwé) seliyané Gusti Allah, angger ko wong-wong sing padha bener.
@@ -6405,13 +5629,9 @@ Lan angger dhéwéké kabéh (tetep) nggorohi maring sliramu (Muhammad), mangka 
 
 Lan neng antarané dhéwéké kabéh ana sing ngrungokna maring sliramu (Muhammmad). [^389] Ning apa sliramu bisa ndadékna wong sing budheg kuwé dadi krungu, senajan dhéwéké padha ora ngerti?
 
-[^389]: Tegesé dhéwéké padha keton nggatékna apa sing déwaca déning Kanjeng Nabi lan apa sing déwulangna, ning atiné dhéwéké kabéh ora nrima.
-
 ## 10:43
 
 Lan neng antarané dhéwéké kabéh ana sing weruh maring sliramu. [^390] Ning apa sliramu bisa awéh pituduh maring wong sing picek, senajan dhéwéké ora padha nggatékna?
-
-[^390]: Tegesé nyekséni tandha-tandha kenabianmu, ning dhéwéké kabéh jan-jané ora ngakoni.
 
 ## 10:44
 
@@ -6456,8 +5676,6 @@ Lan dhéwéké padha nakokna maring sliramu (Muhammad), “Apa temen (siksa sing
 ## 10:54
 
 Lan angger saben wong sing aniaya (dolim) kuwé (duwé) sekabéhané apa sing ana neng bumi, mesthi dhéwéké nebus awaké dhéwék karo kuwé, lan dhéwéké padha ngumpetna [^391] pengajogé rikala dhéwéké wis padha nyekséni siksa kuwé. Banjur déparingi putusan neng antarané dhéwéké kanthi adil lan dhéwéké ora padha déaniaya (dékapitunani).
-
-[^391]: Sebagéan juru tapsir ana sing ngartekna asarru kanthi “ngetonaken”.
 
 ## 10:55
 
@@ -6611,8 +5829,6 @@ Kenangapa tembé siki (ko precaya) mangka-né setemené ko wis duraka kawit gemi
 
 Mangka neng dina kiyé Ingsun slametna wangkemu [^392] supayané ko dadi piwulang nggo wong-wong sing teka sewismu, ning akéh-akéhé menungsa ora padha nggatékna tandha-tandha (kewasané Ingsun).
 
-[^392]: Sing deslametna neng Gusti Allah kuwé jasad (awak wadhage). Miturut sejarah, sewisé Fir’aun kerem, mayidé minggir maring kikis segara detemokna neng wong-wong Mesir terus debalsem, mula wutuh nganti siki lan bisa dédeleng neng musium Mesir. Seterusé deleng Al-Baqarah (2):50
-
 ## 10:93
 
 Lan temen, Ingsun wis mapanaken Bani Israil neng panggonan sing bagus lan Ingsun paringi dhéwéké kabéh rejeki sing apik. Mangka dhéwéké ora padha pesulayan, kejaba sewisé teka maring dhéwéké kawruh (sing wis kesebut neng Taurat). Setemené Pengéranmu bakal paring keputusan neng antarané dhéwéké kabéh neng dina Kiyamat ngenani apa sing dhéwéké padha persulayakna.
@@ -6685,8 +5901,6 @@ Lan tutna apa sing déwahyokna maring ko kabéh, lan padha sing sabar nganti Gus
 
 Alif Laam Raa. (Kiyé) kitab sing ayat-ayat-É desungsun kanthi barés banjur déterangna kanthi terwaca, [^393] (sing déturunaken) sekang sisihé (Gusti Allah) Sing Mahawicaksana, Mahanastiti,
 
-[^393]: Dejlentreh dadi pirang-pirang werna, ana sing ngenani tauhid, hukum, cerita, akhlak, ngélmu, janji, pepénget lan liya-liyané, detata sesurat-sesurat, seayat-seayat lan seterusé.
-
 ## 11:2
 
 supaya ko kabéh ora padha nyembah seliyané Gusti Allah. Setemené inyong (Muhammad) kuwé sing awéh pepénget lan nggawa werta bebungah sekang Penjenengané nggo ko kabéh.
@@ -6703,13 +5917,9 @@ Maring Gusti Allah ko kabéh bali. Penjenengané Mahakewasa ingatasé samubarang
 
 Élinga, setemené dhéwéké (wong-wong lamis/munapék) kuwé padha mléngosna dhadhané nggo ngumpetna awaké sekang slirané (Muhammad). [^394] Élinga, rikala dhéwéké padha ngemuli awaké nganggo bujur, Gusti Allah mriksani apa sing dhéwéké padha umpetna lan apa sing dhéwéké padha edhéngna, temen, Gusti Allah Maha Ngawuningani  (sekabéh) isiné ati.
 
-[^394]: Ngumpetna rasa mungsuhan lan lamisé (munapék) dhéwéké kabéh maring Nabi Muhammad s.a.w.
-
 ## 11:6
 
 Lan ora siji-sijia mahluk sing obah (duwé nyawa) neng bumi kejaba kabéh détanggung déning Gusti Allah rejekiné. Penjenengané mriksani panggonané lan papan simpéna-né. [^395] Kabéh ketulis neng kitab sing nyata (lauh mahfuz).
-
-[^395]: Miturut sebagéané para juru tapsir, sing démaksud karo “nggon netep ” neng kéné kuwé dunya, lan “nggon simpénan” yakuwé akhérat. Lan miturut sebagéan juru tapsir liyané, maksudé ”nggon netep” yakuwé balung sulbi, lan “nggon simpénan” yakuwé rahim.
 
 ## 11:7
 
@@ -6755,19 +5965,13 @@ Kuwé wong-wong sing ora pekolih (apa-apa) neng akhérat kejaba neraka, lan musp
 
 Mangka apa (wong-wong kapir kuwé padha karo) wong sing wis duwé bukti sing nyata (Al-Qur’an) sekang Pengérané, lan détututi kanthi seksi [^396] sekang Penjenengané lan seurungé wis ana uga Kitabé Musa sing dadi pathokan lan kewelasan (rahmat)? Dhéwéké padha precaya maring (Al-Qur’an). Sapa wongé sing mbangkangi (Al-Qur’an) neng antarané klompok-klompok (wong Quraisy), mangka neraka kuwé panggonan sing deancamna nggo dhéwéké, merga kuwé sliramu aja mamang maring Al-Qur’an. Setemené, Al-Qur’an kuwé nyata-nyata sekang Pengéranmu, ning akéh-akéhé menungsa ora padha precaya.
 
-[^396]: Ana sing napsirna seksi kuwé malekat Jibril, Al-Qur’an utawa Kanjeng Nabi Muhammad.
-
 ## 11:18
 
 Lan sapa sing lewih aniaya (dolim) tenimbang wong sing ngana-anakna sewenéh apus-apus  maring Gusti Allah? Dhéwéké kuwé bakal padha déadhepna maring Pengérané, lan para seksi, [^397] bakal ngucap, “Wong-wong kiyé sing wis padha goroh maring Pengérané dhéwéké.” Élinga, laknaté Gusti Allah (temiba) maring wong-wong sing padha aniaya (dolim),
 
-[^397]: Maksudé para seksi yakuwé malaékat, nabi-nabi lan perangane awaké dhéwék.
-
 ## 11:19
 
 (yakuwé) wong-wong sing padha ngalang-alangi dalané Gusti Allah lan kepéngin supa-ya dalan kuwé menggok. [^398] Lan dhéwéké kuwé wong-wong sing padha ora precaya anané dina wekasan (akhérat)
-
-[^398]: Maksudé, dhéwéké kabéh usaha supaya wong liya ngingkari agama sing bener.
 
 ## 11:20
 
@@ -6861,8 +6065,6 @@ Kiyambeké ngucap, “Numpaka ko kabéh maring njero (prahu) kanthi (nyebut) asm
 
 Lan prahu kuwé mangkat nggawa dhéwéké kabéh maring njero ombak (sing) kaya gunung-gunung. Lan Nuh celuk-celuk anaké, [^399] rikala dhéwéké (anak kuwé) ana neng panggonan sing adoh tur mencil, “Hé anaku! Munggaha (maring prahu) bareng-bareng inyong kabéh lan ko aja bareng-bareng wong-wong mbangkang (kapir).”
 
-[^399]: Jeneng putrané nabi Nuh as, sing kapir kuwé Qan’an, lan putra-putrané sing precaya kuwé Sam, Ham, Jafis.
-
 ## 11:43
 
 Dhéwéké (anaké) semaur, “Inyong arep nggolét pengayoman maring gunung sing bisa njaga inyong sekang banyu blabur!” (Nuh) ngucap, “Ora nana sing bisa ngayomi sekang siksané Gusti Allah neng dina kiyé seliyané Gusti Allah sing Mahaasih.” Lan ombak dadi ngalang-ngalangi antarané wong loro kuwé; mangka dhéwéké (anak kuwé) klebu wong-wong sing délelepna.
@@ -6870,10 +6072,6 @@ Dhéwéké (anaké) semaur, “Inyong arep nggolét pengayoman maring gunung sin
 ## 11:44
 
 Lan dédhawuhna, “Hé bumi! Untalen banyumu lan hé langit! (udan!) mandhega.” Lan banyu désatna, lan préntah dépung-kasna, [^400] lan prahu kuwé minggir neng ndhuwur gunung Judi, [^401] lan dédhawuhna, “Musnaha wong-wong sing padha aniaya (dolim).”
-
-[^400]: Yakuwé Gusti Allah wis ngleksanakna janjiné karo maténi wong sing kapir maring nabi Nuh as lan nylametna wong sing precaya.
-
-[^401]: Gunung Judi ana neng Armenia sisih kidul, watesan karo Mesopotamia
 
 ## 11:45
 
@@ -6943,8 +6141,6 @@ Lan dhéwéké kabéh tansah détutna kanthi laknat neng dunya kiyé lan (semana
 
 lan maring kaum Samud (Ingsun utus) seduluré dhéwéké kabéh, Saléh. Kiyambeké ngucap, “Hé kaumku! Sembahen Gusti Allah, ora nana Pengéran tumrap ko kabéh seliyané Penjenengané. Penjenengané wis nyiptakna ko kabéh sekang bumi (lemah) lan ndadékna ko kabéh sing gawé makmu-ré, [^402] merga kuwé nyuwuna pengampura maring Penjenengané, banjur padha tobata maring Penjenengané. Setemené Pengéran-ku banget pérek (kewelasané) lan nyemba-dani (penyuwunan kewulan-É).”
 
-[^402]: Menungsa depapanakén neng dunya (bumi) supayané ngewasani lan makmuraken dunya kuwé.
-
 ## 11:62
 
 Dhéwéké kabéh (kaum Samud) padha ngucap, “Hé Saléh! Temen, sliramu seurungé kiyé ana neng tengah-tengahe inyong kabéh, dadi wong sing déarep-arep, kenangapa sliramu nyegah maring inyong kabéh nyembah apa sing désembah déning kaki-nininé inyong? Temen, inyong nyata-nyata ana neng sejeroné mamang lan rungsing ingatasé apa (agama) sing sliramu anjur-anjurna maring inyong kabéh.”
@@ -6961,8 +6157,6 @@ Lan hé kaumku! Kiyé unta wadon sekang Gusti Allah, minangka jimat (mukjizat) n
 
 Mangka wong-wong mau padha nyembeléh unta kuwé, banjur kiyambeké (Saléh) ngucap, “Padha seneng-senenga ko kabéh neng umahmu sesuwéné telung dina. [^403] Kuwé janji sing ora bisa dégorohna.”
 
-[^403]: Penggawéané dhéwéké  padha nyembeléh onta kuwé sewijiné planggaran maring larangané Nabi Saleh. Merga kuwé Gusti Allah nibakna maring dhéwéké kabéh ukuman yakuwé matesi uripé dhéwéké kabéh mung neng wektu telung dina, mangka minangka simbingan, dhéwéké kabéh dékongkon seneng-seneng sedawané telung dina.
-
 ## 11:66
 
 Mangka rikala putusané Ingsun teka, Ingsun slametna Saléh lan wong-wong sing padha precaya bareng dhéwéké kanthi kewelasan Ingsun lan (Ingsun slametna) sekang kenisthané dina kuwé. Temen, Pengéranmu, Penjenengané Mahakuwat, Mahadigdaya.
@@ -6974,8 +6168,6 @@ Banjur sewara sing gemlendhung nggepyuk wong-wong sing aniaya (dolim) kuwé ngan
 ## 11:68
 
 Kaya-kaya dhéwéké kabéh urung nglakon manggon [^404] neng papan kuwé. Élinga, kaum Samud padha ngingkari Pengérané. Élinga, mangka temen sirna kaum Samud.
-
-[^404]: Kaya kuwé sigrané dhéwéké deajurna déning bledhég mau, mulané dhéwéké padha ajur-mumur tanpa tilas, kaya-kaya dhéwéké kabéh ora nglakon ana.
 
 ## 11:69
 
@@ -7012,8 +6204,6 @@ Hé Ibrahim! Tinggalana (takon-takonan) kiyé, temen, pepesthéné Pengéranmu w
 ## 11:77
 
 Lan rikala para utusan Ingsun (para malaékat) kuwé wis teka maring Lut, dhéwéké krasa curiga lan dhadhané krasa sesek merga (tekan)é tamu-tamu kuwé. Kiyambeké (Lut) ngucap, “Kiyé dina sing banget sulité.” [^405]
-
-[^405]: Nabi Lut krasa susah merga tekané para utusané Gusti Allah kuwé merga dhéwéké kabéh wujud bujang sing bagus-bagus. Kaum Lut dhemen banget maring bujang-bujang sing bagus nggo nglakoni homo seksual (lanang dhemen lanang, wadon dhemen wadon). Lut krasa ora sanggup ngreksa tamuné angger ana gangguan sekang wong-wong kuwé.
 
 ## 11:78
 
@@ -7054,8 +6244,6 @@ Lewihan (sing halal) sekang Gusti Allah kuwé lewih apik tumrap awakmu angger ko
 ## 11:87
 
 Dhéwéké padha ngucap, “Hé Syuaib! Apa agamamu sing préntah maring ko supaya inyong padha ninggalna apa sing désembah (déning) kaki-nininé inyong kabéh utawa nglarang inyong padha ngatur bandhané inyong nganggo cara sing inyong kepéngini? Setemene ko nyata wong sing nyata-nyata aris tur pinter.” [^406]
-
-[^406]: Ucapan  kiyé dhéwéké padha ucapna nggo ngenyék Nabi Syuaib a.s.
 
 ## 11:88
 
@@ -7137,8 +6325,6 @@ Mangka anadéné wong-wong padha sengsara kuwé (panggonané) neng njero neraka,
 
 wong-wong mau  padha langgeng neng njeroné sedawané ana langit lan bumi, [^407] kejaba angger Pengéranmu ngersakna (sing liya). Temen, Pengéranmu Maha Ngleksa-nani ingatasé apa sing Penjenengané kersakna,
 
-[^407]: Kiyé tetembungan sing maksudé nggenahna kelanggengané dhéwéké kabéh neng njero neraka selawasé. Ngalam akhérat uga duwé langit lan bumi.
-
 ## 11:108
 
 Lan anadéné wong-wong sing begya, mangka (panggonané) neng njero suwarga; dhéwéké kabéh langgeng neng njeroné sedawané ana langit lan bumi, kejaba angger Pengéranmu ngersakna (sing liya); minangka peparing sing ora nana pedhot-pedhoté.
@@ -7150,8 +6336,6 @@ Mangka sliramu (Muhammad) aja mamang maring apa sing dhéwéké padha sembah. Dh
 ## 11:110
 
 Lan temen, Ingsun wis paring kitab (Taurat) maring Musa, banjur padha dépersulayakna. Lan angger ora nana ketetepan sing wis lewih dhisit sekang Pengéranmu, mesthi wis déleksanakna ukuman neng antarané dhéwéké kabéh. [^408] Temen, dhéwéké (wong-wong kapir Mekah) nyata-nyata neng sejeroné kebingungan lan mamang maring (Al-Qur’an).
-
-[^408]: Sekirané ora nana ketetepan nundha siksa nggo dhéwéké kabéh nganti dina Kiyamat mesthi dhéwéké uga dépaténi rikala wektu kuwé.
 
 ## 11:111
 
@@ -7261,8 +6445,6 @@ Kiyambeké (Yakub) ngucap, “Setemené lungané ko kabéh bareng kiyambeké (Yu
 
 Setemené dhéwéké padha ngucap, “Angger dhéwéké dépangan neng asu ajag, mangkané inyong kabéh kuwé golongan (sing kuwat), angger kaya kuwé mesthi inyong wong-wong sing padha kapitunan. [^409]
 
-[^409]: Dadi wong kecing sing uripé ora nana regané.
-
 ## 12:15
 
 Mangka rikala dhéwéké nggawa Yusuf lan serujuk nyemplungna kiyambeké maring dhasar sumur, Ingsun wahyokna maring kiyambeké, “Sliramu mbésuk mesthi bakal nyritakna lakon kiyé maring dhéwéké kabéh, lan dhéwéké ora padha krasa.”
@@ -7291,8 +6473,6 @@ Lan wong-wong mau padha ngedol (Yusuf) kanthi rega sing murah, yakuwé mung pira
 
 Lan wong sekang Mesir sing tuku kiyambeké ngucap maring bojoné, [^410] “Wéhna maring kiyambeké panggonan (lan ladhenan) sing apik, moga-moga kiyambeké migunani tumrap inyong kabéh utawa inyong padha alap kiyambeké dadi anak.” Lan mengkana kuwé Ingsun paring drajat sing apik maring Yusuf neng negara (Mesir) lan supaya Ingsun wulangna maring kiyambeké tegesé (takwil) impi, lan Gusti Allah kuwasa maring urusané, ning akéh-akéhé menungsa ora padha mengerténi.
 
-[^410]: Wong sekang Mesir sing tuku Yusuf kuwé sewijiné penggedhé Mesir, Al-Aziz, biasa dengerténi kanthi jeneng Qitfir. Neng sebagéan kitab tapsir désebutna jeneng bojoné, Rail lan ana uga sing nyebut Zulaiha utawa Zaliha. Ning riwayat sing nyebutna jeneng-jeneng kuwé ora bisa détanggungjawabna.
-
 ## 12:22
 
 Lan rikala kiyambeké wis cukup diwasa, Ingsun paring maring kiyambeké keku-wasan lan ilmu. Mengkana kuwé Ingsun paring piwales maring wong-wong sing mergawé becik.
@@ -7304,8 +6484,6 @@ Lan wong wadon sing kiyambeké (Yusuf) manggon neng umahé, nggodha maring kiyam
 ## 12:24
 
 Lan temen, wong wadon kuwé wis kepéngin maring kiyambeké (Yusuf). Lan Yusuf uga duwé kepénginan maring wong wadon kuwé, angger kiyambeké ora weruh sasmita (sekang) Pengérané. [^411] Mengkana kuwé, Ingsun plengosna kiyambeké (Yusuf) sekang penggawé ala lan ngeres. Setemené kiyambeké (Yusuf) klebu kawula-kawulané Ingsun sing pinilih.
-
-[^411]: Ayat kiyé ora nidhokna lamon Nabi Yusuf a.s. duwé kekarepan sing ala maring wong wadon kuwé, ning godhané kuwé gedhé banget nganti sekirané slirané ora dekuwatna karo precaya maring Gusti Allah SWT, mesti slirané mlebu maring kemaksiyatan.
 
 ## 12:25
 
@@ -7354,8 +6532,6 @@ Banjur metu pikiran neng dhéwéké kabéh sewisé weruh tandha-tandha (beneré 
 ## 12:36
 
 Lan bareng karo kiyambeké (Yusuf) uga mlebu wong nonoman loro maring kunjara. [^412] Salah sijiné ngucap, “Setemené inyong ngimpi meres anggur,” lan sing liyané ngucap, “Inyong ngimpi nggawa roti neng ndhuwur sirahku, sebagéan dépangan manuk. Wéhna maring inyong tegesé (takwilé). Setemené inyong padha mandhang maring ko klebu wong sing temindak becik.”
-
-[^412]: Miturut riwayat rong pemuda kuwé ya kuwé babu-babuné raja, sewijiné babu sing ngurusi inuman raja lan sijiné maning tukang nggawé roti.
 
 ## 12:37
 
@@ -7417,8 +6593,6 @@ Lan rajané ngucap, “Gawanen kiyambeké maring inyong!” Rikala utusan kuwé 
 
 Dhéwéké (raja) ngucap (maring wong-wong wadon kuwé), “Kepriwé kahananmu kabéh [^413] rikala ko padha nggodha Yusuf supayané nemungkulna awaké?” Dhéwéké kabéh padha ngucap, “Mahasempurna Gusti Allah, inyong kabéh ora weruh sing ala sekang dhéwéké.” Bojoné Al-Aziz ngucap, “Siki wis cetha bebener kuwé, pancén inyong sing nggodha lan ngarih-arih kiyambeké, lan setemené kiyambeké klebu wong sing bener.”
 
-[^413]: Sing démaksud kahanan ya kuwé penemuné wong-wong wadon kuwé maring Yusuf apa dhéwéké kegodha karo godaan kuwé utawa ora.
-
 ## 12:52
 
 (Yusuf) ngucap, “Sing kaya kuwé supaya dhéwéké (Al-Aziz) ngerti lamon inyong nyata-nyata ora nyidrani dhéwéké rikala dhéwéké ora neng (umah) lan setemené Gusti Allah ora karenan (ingatasé) réka dayané wong-wong sing padha cidra.
@@ -7447,8 +6621,6 @@ Lan temen, ganjaran akhérat kuwé lewih apik tumrap wong-wong sing padha precay
 
 Lan sedulur-seduluré Yusuf padha teka maring (Mesir) banjur mlebu maring (panggonané) kiyambeké. Mangka kiyambeké (Yusuf) ngerti maring sedulur-seduluré, ning sedulur-sedulur kuwé padha ora wawuh (maning) maring kiyambeké (Yusuf). [^414]
 
-[^414]: Miturut sejarah kedadéan mangsa paceklik neng Mesir lan neng seubengané, mangka kanthi dhawuhé Nabi Yaqub a.s. sedulur-seduluré Yusuf teka sekang Kan’an maring Mesir ngadhep penggedhé-penggedhé Mesir nggo njaluk banah panganan.
-
 ## 12:59
 
 Lan rikala kiyambeké (Yusuf) nyawisna banah pangan nggo sedulurékabéh, kiyambe-ké ngucap, “Gawanen maring inyong sedulurmu sing tunggal rama karo ko kabéh (Bunyamin), apa ko kabéh ora weruh lamon inyong nyempurnakna takeran lan inyong kuwé wong sing paling apik olihé nampani dhayoh?
@@ -7464,10 +6636,6 @@ Dhéwéké kabéh padha ngucap, “Inyong kabéh bakal ngari-ariramané (nggo ng
 ## 12:62
 
 Lan kiyambeké (Yusuf) ngucap maring rewang-rewangé, “Lebokna barang-barangé (ijolané) dhéwéké kabéh [^415] maring njero karung-karungé supayané dhéwéké kabéh ngerti angger wis bali maring kulawargané, muga-muga dhéwéké kabéh padha bali maning. [^416]
-
-[^415]: Miturut akéh-akéhé juru tapsir barang-barang sekang sedulur-seduluré Nabi Yusuf a.s. sing nggo dadi alat ijol bahan pangan kuwé yakuwé lumping utawa trompah.
-
-[^416]: Temindak kiyé détrapna minangka réka-réka kanthi cara nandur pekerti maring dhéwéké, kon mengkoné padha  gelem mbalik maning maring Mesir kanthi nggawa Bunyamin.
 
 ## 12:63
 
@@ -7501,8 +6669,6 @@ Lan rikala wong-wong mau mlebu maring (nggoné) Yusuf, kiyambeké ngenggonaken s
 
 Mangka rikala wis décawisna banah panganan nggo sedulur-seduluré kabéh, kiyambeké (Yusuf) nglebokna cemung [^417]  maring njero karungé seduluré. Banjur ngorong-ngorong sijiné wong sing sambat-sambat, “Hé kafilah! Setemené ko kabéh kuwé jan-jané maling.”
 
-[^417]: Sewijiné wadhah sing dégawé sekang emas sing dégunakna nggo nginum lan bisa uga nggo naker.
-
 ## 12:71
 
 Dhéwéké kabéh padha takon, karo ngadhep maring wong (sing ndakwa). “Ko padha kélangan apa?”
@@ -7522,8 +6688,6 @@ Dhéwéké (para penggawa) takon, “Ning apa ukumané, angger kopadha goroh?”
 ## 12:75
 
 Dhéwéké padha njawab, “Ukuman nggo sapa baé sing neng jero karungé détemokna (barang sing ilang kuwé), mangka dhéwéké kuwésing nampa ukumané. [^418] Mengkana kuwé inyong kabéhawéh ukuman maring wong-wong sing padha aniaya (dolim).”
-
-[^418]: Miturut saréngaté Nabi Yakub a.s sapa wongé nyolong mangka ukumané dedadikna budhak (batur tukon) setahun.
 
 ## 12:76
 
@@ -7753,8 +6917,6 @@ Mangka apa wong sing ngaweruhi lamon sing déturunaken maring sliramu sekang Pen
 
 lan wong-wong sing nyambungna apa sing dédhawuhna Gusti Allah supaya désambung-na, [^419] lan wong-wong mau padha wedi ma-ring Pengérané lan wedi maring perétungan (hisab) sing ala.
 
-[^419]: Yakuwé nganakna sambung silaturahim lan peseduluran
-
 ## 13:22
 
 Lan wong-wong sing padha sabar merga ngarep-arep karenané Pengérané, njejegna sembayang, lan padha awéh sumbangan (infak) sekang sebagéan rejeki sing wis Ingsun paringna maring dhéwéké, kanthi sesingidan utawané blak-blakan lan uga nolak sing ala nganggo sing apik; wong kuwé kabéh sing padha olih panggonan pungkasan (sing apik),
@@ -7778,8 +6940,6 @@ Gusti Allah njembarna rejeki ingatasé sapa baé sing dékersakna lan matesi (ma
 ## 13:27
 
 Lan wong-wong sing mbangkang (kapir) padha ngucap, “Kenangapa ora déturunaken maring dhewéké (Muhammad) tandha (mukjizat) sekang Pengérané?” Dhawuha (Muhammad), “Setemené Gusti Allah nyasarna [^420] sapa baé sing dékersakna lan paring pitudhuh maring wong sing tobat maring Penjenengané,”
-
-[^420]: Gusti Allah nyasarna: wong kuwé nyasar merga ingkar lan ora gelem mahami ayat-ayat-É Gusti Allah
 
 ## 13:28
 
@@ -7817,8 +6977,6 @@ Peumpaman suwarga sing déjanjékna maring wong-wong sing padha semarah (yakuwé
 
 Lan wong-wong sing wis Ingsun paringaken kitab maring dhéwéké, [^421] padha bungah ingatasé apa (kitab) sing déturunaken maring sliramu (Muhammad), lan ana neng antarané golongan (Yahudi lan Nasrani), sing ngingkari sebagéané. Dhawuha, “Inyong mung dédhawuhi supaya nyembah Gusti Allah lan ora nyekuthokna Penjenengané. Mung maring Penjenengané inyong ajék-ajék (menungsa) lan mung maring Penjenengané inyong bali.”
 
-[^421]: Wong Yahudi lan Nasrani sing wis mlebu Islam.
-
 ## 13:37
 
 Lan mengkana kuwé Ingsun wis nurunaken (Al-Qur’an) minangka aturan (sing bener) nganggo Basa Arab. Sekirané sliramu ngetutna karepané wong-wong mau sewisé teka kawruh maring sliramu, mangka ora nana sing ngayomi lan sing nulungi sliramu sekang (siksané) Gusti Allah.
@@ -7826,8 +6984,6 @@ Lan mengkana kuwé Ingsun wis nurunaken (Al-Qur’an) minangka aturan (sing bene
 ## 13:38
 
 lan temen, Ingsun wis ngutus sewetara utusan seurungé sliramu (Muhammad) lan Ingsun paringna maring dhéwéké kabéh bojo-bojo lan anak-putu (keturunan). Lan ora nana hak tumrap sewiji utusan nekakna sewenéh tandha (mukjijat) kejaba kanthi idiné Gusti Allah. Tumrap saben jaman ana Kitab (tinemtu). [^422]
-
-[^422]: Neng saben-saben mangsa ana hukum sekang Gusti Allah sing tematrap ingatasé kawula-kawulané miturut kersané Penjenengané
 
 ## 13:39
 
@@ -7849,8 +7005,6 @@ Lan temen, wong seurungé dhéwéké kabéh (wong kapir Mekah) wis nganakna apus
 
 Lan wong-wong sing mbangkang (kapir) padha ngucap, “Sliramu (Muhammad) kuwé udu sewji Utusan.” Dhawuha, “Cukup Gusti Allah lan wong sing nguwasani ilmuné Al-Kitab [^423] dadi seksi antarané inyong karo ko kabéh.”
 
-[^423]: Ulama-ulama Ahli kitab sing mlebu Islam.
-
 ## 14:1
 
 Alif Laam Raa. (Kiyé) Kitab sing Ingsun turunaken maring sliramu (Muhammad) supaya sliramu ngetokna menungsa sekang pepeteng nuju maring cahya sing padhang kanthi idiné Pengéran, (yakuwé) nuju dalané Pengéran Sing Mahadigdaya, Maha Pinuji.
@@ -7867,13 +7021,9 @@ Gusti Allah sing kagungan apa sing ana neng langit lan apa sing ana neng bumi. C
 
 Lan Ingsun ora ngutus sewiji utusan baé, kejaba karo basané kaumé, [^424] supaya utusan mau bisa awéh pertélan (keterangan) maring dhéwéké kabéh. Mangka Gusti Allah nyasarna sapa sing Penjenengané kersakna, lan paring pituduh maring sapa sing Penjenengané kersakna. Penjenengané Sing Mahadigdaya, Mahawicaksana.
 
-[^424]: Al-Qur’an déturunaken kambi Basa Arab, ora banjur détegesi Al-Qur’an mung nggo wong Arab tok, ning nggo kabéh menungsa.
-
 ## 14:5
 
 Lan temen, Ingsun wis ngutus Musa kanthi nggawa tandha-tandha (kewasané) Ingsun, (lan Ingsun dhawuh maring dhéwéké), “Tokna kaumé sliramu sekang pepeteng maring cahya sing padhang-jembrang lan émutna wong-wong kuwé kabéh maring dina-dinané Gusti Allah.” [^425] Temen, neng sing mengkana kuwé ana tandha-tandha (kewasané Gusti Allah) tumrap saben wong sing sabar lan akéh kesuwuné (sukuré).
-
-[^425]: Kedadéan-kedadéan sing wis kelakon ingatasé kaum-kaum gemiyén uga nékmat lan siksa sing paha déalami dhéwéké kabéh.
 
 ## 14:6
 
@@ -7947,13 +7097,9 @@ Lan sétan ngucap rikala prekara (étung-étungan) wis dérampungna, “Setemen�
 
 Lan wong-wong sing padha precaya lan nindakna kebecikan délebokna maring suwarga-suwarga sing neng ngisoré mili bengawan-bengawan. Dhéwéké padha langgeng neng njeroné kanthi idiné Pengérané. Ucapan pekurmatané wong-wong mau neng njeroné (suwarga) yakuwé salam [^426] (rahayu).
 
-[^426]: Tegesé slamet sekang sekabéh bebaya
-
 ## 14:24
 
 Apa ko ora padha nggatékna kepriwé Gusti Allah wis gawé peumpaman tembung sing apik [^427] kaya wit sing apik, oyodé kuwat lan pangé (mumbul) maring langit,
-
-[^427]: Klebu tembung sing apik yakuwé tembung (kalimah) tauhid, yakuwé kabéh ucapan sing ajek-ajek maring prekara apik lan ngalangi prekara sing mungkar lan uga penggawéyan sing apik. Tembung tauhid, kaya tembung La ilaha illallah.
 
 ## 14:25
 
@@ -7963,13 +7109,9 @@ Apa ko ora padha nggatékna kepriwé Gusti Allah wis gawé peumpaman tembung sin
 
 Lan peumpaman tembung sing ala, kaya wit sing ala, [^428] sing wis débedhul oyod-oyodé sekang bumi; ora bisa tetep (jejeg) babar pisan.
 
-[^428]: Klebu tembung sing ala yakuwé kufur, syirik, kabéh omongan sing ora apik lan penggawéyan sing ora apik.
-
 ## 14:27
 
 Gusti Allah neguhna (precayaé) wong-wong sing padha precaya kanthi ucapan sing teguh [^429] (sejeroné urip) neng dunya lan neng akhérat; lan Gusti Allah nyasarna wong-wong sing aniaya (dolim) lan Gusti Allah temindak apa sing Penjenengané kersakna.
-
-[^429]: Sing dékarepna sekang ucapan sing teguh neng kéné yakuwé tembung apik sing désebutna neng ayat 24 ndhuwur.
 
 ## 14:28
 
@@ -8047,8 +7189,6 @@ Lan ko wis padha manggon neng panggonané wong sing gawé kapitunan (dolim) mari
 
 Lan temen, wong-wong kuwé wis gawé réka daya, mangkané Gusti Allah (priksa lan bakal paring piwales) réka dayané dhéwéké kabéh. Lan setemené réka dayané wong-wong mau ora bisa ngilangna gunung-gunung. [^430]
 
-[^430]: Ayat-ayat-É (saréngaté) Gusti Allah sing kukuh kaya gunung.
-
 ## 14:47
 
 Mangka merga kuwé aja pisan-pisan ko padha nyana lamon Gusti Allah nyulayani janji-Né maring utusan-utusan-É. Temen, Gusti Allah Mahadigdaya lan kagungan piwales.
@@ -8097,8 +7237,6 @@ Ora nana sewiji umat sing bisa ndhisiti ajalé, lan ora (uga) bisa nyuwun penund
 
 Lan wong-wong mau padha ngucap, “Hé wong sing maring slirané déturunaken Al-Qur’an, setemené sliramu (Muhammad) nyata-nyata wong édan. [^431]
 
-[^431]: Kalimah kiyé déucapna neng wong-wong kapir Mekah nggo ngina maring Nabi Muhammad.
-
 ## 15:7
 
 Kenangapa sliramu ora nekakna malaékat maring inyong kabéh, angger sliramu klebu wong sing bener?”
@@ -8110,8 +7248,6 @@ Ingsun ora nurunaken malaékat kejaba kanthi bebener (nggo nggawa siksa) lan won
 ## 15:9
 
 Setemené Ingsun sing nurunaken Al-Qur’an, lan mesthi Ingsun (uga) sing ngreksa (Al-Qur’an kuwé). [^432]
-
-[^432]: Ayat kiyé awéh jaminan ingatasé suciné lan murniné Al-Qur’an selawas-lawasé.
 
 ## 15:10
 
@@ -8128,8 +7264,6 @@ Mengkana kuwé, Ingsun nglebokna (perguyon kuwé) maring atiné wong sing padha 
 ## 15:13
 
 Dhéwéké padha ora precaya maring kuwé (Al-Qur’an) mangkané wis keliwat sunnatullah [^433] (pesthéné Gusti Allah) maring wong-wong sing gemiyén.
-
-[^433]: Sunnatullah neng kéné yakuwé numpes wong sing nggorohna rasul.
 
 ## 15:14
 
@@ -8163,13 +7297,9 @@ Lan Ingsun wis ndadékna neng kono (bumi) sumber penguripan nggo kepreluanmu, la
 
 Lan ora nana sewiji-wiji kejaba neng sisihé Ingsun khazanah-É, [^434] Ingsun ora nurunaken kuwé kejaba karo ukuran sing wis détemtokna.
 
-[^434]: Kabéh kuwé sumberé sekang Gusti Allah. Khazanah bisa détegesi gudhang.
-
 ## 15:22
 
 Lan Ingsun wis nyilirna angin nggo ngawinaken, [^435] lan ingsun nurunaken udan sekang langit, banjur Ingsun paring ko kabéh karo (banyu) kuwé, lan udu ko kabéh sing nyimpén banyu kuwé.
-
-[^435]: Lamuk, tanduran (ketemuné tepung sari karo putik neng kembangé tanduran), lan liya-liyané.
 
 ## 15:23
 
@@ -8198,8 +7328,6 @@ Lan (élinga), rikala Pengéranmu dhawuh maring para malaékat, “Temen, Ingsun
 ## 15:29
 
 Mula angger Ingsun wis nyempurnakna (dadi)né, lan Ingsun wis ndamokna roh (ciptanan) Ingsun maring njeroné, mangka padha temungkula ko kabéh maring dhéwéké kanthi sujud. [^436]
-
-[^436]: Sujud neng kéné udu maksudé nyembah, ning minangka ngormati.
 
 ## 15:30
 
@@ -8353,8 +7481,6 @@ Lan wis Ingsun tetepna maring kiyambeké (Lut) ketetepan kuwé, lamon wekasané 
 
 Lan padha teka wong-wong kota kuwé [^437] (maring umahé Lut) kanthi bungah (jalaran tekané dhayoh-dhayoh mau).
 
-[^437]: Kota Sodom sing ana neng péreké Laut Tengah.
-
 ## 15:68
 
 Kiyambeké (Lut) ngucap, “Setemené wong-wong kiyé dhayohku; mangka ko aja padha gawé wirang maring inyong,
@@ -8367,8 +7493,6 @@ Lan padha semaraha (takwa) maring Gusti Allah lan aja gawé inyong dadi ina.”
 
 (Wong-wong kuwé) padha ngucap, “Apa inyong kabéh ora wis nglarang sliramu supaya aja (njagani) menungsa?” [^438]
 
-[^438]: Wong-wong kuwé padha kepéngin nglakoni homo seksual (lanang dhemen lanang) kambi dhayoh-dhayoh mau (sing jané malaékat) lan pancén dhéwéké wis padha nglakon ngancam Lut supayané aja ngalang-alangi dhéwéké padha nglakoni penggawéyan kaya kuwé.
-
 ## 15:71
 
 Kiyambeké (Lut) ngucap, “Kaé bocah-bocah wadoné (negari)ku (rabia karo dhéwéké kabéh), angger ko kabéh arep temindak.”
@@ -8376,8 +7500,6 @@ Kiyambeké (Lut) ngucap, “Kaé bocah-bocah wadoné (negari)ku (rabia karo dhé
 ## 15:72
 
 (Gusti Allah dhawuh), “Sekawit umurmu [^439] (Muhammad), temen, dhéwéké padha gonjang-ganjing neng sejeroné wuru (kesasar).
-
-[^439]: Wong Arab kulina supata karo umuré wong. Neng kéné Gusti Allah supata karo umur utawa uripé Nabi Muhammad nggo mulyakna penjenengané.
 
 ## 15:73
 
@@ -8403,21 +7525,13 @@ Temen, neng sing mengkana kuwé nyata-nyata ana tandha (kuwasané Gusti Allah) t
 
 Lan setemené warga Aikah [^440] kuwé nyata-nyata kaum sing aniaya (dolim),
 
-[^440]: Wong-wong Aikah kuwé kaumé Nabi Syuaib. Aikah kuwé panggonan sing ana alasé neng tlatah Madyan.
-
 ## 15:79
 
 mangka Ingsun tumpes dhéwéké kabéh. Lan setemené loro-loroné (negari) [^441] kuwé anané neng siji alur dalan gedhé.
 
-[^441]: Yakuwé kotané kaum Lut (Sodom) lan Aikah.
-
 ## 15:80
 
 Lan setemené wong-wong negari Hijr [^442] wis padha nggorohna para utusané, [^443]
-
-[^442]: Wong-wong kota Hijr yakuwé kaum Samud. Hijr kuwé nggon sing anané neng Wadi Qura antarané Medinah lan Suriah.
-
-[^443]: Sing démaksud para utusan neng kéné yakuwé Nabi Saléh. Mestiné neng kéné désebuté rasul, ning désebutna para utusan (jamak) merga nggorohna siji utusan padha karo nggorohna kabéh utusan.
 
 ## 15:81
 
@@ -8430,8 +7544,6 @@ lan wong-wong mau padha natah umah-umah sekang gunung watu, (sing dépanggoni) k
 ## 15:83
 
 Banjur dhéwéké kabéh détumpes karo sewara seru sing gemlendhung neng wektu esuk, [^444]
-
-[^444]: Kedadéan kuwé ana neng dina kepapat, sewisé tekané aban-aban maring wong-wong mau.
 
 ## 15:84
 
@@ -8449,8 +7561,6 @@ Temen, Pengéranmu, Penjenengané Sing Maha Nyipta, Maha Ngawuningani.
 
 Lan temen, Ingsun wis paring maring sliramu pitu (ayat) sing (déwaca) bolan-balén [^445] lan Al-Qur’an sing agung.
 
-[^445]: Sing démaksud pitung ayat sing débolan-baléni yakuwé surat Al-Fatihah sing kesungsun sekang pitung ayat. Sebagéan juru tapsir ngarani pitung surat sing dawa yakuwé Al-Baqarah, Ali Imran, Al-Maidah, An-Nisa’, Al-A’raf, Al-An’am lan Al-Anfal utawa At-Taubah.
-
 ## 15:88
 
 Aja pisan-pisan sliramu (Muhammad) nujokna penyawangmu maring kenékmatané urip sing wis Ingsun paringna maring seweta-ra golongan neng antarené wong-wong mau (wong kapir), lan aja pisan-pisan sliramu krasa susah ingatasé dhéwéké kabéh lan sing andhap-asor sliramu maring wong sing padha precaya.
@@ -8463,13 +7573,9 @@ Lan dhawuha (Muhammad), “Setemené inyong kiyé wong sing awéh pengéling-él
 
 Kayadéné (Ingsun wis awéh pengéling-éling), Ingsun wis nurunaken (siksa) maring wong sing milah-milah (Kitabé Gusti Allah), [^446]
 
-[^446]: Wong-wong sing nampa sebagéan isiné Kitab lan nolak sebagéan sing liya.
-
 ## 15:91
 
 (yakuwé) wong-wong [^447] sing ndadékna Al-Qur’an kebagi-bagi.
-
-[^447]: Yakuwé wong Yahudi lan Nasrani sing mbagi Al-Qur’an, ana bagéan sing dhéwéké padha precaya lan nana uga sing dhéwéké padha ingkari.
 
 ## 15:92
 
@@ -8507,8 +7613,6 @@ Lan sembaha Pengéranmu nganti yakin (pati) teka maring sliramu.
 
 Ketetepané Gusti Allah [^448] mesthi tekané, mangka aja pisan-pisan sliramu nuwun supayané kuwé dégelisna (teka)né. Mahasuci Gusti Allah lan Mahaluhur Penjenengané sekang apa sing dhéwéké padha sekuthokna.
 
-[^448]: Dina Kiyamat sing wis déancamna maring wong musrik.
-
 ## 16:2
 
 Penjenengané nurunaken para malaékat nggawa wahyu kanthi dhawuhé Penjeneng-ané maring sapa sing Penjenengané ker-sakna neng antarané kawula-kawula-Né, (kanthi dhawuh) yakuwé, “Émutna (kawula-kawulané Ingsun), lamon ora nana Pengéran seliyané Ingsun, mangka semaraha (takwa) ko kabéh maring Ingsun.”
@@ -8536,8 +7640,6 @@ Lan kéwan-kéwan kuwé ngangkut gawanané ko kabéh maring sewiji negari sing k
 ## 16:8
 
 lan (Penjenengané wis nyiptakna) jaran, bagal, [^449] lan keledai, nggo ko kabéh tumpaki lan (dadi) pepaés. Gusti Allah nyiptakna apa sing ko ora padha kaweruhi.
-
-[^449]: Bagal kuwé pranakané jaran karo keledai.
 
 ## 16:9
 
@@ -8615,8 +7717,6 @@ Temen, wong-wong sing seurungé dhéwéké wis nganakna réka daya, mangka Gusti
 
 Banjur Gusti Allah nginakna wong-wong kuwé neng dina Kiyamat, lan dhawuh, “Neng ngendi sekuthon-sekuthon Ingsun kuwé sing (merga mbélani sekuthon mau) ko padha tansah nyatroni slirané kabéh (nabi-nabi lan wong sing precaya)?” Wong-wong sing déparingi ilmu ngucap, [^450]  “Setemené kanisthan lan siksa neng dina kiyé détibakna maring wong sing padha mbangkang (kapir),”
 
-[^450]: Para malaékat, nabi-nabi lan wong sing padha precaya.
-
 ## 16:28
 
 (yakuwé) wong-wong sing déjabud nyawané déning malaékat ana neng sejeroné kahanan dhéwéké lagi (nglakoni) aniaya (dolim) maring awaké dhéwék, banjur dhéwéké padha pasrah awaké (karo ngucap), “Inyong kabéh babar pisan ora nglakon temindak sewiji kejahatan baé.” (Malaékat mangsuli), “Nglakon! Setemené Gusti Allah Maha Ngawuningani apa sing wis ko padha pergawé.”
@@ -8637,15 +7737,9 @@ Lan banjur déngendikakna maring wong-wong sing padha semarah (takwa), “Apa si
 
 (yakuwé) wong sing rikala dépundhut déning para malaékat neng kahanan sing apik, [^451] dhéwéké (para malaékat) padha ngucap (maring wong-wong kuwé), “Salamun ‘alaikum (rahayu ingatasé ko kabéh), mlebua maring suwarga merga apa sing wis ko kabéh pergawé.”
 
-[^451]: Mati neng kahanan suci sekang kufur lan maksiyat, utawa uga kena détegesi wong-wong kuwé mati neng kahanan seneng merga ana werta bebungah sekang malaékat angger wong-wong kuwé arep mlebu suwarga.
-
 ## 16:33
 
 Ora nana sing déenténi (déning) dhéwéké kabéh (wong kapir) seliyané tekané para malaékat maring dhéwéké [^452] utawa tekané dhawuhé Pengéranmu. [^453] Mengkana kuwé sing délakoni déning wong-wong (kapir) seurungé dhéwéké kabéh. Gusti Allah ora gawé kapitunan (dolim) maring wong-wong mau, ning malah dhéwéké sing padha (tansah) gawé kapitunan (dolim) maring awaké dhéwék.
-
-[^452]: Yakuwé tekané malaékat nggo njabud nyawané.
-
-[^453]: Yakuwé tekané siksa sekang Gusti Allah nggo numpes wong-wong kuwé.
 
 ## 16:34
 
@@ -8687,13 +7781,9 @@ Lan wong sing padha boyong (hijrah) krana Gusti Allah sewisé déaniaya (dédoli
 
 Lan Ingsun ora ngutus seurungé sliramu (Muhammad), kejaba sewiji wong lanang sing Insun paringi wahyu maring dhéwéké; mangka takona maring wong sing duwé kawruh [^454] angger sliramu ora ngaweruhi,
 
-[^454]: Yakuwé wong sing duwé kawruh ngenani nabi lan kitab-kitab.
-
 ## 16:44
 
 (dhéwéké kabéh Ingsun utus) kanthi nggawa keterangan-keterangan (mukjijat) lan kitab-kitab. Lan Ingsun turunaken az-Zikr (Al-Qur’an) maring sliramu, supaya sliramu nerangna maring menungsa apa sing wis déturunaken maring dhéwéké kabéh [^455] lan supayané (menungsa) padha mikirna,
-
-[^455]: Yakuwé préntah, larangan, aturan, lan liya-liyané sing ana neng Al-Qur’an.
 
 ## 16:45
 
@@ -8706,8 +7796,6 @@ utawa Gusti Allah nyiksa dhéwéké kabéh rikala padha neng dalan; saéngga dh�
 ## 16:47
 
 utawa Gusti Allah nyiksa wong-wong mau cuk semendhing (nganti tumpes). [^456] Mangka temen, Pengéranmu Mahawelas, Mahaasih.
-
-[^456]: Miturut sebagéan ahli tapsir, takhawwuf tegesé kahanan wedi.
 
 ## 16:48
 
@@ -8748,8 +7836,6 @@ Lan wong-wong mau nyedhiakna sebagéan sekang rejeki sing wis Ingsun paringna ma
 ## 16:57
 
 Lan wong-wong mau padha netepna anak wadon nggo Gusti Allah. [^457] Mahasuci Penjenengané, lan nggo dhéwéké  apa sing padha dhéwéké senengi (anak lanang).
-
-[^457]: Wong-wong mau ngucap lamon Gusti Allah duwé anak wadon yakuwé malékat-malaékat merga wong-wong mau wadhéh banget maring anak wadon kaya sing kesebut neng ayat sewisé.
 
 ## 16:58
 
@@ -8823,8 +7909,6 @@ Mangka aja pisan-pisan ko padha nganakna sekuthon-sekuthon nggo Gusti Allah. Set
 
 Gusti Allah gawé peumpaman sewiji kawula sing neng ngisor kewasané wong liya, sing ora kewawa nglakoni apa baé, lan wong sing Ingsun paringi rejeki sing apik, banjur dhéwéké nyumbangna (infak) sebagéan rejeki kuwé sidhem-sidheman lan blag-blagan. Padha apa ora sekloroné kuwé? Sekabéhé pengalembana mung kagungané Gusti Allah, ning akéh-akéhé dhéwéké padha ora ngaweruhi. [^458]
 
-[^458]: Maksudé peumpaman kiyé nggo mbantah wong musrik sing madhakna Gusti Allah sing maringi rejeki karo brehala-brehala sing ora bisa ngapa-ngapa.
-
 ## 16:76
 
 Lan Gusti Allah (uga) gawé peumpaman, wong lanang loro sing siji bisu, ora bisa ngapa-apa lan dhéwéké dadi rénggané wong sing nanggung, maring ngendi baé dhéwéké dépréntah (neng wong sing nanggung kuwé), dhéwéké babar pisan ora bisa nekakna sewiji kebecikan. Apa padha wong kuwé karo wong sing préntah mergawé sing adil lan dhéwéké ana neng dalan sing jejeg?
@@ -8853,8 +7937,6 @@ Lan Gusti Allah ndadékna panggonan ngaub nggo ko kabéh sekang apa sing wis Pen
 
 Mangka angger wong-wong kuwé tetep padha mléngos, mangka kawruhana kewajiban sing dépikulna ingatasé sliramu (Muhammad) mung mbutulna (amanaté Gusti Allah) kanthi pertéla (genah). [^459]
 
-[^459]: Maksudé Nabi Muhammad  s.a.w ora bisa awéh tuntunan lan pituduh maring sewiji wong sing njalari wong kuwé dadi precaya.
-
 ## 16:83
 
 Dhéwéké padha ngaweruhi nékmaté Gusti Allah, banjur dhéwéké padha ngingkari lan akéh-akéhé dhéwéké kuwé wong sing padha kapir (ingkar maring Gusti Allah).
@@ -8871,13 +7953,9 @@ Lan angger wong aniaya (dolim) wis weruh siksa, mangka dhéwéké ora olih peng�
 
 Lan angger wong sing nyekuthokna (Gusti Allah) padha weruh sekuthon-sekuthoné, [^460] dhéwéké kabéh ngucap, “Dhuh Pengéran kula sami, tiyang-tiyang niki sekuthon-sekuthoné kula ingkang kriyin kula sami sembah selintuné Penjenengan.” Banjur sekuthoné wong-wong kuwé mertélakna maring dhéwéké kabéh, “Ko kabéh nyata-nyata tukang goroh.”
 
-[^460]: Sing démaksud sekuthon yakuwé apa sing désembah seliyané Gusti Allah utawa sétan sing ajék nyembah maring brehala.
-
 ## 16:87
 
 Lan neng dina kuwé dhéwéké padha mertélakna tundhuk maring Gusti Allah lan ilang kabéh apa sing dhéwéké padha ana-anakna. [^461]
-
-[^461]: Peprecaya lamon Gusti Allah duwé sekuthon lan sekuthon kuwé bisa awéh pitulung (sapangat) maring wong-wong kuwé seliyané Gusti Allah.
 
 ## 16:88
 
@@ -8899,8 +7977,6 @@ Lan leksanakna janji maring Gusti Allah angger ko padha janji lan aja nglanggar 
 
 Lan aja pisan-pisan ko padha dadi kaya wong wadon sing ngudhari lawé (benang)é sing wis détenun kanthi kuwat, dadi padha udhar maning, ko padha ndadékna sumpah (janji)mu srana nggo apus-apus neng antarané ko kabéh, merga anané sewiji golongan sing lewih akéh cacahé tenimbang golongan sing liya. [^462] Gusti Allah mung nguji ko kabéh karo prekara kuwé. Lan mesthi neng dina Kiyamat bakal dégenahna déning Penjenengané maring ko kabéh apa sing gemiyén ko padha persulayakna.
 
-[^462]: Wong-wong Islam sing cacahé ésih semendhing wis nganakna janji sing kuwat karo Nabi Muhammad s.a.w rikala padha weruh wong Quraisy sing cacahé akéh lan pengalamané cukup, banjur metu kepénginan nggo mbatalna janji maring Nabi Muhammad s.a.w. Mangka penggawéyan kuwé délarang déning Gusti Allah.
-
 ## 16:93
 
 Lan angger Gusti Allah ngersakna, mesthi Penjenengané ndadékna ko kabéh umat (mung) sewiji, ning Penjenengané nyasarna sapa sing Penjenengané kersakna lan paring pituduh maring sing Penjenengané kersakna. Ning ko kabéh mesthi arep détakoni ngenani apa sing wis ko padha pergawé.
@@ -8920,8 +7996,6 @@ Apa sing ana neng sisihmu bakal ilang, lan apa sing ana neng sisihé Gusti Allah
 ## 16:97
 
 Sapa wongé sing nglakoni kebagusan, lanang utawa wadon neng sejeroné precaya, mangka mesthi bakal Ingsun paringna maring dhéwéké urip sing apik [^463] lan bakal Ingsun paringi piwales kanthi kanugrahan sing lewih apik sekang apa sing wis dhéwéké padha pergawé.
-
-[^463]: Ayat kiyé nerangna lamon wong lanang lan wong wadon miturut Islam olih ganjaran sing padha lan lakon bagusé kudu débarengi karo precaya.
 
 ## 16:98
 
@@ -8946,8 +8020,6 @@ Dhawuha, “Roh Kudus (Jibril) nurunaken Al-Qur’an kuwé sekang Pengéranmu ka
 ## 16:103
 
 Lan setemené Ingsun ngawuningani lamon wong-wong kuwé padha ngucap, “Setemené Al-Qur’an kuwé mung déwulangna déning sewenéh menungsa maring dhéwéké (Muhammad).” Basané wong sing déarani (mulang Muhammad) déning dhéwéké kabéh kuwé basa ‘Ajam [^464] , mangkané kiyé (Al-Qur’an) nganggo basa Arab sing cetha.
-
-[^464]: Basa ‘Ajam kuwé basa seliyané basa Arab lan uga bisa détegesi basa Arab sing ora apik, merga wong sing déarani mulang Nabi Muhammad s.a.w kuwé udu wong Arab lan mung ngerti semendhing basa Arab.
 
 ## 16:104
 
@@ -8985,8 +8057,6 @@ Lan setemené Pengéranmu (pengayom) tumrap wong sing padha boyong (hijrah) seuw
 
 Lan Gusti Allah wis gawé peumpaman (kanthi) sewiji negari sing gemiyéné aman lan tentrem, rejeki padha teka maring ngonoh pirang-pirang sekang ngendi baé, ning wargané padha ngingkari nékmat-nékmaté Gusti Allah, merga kuwé Gusti Allah nibakna maring wong-wong kuwé bebaya kencot lan wedi [^465] jalaran (déning) apa sing wis padha pergawé.
 
-[^465]: Kencot lan wedi kuwé nibani wong-wong mau kayadéné klambi nutupi awaké dhéwéké kabéh.
-
 ## 16:113
 
 Lan temen, wis teka maring wong-wong mau sewiji utusan sekang (kalangané) dhéwéké kabéh, ning dhéwéké padha nggorohna (utusan kuwé), merga kuwé wong-wong mau détibani siksa lan dhéwéké kuwé wong sing padha aniaya (dolim).
@@ -9011,8 +8081,6 @@ Lan aja pisan-pisan ko padha ngucapna maring apa sing désebut-sebut déning ila
 
 Lan ingatasé wong Yahudi, Ingsun nglarang (ngaramna) apa sing wis Ingsun critakna ganu maring sliramu (Muhammad). [^466] Ingsun ora ngapitunani (dolim) maring wong-wong mau, malah wong kuwé sing padha ngapitunani maring awaké dhéwék.
 
-[^466]: Deleng Al-An’am (6): 146
-
 ## 16:119
 
 Banjur, setemené Pengéranmu (paring ampura maring) maring wong sing nglakoni keluputan merga bodhoné, banjur dhéwéké padha tobat sewisé kuwé lan ndandani (awaké), temen, Pengéranmu sewisé kuwé nyata-nyata Maha Ngampura, Mahaasih.
@@ -9020,8 +8088,6 @@ Banjur, setemené Pengéranmu (paring ampura maring) maring wong sing nglakoni k
 ## 16:120
 
 Temen, Ibrahim kuwé sewiji panutan (sing kena dédadékna tuladha), manut maring Gusti Allah lan hanif [^467] . Lan dhéwéké ora klebu wong musrik (sing nyekuthokna Gusti Allah),
-
-[^467]: Wong sing cekelan maring prekara sing bener lan ora tau ninggalna.
 
 ## 16:121
 
@@ -9039,13 +8105,9 @@ Banjur Ingsun wahyokna maring sliramu (Muhammad), “Melua agamané Ibrahim sing
 
 Setemené (ngormati) dina Setu [^468] mung déwajibna ingatasé wong (Yahudi) sing padha mersulayakna. Lan setemené Pengéranmu mesthi bakal paring putusan neng antarané dhéwéké kabéh neng dina Kiyamat ingatasé apa sing wis padha dhéwéké persulayakna.
 
-[^468]: Ngormati dina Setu yakuwé kanthi ngakéhna ngibadah lan temindak sing bagus, uga ninggalna pegawéan pedinan.
-
 ## 16:125
 
 Ajéka (menungsa) maring dalané Pengéranmu kanthi hikmah [^469] lan piwulangan sing apik, lan padha wawan-wicara karo wong-wong kuwé kanthi cara sing apik. Setemené Pengéranmu, Penjenengané lewih ngawuningani sapa sing kesasar sekang dalan-É lan Penjenengané sing lewih ngawuningani sapa sing olih pituduh.
-
-[^469]: Hikmah yakuwé ucapan sing tegas lan bener sing bisa mbédakna antarané sing bener hak lan sing luput.
 
 ## 16:126
 
@@ -9062,8 +8124,6 @@ Temen, Gusti Allah bareng karo wong sing padha semarah (takwa) lan wong sing ngl
 ## 17:1
 
 Mahasuci (Gusti Allah) sing wis merlampahna kawulané (Muhammad) neng wektu wengi sekang Masjidilharam maring Majidil Aqsa sing wis Ingsun berkahi sekubengé [^470] supaya Ingsun weruhna maring slirané sebagéan sekang tandha-tandha (agungé) Ingsun. Setemené Penjenengané Maha Midhanget, Maha Mriksani.
-
-[^470]: Masjidil Aqsa lan tlatah sekubengé olih berkah sekang Gusti Allah merga temuruné nabi-nabi neng negari kuwé lan merga suburé lemahé.
 
 ## 17:2
 
@@ -9153,8 +8213,6 @@ Aja pisan-pisan ko nganakna sesembahan sing liya sejabané Gusti Allah, mengko k
 
 Lan Pengéranmu wis ndhawuhna supaya ko aja nyembah seliyané Penjenengané lan preyoga gawé bagus maring biyung-rama. Angger salah sijiné utawa loro-loroné butul maring umur tuwa neng sejeroné rumatanmu, aja pisan-pisan ko ngucap maring wong tuwa loromu ucapan “ah” lan ko aja nggentak dhéwéké kabéh, lan ucapna tembung sing bagus. [^471]
 
-[^471]: Ngucapna tembung “ah” maring wong tuwa ora déolihna neng agama apa maning ngucapna tembung utawa temindak maring wong tuwa lewih kasar sekang kuwé.
-
 ## 17:24
 
 Lan temungkulna awakmu maring sekloroné kanthi welas asih lan ucapna, “Dhuh Pengéran kula! Welasana kekalihipun kados déné kiyambeké kekalih sampun mulang kula wonten wekdal (kula teksih) alit.”
@@ -9174,8 +8232,6 @@ Setemené wong-wong sing jobrah kuwé seduluré sétan lan sétan kuwé banget i
 ## 17:28
 
 Lan angger sliramu mléngos sekang wong-wong nggo mekolih kewelasan sekang Pengéranmu sing ko padha arep-arep, mangka ucapna maring wong-wong kuwé ucapan sing alus. [^472]
-
-[^472]: Maksudé angger ko padha ora bisa nglakoni dhawuhé Gusti Allah kaya sing désebut neng ayat 26 mangka ucapna maring wong-wong kuwé ucapan sing apik supayané wong-wong kuwé ora keciwa merga urung olih pitulung sekang ko kabéh. Lan ko padha ngupayakna nggo olih rejeki (rahmat) sekang Pengéranmu, sing marakna ko bisa ngewéhna maring wong-wong kuwé hak-haké.
 
 ## 17:29
 
@@ -9197,10 +8253,6 @@ Lan aja pisan-pisan ko padha méreki royal (jina); (royal) kuwé temen sewiji pe
 
 Lan aja pisan-pisan ko maténi wong sing délarang neng Gusti Allah (maténi wong kuwé), kejaba kanthi sewiji (alésan) sing bener. [^473] Lan sapa wongé sing dépaténi kanthi aniaya (dolim), mangka temen, Ingsun wis paring kewenangan [^474]  maring waliné, ning waliné kuwé aja ngléwati wates neng (urusan) pepaténan. Setemené dhéwéké kuwé wong sing olih pitulungan.
 
-[^473]: Deleng catetan al-An’am (6): 15
-
-[^474]: Kekuwasan neng kéné yakuwé ahli waris sing mati utawa penguwasa sing nuntut Qisas utawa nerima diyat. Deleng Al-Baqoroh ayat 178 lan An-nisa ayat 92
-
 ## 17:34
 
 Lan aja pisan-pisan ko méreki bandhané bocah yatim kejaba kanthi cara sing lewih apik (migunani) nganti bocah kuwé diwasa lan tetepana janji, merga janji kuwé mesthi déjaluki tanggungjawabé.
@@ -9220,8 +8272,6 @@ Lan aja pisan-pisan ko mlaku neng ndhuwur bumi kanthi gemedhé, merga setemené 
 ## 17:38
 
 Kabéh kuwé [^475] kejahatané banget déwadhéhi neng sisihé Pengéranmu.
-
-[^475]: Kabéh larangan sing désebut neng ayat 22, 23, 26, 29, 31, 32, 33, 34, 36, lan 37 surat kiyé.
 
 ## 17:39
 
@@ -9295,13 +8345,9 @@ Lan Pengéranmu lewih ngawuningani sapa sing neng langit lan neng bumi. Lan teme
 
 Dhawuha (Muhammad), “Undangen dhéwé-ké kabéh sing ko padha anggep (sembahan) seliyané Gusti Allah, [^476] dhéwéké ora padha kewasa ngilangna bebaya sekang ko kabéh lan (uga) ora bisa ngowahi (bebaya kuwé).”
 
-[^476]: Apa sing déucapna neng wong-wong kuwé minangka pengéran yakuwé brehala, malaékat, jin, lan liya-liyané.
-
 ## 17:57
 
 Wong-wong sing dhéwéké padha sebut-sebut kuwé, dhéwéké pribadi padha nggoléti dalan maring Pengéran [^477] sapa neng antarané wong kuwé sing lewih keperek (maring Gusti Allah). Wong-wong mau padha ngarep-arep kewelasané Penjenengané lan wedi maring siksané Penjenengané. Temen, siksané Pengéranmu kuwé sewiji-wiji sing (kudu) déwedéni.”
-
-[^477]: Angger Nabi Muhammad s.a.w nganti déurak neng wong-wong Mekah mesthi dhéwéké padha ora arep suwé urip neng dunya, lan Gusti Allah bakal numpes wong-wong Mekah kuwé. Boyongé Nabi Muhammad s.a.w maring Medinah udu merga urakané wong-wong Quraisy, ning mung merga dhawuhé Gusti Allah.
 
 ## 17:58
 
@@ -9314,8 +8360,6 @@ Lan ora nana sing ngalang-alangi Ingsun ngirimna (maring ko kabéh) tandha-tandh
 ## 17:60
 
 Lan (élinga) rikala Ingsun wahyokna maring sliramu, “Temen, (ilmuné) Pengéranmu nglingkupi sekabéhé menungsa.” Lan Ingsun ora ndadékna impén [^478] sing wis Ingsun weruhna maring sliramu, kejaba dadi ujian nggo menungsa lan (mengkana uga) wit sing désupatani (zaqqum) neng Al-Qur’an. Lan Ingsun medén-medéni wong-wong mau, ning sing mengkana kuwé mung nambahi gedhé durakané dhéwéké kabéh.
-
-[^478]: Ngimpi kuwé terjemah sekang tembung Ar-Ru’ya sing démaksud ayat kiyé yakuwé ngimpi bab perang Badar sing déalami Rasulullah s.a.w seurungé kedadéané Perang Badar. Uga akéh ahli tapsir nerjemahna tembung Ar-Ru’ya karo tembung peningal sing tegesé, peningalan sing déalami Rasulullah s.a.w rikala Isra’ lan Mi’raj.
 
 ## 17:61
 
@@ -9381,19 +8425,13 @@ Angger mengkana, mesthi Ingsun rasakna maring sliramu (siksa) tikel pindho neng 
 
 Lan temen, wong-wong kuwé méh baé gawé sliramu (Muhammad) kemrungsung neng negari (Mekah) merga sliramu kudu metu sekang negari kuwé, lan angger kedadén sing kaya kuwé, mesthi semburi-kérimu wong-wong mau ora bakal manggon (neng kana), kejaba mung sedhéla thok. [^479]
 
-[^479]: Angger nganti kedadéan Nabi Muhammad s.a.w detundhung déning wong Mekah, mesthiné dhéwéké kabéh ora bakal suwé urip neng dunya, lan Gusti Allah arep numpes dhéwéké kabéh. Boyonge  Nabi Muhammad s.a.w maring Medinah udu merga détundhung déning kaum Quraysi, ning merga préntahé Gusti Allah.
-
 ## 17:77
 
 (Sing mengkana kuwé) dadi ketetepan tumrap para utusané Ingsun sing Ingsun utus seurungé sliramu, [^480] lan sliramu ora bakal nemokna owah-owahan ingatasé ketetepané Ingsun.
 
-[^480]: Maksudé saben-saben umat sing ngurak Rasul mesti arep déancurna déning Gusti Allah. Kaya kuwé sunnah (ketetepané) Gusti Allah swt.
-
 ## 17:78
 
 Leksanakna sembayang kawit lingsiré srengéngé butul petengé wengi lan (leksanakna uga sembayang) Subuh. [^481]  Temen, sembayang subuh kuwé désekséni (déning malaékat).
-
-[^481]: Ayat kiyé nerangna wektu sembayang sing lima. Lingsiré srengéngé nggo wektu sembayang Zuhur lan Asar, petengé wengi nggo wektu Magrib, Isya, lan Subuh.
 
 ## 17:79
 
@@ -9402,8 +8440,6 @@ Lan neng sebagéané wengi, lakonana sembayang tahajud (minangka sewiji ngibadah
 ## 17:80
 
 Lan dhawuha (Muhammad), dhuh Pengéran kula, mugi Penjenengan lebetaken kula dhateng panggénan mlebet ingkang leres lan mugi Penjenengan medalaken (ugi) kula dhateng panggénan medal ingkang leres lan paringana kula saking sisih Penjenengan kekuwasan ingkang saged nulungi (kula). [^482]
-
-[^482]: Njaluk maring Gusti Allah supayané awaké dhéwék kabéh mlebu maring ngibadah lan rampung sekang kelawan niyat sing apik lan iklas lan bresih sekang riya lan sekang apa baé sing ngrusak ganjaran. Ayat kiyé uga ngisaratna maring Nabi supayané hijrah sekang Mekah maring Medinah. Lan uga ana sing napsirna njaluk maring Gusti Allah supayané dhéwék kabéh mlebu kubur kanthi apik lan uga metu wektu dina berbangkit kanthi apik.
 
 ## 17:81
 
@@ -9489,8 +8525,6 @@ Dhawuha (Muhammad), “Sekirané ko padha ngewasani gudhang kewelasané (rahmat)
 
 Lan temen, Ingsun wis maringna maring Musa mukjizat sanga (cacahé) sing nyata, [^483] mangka takokna maring Bani Israil, rikala Musa teka maring wong-wong mau banjur Fir’aun ngucap maring dhéwéké (Musa), “Hé Musa! Setemené inyong temen-temen  ngira ko kenang sihir.”
 
-[^483]: Mukjizat sing sanga yakuwé teken, tangan, walang, tuma, kodok, getih, angin topan, segara, lan gunung (Sinai).
-
 ## 17:102
 
 ”Dhéwéké (Musa) njawab, “Temen, ko wis ngaweruhi, ora nana sing nurunaken (mukjijat-mukjijat) kuwé kejaba Pengéran (sing ngupakara) langit lan bumi minangka bukti-bukti sing nyata; lan temen, inyong nyata-nyata ngira ko bakal ajur, hé Fir’aun.”
@@ -9535,8 +8569,6 @@ Lan dhawuha, “Sekabéh pengalembana kagungané Gusti Allah sing ora kagungan p
 
 Sekabéh pengalembana kagungané Gusti Allah sing wis nurunaken Kitab (Al-Qur’an) maring kawula-Né lan Penjenengané ora ndadékna (kitab kuwé) ménggok, [^484]
 
-[^484]: Ora nana neng njero Al-Qur’an teges sing lawanan lan ora nana sing nyimpang sekang prekara sing bener.
-
 ## 18:2
 
 minangka tuntunan sing jejeg, nggo ngémutna anané siksa sing banget larané sekang sisihé Penjenengané lan awéh werta bebungah maring wong-wong mukmin sing nglakoni kebecikan lamon dhéwéké bakal padha nampa piwales sing apik.
@@ -9569,8 +8601,6 @@ Lan setemené Ingsun temen-temen  bakal ndadékna (uga) apa sing sendhuwuré (bu
 
 Apa ko padha nyana lamon wong sing manggon neng gua, lan (sing nduwéni) raqim [^485] kuwé, dhéwéké kabéh klebu tandha-tandha (agungé) Ingsun sing gawé gumun?
 
-[^485]: Raqim, sebagéan ahli tapsir negesna jenengé asu lan sebagéan negesna watu sing ana tulisané.
-
 ## 18:10
 
 (Élinga) rikala wong-wong lanang enom kuwé padha umpetan maring njero gua banjur dhéwéké padha nyenyuwun, “Dhuh Pengéran kula, mugi paring kewelasan dhateng kula sedaya saking sisihipun Penjenengan lan mugi nyempurnakaken pituduh ingkang jejeg kanggé kula wonten urusan kula sami.”
@@ -9579,13 +8609,9 @@ Apa ko padha nyana lamon wong sing manggon neng gua, lan (sing nduwéni) raqim [
 
 Mangka Ingsun tutup kupingé dhéwéké kabéh neng njero gua kuwé [^486] nganti pirang-pirang taun,
 
-[^486]: Gusti Allah nurokna wong-wong nom kuwé suwéné 309 taun qomariyah neng njero guwa. Tiliki ayat 25 surat kiyé, nganti wong-wong kuwé ora bisa détangékna déning sewara apa baé.
-
 ## 18:12
 
 banjur Ingsun tangékna wong-wong kuwé, supayané Ingsun ngawuningani, endi neng antarané golongan loro kuwé [^487]  sing paling pas olihé ngétung sepira suwéné dhéwéké padha manggon (neng guwa).
-
-[^487]: Golongan loro kuwé wong-wong enom kuwé lan sing pesulayan ngenani sepira suwéné olihé manggon neng guwa.
 
 ## 18:13
 
@@ -9595,8 +8621,6 @@ Ingsun nyritakna maring sliramu (Muhammad) riwayate wong-wong mau kanthi sebener
 
 Lan Ingsun teguhna atiné wong-wong mau rikala dhéwéké padha ngadeg [^488] banjur ngucap, “Pengérané inyong kabéh yakuwé Pengérané langit lan bumi; inyong kabéh ora nyebut sembahan seliyané Penjenengané. Temen, angger inyong padha nglakoni sing kaya kuwé, temtu inyong kabéh wis ngucapna tembung sing adoh banget sekang bebener.”
 
-[^488]: Menyat lan ngadep Raja Dikyanus sing dolim lan sombong.
-
 ## 18:15
 
 Dhéwéké kuwé kaumé inyong kabéh sing wis ndadékna sembahan-sembahan (nggo désembah) seliyané Penjenengané. Kenangapa dhéwéké ora padha mertélakna alesan sing genah (ngenani peprecayaé)? Mangka sapa sing lewih aniaya (dolim) tenimbang wong sing ngreka apus-apus maring Gusti Allah?
@@ -9604,8 +8628,6 @@ Dhéwéké kuwé kaumé inyong kabéh sing wis ndadékna sembahan-sembahan (nggo
 ## 18:16
 
 Lan angger ko padha ninggalna wong-wong lan apa sing dhéwéké padha sembah seliyané Gusti Allah, mangka goléta nggon umpetan mau neng njero guwa kuwé, mesthi Pengéranmu bakal nglubérna sebagéan kewelasan-É maring ko kabéh lan nyedhiakna sewiji-wiji sing migunani tumrapmu neng urusané ko kabéh. [^489]
-
-[^489]: Ucapan kiyé antarané wong-wong kuwé dhéwék merga anané wisik (ilham) sekang Gusti Allah
 
 ## 18:17
 
@@ -9627,13 +8649,9 @@ Setemené angger wong-wong padha ngaweruhi panggonanmu, mesthi dhéwéké bakal 
 
 Lan kaya kuwé (uga) Ingsun ngawéruhna (menungsa) maring wong-wong enom kuwé, supayané (menungsa) padha ngerti, lamon janjiné Gusti Allah mesthi bener, lan (tekané) dina Kiyamat ora nana kemamang-an. Rikala wong-wong padha pesulayan neng urusané, [^490] banjur ana sing ngucap, “Degna baé gedhong neng ndhuwuré (guwané) wong-wong enom kuwé, Pengérané wong-wong enom kuwé lewih priksa kahanané dhéwéké kabéh.” Wong sing nyekel kewasa ingatasé urusané wong akéh kuwé ngucap, “Inyong kabéh mesthi bakal ngedegna sewiji umah pemujan neng ndhuwuré (guwa kuwé).”
 
-[^490]: Sing dadi pesulayan yakuwé bab dina Kiyamat, apa arep kedadén utawa ora lan apa iya menungsa olihé détangékna neng dina Kiyamat karo jasad lan rohé utawa rohé thok. Mangka Gusti Allah nemokna wong-wong mau karo “ahli guwa” neng crita kiyé nggo nggenahna lamon dina Kiyamat mesthi bakal teka lan menungsa olihé détangékna neng dina Kiyamat kuwé raga karo rohé.
-
 ## 18:22
 
 Mengko (ana wong sing bakal) ngucap, [^491] “(Cacahé wong enom kuwé) telu, sing kapat asuné,” lan (sing liyané) ngucap, “(Cacahé dhéwéké) lima, sing kanem asuné,” minangka pengira-ira ingatasé (prekara) sing gaib; lan (sing liyané) ngucap, “(Cacahé dhéwéké) pitu, sing kewolu asuné.” Dhawuha (Muhammad), “Pengéranku lewih ngawuningani cacahé dhéwéké, ora nana sing ngerti (cacahé) dhéwéké kejaba semendhing.” Merga ku-wé aja pisan-pisan sliramu (Muhammad) bantah-bantahan ngenani prekara wong-wong kuwé, kejaba bantah-bantahan neng lair baé lan aja pisan-pisan sliramu nakokna ngenani dhéwéké (wong-wong enom kuwé) maring sapa baé.
-
-[^491]: Ahli Kitab lan liyané neng jamané Nabi Muhammad s.a.w.
 
 ## 18:23
 
@@ -9642,8 +8660,6 @@ Lan aja pisan-pisan sliramu ngucapna ingatasé sewiji-wiji, “Inyong mesthi bak
 ## 18:24
 
 kejaba (karo ngucapna), “Insya Allah.” [^492] Lan élinga maring Pengéranmu rikala sliramu kelalén lan dhawuha, “Moga-moga Pengéranku bakal paring pituduh maring awak inyong supaya inyong sing lewih pérek (beneré) tenimbang kiyé.”
-
-[^492]: Miturut riwayat, ana wong Quraisy sing takon maring Kanjeng Nabi Muhammad s.a.w ngenani roh, critané Ashabul Kahfi (wong sing manggon neng guwa) lan critané Zulkarnaen banjur kiyambeké njawab, tekaa ngésuk maring sliraku supayané tek critakna maring ko. Lan kiyambeké ora ngendika Insya Allah (tegesé angger Gusti Allah ngersakna). Ning nyatané ngasi dina ésuké wahyu ora temurun kanggo nyritakna prekara-prekara mau lan Kanjeng Nabi ora téyéng njawab. Mula temurun ayat 23-24 kuwé ndhuwur, dadi piwulang maring Kanjeng Nabi. Gusti Allah uga ngémutna lamon Kanjeng Nabi kesupén nyebut Insya Allah kudu gagiyan nyebut bar-baré.
 
 ## 18:25
 
@@ -9676,10 +8692,6 @@ Wong-wong mau sing olih suwarga Ngaden (‘Adn) sing neng ngisoré mili bengawan
 ## 18:32
 
 Lan paringna sliramu (Muhammad) maring wong-wong kuwé [^493] sewiji peumpaman, wong lanang loro, [^494] sing siji (sing kapir) Ingsun paringi kebon anggur loro lan Ingsun ubengi kebon loro kuwé karo wit-wit korma lan neng antarané loroné (kebon mau) Ingsun gawékna pegagan.
-
-[^493]: Maring wong mukmin lan wong kapir
-
-[^494]: Wong Yahudi loro sing siji mukmin lan sing siji kapir.
 
 ## 18:33
 
@@ -9813,8 +8825,6 @@ Kiyambeké (Musa) ngucap, “Kuwé (panggonan) sing dhéwék padha goléti.” B
 
 Banjur kiyambeké sekloron ketemu karo sewiji kawula neng antarané kawula-kawula Ingsun, sing wis Ingsun paringi kewelasan (rahmat) maring dhéwéké sekang sisihé Ingsun, lan wis Ingsun paringi ilmu sekang sisihé Ingsun. [^495]
 
-[^495]: Miturut ahli tapsir, miturut hadis, kawula neng kéné yakuwé Khidir, lan sing démaksud rahmat neng kéné yakuwé wahyu lan kenabian. Lan sing démaksud karo ilmu yakuwé ngeneni prekara  sing gaib kaya sing arep déterangna neng ayat seterusé.
-
 ## 18:66
 
 Musa ngucap maring wong mau, “Apa inyong olih ngetutna sampéyan supayané sampéyan mulang maring inyong (ilmu sing bener) sing wis déwulangna maring sampéyan (minangka dadi) pituduh?”
@@ -9899,8 +8909,6 @@ Mangka kiyambeké ngambah sewiji dalan.
 
 Nganti rikala kiyambeké wis butul maring panggonané srengéngé surup, [^496] kiyambeké weruh (srengéngé) surup maring njero segara sing beleté ireng, lan neng kana kiyambeké ketemu sewiji kaum (sing ora duwé agama). Ingsun dhawuh, “Hé Zulkarnaén! Sliramu wenang ngukum utawané gawé bagus (ajék precaya) maring wong-wong kuwé.”
 
-[^496]: Butul maring pinggir segara sisih kulon, neng nggon Zulkarnaén weruh srengéngé lagi surup.
-
 ## 18:87
 
 Kiyambeké (Zulkarnaén) ngucap, “Sapa wongé nglakoni aniaya (dolim), inyong bakal ngukum wong kuwé, banjur dhéwéké bakal débalékna maring Pengérané, banjur Pengéran paring siksa kanthi siksa sing banget kerasé.
@@ -9917,8 +8925,6 @@ Banjur kiyambeké ngambah sewiji dalan (liyané).
 
 Nganti rikala kiyambeké butul maring panggonan mlethéké srengéngé (prenah wétan) kiyambeké menangi (srengéngé) mencorong sendhuwuré kaum sing Ingsun ora gawé aub-aub nggo dhéwéké kabéh sekang (soroté srengéngé) [^497] kuwé,
 
-[^497]: Miturut sebagéan juru tapsirr, golongan sing détemoni Zulkarnaén kuwé umat sing mlarat.
-
 ## 18:91
 
 mengkana kuwé, lan setemené Ingsun ngawuningani samubarang kabéh sing ana neng kiyambeké (Zulkarnaén).
@@ -9931,13 +8937,9 @@ Banjur kiyambeké ngambah sewiji dalan (liyané maning).
 
 Nganti rikala kiyambeké butul neng antarané gunung loro, kiyambeké menangi neng semburiné (gunung kuwé) sewiji kaum sing méh ora mahami pewicaran. [^498]
 
-[^498]: Wong-wong kuwé ora téyéng mahami basané wong liya, jalaran basané adoh banget bédané sekang basa sing liya, lan wong-wong kuwé ora téyéng nerangna maksudé merga kurang cerdas.
-
 ## 18:94
 
 Wong-wong kuwé ngucap, “Hé Zulkarnaén! Temen, Yakjuj lan Makjuj [^499] kuwé (mahluk sing) gawé kerusakan neng bumi, mangka apa désekolihi inyong padha ngupahi sampéyan supayané sampéyan nggawékna pager pengaling-aling antarané inyong kabéh lan dhéwéké (Yakjuj lan Makjuj)?”
-
-[^499]: Yakjuj lan Makjuj kuwé bangsa loro sing gawé rusak neng bumi.
 
 ## 18:95
 
@@ -9982,8 +8984,6 @@ Dhawuha (Muhammad), “Apa perlu Ingsun paringi weruh maring sliramu wong sing p
 ## 18:105
 
 Wong-wong kuwé sing padha ngingkari ayat-ayat-É Pengérané lan (ora precaya) maring (bakalé) sapatemon  karo Penjenengané. [^500] Mangka muspra penggawéané (amalé) dhéwéké kabéh, lan Ingsun ora paring penimbangan ingatasé (amalé) wong-wong mau neng dina Kiyamat.
-
-[^500]: Ora precaya maring anané dina Kiyamat
 
 ## 18:106
 
@@ -10052,10 +9052,6 @@ Mangka dhéwéké metu sekang panggonan semedi (mihrab) nuju maring kaumé, banj
 ## 19:12
 
 “Hé Yahya! Jikoten (sinaoni) [^501] Kitab (Taurat) kuwé temenan.” Lan Ingsun paring kawruh (hikmah) maring dhéwéké (Yahya) [^502] awit dhéwéké ésih bocah,
-
-[^501]: Sinaoni Taurat kuwé, ngamalna isiné lan butulna maring umatmu.
-
-[^502]: Pemahaman Taurat lan nemen ngudi kawruh  agama.
 
 ## 19:13
 
@@ -10169,13 +9165,9 @@ Lan wéhna maring dhéwéké kabéh pengéling-éling (Muhammad) ngenani dina pe
 
 Setemené Ingsun sing marisi bumi [^503] lan kabéh sing ana neng sendhuwuré, lan mung maring Ingsun, dhéwéké kabéh padha débalékna.
 
-[^503]: Sewisé sekabéhé ngalam musnah, mangka mung Gusti Allah sing langgeng.
-
 ## 19:41
 
 Lan critakna (Muhammad) riwayat-É Ibrahim neng njeroné Kitab (Al-Qur\`an) kiyé. Setemené dhéwéké wong sing banget mbenerna, [^504] (lan) sewiji Nabi.
-
-[^504]: Nabi Ibrahim a.s. yakuwé Nabi sing banget gelisé olihé mbeneraken kabéh prekara sing gaib sing teka sekang Gusti Allah.
 
 ## 19:42
 
@@ -10232,8 +9224,6 @@ Lan ceritakna (Muhammad) riwayaté Ismail neng njeroné kitab (Al-Qur\`an). Dhé
 ## 19:55
 
 Lan dhéwéké préntah (maring) kulawargané [^505] supayané (ngleksanakna) sembayang lan (nglunasi) jakat, lan dhéwéké sewijiné wong sing derenani neng sisihé Pengérané.
-
-[^505]: Sebagéan ahli tapsir duwé penemu lamon sing démaksud “Ahlahu” yakuwé kulawargané, lan sebagéan duwé penemu umaté.
 
 ## 19:56
 
@@ -10315,8 +9305,6 @@ Lan sepira akéhé umat (sing mbangkang) sing wis Ingsun tumpes seurungé wong-w
 
 Dhawuha (Muhammad), “Sapa wongé ana neng sejeroné kesasar, mangka sekersané Pengéran Sing Mahaasih ndawakna (wektu) tumrap dhéwéké, [^506] saéngga angger dhéwéké wis weruh apa sing deancamna maring dhéwéké kabéh, padha uga bendu utawa Kiyamat, mangka wong-wong mau bakal ngaweruhi sapa sing lewih ala drajaté, lan lewih ringkih wadyabalané.”
 
-[^506]: Ndawakna umur lan ngejorna wong-wong kesasar mau urip seneng-seneng.
-
 ## 19:76
 
 Lan Gusti Allah bakal nambahi pituduh maring wong-wong sing wis olih pituduh. Lan laku becik sing langgeng kuwé lewih apik ganjarané neng sisihé Pengéranmu lan lewih apik wekasané.
@@ -10336,8 +9324,6 @@ Babar pisan ora! Ingsun bakal nyathet apa sing dhéwéké ucapna, lan Ingsun bak
 ## 19:80
 
 lan Ingsun bakal marisi apa sing dhéwéké ucapna kuwé, [^507] lan dhéwéké bakal teka maring Ingsun dhéwékan.
-
-[^507]: Gusti Allah bakal njikot maring bandha lan anak-anaké, nganti dhéwéké nemoni Gusti Allah dhéwékan.
 
 ## 19:81
 
@@ -10366,8 +9352,6 @@ lan Ingsun bakal nggiring wong-wong sing padha duraka maring neraka Jahanam neng
 ## 19:87
 
 Dhéwéké padha ora duwé hak olih pitulungan (sapangat) kejaba wong sing wis gawé janjian neng sisihé (Gusti Allah) Sing Mahaasih. [^508]
-
-[^508]: “Nganakna janjian karo Gusti Allah” yakuwé nglakoni sekabéh préntahé Gusti Allah kanthi precaya lan takwa maring Penjenengané.
 
 ## 19:88
 
@@ -10433,8 +9417,6 @@ Déturunaken sekang (Gusti Allah) sing ndadekaken bumi lan langit sing dhuwur.
 
 (yakuwé) Sing Mahaasih, sing jumeneng neng ndhuwuré ‘Arsy. [^509]
 
-[^509]: Sipaté Gusti Allah sing wajib Inyong kabéh precayai, cocog karo agungé Gusti Allah lan sucine
-
 ## 20:6
 
 Kagungan Penjenengané apa sing ana neng langit, apa sing ana neng bumi, apa sing ana neng antarané sekaroné, lan apa sing ana neng ngisoré lemah.
@@ -10442,8 +9424,6 @@ Kagungan Penjenengané apa sing ana neng langit, apa sing ana neng bumi, apa sin
 ## 20:7
 
 Lan angger ko nyerokna pengucapmu, temen, Penjenengané ngawuningani wewadi lan sing lewih keumpet. [^510]
-
-[^510]: Maksudé ayat kiyé yakuwé ora perlu nyerokna sewara rikala nyenyuwun merga Gusti Allah midhanget donga senajan déucapna kanthi sewara lirih.
 
 ## 20:8
 
@@ -10517,8 +9497,6 @@ Mangkata (tekani) maring Fir’aun; dhéwéké temen-temen wis ngliwati wates.�
 
 Dhéwéké (Musa) matur, “Dhuh Pengéran kula, mugi (Penjenengan) jembaraken dhadha kula, [^511]
 
-[^511]: Nabi Musa nyuwun maring Gusti Allah supayané dhadhané dejembarna nggo ngadhepi Fir’aun sing kewentar dadi raja sing kejem.
-
 ## 20:26
 
 lan nggampilaken nggé kula urusané kula,
@@ -10575,15 +9553,9 @@ Lan temen, Ingsun wis paring nékmat maring sliramu neng wektu liya (seurungé k
 
 (yakuwé), delahen dhéwéké (Musa) neng njero pethi banjur kelikna dhéwéké maring bengawan (Nil), banjur jorna (iliné) bengawan kuwé nggawa dhéwéké maring pinggir, dhéwéké bakal déjikot déning (Fir’aun) mungsuh Ingsun lan mungsuhé dhéwéké. Ingsun wis nglubérna maring sliramu welas asih sing teka sekang Ingsun, [^512] lan supayané sliramu derumat neng ngisor pengawat-awatane Ingsun,
 
-[^512]: Saben wong sing nyawang Nabi Musa a.s. bakal krasa melas maring dhéwéké.
-
 ## 20:40
 
 (yakuwé) rikala sedulur wadonmu mlaku, banjur dhéwéké ngucap (maring kulawargané Fir’aun), “Apa inyong olih nidhokna maring ko kabéh wong sing bakal ngrumat dhéwéké?” Mangka Ingsun mbalékna sliramu maring biyungmu, supayané seneng atiné lan ora nelangsa. Lan sliramu nglakon maténi sijiné wong, [^513] banjur Ingsun slametna sliramu sekang reribed (sing gedhé) lan Ingsun wis paring coba maring sliramu kanthi pirang-pirang coba (sing abot), banjur sliramu manggon pirang-pirang taun neng antarané warga Madyan, [^514] banjur sliramu, hé Musa, teka miturut wektu sing détetepna,
-
-[^513]: Sing dépaténi yakuwé sewijiné wong bangsa Qibti sing lagi gelut karo Bani Israil kayadéné sing deriwayatna neng njeroné surat al-Qasas (28) : 15.
-
-[^514]: Nabi Musa a.s. teka maring negari Madyan nggo mlayu, neng kana dhéwéké dejodhokna déning Nabi Syuaib a.s. Karo salah sijiné anak wadoné lan netep pirang-pirang taun lawasé.
 
 ## 20:41
 
@@ -10613,8 +9585,6 @@ Penjenengané (Gusti Allah) ngendika, “Aja pisan-pisan sliramu sekloron kewati
 
 Mangka padha mangkata sliramu sekloron maring dhéwéké (Fir’aun) lan ucapna, “Setemené inyong sekloron kiyé utusané Pengéranmu, mangka culna Bani Israil bareng inyong, lan ko aja nyiksa wong-wong kuwé. [^515] Temen, inyong padha teka maring ko kanthi nggawa bukti (ingatasé kerasulané inyong sekloron) sekang Pengéranmu. Lan keslametan kuwé delubérna maring wong sing padha nurut maring pituduh.
 
-[^515]: Bani Israil, wektu dhéwéké padha neng Mesir dadi budhaké Fir’aun. Wong-wong kuwé depaksa kerja ngedegna bangunan-bangunan sing gedhé lan kota-kota. Mangka Nabi Musa njaluk maring Fir’aun supayané wong-wong mau débébasna.
-
 ## 20:48
 
 Temen, wis déwahyokna maring inyong sekloron, lamon siksa kuwé (détibakna) maring sapa baé sing nggorohna (piwulang agama sing inyong gawa) lan mléngos (ora merdulikna).”
@@ -10626,8 +9596,6 @@ Dhéwéké (Fir\`aun) ngucap, “Sapa Pengérané ko sekloron, hé Musa?”
 ## 20:50
 
 Dhéwéké (Musa) semaur, “Pengérané inyong sekloron yakuwé (Pengéran) sing wis paring rupa kedadéan maring samubarang kabéh, banjur maringi dhéwéké pitudhuh.” [^516]
-
-[^516]: Paring akal, insting (naluri) lan kodrat gawan nggo nerusna uripé dhéwék-dhéwék.
 
 ## 20:51
 
@@ -10652,8 +9620,6 @@ Sekang kuwé (lemah) Ingsun nyiptakna ko kabéh lan maring kuwé (lemah) Ingsun 
 ## 20:56
 
 Lan temen, Ingsun wis mertélakna maring dhéwéké (Fir’aun) tandha-tandha (agungé) Ingsun sekabéhané, [^517] nyatané dhéwéké nggorohna lan sungkan (nampa bebener).
-
-[^517]: Sing démaksud tandha-tandha neng kéné yakuwé tandha-tandha dadi kenabiné Musa a.s. Neng ketemuné Nabi Musa a.s. karo Fir’aun kiyé, mung deketokna nembé loro mukjijat, yakuwé teken Nabi Musa a.s. dadi ula lan tangané dadi putih mencorong.
 
 ## 20:57
 
@@ -10739,8 +9705,6 @@ Ning sapa wongé sing teka maring Penjenengané neng kahanan precaya, lan nyata-
 
 Lan temen, wis Ingsun wahyokna maring Musa, “Padha mangkata bareng kawula-kawulané Ingsun (Bani Israil) wektu mbengi lan gebugen (gawékna) nggo dhéwéké kabéh dalan sing garing neng segara kuwé, [^518] (sliramu) ora perlu wedi bakal kesusul lan ora perlu kewatir (bakal kelelep).”
 
-[^518]: Nggebug segara kuwé karo teken. Waca Asy-Syu\`ara (26) : 63.
-
 ## 20:78
 
 Banjur Fir’aun karo wadyabalané ngoyok wong-wong mau (Musa lan Bani Israil), ning wong-wong kuwé (Fie’aun sebalane) padha degulung ombak segara sing nglelepna dhéwéké kabéh.
@@ -10781,13 +9745,9 @@ Banjur Musa balik maring wargané kanthi jéngkél lan susah atiné. Dhéwéké 
 
 Wong-wong kuwé ngucap, “Inyong kabéh ora nerak janjimu nganggo karepku dhéwék, ning inyong kabéh dekongkon nggawa momotan abot sekang (rupa) pepaésé wargané (Fir’aun) kuwé, banjur inyong padha mbalangna kuwé (maring njero geni), lan mengkana uga Samiri mbalangna, [^519]
 
-[^519]: Wong-wong mau dékongkon nggawa pepaés sekang emas duwéké wong-wong Mesir, banjur déning Samiri dépréntah supayané pepaés kuwé debalangna maring geni sing wis deurubna neng njeroné sewijiné bolongan nggo dédadékna reca wujudé pedhét (anak sapi). Banjur wong-wong kuwé mbalangna lan depeloni uga déning Samiri.
-
 ## 20:88
 
 banjur (sekang bolongan geni kuwé) dhéwéké (Samiri) ngetokna (reca) anak sapi (pedhét) sing ana awaké lan bisa moni [^520] nggo wong-wong kuwé, mangka dhéwéké padha ngucap, “Kiyé Pengéranmu lan Pengérané Musa, tapi dhéwéké (Musa) wis kelalén.”
-
-[^520]: Waca cathetan Al-A\`raf (7) : 148.
 
 ## 20:89
 
@@ -10821,13 +9781,9 @@ Dhéwéké (Musa) ngucap, “Apa sing nyurung ko (nglakoni kaya kuwé), hé Sami
 
 Dhéwéké (Samiri) semaur, “Inyong ngaweruhi sewiji-wiji sing ora dekaweruhi déning wong-wong kuwé, dadi inyong njikot lemah segegem (lemah sekang) tilasé utusan, [^521] banjur mbalangna kuwé (maring geni kuwé), mengkana kuwé (hawa) nepsuku mbujuk inyong.”
 
-[^521]: Sing démaksud “tilasé utusan” neng kéné yakuwé piwulang-piwulangé. Miturut maring paham kiyé, Samiri njikot sebagéan wulangané Musa banjur debuwang wulangan-wulangan kuwé, dadiné dhéwéké kesasar. Miturut sebagéan ahli tapsir, sing démaksud “tilasé utusan” yakuwé tilas tlapak sikilé jarané Jibril a.s, tegesé Samiri njikot segegem lemah sekang tilas tlapak jaran kuwé banjur debalangna maring njeroné tosan sing wis deremuk dadiné tosan kuwé mujud pedhét (anak sapi) sing bisa moni.
-
 ## 20:97
 
 Dhéwéké (Musa) ngucap, “Nganah ko lunga! Setemené neng sejeroné penguripan (neng dunya) ko (mung bisa) ngucapna, ‘Aja nyénggol (inyong).’ [^522] Lan ko mesthi olih (ukuman) sing wis déjanjékna (neng ahkerat) sing ora bakal bisa ko indhani, lan delengen sesembahanmu kuwé (reca pedhét) sing ko tetep sembah dhéwéké. Inyong kabéh mesthi bakal ngobong kuwé, banjur temen, inyong padha bakal ngawur-awur (awuné) maring njeroné segara (mambrah-mambrah).
-
-[^522]: Supaya Samiri urip mencil, minangka ukuman neng dunya. Lan minangka ukuman neng akhérat, dhéwéké bakal dédelah neng neraka.
 
 ## 20:98
 
@@ -10849,8 +9805,6 @@ dhéwéké kabéh langgeng neng kahanan kuwé. Lan banget alané renggan dosa ku
 
 neng dina (Kiyamat) slomprét (sangkakala) desemprong (sing ping pindhoné) [^523] lan neng dina kuwé Ingsun kumpulna wong-wong sing padha dosa kanthi (rai) sing biru surem,
 
-[^523]: Desemprongé slomprét (sangkakala) sing ping pindhoné, yakuwé semprongan nggo nangékna menungsa sekang kuburané utawa nguripna maning.
-
 ## 20:103
 
 wong-wong kuwé padha krisikan siji lan sijiné, “Ko manggon (neng dunya) ora lewih sekang sepuluh (dina).”
@@ -10858,8 +9812,6 @@ wong-wong kuwé padha krisikan siji lan sijiné, “Ko manggon (neng dunya) ora 
 ## 20:104
 
 Ingsun lewih ngawuningani apa sing bakal dhéwéké padha omongna, rikala wong sing paling jejeg dalané [^524] ngucap, “Ko manggon (neng dunya) ora lewih sekang sedina thok.”
-
-[^524]: Wong sing jejeg pikirané utawa ngamalé neng antarané wong-wong sing dosa.
 
 ## 20:105
 
@@ -10901,13 +9853,9 @@ Lan mengkana kuwé Ingsun nurunaken Al-Qur\`an nganggo basa Arab, lan Ingsun wis
 
 Mangka Mahaluhur Gusti Allah, Raja sing sebener-beneré. Lan aja pisan-pisan sliramu (Muhammad) gugup (maca) Al-Qur\`an seurungé rampung déwahyokna maring sliramu, [^525] lan ucapna, “Dhuh Pengéran kula, mugi Penjenengan nambahi ilmu dhateng kula.”
 
-[^525]: Nabi Muhammad s.a.w. decegah neng Gusti Allah nirokna wacanané Jibril, kalimah sekalimah seurungé Jibril a.s. rampung olihé macakna, supayané Nabi Muhammad ngapalna lan mahami nyata-nyata ayat sing duturunaken.
-
 ## 20:115
 
 Lan temen wis Ingsun wélingna, [^526] maring Adam gemiyén, ning dhéwéké kelalén, lan Ingsun ora nemu kekarepan sing kuwat neng dhéwéké.
-
-[^526]: Wélingané Gusti Allah kiyé désebut sejeroné Al-Baqarah (2) : 35.
 
 ## 20:116
 
@@ -10933,13 +9881,9 @@ Banjur sétan ngrisikna (pikiran jahat) maring dhéwéké, karo ngucap, “Hé A
 
 Banjur wong sekloroné padha mangan kuwé, banjur keton neng wong sekloron mau barang wadi (ngorat)é dhéwéké kabéh, lan molahi wong sekloron padha nutupi nganggo godhongan (sing ana neng) suwarga, lan wis nyata duraka Adam maring Pengérané, lan temen kesasar dhéwéké. [^527]
 
-[^527]: Sing démaksud “durhaka” neng kéné yakuwé nglanggar larangané Gusti Allah merga klalen, lan ora sengaja, kaya sing désebutna neng ayat 115 surat kiyé. Lan sing démaksud “sesat” yakuwé nuruti apa baé sing dekrisikna déning sétan. Keluputané Adam a.s. ora patiya gedhé miturut ukurané menungsa biasa wis désebut duraka lan sasar, merga dhuwuré drajat Adam a.s. lan nggo dadi tuladha kanggo wong gedhé lan pemimpin-pemimpin supayané ngadohi tindakan-tindakan sing délarang ora kejaba sing cilik-cilik.
-
 ## 20:122
 
 Banjur Pengérané milih dhéwéké, [^528] mangka Penjenengané nampa tobaté lan paring dhéwéké pituduh.
-
-[^528]: Maksudé: Gusti Allah milih Nabi Adam a.s. nggo dadi wong sing pérek maring Pengérané.
 
 ## 20:123
 
@@ -11005,8 +9949,6 @@ Saben déturunaken maring dhéwéké ayat-ayat sing anyar sekang Pengéran, wong
 
 Atiné dhéwéké padha ana neng kahanan lirwa (ora gaten). Lan wong-wong sing aniaya (dolim) kuwé ngumpet pewicarané, “(Wong) kiyé (Muhammad) ora liya mung sewijiné menungsa (uga) kaya ko kabéh. Apa ko padha nampa (sihir mau), [^529] mangkané ko padha nyekséni kuwé?”
 
-[^529]: Maksudé sihir neng kéné yakuwé ayat-ayat Al-Qur\`an.
-
 ## 21:4
 
 Dhéwéké (Muhammad) ngendika, “Pengéranku ngawuningani (kabéh) ucapan neng langit lan neng bumi, lan Penjenengané Maha Midhanget, Maha Ngawuningani.”
@@ -11063,13 +10005,9 @@ Lan Ingsun ora nyiptakna langit lan bumi lan apa baé sing ana neng antarané lo
 
 Énggané Ingsun ngersakna gawé sewijiné dolanan (bojo lan anak), mesthi Ingsun gawé kuwé sekang sisihé Ingsun, [^530]  angger Ingsun nyata-nyata mundhut kersa sing kaya kuwé.
 
-[^530]: “sekang ngarsané Ingsun” yakuwé sing cocog karo sipat-sipaté Gusti Allah.
-
 ## 21:18
 
 Setemené Ingsun mbalangna sing hak (bebener) maring sing batil (ora bener) banjur sing hak ngajuraken sing batil, mangka senalika kuwé (sing batil) sirna. Lan cilaka ko kabéh, merga ko padha nyipatna (Gusti Allah kanthi sipat-sipat sing ora pantes mungguh Penjenengané. [^531]
-
-[^531]: Ngarani lamon Gusti Allah kagungan garwa lan putra.
 
 ## 21:19
 
@@ -11227,8 +10165,6 @@ Dhéwéké (Ibrahim) semaur, “Sebeneré Pengéranmu yakuwé Pengéran (sing du
 
 Lan sekawit (sekawit) Gusti Allah, setemené inyong bakal gawé réka daya maring brehala-brehngalamu sewisé rika padha lunga ninggalna kuwé. [^532]
 
-[^532]: Ucapan-ucapan kuwé déucapna déning Nabi Ibrahim a.s. neng ati thok. Maksudé, Nabi Ibrahim a.s. arep nindakna réka dayané nggo ngremuk brehala-brehalané wong-wong kuwé, sewisé dhéwéké padha padha lunga sekang panggonané brehala mau.
-
 ## 21:58
 
 Mangka dhéwéké (Ibrahim) ngremuk (brehala-brehala kuwé) ajur-ajuran, kejaba sing paling gedhé (baboné); supaya wong-wong mau teka maning (nggo) takon maring dhéwéké.
@@ -11285,8 +10221,6 @@ Lan wong-wong arep arep temindak jahat maring Ibrahim, mangka Ingsun ndadékna d
 
 Lan Ingsun slametna dhéwéké (Ibrahim) lan Lut maring sewijiné negari sing wis Ingsun berkahi nggo sekabéhé ngalam. [^533]
 
-[^533]: Negari Syam, klebu neng njeroné Palestina. Gusti Allah mberkahi negari kuwé, tegesé akéh-akéhé nabi asalé sekang negari kiyé lan lemahé uga subur.
-
 ## 21:72
 
 Lan Ingsun anugrahna maring dhéwéké (Ibrahim) Ishak lan Yakub, minangka sewijiné ganjaran. Lan telu-teluné Ingsun dadékna wong apik (saléh).
@@ -11298,8 +10232,6 @@ Lan Ingsun dadékna wong-wong kuwé, pemimpin-pemimpin sing awéh pituduh kanthi
 ## 21:74
 
 Lan maring Lut, Ingsun paring hikmah lan ilmu, lan Ingsun slametna dhéwéké sekang (siksa sing wis nibani warga) kota sing padha nglakoni penggawéyan ngeres. [^534] setemené dhéwéké kabéh, wong sing jahat, lan uga ala,
-
-[^534]: Homosék (lanang dhemen lanang, wadon dhemen wadon) lan bégal, lan wong-wong nglakoni penggawéyan kuwé kanthi ngedhéng.
 
 ## 21:75
 
@@ -11320,8 +10252,6 @@ Lan (élinga riwayate) Dawud lan Sulaiman, rikala sekloroné awéh putusan ngena
 ## 21:79
 
 Mangka Ingsun paring pengertén maring Sulaiman (ngenani ukum sing paling sreg); [^535] lan maring loro-loroné kuwé, Ingsun paring hikmah lan ilmu, lan Ingsun tungkulna gunung-gunung lan manuk-manuk, kabéh padha maca tasbéh (subhanallah)  bareng-bareng Dawud, lan Ingsun sing nglampahna kuwé.
-
-[^535]: Miturut  Ibnu Abbas, ana sekumpulan wedhus wis ngrusak tanduran wektu wengi kuwé. Sing duwé tanduran madulna prekara kuwé maring Nabi Dawud a.s. Dhéwéké awéh putusan, lamon wedhus-wedhus kuwé kudu depasrahna maring sing duwé tanduran minangka dadi gantiné tanduran sing rusak. Ning Nabi Sulaiman a.s. awéh putusan supaya wedhus-wedhus kuwé depasrahna mung sewetara maring sing duwé tanduran nggo déjikot pigunané. Lan sing duwé wedhus kudu ngganti tanduran kuwé nganggo tanduran sing anyar. Nek tanduran sing anyar wis bisa depanen kasilé, sing duwé wedhus  olih njikot wedhusé maning. Putusané Nabi Sulaiman a.s. sing lewih sreg.
 
 ## 21:80
 
@@ -11355,8 +10285,6 @@ lan Ingsun nglebokna wong-wong mau maring njeroné kewelasan Ingsun. Setemené d
 
 Lan (élinga riwayate) Zun Nun (Yunus), rikala dhéwéké lunga neng kahanan jéngkél, banjur dhéwéké ngira lamon Ingsun ora bakal ngengél-ngél dhéwéké, mangka dhéwéké nyenyuwun neng kahanan banget petengé, [^536] “Mboten wonten Pengéran kejawi Penjenengan, Mahasuci Penjenengan. Éstu, kula kelebet tiyang-tiyang ingkang aniaya (dolim).”
 
-[^536]: Neng njero wetengé iwak, neng segara, lan neng wektu wengi.
-
 ## 21:88
 
 Mangka Ingsun sembadani (penyuwuné) dhéwéké lan Ingsun slametna dhéwéké sekang kesusahan. Lan mengkana kuwé Ingsun nylametna wong-wong sing padha precaya.
@@ -11364,8 +10292,6 @@ Mangka Ingsun sembadani (penyuwuné) dhéwéké lan Ingsun slametna dhéwéké s
 ## 21:89
 
 Lan (élinga riwayate) Zakaria, rikala dhéwéké nyenyuwun maring Pengérané, “Dhuh Pengéran kula. Sampun Penjenengan joraken kula gesang kiyambekan (mboten gadheh keturunan), lan Penjenengan niku ahli waris ingkang paling saé. [^537]
-
-[^537]: Sekirané Gusti Allah ora nyembadani penyuwuné, yakuwé paring keturunan, Zakaria masrahna awaké maring Gusti Allah, merga Gusti Allah yakuwé ahliné marisna sing paling apik.
 
 ## 21:90
 
@@ -11430,8 +10356,6 @@ Kekagetan sing ngedab-edabi ora ndadekaken wong-wong kuwé padha susah, lan mala
 ## 21:105
 
 Lan temen wis Ingsun tulis neng njeroné Zabur, [^538] sewisé (ketulis) neng njeroné Az-Zikr (Lauh Mahfuz), lamon bumi kiyé dewarisi déning kawula-kawulané Ingsun sing apik (saléh).
-
-[^538]: Kabéh kitab sing déturunaken déning Gusti Allah maring nabi-nabi-Né. Sebagéan ahli tapsir mertélakna lamon “Zabur” yakuwé kitab sing déturunaken maring Nabi Dawud a.s., déné “Az-Zikr” yakuwé kitab Taurat.
 
 ## 21:106
 
@@ -11505,10 +10429,6 @@ karo mléngosna wetengé (karo anggak) nggo nyasarna menungsa sekang dalané Gus
 
 Lan neng antarané menungsa ana sing nyembah Gusti Allah mung neng njaba, [^539] mangka angger dhéwéké olih kebecikan, dhéwéké ngrasa marem, lan angger dhéwéké kenang sewijiné coban, dhéwéké mbalik maring mburi. [^540] Dhéwéké kapitunan neng dunya lan neng akhérat. Kuwé (genah) kapitunan sing nyata.
 
-[^539]: Ora kanthi yakin
-
-[^540]: Mbalik kapir maning.
-
 ## 22:12
 
 Dhéwéké sesambat maring seliyané Gusti Allah, sewiji-wiji sing ora bisa nekakna rubéda lan ora (uga) awéh piguna (manpangat) maring dhéwéké. Kuwé sesasar sing adoh.
@@ -11524,8 +10444,6 @@ Dhéwéké sesambat maring sewiji-wiji sing (sebeneré) rubédané lewih pérek 
 ## 22:15
 
 Sapa wongé sing ngarani lamon Gusti Allah ora nulungi dhéwéké (Muhammad) neng dunya lan neng akhérat, mangka peryoga dhéwéké ngulur tali maring trutug, [^541] banjur ngendhat (nggantung awak), banjur pikirna apa réka daya kuwé bisa ngilangna apa sing nglarani atiné.
-
-[^541]: Tembung sama’ neng kéné détegesi trutug (pyan utawa plapon umah). Angger sama\` détegesi langit (arti sing biasa), mangka terjemahané dadi: angger mungsuhé Muhammad s.a.w jéngkél krana dhéwéké ulih pitulungan sekang langit, jorna baé wong-wong mau ngulur tali maring langit, lan sawang apa bisa wong-wong mau medhot pitulungan kuwé nganggo cara sing wis kesebut? Kanthi tembung liya, bodho banget wong-wong kuwé angger padha ngira wong-wong mau bisa medhot pitulungané Gusti Allah kanthi cara sing cupet kuwé.
 
 ## 22:16
 
@@ -11579,19 +10497,13 @@ Lan undangen menungsa supayané padha nglakoni ngibadah haji, mesthi wong-wong k
 
 supaya dhéwéké padha nyekséni rupa-rupa piguna (manpangat) nggo wong-wong mau lan supaya dhéwéké padha nyebut asmané Gusti Allah neng pirang-pirang dina sing détemtokna [^542] ingatasé rejeki sing déparingna maring wong-wong mau rupané kéwan ingon. Mangka padha mangana sebagéan sekang kuwé lan (sebagéan maning) wéhna nggo dépangan wong-wong sing sengsara lan butuh (fakir).
 
-[^542]: Dina riyaya haji lan dina Tasrék, yakuwé tanggal 10, 11, 12 lan 13 Zulhijah.
-
 ## 22:29
 
 Banjur, preyoga wong-wong kuwé padha ngilangna guluh [^543] (sing ana neng awaké) dhéwéké, nyempurnakna (ngleksanakna) kaulan-kaulané lan nglakoni tawaf neng pinggiré umah tua (Baitullah).
 
-[^543]: Sing démaksud karo tembung “ngilangna guluh” neng kéné yakuwé ngethok rambut, ngethok kuku lan sepadhané
-
 ## 22:30
 
 Mengkana kuwé (dhawuhé Gusti Allah). Lan sapa wongé sing ngegungna apa sing mulya neng sisihé Gusti Allah (hurumat), [^544] mangka kuwé lewih apik tumrap dhéwéké neng sisihé Pengérané. Lan déparengna (halal) nggo ko kabéh kéwan ingon, kejaba sing déterangna maring ko kabéh (haramé), mangka adohna (nyembah) brehala-brehala sing najis kuwé lan adohna ucapan pengapus-apus.
-
-[^544]: Arti hurumat (sing déormati) neng ayat kiyé yakuwé wulan haram (Muharam, Rajab, Zulkaidah, Zulhijah), bumi haram, lan makamé Ibrahim.
 
 ## 22:31
 
@@ -11601,15 +10513,9 @@ Mengkana kuwé (dhawuhé Gusti Allah). Lan sapa wongé sing ngegungna apa sing m
 
 Mengkana kuwé (dhawuhé Gusti Allah). Lan sapa wongé ngegungna kuncara (syiar-syiar)é Gusti Allah, [^545] mangka setemené prekara kuwé mrentul sekang semarahé (takwa) ati.
 
-[^545]: Syiar-É Gusti Allah yakuwé sekabéh pegawéan sing délakokna sejeroné ngibadah kaji lan panggonan-panggonan nglakoniné.
-
 ## 22:33
 
 Nggo ko kabéh, neng kuwé (kéwan hadyu), [^546] ana pirang-pirang piguna (manpangat) [^547] , butul wektu sing détemtokna, banjur panggonan sembeléhané yakuwé neng sekubengé Baitul Atiq (Baitullah).
-
-[^546]: Tiliki Al-Baqarah (2) : 196.
-
-[^547]: Maksudé kéwan-kéwan hadyu kena ndéjikot manpangaté kayadéné détunggangi, deperes susuné, lan sepadhané nganti dina nahar.
 
 ## 22:34
 
@@ -11622,8 +10528,6 @@ Lan nggo saben umat wis Ingsun saréngatna nyembeléh (kurban), supaya wong-wong
 ## 22:36
 
 Lan onta-onta kuwé Ingsun dadékna nggo ko kabéh, bagéan sekang kuncarané (syiar) agamané Gusti Allah, ko kabéh olih kebecikan akéh neng kono kuwé. Mangka nyebuta asmané Gusti Allah (rikala ko arep padha nyembeléh kéwan kuwé) neng kahanan ngadeg [^548] (lan sikil-sikil wis kejiret). Banjur angger wis rubuh (mati), mangka panganen sebagéané lan wéhna mangan wong sing krasa cukup karo apa sing ana neng dhéwéké (ora njaluk-njaluk) lan wong sing njaluk. Mengkana kuwé Ingsun ngelukna (onta-onta kuwé) nggo ko kabéh supaya ko padha kesuwun (sukur).
-
-[^548]: Biasané onta désembeléh selagi kéwan kuwé ngadeg.
 
 ## 22:37
 
@@ -11688,8 +10592,6 @@ Ning wong-wong sing ngréka daya nglawan ayat-ayat-É Ingsun kanthi tujuan ngend
 ## 22:52
 
 Lan Ingsun ora ngutus sewijiné utusan lan ora (uga) sewijiné nabi seurungé sliramu (Muhammad), anging angger dhéwéké duwé kepénginan, [^549] sétan uga nglebokna godha-godha maring njeroné kepénginané kuwé. Ning Gusti Allah ngilangna apa sing délebokna déning sétan mau, lan Gusti Allah bakal nguwatna ayat-ayat-É Penjenengané lan Gusti Allah Maha Ngawuningani, Mahawicaksana.
-
-[^549]: Sebagéan ahli tapsir negesi tamanna karo “maca” lan umniyyatihi “wacanané”. Yakuwé angger Nabi s.a.w maca sewijiné ayat sing isiné awéh pengéling-éling maring wong-wong kapir, dhéwéké padha nirokna wacanané Nabi s.a.w kanthi tambahan tembung-tembung sing mbenerna keyakinané dhéwéké.
 
 ## 22:53
 
@@ -11819,8 +10721,6 @@ lan wong-wong sing padha ngreksa barang wadiné (ngorat).
 
 kejaba maring bojo-bojoné utawa waring batur tukon (budak) sing deduwéni, [^550] mangka sebeneré wong-wong kuwé ora kenistha.
 
-[^550]: Budhak-budhak sing ana neng sejeroné perang karo wong kapir, udu budhak sing ana neng senjabané perang agama, sing siki wis ora nana maning.
-
 ## 23:7
 
 Ning sapa wongé sing nggoléti neng sewaliké kuwé (jinah lan sepadhané), mangka dhéwéké kuwé wong sing padha ngliwati wates.
@@ -11945,8 +10845,6 @@ Adoh! Adoh banget (sekang bener) apa sing deancamna maring ko kabéh.
 
 (urip kuwé) ora liya mung uripé inyong kabéh neng dunya kiyé, (neng kana) inyong padha mati lan padha urip, [^551] lan ora bakal détangékna (maning).
 
-[^551]: Sebagéan menungsa mati, lan sebagéan liya délairna.
-
 ## 23:38
 
 Dhéwéké ora liya mung sewijiné wong lanang sing ngréka-réka apus-apusan maring Gusti Allah, lan inyong kabéh ora bakal mercayani dhéwéké.”
@@ -11963,8 +10861,6 @@ Penjenengané (Gusti Allah) dhawuh, “Ora suwé maning wong-wong kuwé mesthi b
 
 Terus dhéwéké padha temen-temen détumpes déning sewara sing gemlendhung, lan Ingsun dadékna dhéwéké kabéh (kaya) runtah sing degawa banjir, [^552] mangka tumpesa ingatasé wong-wong sing padha aniaya (dolim).
 
-[^552]: Kaya kuwé alané pungkasané wong-wong kuwé, nganti dhéwéké padha ora duwé daya semendhing-mendhinga, ora béda kaya runtah sing dekélikna banjir, mangkané wong-wong kuwé awaké gedhé lan kuwat.
-
 ## 23:42
 
 Banjur sewisé wong-wong kuwé Ingsun ciptakna umat sing liya.
@@ -11980,8 +10876,6 @@ Banjur, Ingsun utus rasul-rasulé Ingsun kanthi urutan. Saben sijiné Rasul teka
 ## 23:45
 
 Banjur Ingsun ngutus Musa lan seduluré Harun kanthi nggawa tandha-tandha (agungé) Ingsun, lan bukti sing nyata, [^553]
-
-[^553]: Mukjijaté Nabi Musa a.s. sing ana sangang werna.
 
 ## 23:46
 
@@ -12103,13 +10997,9 @@ Lan setemené wong-wong sing ora precaya maring akhérat, nyata-nyata wis nyimpa
 
 Lan umpamané dhéwéké kabéh Ingsun welasi, lan Ingsun ilangna bebaya sing ngenani wong-wong kuwé, [^554] mesthi dhéwéké padha bakal terus-terusan poyang-paying neng njero kesasaré dhéwéké.
 
-[^554]: Bahaya kencoten. Kaum musrik nglakon ngalami kencoten, merga ora tekané banah panganan sekang Yaman maring Mekah, aridené Mekah lan sekubengé kahanané peceklik, nganti banget mlaraté wektu semana.
-
 ## 23:76
 
 Lan temen Ingsun wis nibakna pesiksan maring wong-wong kuwé, [^555] ning dhéwéké padha ora gelem tundhuk maring Pengérané, lan (uga) ora padha andhap-asor.
-
-[^555]: Setengah saking kalahé wong-wong mau neng Perang Badar sing neng perang kuwé wong-wong sing dadi penggedhé sekang wong-wong mau akéh sing dépaténi utawa détawan, lan mangsa garing sing déalami wong-wong mau, nganti wong-wong mau padha ngrasakna kencoten.
 
 ## 23:77
 
@@ -12138,8 +11028,6 @@ Dhéwéké kabéh padha ngucap, “Apa bener, angger inyong wis padha mati lan w
 ## 23:83
 
 Temen, sing mengkana kuwé wis déjanjékna maring inyong kabéh lan maring kaki-nininé inyong kabéh sing dhisit-dhisit, [^556] kiyé mung dongengané wong-wong gemiyén!”
-
-[^556]: Deancam kanthi dinané détangékna.
 
 ## 23:84
 
@@ -12208,8 +11096,6 @@ lan kula (ugi) nyuwun pengreksa dhateng Penjenengan, dhuh Pengéran kula, supado
 ## 23:100
 
 supados kula saged nglampahi kesaénan ingkang empun kula tilaraken.” Pisan-pisan ora! Setemené kuwé mung alesan sing dhéwéké ucapna. Lan neng ngarepé wong-wong mau ana Barzakh [^557] nganti butul neng dinané dhéwéké padha détangékna.
-
-[^557]: Barzakh yakuwé panggonan utawa kahanané wong sewisé mati nganti dhéwéké détangékna neng dina Kiyamat.
 
 ## 23:101
 
@@ -12295,8 +11181,6 @@ Tukang jinah (royal) wadon lan tukang jinah lanang rajamen saben-saben sekang se
 
 Tukang jinah lanang ora kena umah-umah kejaba karo tukang jinah wadon, utawa karo wong wadon musrik, lan tukang jinah wadon ora kena umah-umah kejaba karo tukang jinah lanang, utawa karo wong lanang musrik; lan sing mengkana kuwé délarang (haram) tumrap wong-wong mukmin. [^558]
 
-[^558]: Ora patut wong sing precaya umah-umah karo tukang jinah, semana uga sewaliké
-
 ## 24:4
 
 Lan wong-wong sing ndakwa (nglakoni jinah) wong-wong wadon sing apik, lan dhéwéké padha ora nekakna seksi wong papat, mangka rajamen dhéwéké ping wolung puluh, lan ko aja padha nampa perseksénané wong-wong kuwé nggo selawasé. Dhéwéké kabéh kuwé wong-wong sing padha dosa (pasék),
@@ -12313,8 +11197,6 @@ Lan wong-wong sing ndakwa wadoné (nglakoni jinah), mangkané wong-wong kuwé or
 
 Lan (sumpah) sing ping lprecayaé lamon benduné Gusti Allah bakal nibani dhéwéké, angger dhéwéké klebu wong sing goroh. [^559]
 
-[^559]: Maksudé ayat 6-7 kuwé, wong sing ndakwa nglakoni jinah kanthi ora nekakna seksi wong papat, kuduné sumpah kanthi nyebut asmané Gusti Allah lamon dhéwéké sing bener neng dakwané kuwé. Sebanjuré dhéwéké sumpah sepisan maning lamon dhéwéké bakal kenang laknaté Gusti Allah angger dhéwéké goroh. Prekara kiyé neng pekih (ilmu fiqih) déarani li\`an.
-
 ## 24:8
 
 Lan sing wadon (bojo) kuwé bebas (luput) sekang ukuman angger dhéwéké sumpah ping papat kanthi (asmané) Gusti Allah lamon sing lanang (lanangé) kuwé nyata-nyata klebu wong-wong sing goroh.
@@ -12330,8 +11212,6 @@ Lan sekirané udu merga peparingé Gusti Allah lan kewelasané (rahmat) Penjenen
 ## 24:11
 
 Setemené wong-wong sing padha nggawa werta goroh kuwé anané sekang golongané ko (uga). Aja pisan-pisan ko padha ngira werta kuwé ala tumrap ko kabéh, malah kuwé apik tumrap ko. Saben wong sekang wong-wong kuwé bakal olih piwales sekang dosa sing dhéwéké padha pergawé. Lan sapa wongé neng antarané wong-wong kuwé sing njikot bagéan sing paling gedhé (sekang dosa sing dhéwéké pergawé) dhéwéké olih siksa sing gedhé (uga). [^560]
-
-[^560]: Warta goroh kiyé ngenani garwané Rasulullah s.a.w. \`Aisyah r.a. Ummul Mukminin, sewisé perang Badar karo Bani Mustoliq neng wulan Sadran 5 H. Perang antarané kaum munapék lan uga \`Aisyah karo Nabi s.a.w, dhasaré undhian sing deanakna neng antarané garwa-garwané Nabi. Neng dalan lagi baliné sekang perang wong-wong kuwé padha mandheg neng sijiné panggonan. \`Aisyah r.a. metu sekang sekedhupé merga ana sewijiné perlu, terus mbalek maning. Ijig-ijig dhéwéké krasa kalungé ilang, terus dhéwéké lunga maning nggoléti kalung. Sewetara kaya kuwé rombongané mangkat kanthi sangka lamon \`Aisyah r.a. ésih neng njeroné sekedhup. Sewisé \`Aisyah ngerti sekedhupé wis mangkat, dhéwéké lenggah neng panggonané lan ngarep-arep sekedup kuwé mbalek marani dhéwéké. Kebeneran liwat neng panggonan kuwé sijiné sahabaté Nabi, Safwan ibnu Mu\`attal, sing weruh ana sisjiné wong lagi saré dhéwékan lan dhéwéké kaget kelawan ngucap, “Inna lillahi wa inna ilaihi raji\`un, garwané Rasul!” \`Aisyah r.a. wungu. Terus dhéwéké demanggakna déning Sofwan nitih ontané. Safwan mlaku nuntun onta nganti butul maring Medinah. Wong-wong sing weruh dhéwéké padha ngomong-omongna nganggo penemuné dhéwék-dhéwék. Kawit ana kabar-kabur. Sebanjuré wong-wong munapék nggedhék-nggedhékna kabar kuwé, dadiné pitnah ingatasé \`Aisyah kuwé tambah ngambra-ambra, nganti ndadékna oregé kaum muslimin.
 
 ## 24:12
 
@@ -12381,8 +11261,6 @@ Lan aja pisan-pisan wong-wong sing duwé keturahan lan kombéran neng antarané 
 
 Temen, wong-wong sing ndakwa wong-wong wadon sing apik, sing limpé, [^561] O  lan precaya (kanthi dakwan jinah), wong-wong mau désupatani neng dunya lan neng akhérat, lan dhéwéké kabéh bakal olih siksa sing gedhé,
 
-[^561]: Sing démaksud wong-wong wadon sing limpi yakuwé wong-wong wadon sing ora tau sepisan-pisanan éling maring kelakuané sing ala.
-
 ## 24:24
 
 neng dinané, (rikala) ilat, tangan, lan sikilé wong-wong kuwé dadi seksi nggo dhéwéké kabéh ingatasé apa sing gemiyén dhéwéké padha pergawé.
@@ -12394,8 +11272,6 @@ Neng dina kuwé Gusti Allah nyempurnakna piwalesé sing sebeneré tumrap wong-wo
 ## 24:26
 
 Wong-wong wadon sing kotor nggo wong-wong lanang sing kotor, wong-wong lanang sing kotor nggo wong-wong wadon sing kotor (uga), aridené wong-wong wadon sing apik nggo wong-wong lanang sing apik, lan wong-wong lanang sing apik nggo wong-wong wadon sing apik (uga). Wong-wong kuwé brésih sekang apa sing dedakwakna déning wong. Dhéwéké padha olih pengampura lan rejeki sing mulya (suwarga). [^562]
-
-[^562]: Ayat kiyé nudhuhna suciné \`Aisyah r.a. Lan Safwan sekang sekabéh penyana sing dedakwakna maring dhéwéké kabéh. Rasulullah kuwé wong sing paling apik, mulané wadon sing apik uga sing dadi garwané kiyambeké.
 
 ## 24:27
 
@@ -12433,15 +11309,9 @@ Lan temen, Ingsun wis nurunaken maring ko kabéh ayat-ayat sing awéh pertelan (
 
 Gusti Allah (sing paring) cahya (maring) langit lan bumi. Peumpaman cahyané Penjenengané, kayadéné sewiji bolongan sing ora tedhas, [^563] sing neng njeroné ana diyan gedhé. Diyan kuwé neng njeroné bumbung béling, (lan) bumbung béling kuwé kaya lintang sing gemebyar, sing deurubna nganggo lenga sekang wit sing déberkahi, (yakuwé) wit zaitun sing thukul ora neng wétan lan uga ora neng kulon, [^564] sing lengané (baé) méh madhangi, senajan ora desuled geni. Cahya neng ndhuwuré cahya (lapis-lapis). Gusti Allah paring pitudhuh maring cahyané Penjenengané nggo wong sing Penjenengané ngersakna, lan Gusti Allah gawé peumpaman-peumpaman nggo menungsa. Lan Gusti Allah Maha Ngawuningani samubarang kabéh.
 
-[^563]: “Bolongan sing ora tedhas” (misykat) yakuwé sijiné bolongan neng tembok umah sing ora tedhas nganti maring sisihé, biasané nggo wadhah diyan, utawa barang-barang liya.
-
-[^564]: Wit zaitun kuwé thukulé neng pucuk gunung, kuwé ulih soroté srengéngé neng wektuné srengéngé mlethék utawa arep surup, dadiné wité lemu lan wohé ngasilna lenga sing apik.
-
 ## 24:36
 
 (Cahya kuwé) neng umah-umah sing neng kana wis dédhawuhi déning Gusti Allah nggo mulyakna lan nyebut asmané Pejenengané, neng kana maca tasbéh (maha-nyucékna) [^565] asmané Penjenengané neng wektu ésuk lan wektu soré,
-
-[^565]: Sing maca tasbéh kuwé wong sing désebut neng ayat 37.
 
 ## 24:37
 
@@ -12454,8 +11324,6 @@ wong sing ora deklalekna déning dagang lan dol-tinuku sekang éling maring Gust
 ## 24:39
 
 Lan wong-wong sing padha mbangkang (kapir), penggawéané dhéwéké kaya wewayangan (fatamorgana) neng lemah sing rata, sing désangka banyu neng wong-wong sing ngonggor, ning angger (banyu) kuwé detekani ora nana apa-apané. Lan detemokna (ketetepané) Gusti Allah tumrap dhéwéké kabéh. Banjur Gusti Allah paring maring dhéwéké kabéh étungan (lakon-lakon) kanthi sampurna, lan Gusti Allah banget gelis étungan-É, [^566]
-
-[^566]: Wong-wong kapir, merga ngamal-ngamalé  padha ora dedhasari  precaya, ora pekolih piwales sekang Gusti Allah neng akhérat, senajan neng dunya wong-wong mau ngira arep olih piwales ingatasé ngamal-ngamalé kuwé.
 
 ## 24:40
 
@@ -12505,8 +11373,6 @@ Apa (ora tekané wong-wong mau merga) neng atiné dhéwéké kabéh ana prenyaki
 
 Mung ucapané wong-wong sing precaya (mukmin), sing angger dhéwéké padha dejék maring Gusti Allah lan Rasul-E supaya Rasul netepna (prekara) neng antarané wong-wong kuwé, [^567] dhéwéké padha ngucap, “Inyong kabéh krungu lan inyong kabéh manut.” Lan dhéwéké kuwé wong sing padha begya.
 
-[^567]: Neng antarané sepadhané wong muslimin, lan antarané wong-wong muslimin karo sing udu muslimin.
-
 ## 24:52
 
 Lan sapa wongé manut maring Gusti Allah lan Rasul-E lan wedi maring Gusti Allah lan takwa maring Penjenengané, dhéwéké kuwé wong sing padha olih kemenangan.
@@ -12535,25 +11401,17 @@ Aja pisan-pisan ko padha ngira lamon wong-wong sing mbangkang (kapir) kuwé bisa
 
 Hé wong-wong sing padha precaya! Preyoga batur tukon (budak, lanang lan wadon) sing ko padha duwéni, lan wong-wong sing urung baleg (diwasa) neng antarané ko kabéh, padha njaluk idin maring ko ping telu (wektu), yakuwé seurungé sembayang subuh, rikala ko padha udhar-udhar klambi (njaba)mu neng tengah dina, lan sewisé sembayang Isya. (Kuwé) telu ngorat (wektu) tumrap ko kabéh. [^568] Ora nana dosa tumrap ko kabéh lan ora (uga) tumrap dhéwéké mau seliyané (telung wektu) kuwé; dhéwéké padha mlebu-metu ngladheni ko kabéh, sebagéané ko kabéh maring sebagéan sing liya. Mengkana kuwé Gusti Allah nggenahna ayat-ayat kuwé maring ko kabéh. Lan Gusti Allah Maha Ngawuningani, Mahaaris.
 
-[^568]: Telung werna wektu sing biasané neng wektu-wektu kuwé awak akéh kebukak. Mula merga kuwé, Gusti Allah nglarang batur tukon (budak) lan bocah-bocah sing durung umur mlebu maring senthong turuné wong tuwa angger ora idin.
-
 ## 24:59
 
 Lan angger anak-anakmu wis butul umuré diwasa, mangka preyogané wong-wong mau (uga) njaluk idin kaya wong-wong sing lewih diwasa padha njaluk idin. [^569] Mengka-na kuwé Gusti Allah nggenahna ayat-ayat-É Penjenengané maring ko kabéh. Gusti Allah Maha Ngawuningani, Mahawicaksana.
-
-[^569]: Anak-anaké wong merdhéka sing udu muhrim sing wis diwasa, kudu njaluk idin dhisit angger arep mlebu maring senthong turuné wong tuwané neng ayat 27 lan 28 surat kiyé.
 
 ## 24:60
 
 Lan wong-wong wadon tuwa sing wis mandheg (sekang héd lan mbobot) sing ora kepéngin duwé lanang (maning), mangka ora nana dosa ngudhari klambi (njaba)ne [^570] dhéwéké kabéh kanthi ora (nguja) ngetona-ken pepaés, ning ngreksa ajiné awak kuwé lewih apik tumrap dhéwéké kabéh. Gusti Allah Maha Midhanget, Maha Ngawuningwni.
 
-[^570]: Klambi njaba sing angger deudhari ora ngetonaken ngorat.
-
 ## 24:61
 
 Ora nana alangan umrap wong wuta, ora (uga) tumrap wong dhengklang, ora (uga) tumrap wong mriyang, lan ora (uga) tumrap awakmu, mangan (bareng-baneng wong-wong kuwé) neng umahmu utawa neng umahé rama-ramamu, neng umahé biyung-biyungmu, neng umahé sedulur-sedulur lanangmu, neng umahé sedulur-sedulur wadonmu, neng umahé sedulur-sedulur lanangé ramamu, neng umahé sedulur-sedulur wadoné ramamu, neng umah sedulur-sedulur lanangé biyungmu, neng umahé sedulur-sedulur wadoné biyungmu, (neng umah) sing ko padha duwéni kuncine [^571] utawa (neng umahé) batir-batirmu. Ora nana alangan tumrap ko padha mangan bareng-bareng wong-wong kuwé utawa dhéwék-dhéwék. Angger ko padha ngleboni umah-umah, preyogané ko padha kulanuwun (ngucap salam maring sing manggoni, sing awéh salam) maring awakmu dhéwék, kanthi salam seng kebek berkah lan apik sekang sisihé Gusti Allah. Mengkana kuwé Gusti Allah nggenahna ayat-ayat-É (Penjenengané) nggo ko kabéh supaya ko padha mengerténi.
-
-[^571]: Umah sing déwéhna maring ko nggo deurusi.
 
 ## 24:62
 
@@ -12619,8 +11477,6 @@ Angger kuwé (neraka) katon déning wong-wong kuwé sekang panggonan sing adoh, 
 
 Lan angger wong-wong kuwé debalangna maring panggonan sing sesek neng neraka kanthi debanda, dhéwéké kabéh neng kana padha sambat-sambat ngarep-arep kemusnahan. [^572]
 
-[^572]: Wong-wong sing ngarep-arep kemusnahan (ilang babar-pisan), supaya ucul sekang siksa sing banget gedhéné, yakuwé siksa  neng neraka sing banget panasé karo débanda, neng panggonan sing banget rupek uga, kayadéné sing dégambarna kuwé.
-
 ## 25:14
 
 (Bakal déucapna maring wong-wong kuwé), “Aja pisan-pisan ko padha ngarep-arep neng dina kiyé sewijiné kemusnahan, anging padha ngarep-arepa kemusnahan sing bola-bali.”
@@ -12641,8 +11497,6 @@ Lan (élinga) neng dina (rikala) Gusti Allah ngumpulna wong-wong mau bareng karo
 
 Kabéh kuwé (sing désembah) semaur, “Mahasuci Penjenengan, mboten pantes tumrap kula sami mendhet pengayom selintunipun Penjenengan, [^573] ning Penjenengan empun maringi tiyang-tiyang niku lan kaki-nininé (rupi) kenékmatan urip, saéngga kiyambeké sami nglalénaken pengéling-éling, lan tiyang-tiyang niku kaum ingkang risak.”
 
-[^573]: Sewisé wong-wong mau dékumpulna bareng-bareng karo apa sing dhéwéké padha sembah, yakuwé malaékat, Uzair, Nabi Isa a.s. Lan réca-réca, lan sewisé Gusti Allah nakokna maring sing désembah kuwé, apa dhéwéké padha sing nyasarna wong-wong mau utawané wong-wong mau sing sasar dhéwék, mangka sing désembah kuwé semaur lamon ora pantes tumrap dhéwéké nyembah seliyané Gusti Allah, apamaning kongkon wong liya nyembah seliyané Gusti Allah.
-
 ## 25:19
 
 Mangka temen, kabéh (sing désembah kuwé) wis ngingkari apa sing ko padha ucapna, mangka ko kabéh ora bakal bisa nolak (siksa) lan ora bisa (uga) nulungi (awakmu), lan sapa wongé neng antarané ko kabéh temindak aniaya (dolim), mesthi Ingsun tibakna maring dhéwéké rasané siksa sing gedhé.
@@ -12659,13 +11513,9 @@ Lan wong-wong sing ora ngarep-arep sapatemon karo Ingsun (neng akhérat) padha n
 
 (Émuta) neng dina rikala dhéwéké kabéh weruh malaékat, neng dina kuwé ora nana werta bebungah tumrap wong-wong sing padha dosa, lan dhéwéké padha ngucap, “Hijran mahjura.” [^574]
 
-[^574]: Tembung sing biasa déucapna neng wong Arab rikala ngadhepi mungsuh utawa coban sing ora bisa déindhani. Tembung kiyé tegesé, “moga-moga Pengéran ngedohna bebaya kiyé sekang inyong kabéh.”
-
 ## 25:23
 
 Lan (bakal) Ingsun weruhna sekabéh laku-becik [^575] sing dhéwéké kabéh lakoni, banjur Ingsun bakal ndadékna laku-becik kaya lebu sing kabur kanginen.
-
-[^575]: Sing démaksud amalé dhéwéké neng kéné yakuwé amal-amalé sing apik-apik sing dhéwéké kabéh lakokna wektu neng dunya, amal-amal kuwé ora olih piwales déning Gusti Allah merga dhéwéké kabéh ora precaya.
 
 ## 25:24
 
@@ -12683,13 +11533,9 @@ Praja sing sejati (hak) neng dina kuwé kagungané Pengéran Sing Mahawelas. Lan
 
 Lan (émuta) neng dina rikala wong-wong sing aniaya (dolim) padha nyokoti jenthik loroné [^576] (merga ngajog maring penggawéané) kambi ngucap, “Dhuh! Énggané (gemiyén) inyong njikot (ngetutna) dalan bareng para Rasul.
 
-[^576]: Nyokoti jenthik loroné maksudé ngajog maring polahé.
-
 ## 25:28
 
 Dhuh, cilaka inyong! Énggané inyong gemiyén ora gawé si fulan [^577] dadi batir kraketé (inyong).
-
-[^577]: Sing démaksud si Fulan, yakuwé sétan utawa wong sing wis nyasaraken neng dunya.
 
 ## 25:29
 
@@ -12706,8 +11552,6 @@ Mengkana kuwé, tumrap saben nabi wis Ingsun gawékna mungsuh-mungsuh sekang won
 ## 25:32
 
 Lan wong-wong sing mbangkang (kapir) padha ngucap, “Kenangapa Al-Qur’an ora déturanaken maring dhéwéké sisan gawé (sewutuhé)?” Mengkana [^578] kuwé, supaya Ingsun neguhna atimu (Muhammad) kanthi kuwé lan Ingsun macakna (Al-Qur’an) kanthi tartil (cetha tur bener).
-
-[^578]: Maksudé: Al-Qur’an kuwé ora déturuaken sekabéhané/sewutuhé, tapi déturunaken kanthi mipil merga supaya atiné Nabi Muhammad s.a.w dadi kuwat lan mantep.
 
 ## 25:33
 
@@ -12732,8 +11576,6 @@ Lan (wis Ingsun tumpes) kaumé Nuh rikala dhéwéké padha ora precaya maring pa
 ## 25:38
 
 Lan Inyong wis tumpes kaumé ‘Ad lan Samud uga warga Rass, [^579] lan akéh (maning) brayat antarané (kaum-kaum) kuwé.
-
-[^579]: Rass yakuwé telaga sing wis garing banyuné banjur dédadékna aran salah sijiné kaum, yakuwé kaum Rass. Dhéwéké  padha nyembah reca, banjur Gusti Allah ngutus Nabi Syuaib a.s.
 
 ## 25:39
 
@@ -12767,8 +11609,6 @@ Apa sliramu ora nggatékna (ciptanané) Pengéranmu, kepriwé Penjenengané ndaw
 
 Lan Ingsun kered (wewayangan kuwé) maring Ingsun [^580] cuk semendhing.
 
-[^580]: Maksudé: Layangan kuwé Ingsun busek alon-alon kaya surupé srengéngé cuk semendhing.
-
 ## 25:47
 
 Lan Penjenengané (Gusti Allah) sing ndadékna wengi nggo ko kabéh (minangka) sandhangan, lan turu nggo ngaso, lan Penjenengané sing ndadékna awan nggo pahal.
@@ -12800,8 +11640,6 @@ Lan Penjenengané (Gusti Allah) sing ngejorna segara loro mili jéjéran, sing s
 ## 25:54
 
 Lan Penjenengané (Gusti Allah) uga sing nyiptakna menungsa sekang banyu, banjur Penjenengané dadékna menungsa (duwé) keturunanan lan musaharah [^581] , lan Pengéranmu kuwé Mahakewasa.
-
-[^581]: Musaharah tegesé peseduluran merga jejodhoan, Umpamané mantu,mertuwa, ipé lan seterusé.
 
 ## 25:55
 
@@ -12947,13 +11785,9 @@ Dhéwéké (Musa) matur. “Dhuh Pengéran kula, saéstu kula ajrih tiyang-tiyan
 
 saéngga dhadha kula kraos sesek lan ilat kula mboten béntéh (lancar) , mangka (mugi Penjenengan) ngutus Harun [^582]  (sareng kula).
 
-[^582]: Penyuwuné Musa, supayané Harun déangkat dadi utusan nggo mbantu dhéwéké.
-
 ## 26:14
 
 Mergi kula gadheh lepat dhateng kiyambeké sedaya, [^583]  mila kula ajrih kiyambeké sami ajeng mejahi kula.”
-
-[^583]: Musa ngucap lamon dhéwéké dosa maring wong-wong Mesir yakuwé anggepané wong-wong Mesir . Merga sebeneré Musa ora duwé dosa sebab dhéwéké maténi wong Mesir kuwé ora sengaja. wacanen surat Al Qashas ayat 15.
 
 ## 26:15
 
@@ -12971,13 +11805,9 @@ bebasna Bani Israil (lunga) karo inyong sekloron.”
 
 Dhéwéké (Fir’aun) semaur, “Apa udu inyong sing ngupakara ko neng lingkungan (keluwarga)né inyong, wektu ko ésih bocah lan ko manggon bareng inyong pirang-pirang taun sekang umurmu. [^584]
 
-[^584]: Nabi Musa a.s. urip bareng Fir'aun kurang lewih 18 taun, kawit cilik.
-
 ## 26:19
 
 Lan ko (Musa) wis nglakoni (kesalahan sekang) penggawéan sing wis ko lakoni, [^585] lan ko klebu wong sing ora ngerti kesuwun (sukur).”
-
-[^585]: Maksudé yakuwé tindakané Nabi Musa a.s. maténi wong Qibti. Wacanen surat Al Qashas ayat 15.
 
 ## 26:20
 
@@ -13083,8 +11913,6 @@ Banjur wong-wong kuwé padha nguncalna dhadhung-dhadhung lan teken-tekené karo 
 
 Banjur Musa nguncalna tekené, mangka dadakan tekené kuwé nguntal kabéh barang-barang palsu sing dégawé déning para tukang sihir kuwé. [^586]
 
-[^586]: Maksudé: dhadhung-dhadhung lan teken-teken sing debalangna tukan sihir kuwé sing ketoné kaya-kaya dadi ula, kabéh ula-ula kuwé dépangan déning tekené Musa sing temen-temen dadi ula.
-
 ## 26:46
 
 Mangka tukang-tukang sihir kuwé padha ndhéprok sujud,
@@ -13137,13 +11965,9 @@ Banjur, Ingsun tokna dhéwéké kabéh (Fir’aun lan kaumé) sekang taman-taman
 
 Lan (sekang) bandha kesugihané lan sekang drajaté sing mulya, [^587]
 
-[^587]: Wektu Fir'aun lan wadyabalané nyusul Musa lan Bani Israil, mangka dhéwéké kabéh wis metu sekang negariné lan ninggalna prajané, kesugihané lan liya-liyané.
-
 ## 26:59
 
 mengkana kuwé, banjur Ingsun pasrahna kabéh (kuwé) maring Bani Israil. [^588]
-
-[^588]: Gusti Allah arep awéh maring Bani Israil praja sing kuwat, kerasulan lan liya-liyané.
 
 ## 26:60
 
@@ -13164,8 +11988,6 @@ Banjur Ingsun dhawuhna maring Musa, “Gebuga segara kuwé nganggo tekenmu.” M
 ## 26:64
 
 Lan neng kana kuwé Ingsun pérekna rombongan sing liya. [^589]
-
-[^589]: Sing démaksud rombongan sing liya yakuwé Fir'aun lan sewadyabalané. Maksudé ayat kiyé yakuwé neng bagéan sing sigar kuwé Gusti Allah mérekna Fir'aun lan wadyabalné karo Musa lan Bani Israil.
 
 ## 26:65
 
@@ -13615,8 +12437,6 @@ Lan setemené Pengéranmu, Penjenengané Sing Mahadigdaya, Mahawelas.
 
 Warga Aikah [^590] wis padha nggorohna para utusan (rasul),
 
-[^590]: warga Madyan, yakuwé umaté Nabi Syuaib a.s.
-
 ## 26:177
 
 rikala Syuaib ngucap maring dhéwéké kabéh, “Kenangapa ko kabéh padha ora semarah (takwa)?
@@ -13813,8 +12633,6 @@ Lan tukang-tukang guritan (singir) kuwé détutna déning wong sing padha kesasa
 
 Apa ko padha ora weruh lamon dhéwéké kabéh padha klayaban neng saben-saben tanah lebak, [^591]
 
-[^591]: Maksudé. tukang guritan (penyair, tukang nulis singir) ana sing senengé dolanan karo tembung-tembung sing ora duwé karep sing apik, lan ora duwé ati sing mantep.
-
 ## 26:226
 
 lan dhéwéké kabéh ngomongna apa sing dhéwéké padha ora nglakoni,
@@ -13871,8 +12689,6 @@ kejaba wong sing padha nglakoni aniaya (dolim) banjur ngowahi kanthi kebecikan s
 
 Lan lebokna tanganmu maring gulon klambimu, [^592] mesthi kuwé bakal metu dadi putih (mencorong) tanpa cacad. (Loro-loroné mukjijat kiyé) kelebu sangang mukjijat (sing bakal déjongokna) maring Fir’aun lan kaumé. Dhéwéké kabéh kuwé nyata-nyata wong sing padha dosa (pasék).
 
-[^592]: Nyéléhna tangan maring dhadha ngliwati gulu kelambi.
-
 ## 27:13
 
 Mangka rikala mukjijat-mukjijaté Ingsun sing cetha kuwé butul maring wong-wong kuwé, dhéwéké padha ngucap, “Kiyé sihir sing nyata.”
@@ -13888,8 +12704,6 @@ Lan temen, Ingsun wis paring ilmu maring Dawud lan Sulaiman, lan loronè ngucap,
 ## 27:16
 
 Lan Sulaiman wis marisi Dawud, [^593] lan dhéwéké (Sulaiman) ngucap, “Hé Menungsa! Inyong wis déwarahi basa manuk lan inyong déparingi samubarang kabéh. Temen, (kabéh) kiyé nyata-nyata ganjaran sing sebeneré.”
-
-[^593]: Nabi Sulaiman a.s. ngganténi kenabian lan keratoné Nabi Dawud a.s. uga marisi ngélmu lan Kitab Zabur sing déturunaken maring dhéwéké.
 
 ## 27:17
 
@@ -13907,8 +12721,6 @@ Mangka dhéwéké (Sulaiman) mésem banjur gemuyu merga (krungu) pengucapé semu
 
 Lan dhéwéké mriksa manuk-manuk banjur ngucap, “Dénéng inyong ora weruh manuk hud-hud, [^594] apa dhéwéké klebu sing ora teka?
 
-[^594]: Hud-hud yakuwé sebangsané manuk platuk.
-
 ## 27:21
 
 Mesthi dhéwéké bakal tek ukum kanthi ukuman sing abot utawa dhéwéké tek sembeléh, kejaba angger dhéwéké teka maring inyong kanthi alesan sing cetha.”
@@ -13917,13 +12729,9 @@ Mesthi dhéwéké bakal tek ukum kanthi ukuman sing abot utawa dhéwéké tek se
 
 Mangka ora kanthi suwé (manuk hud-hud teka), banjur ngucap, “Inyong ngaweruhi sewijiné prekara sing sampéyan urung kaweruhi. Inyong teka maring sampéyan sekang negari Saba’ [^595] (lan) nggawa werta sing mercayani.
 
-[^595]: Saba’ yakuwé jeneng keraton neng jaman gemiyén, ibukotané Ma’rib, panggonané pérek kota San’a, sikiné dadi ibukotané Yaman.
-
 ## 27:23
 
 Temen, inyong meruhi ana wong wadon [^596] sing ngratoni (mréntah) wong-wong kabéh, lan dhéwéké pinaringan samubarang kabéh, lan duwè korsi gadhing dampar kencana sing gedhè.
-
-[^596]: Ratu Balqis sing mréntah keraton Sabaiyah neng jaman Nabi Sulaiman a.s.
 
 ## 27:24
 
@@ -13932,8 +12740,6 @@ Inyong (manuk hud-hud) weruh dhéwéké lan kaumé padha nyembah srengéngé, du
 ## 27:25
 
 dhéwéké (uga) ora padha nyembah Gusti Allah sing ngetokna apa sing kesimpen neng langit lan bumi [^597] lan sing ngawuningani apa sing ko padha umpetna lan apa sing ko padha edhéngna.
-
-[^597]: Umpamané: Nurunaken udan sekang langit, nukulaken wit-witan, ngetokna wesi-wesi sekang bumi lan liya-liyané.
 
 ## 27:26
 
@@ -13995,8 +12801,6 @@ Sulaiman ngucap, “Hé para penggedhé! Sapa neng antarané ko kabéh sing bisa
 
 Sawijining wong sing duwé ilmu sekang Kitab [^598] (Zabur) matur, “Inyong bakal nggawa korsi kuwé maring sampéyan seurungé mripaté sampéyan kemedhép.” Mangka rikala dhéwéké (Sulaiman) weruh korsi kuwé wis semandhing neng ngarepé, dhéwéké ngucap, “Kiyé klebu kenugrahané Pengérané inyong, nggo nguji maring inyong, apa inyong kesuwun (sukur) utawa ingkar maring (nékmaté Gusti Allah). Sapa wongé sing kesuwun, mangka setemené dhéwéké kesuwun nggo (kebecikané) awaké dhéwéké, lan sapa wongé sing ora kesuwun, mangka setemené Pengérané inyong Mahasugih, Mahamulya.”
 
-[^598]: Kitab sing dekarepna neng kene yakuwé kitab sing déturunaken seurungé nabi Sualprecaya.a.s, yakuwé Taurat lan Zabur.
-
 ## 27:41
 
 Dhéwéké (Sulaiman) ngucap, “Owahi nggo dhéwéké korsiné, inyong kabéh bakal nyekséni apa dhéwéké (Balqis) ora pangling; utawa ora mengerténi maning.”
@@ -14004,8 +12808,6 @@ Dhéwéké (Sulaiman) ngucap, “Owahi nggo dhéwéké korsiné, inyong kabéh b
 ## 27:42
 
 Mangka rikala dhéwéké (Balqis) teka, détakokna maring dhéwéké, “Apa kiyé mémper korsiné ko?” Dhéwéké (Balqis) njawab, “Kayong-kayongé kuwé korsiné inyong.” (Lan dhéwéké Balqis ngucap), “Inyong wis padha déparingi weruh seurungè, [^599] lan inyong kabéh klebu wong sing padha pasrah awak (maring Gusti Allah).”
-
-[^599]: Balqis wis weruh kenabiané Sulaiman a.s, seurungé korsiné depindhah sekang negeri Saba’ maring Palestina sesuwéné sekedhépan mata.
 
 ## 27:43
 
@@ -14031,8 +12833,6 @@ Dhéwéké padha semaur, “Inyong kabéh padha olih nasib ala merga sampéyan l
 
 Lan neng kota kuwé [^600] ana wong lanang sanga sing padha gawé kerusakan neng dunya, wong-wong mau ora padha gawé kebecikan.
 
-[^600]: Mitirut ahli tapsir, sing dekarepna karo kota kiyé yakuwé kota kaum Samud, yakuwé kota Al-Hijr.
-
 ## 27:49
 
 Dhéwéké padha ngucap, “Padha sumpaha ko kanthi (asmané) Gusti Allah, lamon inyong mesthi bakal padha nyerang dhéwéké karo kulawargané neng wektu wengi, banjur inyong bakal padha ngucap maring ahli warisé (lamon) inyong kabéh ora nyeksèni kerusakané kulawargané kuwé, lan temen, inyong kabéh kuwé wong sing bener.”
@@ -14053,13 +12853,9 @@ Mangka mengkana umah-umahé wong-wong kuwé sing padha ambruk merga aniayané dh
 
 Lan Ingsun (Gusti Allah) slametna wong-wong sing padha precaya [^601] lan wong-wong kuwé tansah padha semarah (takwa).
 
-[^601]: Nabi Saléh a.s lan wong-wong sing padha mélu dhéwéké.
-
 ## 27:54
 
 Lan (émuta riwayate) Lut, rikala dhéwéké ngucap maring kaumé, “Kenangapa ko padha nglakoni penggawé fāhisah [^602]  (njijihi), mangkané ko padha ngaweruhi (alané penggawéan kuwé)?”
-
-[^602]: Maksudé fahisyah neng kéné yakuwé junub sing ora lumrah, klebu lanang karo lanang utawa wadon karo wadon.
 
 ## 27:55
 
@@ -14088,8 +12884,6 @@ Kesinggihan (apa udu) Penjenengané (Gusti Allah) sing wis nyiptakna langit lan 
 ## 27:61
 
 Kesinggihan Penjenengané (Gusti Allah) sing wis nyiptakna bumi minangka papan nggo manggon, sing ndadékna kali neng sela-selané, sing ndadékna gunung-gunung nggo (neguhna) kuwé (bumi) lan ndadékna sewiji pemisah neng antaranè segara loro? [^603] Apa neng ngarsané Gusti Allah ana Pengéran (sing liya)? Sebeneré akéh-akéhé wong kuwé padha ora mengerténi.
-
-[^603]: Sing démaksud segara loro neng kéné yakuwé segara sing asin lan kali sing gedhé maring segara. Kali sing anyeb kuwé sewisé butul muara ora langung dadi asin.
 
 ## 27:62
 
@@ -14183,8 +12977,6 @@ Lan (élinga) neng dina (rikala) Ingsun ngumpulna sekang saben umat, segolongan 
 
 Nganti angger wong-wong kuwé padha teka, Penjenengané (Gusti Allah) dhawuh, “Kenangapa ko kabéh padha nggorohna ayat-ayat-É Ingsun, mangkané ko kabéh ora padha duwé kawruh ngenani kuwé, [^604] utawa apa jané sing wis ko kabéh padha pergawé?”
 
-[^604]: Maksudé: wong-wong musrik Arab nggorohna ayat-ayat-É Gusti Allah tanpa dépikir ndisit.
-
 ## 27:85
 
 Lan ucapan (janji siksa) kelakon ingatasè wong-wong kuwé merga aniayané dhéwéké kabéh, mangka wong-wong kuwé ora bisa padha ngucap.
@@ -14245,8 +13037,6 @@ Lan Ingsun bakal paring kanugrahan maring wong-wong sing ketindhes neng bumi (Me
 
 Lan Ingsun teguhna pelungguhané wong-wong kuwé neng bumi lan Ingsun tidhokna maring Fir’aun lan Haman bareng-bareng wadyabala (tentara)né apa sing tansah déwedéni déning dhéwéké kabéh. [^605]
 
-[^605]: Fir’aun kewatir terus prajané arep deancurna déning Bani Israil merga kuwé dhéwéké maténi anak-anak lanang sing lair sekang kaum Bani Israil. Ayat kiyé negesna arep ana kedadéan sing dekewatirna déning Fir’aun.
-
 ## 28:7
 
 Lan Inyong wisikna maring biyungé Musa, “Susoni dhéwéké (Musa), lan angger ko kewatir ingatasé dhéwéké, mangka kéndhangna dhéwéké maring bengawan (Nil). Lan aja pisan-pisan ko wedi lan (uga) aja susah, setemené Ingsun bakal mbalékna dhéwéké maring ko, lan ndadékna dhéwéké sewiji utusan (rasul).”
@@ -14262,8 +13052,6 @@ Lan bojoné Fir’aun ngucap, “(Dhéwéké) kuwé pengayem ati tumrap inyong l
 ## 28:10
 
 Lan atiné biyungé Musa dadi ngewangwung. [^606] Temen, méh baé dhéwéké mertélakna kuwé (wewadi ngenani Musa), angger ora Ingsun teguhna atiné, supayané dhéwéké klebu wong-wong sing precaya (maring janjiné Gusti Allah).
-
-[^606]: Sewisé biyungé Musa ngendhangaken Musa neng kali Nil, mangka krasa ngajog lan atiné mamang merga kewatir ingatasé keslametané Musa, malah méh baé dhéwéké nggembor njaluk tulung maring wong supaya njikot anaké maning, sing arep ndadékna kebukané wadi lamon Musa kuwé anaké dhéwéké.
 
 ## 28:11
 
@@ -14284,8 +13072,6 @@ Lan sewisé dhéwéké (Musa) diwasa lan sempurna nalaré, Ingsun paringna marin
 ## 28:15
 
 Lan dhéwéké (Musa) mlebu maring kota (Memphis) rikala wargané lagi padha lena, mangka dhéwéké weruh neng njero kota kuwé ana wong lanang loro lagi padha gelut; sing siji wong sekang golongané (Bani Israil) lan sing siji sekang golongané mungsuhé (balané Fir’aun). Wong sing sekang golongané dhéwéké (Musa) njaluk tulung marang dhéwéké, nggo ngalahna wong sing sekang péhak mungsuhé, banjur Musa njotos wong mau, lan mungsuhé mau mati. Dhéwéké (Musa) ngucap, “Kiyé polahé sétan. [^607] setemené dhéwéké (sétan kuwé) mungsuh sing nyata-nyata mblangsakna.”
-
-[^607]: Maksudé: Musa ngajog ingatasé matiné wong kuwé mau merga jotosané, merga dhéwéké ora duwé niyat maténi wong kuwé ning mung mbélani kaumé.
 
 ## 28:16
 
@@ -14343,13 +13129,9 @@ Dhéwéké (Musa) ngucap, “Kuwé (janji) antarané inyong karo rika. Sing endi
 
 Mangka rikala Musa wis ngrampungna wektu sing wis détemtokna kuwé lan dhéwéké mangkat karo kulawargané, dhéwéké weruh geni neng léréng gunung, [^608] dhéwéké ngucap maring kulawargané, “Enténana (neng kéné), setemené inyong weruh geni, moga-moga inyong bisa nggawa sewiji werta maring ko kabéh sekang (panggonan) geni kuwé utawa (nggawa) geni semendhing supayané ko bisa ngangetna awak.”
 
-[^608]: Sewisé Musa a.s. ngrampungna perjanjian karo Syu'aib a.s. dhéwéké mangkat bareng kulawargané lan pirang-pirang wedhus sing déwéhi déning mertuwané, mangka neng sewijiné wengi sing peteng dhédet lan adhem Musa a.s. butul neng salah siji panggonan ning saben dhéwéké ngurubna geni, geni kuwé ora bisa murub. Kedadéan kuwé banget gawé Musa krasa aneh mangka Musa ngucap maring bojoné kaya neng ayat 29 kuwé.
-
 ## 28:30
 
 Mangka rikala (Musa) butul maring (panggonan) geni kuwé, dhéwéké detimbali sekang (prenah) pinggir iring tengen lebak, sekang sewijiné wit, neng sekothak lemah sing déberkahi, “Hé Musa! Setemené, Ingsun kiyé Gusti Allah, Pengérané sekabéh ngalam! [^609]
-
-[^609]: Neng panggonan lan wektu kuwé Musa a.s. molahi dedhapuk dadi rasul.
 
 ## 28:31
 
@@ -14366,8 +13148,6 @@ Dhéwéké (Musa) ngucap, “Dhuh Pengéran kula, kula empun mejahi maténi setu
 ## 28:34
 
 Lan sedhérék kula Harun, kiyambeké langkung cetha pengucapipun ketimbang kula, [^610] mangka mugi Penjenengan ngutus kiyambeké sareng kula minangka batir ingkang ngrewangi nggé ngleresaken (ucapan) kula; sejatosipun kula ajrih tiyang-tiyang niku ajeng nggorohakén kula.”
-
-[^610]: Nabi Musa a.s. seliyané ngrasa wedi maring Fir’aun uga ngrasa kurang lancar pengucapé ngadhepi Fir’aun. Mangka nyenyuwun supayané Gusti Allah ngutus Harun a.s bareng dhéwéké sing lewih lancar ngucapé.
 
 ## 28:35
 
@@ -14425,8 +13205,6 @@ Lan supaya wong-wong kuwé ora padha ngucapna rikala dhéwéké padha nampa siks
 
 Mangka rikala bebener (Al-Qur’an) wis teka maring wong-wong kuwé sekang sisihé Ingsun, dhéwéké kabéh padha ngucap, “Kenangapa ora déparingna maring slirané (Muhammad) kayadéné sing wis déparingna maring Musa gemiyén?” Apa ora wong-wong jaman gemiyén (uga) padha ingkar maring apa sing déparingna maring Musa gemiyén? Wong-wong kuwé gemiyén padha ngucap. “(Musa lan Harun kuwé) tukang sihir [^611] loro sing padha tulung-tulungan.” Lan wong-wong kuwé (uga) ngucap, “Setemené inyong kabéh babar pisan ora precaya maring siji-siji wong-wong sekloron kuwé.”
 
-[^611]: Miturut sebagéan ahli tapsir, sing démaksud sihran yakuwé kitab taurat lan Al-Qur’an
-
 ## 28:49
 
 Dhawuha (Muhammad), “Tekakna sewiji kitab déning ko kabéh sekang sisihé Gusti Allah sing kitab kuwé lewih awéh pituduh tenimbang sekloroné (Taurat lan Al-Qur’an), mesthi inyong bakal nurut maring kuwé, angger ko kuwé wong sing padha bener.”
@@ -14467,8 +13245,6 @@ Lan dhéwéké padha ngucap, “Angger inyong kabéh padha mélu maring pituduh 
 
 Lan sepira akéhé (warga) negari sing wis padha seneng-seneng neng penguripané sing wis Ingsun tumpes, mangka ya kuwé panggonané wong-wong mau sing ora depanggoni (maning) sewisé dhéwéké kabéh, kejaba mung semendhing. Lan mung Ingsun pribadi sing marisi kuwé. [^612]
 
-[^612]: Maksudé: sewisé dhéwéké kabéh ancur panggonan kuwé wis suwung lan ora demakmurna maning, banjur panggonan kuwé mbalik maring sing duwé hak yakuwé Gusti Allah.
-
 ## 28:59
 
 Lan Pengéranmu ora bakal numpes negari-negari, seurungé Penjenengané ngutus sewiji utusan neng pusat kotané sing macakna ayat-ayat-É Ingsun maring wong-wong kuwé; lan (uga) ora naté Ingsun numpes (warga) negari; kejaba wargané padha temindak aniaya (dolim).
@@ -14480,8 +13256,6 @@ Lan apa baé (bandha, pangkat, keturunan) sing déparingna maring ko kabéh, man
 ## 28:61
 
 Mangka apa padha wong sing Ingsun janjékna maring dhéwéké kabéh kanthi janji sing becik (suwarga) banjur dhéwéké mekolih kuwé, karo wong sing Ingsun paringi urip seneng neng dunya; [^613] banjur rikala dina Kiyamat dhéwéké kelebu wong-wong sing padha deséréd (maring njero neraka)?
-
-[^613]: Maksudé: wong sing déwéhi kanékmatan urip neng dunya ning ora denggo nggolét kesbecikan  urip akhérat, merga kuwé dhéwéké neng akhérat délebokna neraka.
 
 ## 28:62
 
@@ -14539,13 +13313,9 @@ Lan (élinga) neng dina rikala Penjenengané (Gusti Allah) nimbali wong-wong kuw
 
 Lan Ingsun tekakna sekang saben umat sewiji seksi, [^614] banjur Ingsun dhawuh, “Pertelakna bukti beneré ko,” mangka padha ngaweruhi wong-wong kuwé lamon sing hak (bebener) kuwé kagungané Gusti Allah lan ilang sekang dhéwéké kabéh apa sing gemiyén dhéwéké padha ana-anakna.
 
-[^614]: Sing démaksud: seksi neng kéné yakuwé rasul sing déutus maring dhéwéké sawetara wektu.
-
 ## 28:76
 
 Setemené Karun klebu kaumé Musa, [^615] ning dhéwéké temindak aniaya (dolim) maring wong-wong kuwé, lan Ingsun wis paring kenugrahan maring dhéwéké gudhang bandha sing kunci-kunciné temen abot depikul déning wong-wong sing rosa. (Élinga) rikala kaumé ngucap maring dhéwéké, “Aja pisan-pisan ko keliwat bangga. Temen, Gusti Allah ora karenan maring wong sing padha mbanggakna awaké dhéwék.”
-
-[^615]: Karun yakuwé salah sijiné anak pamané  Nabi Musa a.s.
 
 ## 28:77
 
@@ -14575,8 +13345,6 @@ Lan wong-wong sing winginé ngangen-angenaken drajaté (Karun) kuwé padha nguca
 
 Negari akhérat kuwé Ingsun gawé nggo wong-wong sing padha ora gemedhé lan ora gawé kerusakan neng bumi. Lan pungkasan (sing apik) [^616] kuwé nggo wong-wong sing padha semarah (takwa).
 
-[^616]: Yakuwé suwarga
-
 ## 28:84
 
 Sapa wongé sing teka kanthi (nggawa) kebecikan, mangka dhéwéké bakal olih (ganjaran) sing lewih apik tenimbang kebecikané kuwé; lan sapa wongé teka kanthi (nggawa) kejahatan, mangka wong-wong sing nglakoni kejahatan kuwé mung déparingi piwales (imbang) karo apa sing wis dhéwéké padha pergawé.
@@ -14584,8 +13352,6 @@ Sapa wongé sing teka kanthi (nggawa) kebecikan, mangka dhéwéké bakal olih (g
 ## 28:85
 
 Setemené (Gusti Allah) sing majibna sliramu (Muhammad) nggo (ngleksanakna hukum-hukum) Al-Qur’an, temen-temen bakal mbalékna sliramu maring panggonan bali. [^617] Dhawuha (Muhammad), “Pengéranku ngawuningani wong sing nggawa pituduh lan wong-wong neng sejeroné kesasar sing nyata.”
-
-[^617]: Maksudé panggonan nggo bali neng kéné yakuwé kota Mekah. Kiyé sewijiné janjiné Gusti Allah, Nabi Muhammad s.a.w. arep bali maring Mekah dadi wong sing menang, lan kiyé wis kedadéan wektu taun kaping wolu hijriyah rikala Nabi naklukna Mekah. Kiyé uga salah sijiné mukjijaté Nabi.
 
 ## 28:86
 
@@ -14639,8 +13405,6 @@ Lan wong-wong sing padha precaya lan sing padha nglakoni kebecikan, dhéwéké k
 
 Lan neng antarané menungsa ana sebagéan sing ngucap, “Inyong kabéh padha precaya maring Gusti Allah,” ning angger dhéwéké délarani (merga dhéwéké precaya) maring Gusti Allah, dhéwéké padha nganggep coban sekang menungsa kuwé minangka siksa sekang Gusti Allah. [^618] Lan angger teka pitulungan sekang Pengéranmu, mesthi wong-wong kuwé bakal ngucap, “Setemené inyong padha bareng karo ko kabéh.” Apa Gusti Allah ora lewih ngawuningani apa sing ana neng njero dhadhané kabéh menungsa?
 
-[^618]: Maksudé, wong kuwé wedi karo aniaya-aniayané wong liya maring dhéwéké merga precayaé, kaya wediné maring siksané Gusti Allah, merga kuwé precayaé détinggal.
-
 ## 29:11
 
 Lan Gusti Allah mesthi ngawuningani wong-wong sing precaya lan Penjenengané mesthi ngawuningani wong-wong sing mung lamis (munapék).
@@ -14669,8 +13433,6 @@ Lan (élinga) Ibrahim, rikala dhéwéké ngucap maring kaumé, “Padha nyembaha
 
 Setemené sing ko padha sembah seliyané Gusti Allah mung brehala-brehala (reca), lan ko padha gawé kepalsuan. [^619] Setemené apa sing ko padha sembah seliyané Gusti Allah kuwé ora bisa awéh rejeki maring ko kabéh; mangka padha nyuwuna rejeki sekang Gusti Allah, lan sembaha Penjenengané lan padha kesuwuna (sukur) maring Penjenengané. Mung maring Penjenengané ko kabéh bakal débalékna.
 
-[^619]: Maksudé, dhéwéké kabéh nganggep reca-reca kuwé bisa awéh sapangat maring dhéwéké neng sisihé Gusti Allah, lan kiyé jan-jané goroh.
-
 ## 29:18
 
 Lan angger ko kabéh (wong kapir) padha nggorohna, mangka temen, umat seurungmu uga padha nggorohna (utusan-utusan). Lan kewajibané rasul kuwé mung mbutulna (agamané Gusti Allah) kanthi gamblang.”
@@ -14682,8 +13444,6 @@ Lan apa wong-wong kuwé ora padha nggatékna kepriwé Gusti Allah ngawiti ciptan
 ## 29:20
 
 Ucapna, “Padha mlakua neng bumi, mangka gatékna kepriwé (Gusti Allah) ngawiti ciptanan (mahluk), banjur Gusti Allah ndadékna kedadéan sing pungkasan. [^620] Temen, Gusti Allah Mahakewasa ingatasé samubarang kabéh.
-
-[^620]: Gusti Allah nangékna menungsa sewisé mati neng akhérat.
 
 ## 29:21
 
@@ -14713,8 +13473,6 @@ Mangka Lut mbenerna (kenabiané Ibrahim). Lan dhéwéké (Ibrahim) ngucap, “Se
 
 Lan Ingsun nugrahakna maring Ibrahim, Ishak (anak) lan Yakub (putu); lan Ingsun dadékna (paringna) kenabian lan kitab maring keturunané, lan Ingsun paringna maring dhéwéké piwales neng dunya; [^621] lan setemené dhéwéké neng akhérat, klebu wong sing apik (saléh).
 
-[^621]: Kanthi awéh anak putu sing apik, kenabian sing ora nana pedhoté maring keturunané, lan pengalembana sing apik.
-
 ## 29:28
 
 Lan (élinga) rikala Lut ngucap maring kaumé, “Ko kabéh nyata-nyata nglakoni penggawéan sing njijihi banget (njambu/lanang dhemen lanang) sing urung nglakon dépergawé déning sewiji baé sekang umat-umat seurungé ko kabéh.
@@ -14722,8 +13480,6 @@ Lan (élinga) rikala Lut ngucap maring kaumé, “Ko kabéh nyata-nyata nglakoni
 ## 29:29
 
 Apa pantes ko padha méreki (ndhemeni) wong lanang, ngrampog (motong dalan) [^622] lan nglakoni kejahatan neng papan-papan pesamuanmu? Mangka wangsulané kaumé ora liya mung ngucap, “Tekakna maring inyong kabéh siksané Gusti Allah, angger ko kuwé klebu wong-wong sing bener.”
-
-[^622]: Sebagéan musafir negesi taqta’unas sabil kanthi “nglakokna pegawéan clemer tumrap wong-wong sing sedawané lelungan”, merga dhéwéké padha sebagéan gedhé nglakoni njambu (lanang dhemen lanang) kuwé maring dhayoh-dhayoh sing teka maring désané. Ana maning sing negesi kanthi “ngrusak dalan keturunan” merga dhéwéké padha nglakoni njambu (homoseksual).
 
 ## 29:30
 
@@ -14733,8 +13489,6 @@ Dhéwéké (Lut) nyenyuwun, “Dhuh, Pengéran kula, mugi nulungi kula (kanthi n
 
 Lan nalika utusan Ingsun (para malaékat) nekani Ibrahim kanthi nggawa kabar bebungah, [^623] malaékat kuwé padha ngucap, “Temen, inyong bakal numpes warga kota (Sodom) kiyé merga wargané nyata-nyata wong sing padha aniaya (dolim).”
 
-[^623]: Warta menawa Nabi Ibrahim a.s arep kanugrahan putra.
-
 ## 29:32
 
 Ibrahim ngucap, “Setemené neng kota kuwé ana Lut.” Wong-wong kuwé (malaékat-malaékat) ngucap, “Inyong kabéh lewih ngaweruhi sapa sing ana neng kota kuwé. Inyong bakal padha nylametna dhéwéké (Lut) lan batir-batiré, kejaba bojoné. Dhéwé-ké klebu wong-wong sing ketinggal (melu détumpes).”
@@ -14743,8 +13497,6 @@ Ibrahim ngucap, “Setemené neng kota kuwé ana Lut.” Wong-wong kuwé (malaé
 
 Lan rikala utusan-utusan Ingsun (malaékat-malaékat) teka merdhayoh maring Lut, dhé-wéké krasa susah merga (tekané) malaékat-malaékat kuwé, lan krasa ora duwé daya nggo ngayomi tamu-tamu kuwé, [^624] lan dhéwéké padha (utusan-utusan) ngucap, “Sampéyan aja wedi lan (uga) aja susah. Setemené inyong kabéh bakal nylametna sampéyan lan batir-batiré sampéyan, kejaba bojoné sampéyan, dhéwéké klebu wong sing détinggal (melu détumpes).”
 
-[^624]: Nabi Lut a.s ngrasa sedih arep teka utusan-utusané Gusti Allah merga arupa bocah nom sing ganteng, semana uga kaumé Lut dhemen maring bocah nom sing ganteng nggo nglakoni nepsuné (homoseksual). Lan dhéwéké ora sanggup awéh nglindungi angger ana bebaya sekang kaumé.
-
 ## 29:34
 
 Setemené Ingsun bakal nurunaken siksa sekang langit maring warga kota kiyé merga wong-wongé padha temindak jahat (pasék).
@@ -14752,8 +13504,6 @@ Setemené Ingsun bakal nurunaken siksa sekang langit maring warga kota kiyé mer
 ## 29:35
 
 Lan temen, ngenani kuwé wis Ingsun tinggalna sewiji tandha sing nyata [^625] tumrap wong-wong sing padha mengerténi.
-
-[^625]: Lewihan-lewihané ambruké negari Sodom, negariné kaum Lut.
 
 ## 29:36
 
@@ -14799,8 +13549,6 @@ Wacanen Kitab (Al-Qur’an) sing wis déwahyokna maring sliramu (Muhammad), lan 
 
 Lan aja pisan-pisan ko padha debadan karo Ahli Kitab, anging kanthi cara sing apik, kejaba karo wong-wong sing aniaya (dolim) neng antarané dhéwéké, [^626] lan ucapna, “Inyong kabéh wis padha precaya maring (kitab-kitab) sing déturunaken maring awaké inyong kabéh lan sing déturunaken maring ko kabéh; Pengéranku lan Pengéranmu siji lan mung maring Penjenengané inyong padha pasrah awak.”
 
-[^626]: Wong-wong sing sewisé déwéhna maring dhéwéké keterangan-keterangan lan pertelan-pertelan kanthi cara sing paling apik, dhéwéké kabéh tetep mbantah lan mbangkang lan uga tetep nyatakna dadi mungsuh.
-
 ## 29:47
 
 Lan mengkana kuwé Ingsun turunaken Kitab (Al-Qur’an) maring sliramu. Anadéné wong sing wis Ingsun paringi Kitab (Taurat lan Injil) dhéwéké padha precaya maring kitab kuwé (Al-Qur’an) lan neng antarané dhéwéké (wong-wong kapir Mekah) ana sing precaya maring kuwé. Lan mung wong-wong sing mbangkang (kapir) sing padha ngingkari ayat-ayat Ingsun.
@@ -14812,8 +13560,6 @@ Lan sliramu (Muhammad) urung nglakon maca sewiji kitab seurungé Al-Qur’an lan
 ## 29:49
 
 Sebeneré (Al-Qur’an) kuwé ayat-ayat sing cetha neng njeroné dhadhané wong-wong sing padha duwé ilmu. [^627] Mung wong-wong sing aniaya (dolim) sing padha ora precaya maring ayat-ayat Ingsun.
-
-[^627]: Ayat-ayat Al-Qur’an kuwé dejaga neng njero dhadha kanthi deapalna déning akéh wong muslim turun-temurun lan dépahami déning dhéwéké kabéh saéngga ora nana sewiji wong baé sing bisa ngubah Al-Qur’an.
 
 ## 29:50
 
@@ -14830,8 +13576,6 @@ Dhawuha (Muhammad), “Cukup Gusti Allah dadi seksi antarané inyong lan ko kab�
 ## 29:53
 
 Lan dhéwéké kabéh padha njaluk maring sliramu supaya gagiyan déturunaken siksa. Angger ora merga wektuné sing wis détetepna, [^628] mesthi siksa kuwé teka maring wong-wong mau, lan (siksa kuwé) mesthi bakal teka maring dhéwéké kabéh kanthi dadakan, éwadéné wong-wong kuwé padha ora nggliga.
-
-[^628]: Détetepna siksa kuwé neng dina piwalesan neng akhérat.
 
 ## 29:54
 
@@ -14881,8 +13625,6 @@ Lan penguripan neng dunya kiyé mung glewéhan lan dolanan. Lan setemené negari
 
 Mangka angger dhéwéké padha numpak prahu, wong-wong kuwé padha nyenyuwun maring Gusti Allah kanthi rasa ngabekti (tulus) maring Penjenengané, [^629] ning rikala Gusti Allah paring keslametan maring dhéwéké kabéh butul maring dharat, malah wong-wong kuwé (bali) padha nyekuthokna Gusti Allah,
 
-[^629]: Kanthi murni taaté maring Gusti Allah.
-
 ## 29:66
 
 jorna wong-wong kuwé padha ngingkari nékmat sing wis Ingsun paringna maring dhéwéké lan ngonoh wong-wong kuwé padha (urip) seneng-seneng (sejeroné kapir). Mangka mbésuk dhéwéké kabéh bakal padha ngaweruhi (wohé penggawéyané).
@@ -14894,8 +13636,6 @@ Apa wong-wong kuwé ora padha nggatékna lamon Ingsun wis ndadékna (negariné d
 ## 29:68
 
 Lan sapa sing lewih aniaya (dolim) tenimbang wong sing ngana-anakna penggorohan maring Gusti Allah utawa wong sing nggorohna sing hak [^630] (bener) rikala (sing apik) kuwé butul maring dhéwéké? Mbok iya neng neraka Jahanam ana panggonan nggo wong-wong sing mbangkang (kapir)?
-
-[^630]: Nggorohna kenabiané Nabi Muhammad s.a.w.
 
 ## 29:69
 
@@ -14909,21 +13649,13 @@ Alif lām mīm.
 
 Bangsa Romawi wis dékalahna, [^631]
 
-[^631]: Romawi Wétan sing pusaté neng kota Konstantinopel.
-
 ## 30:3
 
 neng negari sing paling pérek [^632] lan dhéwéké kabéh sewisé dékalahna kuwé bakal menang, [^633]
 
-[^632]: Paling pérek maring negari Arab yakuwé Suriah lan Palestina.
-
-[^633]: Bangsa Romawi (rikala ayat kiyé temurun) dadi bangsa sing agamané Nasrani sing duwé Kitab Suci, anadéné Bangsa Persia (Iran) agamané Majusi sing nyembah geni lan brehala (musrik). Bangsa loro kuwé padha perang. Rikala ana kabar kalahé bangsa Romawi déning bangsa Persia, wong musrik Mekah padha bungah merga padha mehak musrik Persia. Anadéné wong Islam Mekah padha susah merga kuwé. Banjur temurun ayat kiyé lan ayat sing sebanjuré sing nerangna lamon bangsa Romawi sewisé kalah bakal menang neng jangkah sewetara taun baé. Kuwé temen kedadén. Sewetara taun sewisé kuwé bangsa Romawi menang lan bangsa Persia kalah, Kanthi kedadéan kuwé dadi nyata beneré Kanjeng Nabi Muhammad s.a.w, minangka Nabi lan Rasul lan bebeneré Al-Qur’an minangka sabdané Gusti Allah.
-
 ## 30:4
 
 sejeroné sewetara taun (maning). [^634] Kagungané Gusti Allah urusan seurungé lan sewisé (wong-wong kuwé menang). Lan neng dina (kemenangané bangsa Romawi) kuwé wong-wong sing precaya padha bungah,
-
-[^634]: Antarané telu nganti sangang taun. Wektu antarané kalahé bangsa Romawi (taun 614-615 Masehi) karo menangé (taun 622 M) kuwé kira-kira pitung taun.
 
 ## 30:5
 
@@ -14961,8 +13693,6 @@ Lan neng dinané (rikala) kedadéan Kiyamat, wong-wong sing dosa (wong-wong musr
 
 Lan ora gadhang ana sing awéh sapangat (pitulungan) tumrap dhéwéké sekang brehala-brehalané wong-wong kuwé, mangkané dhéwéké padha ngingkari brehala-brehala kuwé. [^635]
 
-[^635]: Miturut sebagéan juru tapsir, ayat kiyé détegesi, “....malah dhéwéké padha dadi kapir merga brehala-brehala.”
-
 ## 30:14
 
 Lan neng dina (rikala) kedadéan Kiyamat, neng dina kuwé menungsa crah-bubrah (dadi panthan-panthan).
@@ -14982,8 +13712,6 @@ Mangka padha maha-nyucekna (maca tasbéh) maring Gusti Allah neng wektu soré la
 ## 30:18
 
 Lan sekabéh pengalembana kagungané Penjenengané neng langit lan neng bumi, ana neng wektu tengah wengi lan wektu duhur (tengah dina), [^636]
-
-[^636]: Maksudé maca tasbéh neng ayat 17 yakuwé sembayang. Ayat 17 karo 18 nerangna wektu sembayang sing lima.
 
 ## 30:19
 
@@ -15025,8 +13753,6 @@ Lan Penjenengané sing ngawiti penyiptanan, banjur mbaléni maning, lan kuwé le
 
 Penjenengané gawé peumpaman nggo ko sekang awakmu dhéwék kabéh. Apa (ko padha rila angger) ana neng antarané kewula sing ko duwéni dadi batirmu neng sejeroné (nduwéni) rejeki sing wis Ingsun paringna maring ko kabéh, saéngga ko kabéh dadi sepadhan karo wong-wong kuwé neng prekara kiyé, banjur ko padha wedi maring dhéwéké kaya ko padha wedi maring sebangsamu. [^637] Mengkana kuwé Ingsun genahna ayat-ayat mau tumrap wong-wong sing padha mengerténi.
 
-[^637]: Peumpman kuwé nggambarna lamon ora pantes anané sekuthon neng antarané perangan-angan sing ora sepadhan, contoné antarané majikan karo kewula, apa maning antarané mahluk karo Gusti Allah, mesthi lewih ora pantes maning.
-
 ## 30:29
 
 Ning wong-wong sing aniaya (dolim) padha nuruti kepénginané ora nganggo kawruh; mangka sapa sing bisa awéh pituduh maring wong sing wis désasarna déning Gusti Allah. Lan babar pisan ora nana sing nulungi dhéwéké kabéh.
@@ -15034,8 +13760,6 @@ Ning wong-wong sing aniaya (dolim) padha nuruti kepénginané ora nganggo kawruh
 ## 30:30
 
 Mangka adhepna raimu kanthi jejeg maring agama (Islam); (selaras) kesuciané (fitrah) Gusti Allah merga Penjenengané wis nyiptakna menungsa miturut (fitrah) kuwé. [^638] Ora nana owah-owahan neng ciptanané Gusti Allah. (Kuwé) agama sing jejeg, ning akéh-akéhé menungsa ora padha mengerténi,
-
-[^638]: Fitrahé Gusti Allah maksudé ciptanané Gusti Allah. Menungsa déciptakna déning Gusti Allah duwé naluri precaya maring agama yakuwé agama sing nyewijikna Gusti Allah. Angger ana menungsa sing ora nyewijikna Gusti Allah, kuwé ora sebaéné.
 
 ## 30:31
 
@@ -15045,13 +13769,9 @@ kanthi bali mertobat maring Penjenengané lan padha semaraha (takwa) maring Penj
 
 yakuwé wong-wong sing padha ngorak-ngarik agamané [^639] lan dhéwéké kabéh padha dadi pirang-pirang panthan (golongan), saben-saben panthan ngrasa bangga kanthi apa sing ana neng golongané dhéwék-dhéwék.
 
-[^639]: Ninggalna agama nyewiji (tauhid) lan mélu werna-werna peprecayaan nuruti kepénginané wong-wong kuwé.
-
 ## 30:33
 
 Lan angger menungsa ketiban sewijiné bebaya, wong-wong mau padha nyebut-nyebut maring Pengérané kanthi bali (mertobat) maring Penjenengané, banjur angger Penjenengané paring kewelasan [^640] semendhing baé maring dhéwéké kabéh, dadakan sebagéané dhéwéké padha nyekuthokna Gusti Allah.
-
-[^640]: Sing démaksud “rahmat” neng kéné yakuwé uwalé sekang bebaya mau.
 
 ## 30:34
 
@@ -15093,8 +13813,6 @@ Dhawuha (Muhammad), “Padha lelungana neng bumi banjur delengen kepriwé wekasa
 
 Merga kuwé, adhepna raimu maring agama sing jejeg (Islam) seurungé teka sekang Gusti Allah sewijiné dina (Kiyamat) sing ora bisa detampik, neng dina kuwé wong-wong padha kepisah-pisah [^641]
 
-[^641]: Yakuwé sebagéané dhéwéké padha neng njero neraka lan sebagéané maning padha neng njero suwarga.
-
 ## 30:44
 
 Sing sapa wongé mbangkang (kapir) mangka awaké dhéwéké sing nanggung (akibat) mbangkangé kuwé; lan sing sapa wongé nglakoni kebecikan mangka dhéwéké padha nyiyapna nggo awaké dhéwéké (panggonan sing nyenengna),
@@ -15107,13 +13825,9 @@ supaya Gusti Allah paring piwales (ganjaran) maring wong-wong sing padha precaya
 
 Lan klebu tandha-tandha (agung)-É yakuwé lamon Penjenengané ngirimna angin minangka dadi kabar bebungah [^642] lan supaya ko padha ngrasakna sebagéan sekang kewelasan-É (rahmat) lan supaya prahu kuwé bisa mlaku kanthi préntah-É lan (uga) supaya ko padha bisa nggolét sebagéan sekang kanugrahan-É supaya ko padha kesuwun (sukur).
 
-[^642]: “Sing nggawa kabar bebungah” tegesé, lamuk kandel sing degawa angin banjur dadi udan. Merga kuwé bisa dérasakna kewelasané Gusti Allah kanthi thukulé wewijen sing wis dedhédher lan dadi ijoné tandur-tanduran, padha wohé thethukulan lan liya-liyané.
-
 ## 30:47
 
 Lan temen, Ingsun wis ngutus seurungé sliramu (Muhammad) pira-pira utusan maring kaumé, dhéwéké kabéh (para utusan) teka maring kaumé kanthi nggawa keterangan-keterangan (sing cukup), banjur Ingsun paring piwales maring wong-wong sing padha dosa, [^643] lan dadi wenang (hak) Ingsun nggo nulung wong-wong sing padha precaya.
-
-[^643]: Kanthi tekané para utusan sing nggawa keterangan maring kaumé kuwé, mangka sebagéané padha precaya lan sebagéané padha ora precaya, malah nganti ana sing nglarani para utusan (rasul). Mangka maring wong sing padha gawé dosa kuwé Gusti Allah paring siksa maring dhéwéké kabéh.
 
 ## 30:48
 
@@ -15135,8 +13849,6 @@ Lan temen, angger Ingsun ngirimna angin banjur wong-wong kuwé padha weruh (tand
 
 Mangka temen, sliramu ora bakal kewawa ndadékna wong-wong sing wis mati kuwé bisa krungu, lan ndadékna wong-wong sing budheg bisa krungu pengajék-ajék, angger wong-wong kuwé padha gelem nylinguk mburi. [^644]
 
-[^644]: Wong-wong kapir kuwé depadhakna Gusti Allah karo wong-wong mati sing ora bisa krungu kawruh-kawruh maning. Semana uga depadhakna wong-wong budheg sing ora bisa krungu angger deceluk sekang mburi.
-
 ## 30:53
 
 Lan sliramu ora bakal bisa awéh pituduh maring wong-wong sing wuta (picek atiné) sekang kesasaré. Lan sliramu ora bisa awéh pengrungon (pituduhé Pengéran) kejaba maring wong-wong sing padha precaya maring ayat-ayat-É Ingsun, mangka dhéwéké kabéh kuwé wong-wong sing padha pasrah awak (maring Ingsun).
@@ -15148,8 +13860,6 @@ Gusti Allah sing nyiptakna ko kabéh sekang kahanan ora duwé daya, banjur Penje
 ## 30:55
 
 Lan neng dina (rikala) kedadéané Kiyamat, wong-wong sing duwé dosa padha sumpah, lamon dhéwéké manggon neng njeroné kubur mung sedhéla (thok). Kaya kuwé (uga) gemiyén dhéwéké padha depléngosna (sekang bebener). [^645]
-
-[^645]: Maksudé, kaya dhéwéké goroh neng senjeroné ucapané, semana uga kaya kuwé dhéwéké goroh terus neng dunya.
 
 ## 30:56
 
@@ -15199,8 +13909,6 @@ Lan neng antarané menungsa (ana) wong sing nganggo pewicaran suwung nggo nyasar
 
 Lan angger déwacakna maring dhéwéké kabéh [^646] ayat-ayat Ingsun, dhéwéké mléngos kanthi ngagulna awak api-api dhéwéké urung krungu, kaya-kaya ana sumpelan neng kuping loroné, mangka bombongna dhéwéké kanthi siksa sing perih.
 
-[^646]: Maring wong sing nggunakna crita suwung nggo nyasarna menungsa.
-
 ## 31:8
 
 Setemené wong-wong sing padha precaya lan nglakoni kebagusan, dhéwéké kabéh bakal olih suwarga-suwarga sing kebek kenékmatan,
@@ -15229,8 +13937,6 @@ Lan (élinga) rikala Lukman ngucap maring anaké, rikala dhéwéké awéh piwula
 
 Lan Ingsun dhawuhna maring menungsa (supaya gawé bagus) maring wong tuwané sekloron. Biyungé wis ngandhut dhéwéké neng kahanan ringkih sing tambah-tambah, lan nyapih (methil suson) dhéwéké wektu umur rong taun [^647] . Kesuwuna ko maring Ingsun lan maring wong tuwamu sekloron. Mung maring Ingsun balimu.
 
-[^647]: Nyapih anak kuwé seora-orané nganti umur rong taun.
-
 ## 31:15
 
 Lan angger sekloroné meksa maring ko supayané nyekuthokna Ingsun karo sewiji-wiji sing ko ora duwé ilmuné ngenani kuwé, mangka aja pisan-pisan ko manut (maring) sekloroné, lan srawungana sekloroné neng dunya kanthi becik, lan mélua dalané wong sing padha bali maring Ingsun. Banjur mung maring Ingsun nggon baliné ko kabéh, mangka bakal Ingsun paringi weruh maring ko kabéh apa sing ko padha pergawé.
@@ -15238,8 +13944,6 @@ Lan angger sekloroné meksa maring ko supayané nyekuthokna Ingsun karo sewiji-w
 ## 31:16
 
 (Lukman ngucap), “Hé anaku! Temen, angger ana (sewijiné penggawéan) seaboté wiji sawi, lan ana neng njero watu utawa neng langit utawa neng bumi, mesthi Gusti Allah bakal paring (piwales). Setemené Gusti Allah Mahaalus, [^648] Mahanastiti.
-
-[^648]: “Gusti Allah Mahaalus” yakuwé ilmuné Gusti Allah nglingkupi samubarang kabéh nganti sing paling lembut (cilik).
 
 ## 31:17
 
@@ -15252,8 +13956,6 @@ Lan aja pisan-pisan ko mléngosna raimu sekang menungsa (merga gemedhé) lan aja
 ## 31:19
 
 Lan depersajakna olihé mlaku, [^649] lan lirihna sewaramu. Setemené seala-alané sewara kuwé sewarané jaran khimar ( keledai).”
-
-[^649]: Angger mlaku aja kebanteren lan uga aja kedhologen.
 
 ## 31:20
 
@@ -15287,8 +13989,6 @@ Kagungané Gusti Allah apa sing neng langit lan neng bumi. Setemené Gusti Allah
 
 Lan énggané wit-wit sing neng bumi dadi pulpen lan segara (dadi mangsi), detambahi maring kuwé (maning) pitung segara sewisé (garing)é, mesthi ora nana entong-entongé (detulisna) kalimat-kalimaté Gusti Allah. [^650] setemené Gusti Allah Mahadigdaya, Mahawicaksana.
 
-[^650]: Ilmu-Né lan hikmah-É, tegesé kabéh kuwé ora cukup nggo nulis kalimah Allah.
-
 ## 31:28
 
 Nyiptakna lan nangékna ko kabéh (tumrap Gusti Allah) mung kaya (nyiptakna lan nangékna) jiwa siji thok (gampang). Setemené Gusti Allah Maha Midhanget, Maha Mriksani.
@@ -15309,8 +14009,6 @@ Apa ko ora padha nggatékna lamon setemené prahu sing mlaku neng segara kuwé k
 
 Lan angger wong-wong kuwé degulung déning ombak sing gedhé kaya gunung, dhéwéké padha nyebut-nyebut Gusti Allah kanthi tulus iklas ngrasuk agama maring Penjenengané. Ning rikala Gusti Allah nylametna dhéwéké kabéh butul neng dharat, banjur sebagéané tetep ngambah dalan sing jejeg. [^651] Anadéné sing padha ngingkari ayat-ayat-É Ingsun mung wong tukang cidra sing ora padha (gelem) kesuwun.
 
-[^651]: Dalan sing jejeg kuwé ngakoni nyewijiné Gusti Allah.
-
 ## 31:33
 
 Hé menungsa! Padha semaraha (takwa) maring Pengéranmu lan wedia maring dina sing (rikala kuwé) rama ora bisa nulungi anaké, lan anak (uga) ora bisa nulungi ramané babar pisan. Temen, janjiné Gusti Allah mesti bener, mangka aja pisan-pisan ko padha kapusan déning penguripan dunya, lan aja nganti ko padha kapusan déning tukang apus-apus sejeroné (manut maring) Gusti Allah.
@@ -15318,8 +14016,6 @@ Hé menungsa! Padha semaraha (takwa) maring Pengéranmu lan wedia maring dina si
 ## 31:34
 
 Setemené mung neng sisihé Gusti Allah ilmu ngenani dina Kiyamat; lan Penjenengané sing nurunaken udan, lan ngawuningani apa sing ana neng njeroné gua garba (wetengan). Lan ora nana sijia wong sing bisa ngaweruhi (kanthi maton) apa sing bakal dhéwéké pergawé ngésuk. [^652] Lan ora nana sijia wong sing bisa ngaweruhi neng bumi endi dhéwéké bakal mati. Temen, Gusti Allah Maha Ngawuningani, Maha Mengerténi.
-
-[^652]: Menungsa ora bakal ngaweruhi kanthi maton apa sing bakal dhéwéké pergawé neng dina ngésuk utawa apa sing bakal dhéwéké pekolih, senajan kaya kuwé dhéwéké déwajibna setiyar (usaha).
 
 ## 32:1
 
@@ -15337,15 +14033,9 @@ Ning kenangapa dhéwéké kabéh (wong-wong kapir) padha ngucap, “Dhéwéké (
 
 Gusti Allah sing nyiptakna langit lan bumi lan apa sing ana neng antarané sekloroné sejeroné nem mangsa, banjur Penjenengané milenggah neng sendhuwuré ‘Arsy. [^653] Tumrap ko kabéh ora nana sijia wong sing tulung utawa awéh sapangat [^654] seliyané Penjenengané. Mangka apa ko ora padha nggatékna?
 
-[^653]: Milenggah neng sendhuwuré ‘Arsy salah sijiné sipaté Gusti Allah sing kudu inyong kabéh andeli selaras karo keluhuran lan kesuciané Penjenengané.
-
-[^654]: Sapangat yakuwé pitulungan sing déwéhna déning rasul utawa wong-wong pinilih nggo ngénthéng-énthéng siksa utawa renggan sewijiné wong neng akhérat.
-
 ## 32:5
 
 Penjenengané ngatur sekabéh urusan sekang langit maring bumi, banjur (urusan) kuwé munggah maring Penjenengané [^655] sejeroné sedina sing ukuran (suwéné) sewu taun miturut étunganmu.
-
-[^655]: Wertané sing degawa neng malaékat. Ayat kiyé sewijiné perlambang (tamsil) ingatasé agungé Gusti Allah lan keluhuran-É.
 
 ## 32:6
 
@@ -15367,8 +14057,6 @@ Banjur Penjenengané nyempurnakna lan nyebulna roh (ciptanan)é maring njero (aw
 
 Lan wong-wong kuwé padha ngucap, “Apa angger inyong kabéh wis padha ilang (ajur) neng njero lemah, inyong kabéh bakal ana neng ciptanan sing anyar?” [^656] Malah dhéwéké padha ngingkari (ora precaya bakal) ketemu karo Pengérané.
 
-[^656]: Déuripna maning nggo nampani piwalesé Gusti Allah neng dina Kiyamat.
-
 ## 32:11
 
 Dhawuhna, “Malaékat juru pati sing depasrahi (njabud nyawa)mu bakal matékna ko kabéh, banjur maring Pengéranmu ko kabéh bakal débalékna.”
@@ -15389,13 +14077,9 @@ Mangka rasakna déning ko kabéh (siksa kiyé) merga ko padha ngelalekna tetemon
 
 Wong-wong sing padha precaya maring ayat-ayat-É Ingsun mung wong-wong sing angger de-élingna kanthi (ayat-ayat-É Ingsun), dhéwéké padha ndheprok sujud [^657] lan padha maha-nyucekna (maca tasbéh) karo muji Pengérané, lan dhéwéké ora padha ngagulna awaké dhéwék.
 
-[^657]: Dhéwéké padha sujud, manut-miturut maring Gusti Allah lan gentur (khusuk). Desunahna nglakoni sujud tilawah angger maca utawa krungu ayat-ayat sajdah sing kaya kiyé.
-
 ## 32:16
 
 Wetengé wong-wong kuwé adoh sekang nggon turuné, [^658] dhéwéké padha nyenyuwun maring Pengérané kanthi rasa wedi lan pengarep-arep, lan dhéwéké padha nyumbangna (infak) sebagéan sekang rejeki sing wis Ingsun paringna maring dhéwéké kabéh.
-
-[^658]: Dhéwéké padha ora turu neng wektu sing biasané wong padha turu.
 
 ## 32:17
 
@@ -15425,13 +14109,9 @@ Lan sapa sing lewih aniaya (dolim) tenimbang wong sing wis déwéhi pengéling-�
 
 Lan temen, Ingsun wis paringna Kitab (Taurat) maring Musa, mangka aja pisan-pisan sliramu (Muhammad) mamang nampani (Al-Qur’an) lan Ingsun dadékna Kitab (Taurat) kuwé pituduh kanggo Bani Israil. [^659]
 
-[^659]: Maksudé, kayadéné déwéhna Taurat maring Musa, semana uga Al-Qur’an déwéhna maring Muhammad. Kayadéné Taurat dadi pituduh tumrap Bani Israil, mangka dédadékna Al-Qur’an tumrap umat Nabi Muhammad.
-
 ## 32:24
 
 Lan Ingsun dadékna neng antarané wong-wong kuwé, pemimpin-pemimpin sing awéh pituduh kanthi dhawuhé Ingsun, sedawané dhéwéké padha sabar. [^660] Wong-wong mau padha precaya (yakin) maring ayat-ayat-É Ingsun.
-
-[^660]: Sing démaksud sabar yakuwé sabar senjeroné ngedegna  kebecikan.
 
 ## 32:25
 
@@ -15453,13 +14133,9 @@ Lan wong-wong mau padha takon, “Kapan tekané dina kemenangan kuwé, angger sl
 
 Dhawuha (Muhammad), “Neng dina kemenangan [^661] kuwé, ora nana gunané maning tumrap wong-wong kapir precayaé dhéwéké, lan dhéwéké ora padha déparingi wektu semaya.”
 
-[^661]: Dina kemenangan yakuwé dina Kiyamat.
-
 ## 32:30
 
 Mangka mléngosa sliramu sekang wong-wong kuwé, lan enténi baé, setemené dhéwéké (uga) lagi padha ngenténi. [^662]
-
-[^662]: Nabi Muhammad s.a.w bareng karo wong-wong sing precaya (mukmin) dépréntah supaya nunggu dina kemenangan ingatasé wong sing padha mbangkang (kapir) lan ajuré wong-wong kuwé.
 
 ## 33:1
 
@@ -15477,45 +14153,29 @@ lan semaraha (takwa) maring Gusti Allah, lan cukup Gusti Allah sing mbaureksa.
 
 Gusti Allah ora ndadékna nggo sewiji wong atiné loro neng dhadhané, lan Gusti Allah ora ndadékna bojo-bojomu sing wis désupatani zihar [^663] kuwé dadi biyungmu, lan Penjeneng-ané ora ndadékna anak puponmu dadi anakmu cer. Sing mengkana kuwé, mung ucapan neng lésanmu baé. Gusti Allah ngendikakna sing sejati lan Penjenengané paring weruh (maring) dalan (sing bener).
 
-[^663]: Zihar kuwé ucapané wong lanang maring bojoné, “Gigirmu haram tumrap Inyong kayadéné gigiré biyungku,” utawa ucapan liya sing sepadhan. Kuwé dadi padatané wong Arab Jahiliyah, lamon wong lanang ngucap kaya kuwé maring bojoné, dadiné si bojo déharamna nggo dhéwéké selawasé. Ning bareng Islam teka, apa sing déharamna selawasé kuwé debusek, lan bojo-bojo kuwé bali halal tumrap sing lanang kanthi mbayar kafarat (dhendha).
-
 ## 33:5
 
 Celuka (anak-anak pupon kuwé) nganggo arané ramané dhéwék-dhéwék; kuwé sing lewih patrap neng sisihé Gusti Allah, lan angger sliramu ora ngerti sapa ramané (bo-cah-bocah kuwé), mangka (sebuta dhéwéké kabéh minangka) sedulur-sedulur tunggal agama, lan maula-maulamu. [^664] Lan ora nana dosa tumrapmu angger sliramu kelalén ngenani kuwé, ning (sing ana dosané) apa sing desengaja déning atimu. Gusti Allah Maha Ngampura, Mahaasih.
-
-[^664]: Maula-maula kuwé batur tukon sing wis merdhéka utawa wong sing dadi anak pupon, kayadéné Salim anak puponé Huzaifah, deceluké Maula Huzaifah.
 
 ## 33:6
 
 Nabi kuwé lewih utama tumrap wong-wong sing padha precaya (mukmin) tenimbang awak-awaké dhéwék [^665] lan garwa-garwané (nabi) dadi biyung-biyungé wong mukmin. Wong-wong sing padha duwé tali pesedu-luran (kerabat) antarané siji lan sijiné lewih utama (neng prekara waris-warisan) neng kitabé Gusti Allah tenimbang wong-wong mukmin (liya) lan wong-wong boyongan (muhajirin), kejaba angger ko padha karep gawé kebagusan [^666] maring sedulur-sedulur-mu (tunggal agama). Mengkana kuwé sing wis ketulis neng Kitabé (Gusti Allah).
 
-[^665]: Wong-wong mukmin padha lewih tresna maring Nabiné, ngungkuli tresnané maring awaké dhéwék.
-
-[^666]: Gawé apik neng kéné tegesé awéh wasiyat waris sing ora lewih sekang sepertelon bandhané.
-
 ## 33:7
 
 Lan (élinga) rikala Ingsun mundhut janji sekang para nabi, karo sliramu pribadi, karo Nuh, karo Ibrahim, karo Musa lan karo Isa anak lanangé Maryam, lan Ingsun wis mundhut sekang dhéwéké (nabi-nabi) janji sing teguh, [^667]
-
-[^667]: Kesanggupané mbutulna agama maring umaté dhéwék-dhéwék.
 
 ## 33:8
 
 supaya Penjenengané mundhut priksa maring wong-wong sing padha bener (para nabi) ngenani beneré dhéwéké kabéh. [^668] Penjenengané nyedhiakna siksa sing perih nggo wong-wong sing mbangkang (kapir).
 
-[^668]: Neng dina Kiyamat, Gusti Allah bakal mundhut priksa maring para nabi butul ngendi usahané mbutulna piwulang-piwulangé Gusti Allah maring umaté, lan butul ngendi umaté olihé ngleksanakna piwulangé Gusti Allah kuwé.
-
 ## 33:9
 
 Hé wong-wong sing padha precaya! Padha élinga maring nékmat (sekang) Gusti Allah (sing wis déparingna) maring ko kabéh rikala wadyabala (musuh) nglurug ko kabéh, banjur Ingsun tekakna maring dhéwéké kabéh angin lisus lan wadyabala sing ora keton déning ko kabéh. [^669] Gusti Allah Maha Mriksani apa sing ko padha pergawé.
 
-[^669]: Ayat kiyé nerangna critané Ahzab yakuwé golongan-golongan sing détumpes sejeroné Perang Khandaq merga nglawan Gusti Allah lan Utusan-É. Sing démaksud wadyabala sing ora keton kuwé para malaékat sing sengaja déturunaken déning Gusti Allah nggo numpes mungsuh-mungsuhé Gusti Allah kuwé.
-
 ## 33:10
 
 (Yakuwé) rikala wong-wong padha nglurug ko kabéh sekang prenah ndhuwur lan prenah ngisormu, lan rikala pendeleng(mu) padha pating pentheleng (kagét) lan atimu nyesek butul maring gulu [^670] lan ko padha nyana sing ora-ora maring Gusti Allah.
-
-[^670]: Nggambarna sepira gedhéné rasa wedi lan gemeteré wektu kuwé.
 
 ## 33:11
 
@@ -15565,13 +14225,9 @@ Temen, wis ana neng (pribadiné) Rasulullah kuwé tuladha sing apik nggo ko kab�
 
 Lan rikala wong-wong mukmin weruh golongan-golongan (sing padha gabungan) kuwé, dhéwéké padha ngucap, “Kiyé sing déjanjékna déning Gusti Allah lan Utusan- É [^671] maring inyong kabéh.” Lan pancén bener Gusti Allah lan Utusan-É. Lan sing mengkana kuwé nambahi olihé padha precaya lan islamé dhéwéké kabéh.
 
-[^671]: Sing déjanjékna déning Gusti Allah lan Utusan-É yakuwé kemenangan sewisé ngalami kangélan.
-
 ## 33:23
 
 Lan neng antarané wong-wong mukmin kuwé ana wong sing padha netepi apa sing wis dhéwéké padha janjékna maring Gusti Allah. Lan ana neng antarané wong-wong kuwé ana sing tiwas lan neng antarané wong-wong kuwé ana (uga) sing nunggu-nunggu [^672] lan dhéwéké semendhing baé ora padha ngowahi (janjiné),
-
-[^672]: Ngenténi apa sing wis déjanjékna déning Gusti Allah maring dhéwéké.
 
 ## 33:24
 
@@ -15581,19 +14237,13 @@ supaya Gusti Allah paring piwales (ganjaran) maring wong-wong sing padha bener k
 
 Lan Gusti Allah nyingkirna wong-wong kapir kuwé sing kahanané dhéwéké ésih padha jéngkél, merga dhéwéké (uga) padha ora olih untung apa-apa. Cukup Gusti Allah (sing nulungi) ngedohna wong-wong mukmin neng peperangan. [^673] Lan Gusti Allah Mahakuwat, Maha Digdaya.
 
-[^673]: Sejeroné Perang Khandaq wong-wong mukmin ora nglakoni perang merga Gusti Allah wis nyingkirna mungsuhé kanthi nurunaken angin gedhé lan para malaékat.
-
 ## 33:26
 
 Lan Penjenengané wis nurunaken wong-wong Ahli Kitab (Bani Quraizah) sing padha ngrewangi dhéwéké (golongan-golongan sing padha gabungan) sekang bénténg-bénténgé, lan Penjenengané nglebokna rasa wedi maring njero atiné wong-wong kuwé. Sebagéané dhéwéké padha ko paténi lan sebagéan liyané padha ko kabéh tawan. [^674]
 
-[^674]: Sewisé golongan-golongan sing padha gabungan kocar-kacir, mangka Gusti Allah dhawuh maring Kanjeng Nabi supaya numpes Bani Quraizah (Ahli Kitab) lan ngurak dhéwéké kabéh sekang bénténg-bénténgé, banjur sekabéh wong lanangé sing mélu perang dépaténi, wong-wong wadoné karo bocah-bocah détawan.
-
 ## 33:27
 
 Lan Penjenengané marisna maring ko kabéh tanah-tanah, umah-umah lan bandha-bandhané dhéwéké, (semana uga) tanah sing urung ko kabéh padha ambah. [^675] Lan Gusti Allah Mahakewasa ingatasé samubarang kabéh.
-
-[^675]: Tanah-tanah sing bakal déleboni déning wadyabala Islam.
 
 ## 33:28
 
@@ -15615,19 +14265,9 @@ Lan sapa neng antarané ko kabéh (garwa-garwané Nabi) manut maring Gusti Allah
 
 Hé para garwa Nabi! Ko kabéh ora padha karo wong-wong wadon sing liya, angger ko kabéh padha semarah (takwa), mangka aja pisan-pisan ngasor (ngalus-alusna sewara) [^676] sejeroné wicara saéngga tangi brahiné wong sing ana prenyakit neng atiné [^677] ning ngucapa kanthi pengucap sing becik.
 
-[^676]: Sing démaksud ngasor neng kéné yakuwé wicara kanthi cara sing bisa gawé wani wong lanang liya temindak ala maring dhéwéké.
-
-[^677]: Maksudé wong sing duwé niyat ala maring wong wadon, umpamané jinah.
-
 ## 33:33
 
 Lan preyogané ko kabéh padha tetep neng umahmu [^678] lan aja pisan-pisan ko padha ngudi-selira (dandan) lan (polah) kayadéné wong-wong jahiliyah gemiyén, [^679] lan leksanakna sembayang, nglunasi jakat lan manuta maring Gusti Allah lan Utusan-É. Setemené Gusti Allah ngersakna ngilangi dosa sekang awakmu kabéh, hé ahlulbait [^680] lan mbresihna awakmu kabéh kanthi sebrésih-brésihé.
-
-[^678]: Supayané garwa-garwané Rasul tetep manggon neng njero umah, lan olih metu angger ana perlu sing debenerna déning syara’.
-
-[^679]: Sing démaksud Jahiliyah gemiyén yakuwé jahiliyah kekapiran seurungé Nabi Muhammad s.a.w lan sing démaksud Jahiliyah siki yakuwé jahiliyah kemaksiyatan sewisé ana Islam.
-
-[^680]: Ahlul bait tegesé keluwarga balesomahe Rasulullah s.a.w.
 
 ## 33:34
 
@@ -15645,8 +14285,6 @@ Lan temen ora pantes tumrap wong lanang sing mukmin lan wong wadon sing mukmin, 
 
 Lan (élinga) rikala sliramu (Muhammad) ngucap maring wong sing wis déparingi nékmat déning Gusti Allah lan sliramu (uga) wis awéh nékmat maring dhéwéké, “Kukuhi terus bojomu (aja dépegat) lan semaraha (takwa) maring Gusti Allah,” ning sliramu ngumpetna neng njero atimu apa sing bakal debuktékna déning Gusti Allah, lan sliramu wedi maring menungsa, mangkané Gusti Allah lewih hak sliramu wedéni. Mangka rikala Zaid (anak puponé kanjeng Nabi) wis mungkasi butuhé maring bojoné (megat bojo), Ingsun nikahna sliramu karo dhéwéké (Zaenab, randhané Zaid) [^681] supayané ora nana pekéwuh tumrap wong mukmin mbojo (ngrabi) randha-randhané anak puponé dhéwéké kabéh, angger anak-anak puponé wis padha ngrampungi butuhé (megat) ingatasé bojoné. Lan pepesthéné Gusti Allah kuwé mesthi kelakon.
 
-[^681]: Sewisé entong idahé.
-
 ## 33:38
 
 Ora nana kabotan apa-apa tumrap Nabi ngenani apa sing wis détetepna déning Gusti Allah nggo slirané. (Gusti Allah wis netepna sing mengkana kuwé) minangka sunahé Gusti Allah maring nabi-nabi sing dhisit. Lan ketetepané Gusti Allah kuwé sewijiné ketetepan sing mesthi kelakoné,
@@ -15655,13 +14293,9 @@ Ora nana kabotan apa-apa tumrap Nabi ngenani apa sing wis détetepna déning Gus
 
 (yakuwé) wong-wong sing wis padha mbutulna risalah-risalahé Gusti Allah, [^682] dhéwéké padha wedi maring Gusti Allah lan ora padha wedi maring sapa baé seliyané Gusti Allah. Lan cukup Gusti Allah baé sing gawé prétungan.
 
-[^682]: Para utusan (rasul) sing mbutulna saréngat-saréngaté Gusti Allah maring menungsa.
-
 ## 33:40
 
 Muhammad kuwé udu ramané salah sijiné wong lanang neng antarané ko kabéh, [^683] ning (Muhammad) kuwé utusané Gusti Allah lan mungkasani para nabi. Lan Gusti Allah Maha Ngawuningani samubarang kabéh.
-
-[^683]: Kanjeng Nabi Muhammad udu ramané salah sijiné sahabat, merga kuwé randhané Zaid (Zaenab) kena degarwa déning Kanjeng Nabi.
 
 ## 33:41
 
@@ -15678,8 +14312,6 @@ Penjenengané sing paring kewelasan (rahmat) maring ko kabéh lan para malaékat
 ## 33:44
 
 Pekurmatané dhéwéké kabéh (wong-wong mukmin kuwé) rikala dhéwéké padha nyowani Penjenengané yakuwé, “Rahayu (Salam),” [^684] lan Penjenengané nyawisna ganjaran sing mulya nggo wong-wong sing padha precaya.
-
-[^684]: Waras slamet sekang sekabéh bebaya.
 
 ## 33:45
 
@@ -15709,8 +14341,6 @@ Hé Nabi! Setemené Ingsun wis marengna (halal) garwa-garwabmu nggo sliramu yaku
 
 Sliramu kena nundha (ora ngembuli) sapa sing sliramu karepna antarané dhéwéké (garwa-garwamu) lan (uga kena) ngembuli (antarané dhéwéké kabéh) sing sliramu karepna. Lan sapa sing sliramu kepéngin ngembuli dhéwéké maning sekang wong wadon sing wis sliramu pegat, mangka ora nana dosa ingatasé sliramu. Sing mengkana kuwé, yakuwé lewih pérek kanggo tentremé ati dhéwéké kabéh, lan dhéwéké kabéh ora krasa susah, lan sekabéhané rila kanthi apa baé sing sliramu wehna maring dhéwéké kabéh. Lan Gusti Allah ngawuningani apa sing (kesimpén) neng njero atimu. Lan Gusti Allah Maha Ngawuningani, Mahaaris. [^685]
 
-[^685]: Miturut riwayat, sewiji wektu garwa-garwané Kanjeng Nabi ana sing iri lan ana sing njaluk tambahan blanja, dadi Kanjeng Nabi medhot srawung karo dhéwéké nganti sewulan lawasé. Sebab wedi dépegat déning Kanjeng Nabi, dhéwéké padha sowan maring Kanjeng Nabi lan matur rila maring apa baé sing bakal députusna déning Nabi maring dhéwéké. Temuruné ayat kiyé awéh kepareng maring Kanjeng Nabi nggo ngembuli sapa sing dekarepna sekang bojo-bojoné utawa ora ngembuli dhéwéké; lan uga awéh kepareng maring Nabi nggo apikan maning (rujuk) maring bojo-bojoné angger ana bojo sing wis dépegat.
-
 ## 33:52
 
 Ora kepareng (ora halal) tumrap sliramu (Muhammad) nggarwa wong-wong wadon (liya) sewisé kuwé, lan uga ora kena ngganti garwa-garwamu karo wong wadon liya senajan ayuné gawé dhemen atimu, kejaba batur-batur tukon (budak-budak) sing sliramu duwéni. Lan Gusti Allah Maha Ngawat-awati samubarang kabéh.
@@ -15718,8 +14348,6 @@ Ora kepareng (ora halal) tumrap sliramu (Muhammad) nggarwa wong-wong wadon (liya
 ## 33:53
 
 Hé wong-wong sing padha precaya! Aja pisan-pisan ko padha mlebu maring umahé Kanjeng Nabi kejaba angger ko padha déparengna seperlu mangan kanthi ora ngenténi wektu olah-olahé (panganané), [^686] ning angger ko padha detimbali mangka mlebua lan angger ko wis rampung mangan, padha metua ko kabéh tanpa ndawakna rasan-rasanan. Setemené sing mengkana kuwé ngganggu maring Kanjeng Nabi, saéngga Kanjeng Nabi rikuh maring ko kabéh (préntah ko padha metu) lan Gusti Allah ora rikuh (nerangna) sing bener. Lan angger ko kabéh padha njaluk sewiji (kebutuhan) maring garwa-garwané Kanjeng Nabi, mangka njaluka sekang mburiné aling-aling. (Temindak) sing mengkana kuwé, lewih suci tumrap atimu kabéh lan atiné garwa-garwané Kanjeng Nabi. Lan banget ora kenané tumrap ko kabéh nglarani (penggalihé) Kanjeng Nabi lan ko kabéh (uga) ora kena ngarah (mbojo) garwa-garwané Kanjeng Nabi selawasé sewisé (kanjeng Nabi) séda. Temen, sing mengkana kuwé (mbojo randhané Kanjeng Nabi) banget gedhé dosané neng sisihé Gusti Allah.
-
-[^686]: Ayat kiyé nglarang para sahabat mlebu maring umahé Rasulullah seprelu mangan karo nunggu-nunggu wektu dhaharé Rasulullah.
 
 ## 33:54
 
@@ -15733,10 +14361,6 @@ Ora nana dosa tumrap garwa-garwané Kanjeng Nabi (ketemu tanpa aling-aling) karo
 
 Setemené Gusti Allah lan malaékat-malaékat-É padha slawat nggo Kanjeng Nabi. [^687] Hé wong-wong sing padha precaya! Padha slawata ko kabéh maring Kanjeng Nabi lan padha ucapna salam kanthi temen-temen pekurmatan maring kiyambeké. [^688]
 
-[^687]: Slawat sekang Gusti Allah tegesé paring kewelasan (rahmat); sekang malaékat nyuwunaken ampura, lan angger sekang wong mukmin tegesé penyuwun supaya deparing kewelasan, Umpamané nganggo kalimah Allahumma salli ‘ala Muhammad.
-
-[^688]: Kanthi ngucapna kalimah kayadéné Assalamu ‘alaika ayyuhan Nabi, tegesé moga-moga keslametan ingatasé penjenengan hé, Nabi.
-
 ## 33:57
 
 Setemené (ingatasé) wong-wong sing padha nglarani Gusti Allah lan Utusan-É, Gusti Allah bakal nglaknati dhéwéké kabéh neng dunya lan neng akhérat, lan ngancengna siksa sing gawé nistha tumrap wong-wong kuwé.
@@ -15748,8 +14372,6 @@ Lan wong-wong sing padha nglarani wong-wong mukmin lanang lan mukmin wadon sing 
 ## 33:59
 
 Hé Nabi! Ucapna maring garwa-garwané sliramu, anak-anak wadonmu lan maring bojo-bojoné wong mukmin, “Preyoga banget padha nutupna jilbabé [^689] maring awaké sekojur.” Sing mengkana kuwé, supayané dhéwéké dadi padha lewih gampang detengeri, saéngga dhéwéké ora padha deganggu. Lan Gusti Allah Maha Ngampura, Mahawelas.
-
-[^689]: Jilbab kuwé klambi sarung ombér sing bisa nutupi sirah, rai lan dhadha.
 
 ## 33:60
 
@@ -15819,8 +14441,6 @@ Gusti Allah ngawuningani apa sing mlebu maring njero bumi lan apa sing metu seka
 
 Lan wong-wong sing mbangkang (kapir) padha ngucap, “Dina Kiyamat kuwé ora bakal teka maring inyong kabéh.” Dhawuhna, “Mesthi tekané! Sekawit (sekawit) Pengéranku sing ngawuningani sing ora keton (gaib), dina Kiyamat kuwé mesthi bakal teka maring ko kabéh. Ora nana sing keumpet mungguh Penjenengané senajan mung sebobot zarrah [^690] becik sing ana neng langit utawa sing ana neng bumi, sing lewih cilik sekang kuwé utawa sing lewih gedhé, kabéh ketulis neng Kitab sing cetha (Lauh Mahfuz),”
 
-[^690]: Zarrah kuwé semut sing paling cilik. Wong Arab mbasakna sewiji barang sing banget ciliké nganggo tembung zarrah.
-
 ## 34:4
 
 supaya Penjenengané (Gusti Allah) paring ganjaran maring wong-wong sing padha precaya lan sing padha nglakoni kebecikan. Wong-wong kuwé padha olih pangampura lan rejeki sing mulya (suwarga).
@@ -15836,8 +14456,6 @@ Lan wong-wong sing déparingi ilmu (Ahli Kitab) padha duwé pinemu lamon (wahyu)
 ## 34:7
 
 Lan wong-wong kapir padha ngomong (maring batir-batiré), “Apa ko padha gelem tek tidhoki sewijiné wong lanang [^691] sing mertakna maring ko kabéh, lamon angger awakmu wis padha ajur mumur, ko kabéh mesthi (bakal détangékna maning) dadi ciptanan sing anyar.
-
-[^691]: Sing dhéwéké maksud sewijiné wong lanang kuwé Kanjeng Nabi Muhammad minangka painan ingatasé kiyambeké.
 
 ## 34:8
 
@@ -15859,8 +14477,6 @@ Lan temen, wis Ingsun paringna maring Dawud kenugrahan sekang Ingsun. (Ingsun dh
 
 Lan Ingsun (tundhukna) angin nggo Sulaiman, sing mlakuné wektu ésuk padha karo lakon sewulan lan mlakuné neng wektu soré (uga) padha karo lakon sewulan, [^692] lan Ingsun ilékna cor-coran tembaga nggo dhéwéké. Lan sebagéan sekang jin ana sing nyambet gawé neng ngarep (manut maring préntahé) kanthi idiné Pengérané. Lan sapa sing nyimpang neng antarané dhéwéké sekang dhawuh Ingsun, Ingsun rasakna maring dhéwéké siksa neraka sing geniné mulab-mulab.
 
-[^692]: Maksudé angger Sulaiman nganakaken lelaku sekang ésuk butul awan mangka adohé padha karo adohé onta mlaku sewulan. Semana uga angger Sulaiman nganakaken lelaku sekang awan butul soré, mangka cepeté padha karo lelaku sewulan.
-
 ## 34:13
 
 Dhéwéké kabéh (para jin kuwé) padha nyambet gawé nggo Sulaiman selaras karo apa sing dekarepna neng Sulaiman, umpamané mbangun gedhong-gedhong sing dhuwur, reca-reca, piring-piring sing (gedhéné) kaya blumbang lan kewalen-kewalen sing tetep (neng ndhuwur pawon). Padha nyambet gawé, hé keluwarga Dawud minangka kesuwun (sukur maring Gusti Allah). Lan semendhing pisan kawula-kawulané Ingsun sing padha kesuwun (sukur).
@@ -15877,10 +14493,6 @@ Temen, tumrap kaum Saba’ ana tandha (agungé Pengéran) neng papan panggonané
 
 Ning kaum Saba’ padha mléngos, mangka Ingsun ngirim maring kaum kuwé blabur sing gedhé [^693] lan Ingsun ijoli kebon sing loro kuwé nganggo kebon loro sing dethukuli (wit-witan) sing wohé pait, wit Asl lan semendhing wit Sidr. [^694]
 
-[^693]: Blabur gedhé sing dadi ambrolé bendungan Ma’rib.
-
-[^694]: Wit Asl kaya wit cemara, wit Sidr kaya wid widara.
-
 ## 34:17
 
 Mengkana kuwé Ingsun paring piwales merga mbangkangé (kapir) kaum Saba’. Lan Ingsun ora nibakna siksa (sing mengkana kuwé) kejaba mung maring wong-wong sing padha mbangkang (kapir).
@@ -15889,13 +14501,9 @@ Mengkana kuwé Ingsun paring piwales merga mbangkangé (kapir) kaum Saba’. Lan
 
 Lan Ingsun dadékna neng antarané wong-wong kuwé (warga Saba’) lan negari-negari sing Ingsun berkahi (Syam), pira-pira negari sing kepérek lan Ingsun tetepna antarané negari-negari kuwé (jangkahé) lakon. Padha mlakua ko kabéh neng negari-negari kuwé wengi lan awan kanthi aman. [^695]
 
-[^695]: Negari sing neng Syam, merga suburé lan negari-negari sing kepérek yakuwé antarané Yaman lan Syam, saéngga wong-wong padha bisa mlaku neng wektu wengi lan awan ora kudu mandheg neng segara wedhi lan ora nana kangélan.
-
 ## 34:19
 
 Mangka wong-wong kuwé padha ngucap, “Dhuh Pengéran kula sedaya, mugi tebihakén jangkah lelampahan kula sami,” [^696] lan (tegesé wong-wong kuwé) padha nganiaya awaké dhéwék, mangka dhéwéké kabéh Ingsun dadékna banah crita lan Ingsun tumpes-tapis wong-wong mau ludhes-dhes. Temen, neng sing mengkana kuwé, ana tandha (kewasané Gusti Allah) tumrap saben wong sing padha sabar lan kesuwun (sukur).
-
-[^696]: Supaya kota-kota sing pérek debusek, supaya lelakon dadi dawa lan dhéwéké padha téyéng ngukuhi dhéwék (monopoli) dagangan kuwé saéngga bathiné lewih gedhé.
 
 ## 34:20
 
@@ -15912,8 +14520,6 @@ Dhawuha (Muhammad) maring wong-wong musrik, “Sebuten dhéwéké kabéh sing ko
 ## 34:23
 
 Lan sapangat (pitulung) sekang sapa baé, ora nana gunané neng sisihé Penjenengané, mung migunani tumrap wong-wong sing wis deidini déning Penjenengané (olih pitulung kuwé). Saéngga angger wis deilangna rasa wedi sekang atiné wong-wong kuwé, dhéwéké padha padha ngucap, “Apa sing wis dédhawuhna déning Pengéranmu?” Wong-wong mau padha semaur, “(Dhawuh) sing bener,” lan Penjenengané Sing Mahaluhur lan Mahaagung. [^697]
-
-[^697]: Ayat kiyé nerangna lamon awéhé sapangat (pitulung) mung bisa kelakon kanthi idiné Gusti Allah. Wong-wong sing bakal déparingi idin awéh sapangat (pitulung) lan wong-wong sing arep olih pitulung padha krasa wedi lan ngarep-arep idiné Gusti Allah kuwé.
 
 ## 34:24
 
@@ -15963,8 +14569,6 @@ Lan saben-saben Ingsun ngutus wong sing awéh pengéling-éling maring sewiji ne
 
 Lan dhéwéké padha ngucap, ”Inyong padha duwé bandha lan anak lewih akéh (tenimbang ko) lan inyong kabéh ora bakal désiksa.” [^698]
 
-[^698]: Merga déné wong-wong sing padha mbangkang (kapir) kuwé padha olih kenékmatan sing gedhé neng dunya, mangka dhéwéké padha rumangsa détresnani déning Gusti Allah lan ora bakal kenang siksa neng akhérat,
-
 ## 34:36
 
 Dhawuha, ”Temen, Pengéranku ngombérna rejeki tumrap sapa sing Penjenengané kersakna lan matesi (tumrap sapa sing Penjenengané kersakna). Ning akéh-akéhé menungsa padha ora ngaweruhi.”
@@ -15989,8 +14593,6 @@ Lan (élinga) neng dinané Gusti Allah ngumpulna wong-wong kuwé sekabéhé banj
 
 Para malaékat padha matur, “Mahasuci Penjenengan. Penjenengan pengayom kula sedaya, sanes tiyang-tiyang niku; malah kiyambeké sami empun nyembah jin, [^699] kathah-kathahipun kiyambeké sami pitados dhateng jin niku.”
 
-[^699]: Jin sing duraka yakuwé sétan.
-
 ## 34:42
 
 Mangka neng dina kiyé sebagéané ko kabéh ora kewasa (nekakna) piguna utawa nolak rubéda (mudarat) maring sebagéan liya. Lan Ingsun dhawuhna maring wong-wong sing padha aniaya (dolim), “Padha rasakna déning ko kabéh siksa neraka sing gemiyén ko padha ora precaya.”
@@ -16007,19 +14609,13 @@ Lan Ingsun ora nglakon paring maring wong-wong kuwé kitab-kitab sing dhéwéké
 
 Lan wong-wong sing seurungé dhéwéké wis padha nggorohna (para utusan) anadéné wong-wong (kapir Mekah) kuwé urung nganti nampa seprasepuluhé sekang apa [^700] sing wis Ingsun paringna maring wong-wong sing dhisit kuwé ning dhéwéké padha nggorohna para utusané Ingsun. Mangka (delengen) kaya apa nggilaniné akibat benduné Ingsun.
 
-[^700]: Peparingé Gusti Allah ngenani kepinteran lan kawruh, umur dawa, kekuwatan awak, sugih dunya brana lan liya-liyané.
-
 ## 34:46
 
 Dhawuha, “Inyong bakal ngélingna maring ko kabéh mung prekara siji, yakuwé supaya ko kabéh padha madhep maring Gusti Allah (kanthi tulus) loro-loro utawa dhéwék-dhéwék, [^701] banjur padha pikirna (ngenani Muhammad). Batiré ko kabéh kuwé ora édan babar pisan. Dhéwéké ora liya mung wong sing awéh pengéling-éling maring ko kabéh seurungé (ngadhepi) siksa sing keras.”
 
-[^701]: “Loro-loro utawa siji-siji” tegesé olihé ngadhep maring Gusti Allah, banjur mikirna kahanané Kanjeng Nabi Muhammad kuwé apiké délakoni neng wektu sing sepi lan kiyé ora bisa délakoni neng kahanan ramé.
-
 ## 34:47
 
 Dhawuha (Muhammad), “Upah apa baé sing inyong jaluk maring ko, mangka kuwé nggo ko kabéh. [^702] Upahku mung sekang Gusti Allah lan Penjenengané Maha Ngawuningani samubarang kabéh.”
-
-[^702]: Kanjeng Nabi babar pisan ora njaluk upah maring wong-wong kuwé, ning sing déjaluk neng Kanjeng Nabi, dhéwéké padha precaya maring Gusti Allah. Lan precaya kuwé nggo kebegyané dhéwéké kabéh.
 
 ## 34:48
 
@@ -16028,8 +14624,6 @@ Dhawuha, “Setemené Pengéranku wis mahyokna bebener. Penjenengané Maha Ngawu
 ## 34:49
 
 Dhawuha, “Bebener wis teka, sing salah (batil) ora bakal ngawiti lan ora (uga) bakal mbaléni.” [^703]
-
-[^703]: Angger bebener wis teka mangka sing luput (batil) bakal ajur mumur lan ora bisa polah apa-apa nggo nglawan lan ngrubuhna bebener kuwé.
 
 ## 34:50
 
@@ -16043,8 +14637,6 @@ Lan (kaya apa keriné) angger sliramu weruh dhéwéké (wong-wong kapir) rikala 
 
 lan (rikala) dhéwéké padha ngucap, “Inyong kabéh padha precaya maring Gusti Allah.” Ning kepriwé olihé dhéwéké padha bisa ngranggéh (precaya) sekang panggonan sing adoh? [^704]
 
-[^704]: Sewisé dhéwéké padha weruh kaya apa nggilaniné siksa neng dina Kiyamat kuwé mangka dhéwéké nembé padha gelem precaya maring Gusti Allah lan Utusan-É, mangkané papan nggo precaya kuwé wis adoh pisan yakuwé neng dunya.
-
 ## 34:53
 
 Lan temen, wong-wong mau wis padha ngingkari Gusti Allah seurungé kuwé; lan dhéwéké padha nggorohna ngenani sing samar (gaib) sekang panggonan sing adoh.
@@ -16052,8 +14644,6 @@ Lan temen, wong-wong mau wis padha ngingkari Gusti Allah seurungé kuwé; lan dh
 ## 34:54
 
 Lan déwéhi palangan antarané dhéwéké kabéh karo apa sing dhéwéké padha kepéngini [^705] kayadéné sing délakokna ingatasé wong-wong kuna sing sepaham karo dhéwéké kabéh. Setemené wong-wong kuwé gemiyén (neng dunya) ana neng sejeroné kemamangan sing banget.
-
-[^705]: Sing dekepingini déning wong-wong kuwé, precaya maring Gusti Allah utawa bali maring dunya nggo mertobat.
 
 ## 35:1
 
@@ -16095,10 +14685,6 @@ Lan Gusti Allah sing ngirimna angin; banjur (angin kuwé) ngobahna lamuk, mangka
 
 Sapa wongé sing ngarepna kemulyan, mangka (kawruhana) lamon kabéh kemulyan kuwé sekabéhé kagungané Gusti Allah. Maring Penjenengané bakal munggah ucapan-ucapan sing bagus [^706] lan laku kebecikan bakal Penjenengané junjung. [^707] Anadéné wong sing padha ngrencanakna kejahatan, dhéwéké kabéh bakal olih siksa sing banget kerasé, lan réka daya jahaté wong-wong kuwé bakal ajur lebur.
 
-[^706]: Sebagéan ahli tapsir negesi lamon ucapan sing apik kuwé kalimah tauhid yakuwé laa ilaha illallah; lan uga ana duwé penemu dikir maring Gusti Allah, lan ana uga sing duwé penemu kabéh ucapan sing apik sing déucapna krana Gusti Allah.
-
-[^707]: Ucapan sing apik lan temindak sing becik kuwé détampa lan déparingi ganjaran déning Gusti Allah.
-
 ## 35:11
 
 Lan Gusti Allah nyiptakna ko kabéh sekang lemah banjur sekang banyu mani, banjur Penjenengané ndadékna ko kabéh jodhon-jodhon (lanang karo wadon). Ora nana sijia wong wadon sing mbobot lan babaran kejaba kanthi dekawuningani déning Penjenengané. Lan ora dedawakna umur sewiji wong lan uga ora decindhekna umuré, kejaba (wis détetepna) neng Kitab (Lauh Mahfuz). Temen, sing mengkana kuwé gampang mungguh Gusti Allah.
@@ -16131,8 +14717,6 @@ Lan sing mengkana kuwé ora angél mungguh Gusti Allah.
 
 Lan wong sing gawé dosa ora bakal mikul dosané wong liya. Lan angger sewijiné wong sing kaboten dosa nyeluki (wong liya) supaya manggul dosané kuwé, ora bakal dépanggul-na (maring wong liya kuwé) senajan mung semendhing, senajan wong sing deceluk kuwé sedulur péreké. Setemené sing bisa sliramu wéhi pengéling-éling kuwé mung wong-wong sing padha wedi maring (siksa) né Pengérané (senajan) dhéwéké padha ora weruh Penjenengané [^708] lan dhéwéké sing padha nglakoni sembayang. Lan sapa wongé nyucékna awaké dhéwék, setemené wong kuwé nyuceni awaké nggo kebecikané dhéwék. Lan mung maring Gusti Allah panggonan bali.
 
-[^708]: Sebagéan ahli tapsir negesi gaib neng ayat kiyé yakuwé rikala wong-wong kuwé dhéwékan ora weruh wong liya.
-
 ## 35:19
 
 Lan nyata ora padha antarané wong picek karo wong sing weruh,
@@ -16149,8 +14733,6 @@ lan (uga) ora padha sing aub karo sing panas,
 
 lan (uga) ora padha wong sing urip karo wong sing mati. Temen, Gusti Allah paring pengrungon maring sapa sing Penjenengané kersakna lan sliramu (Muhammad) ora bakal kewawa ndadékna wong sing neng njero kubur bisa krungu. [^709]
 
-[^709]: Kanjeng Nabi Muhammad ora bisa awéh pituduh maring wong-wong musrik sing wis mati atiné.
-
 ## 35:23
 
 Sliramu ora liya mung wong sing awéh pengéling-éling.
@@ -16159,13 +14741,9 @@ Sliramu ora liya mung wong sing awéh pengéling-éling.
 
 Temen, Ingsun ngutus sliramu kanthi nggawa bebener [^710] minangka sing nggawa werta bebungah lan minangka sing awéh pengéling-éling. Lan ora nana sijia umat kejaba neng kono wis teka sewijiné wong sing awéh pengéling-éling.
 
-[^710]: Agama tauhid (ora mangro tingal) lan hukum-hukumé.
-
 ## 35:25
 
 Lan angger dhéwéké padha nggorohna sliramu, mangka wong-wong sing seurungé dhéwéké uga wis padha nggorohna maring (rasul-rasul); rikala rasul-rasulé padha teka kanthi nggawa keterangan sing nyata (mukjizat), zubur, lan kitab sing awéh keterangan sing sempurna. [^711]
-
-[^711]: Gusti Allah paring pituduh maring sapa sing Penjenengané kersakna kanthi paring kesanggupan nggo ngrungokna lan nampa keterangan-keterangan.
 
 ## 35:26
 
@@ -16179,8 +14757,6 @@ Apa ko ora weruh lamon Gusti Allah nurunaken banyu (udan) sekang langit banjur k
 
 Lan mengkana (uga) neng antarané menungsa, titah (mahluk) gremetan sing duwé nyawa lan kéwan-kéwan ingon, ana sing werna-werna rupané (lan bangsané). Neng antarané kawula-kawulané Gusti Allah sing paling wedi maring Penjeneng-ané, mung para ngulama. [^712] Temen, Gusti Allah Mahadigdaya, Maha Ngampura.
 
-[^712]: Wong-wong sing padha ngaweruhi ilmu agungé lan kewasané Gusti Allah.
-
 ## 35:29
 
 Setemené wong-wong sing gunané maca Kitabé Gusti Allah (Al-Qur’an) lan nglakoni sembayang lan nyumbangna (infak) sebagéan rejekiné sing Ingsun paringna maring dhéwéké, kanthi sidheman utawa ngedhéng, wong-wong kuwé padha ngarep-arep dagang sing ora bakal tuna,
@@ -16189,8 +14765,6 @@ Setemené wong-wong sing gunané maca Kitabé Gusti Allah (Al-Qur’an) lan ngla
 
 supaya Gusti Allah nyempurnakna ganjarané maring wong-wong mau lan nambahi kanugrahan-É. Temen, Gusti Allah Maha Ngampura, Maha Ngesuwuni. [^713]
 
-[^713]: Gusti Allah kesuwun maring kewula-Né, tegesé paring ganjaran ingatasé lakon-lakon beciké kewula lan ngampurani salahé, nambahi kenékmatané lan seterusé.
-
 ## 35:31
 
 Lan apa sing wis Ingsun wahyokna maring sliramu (Muhammad) yakuwé Kitab (Al-Qur’an) kuwé sing bener, mbenerna (nyerujuki) kitab-kitab seurungé. Temen, Gusti Allah nyata-nyata Maha Ngawuning-ani, Maha Mriksani (kahanané) kewula-kewula-Né.
@@ -16198,8 +14772,6 @@ Lan apa sing wis Ingsun wahyokna maring sliramu (Muhammad) yakuwé Kitab (Al-Qur
 ## 35:32
 
 Banjur Kitab kuwé Ingsun warisna maring wong-wong sing Ingsun pilih neng antarané kewula-kewulané Ingsun, banjur neng antara-né wong-wong kuwé ana sing nganiaya (dolim) maring awaké dhéwék, sebagéan ana sing tengah-tengah lan ana (uga) sing lewih dhisit nglakoni kebecikan [^714] kanti idiné Gusti Allah. Sing mengkana kuwé dadi kanugrahan sing gedhé.
-
-[^714]: Nganiaya (gawé kapitunan) awaké dhéwék yakuwé lewih akéh salahé tenimbang apiké, lan “tengah-tengah” tegesé, salah karo apiké padha akéhé, lan “wong-wong sing lewih dhisit olihé gawé kebecikan” yakuwé wong sing apiké akéh pisan lan mung semendhing olihé gawé kesalahan.
 
 ## 35:33
 
@@ -16244,8 +14816,6 @@ Lan dhéwéké padha sumpah kanthi asmané Gusti Allah kanthi temen lamon angger
 ## 35:43
 
 merga gemedhené (wong-wong kuwé) neng bumi lan merga rencanané (dhéwéké kabéh) sing jahat. Rencana sing jahat kuwé mung bakal nyilakani maring dhéwéké sing gawé rencana kuwé. Wong-wong kuwé mung ngenténi (lemakuné) pepesthén tumrap wong-wong sing dhisit. [^715] Mangka sliramu ora bakal meruhi owah-owahan mungguh Gusti Allah, lan (uga) ora bakal nemokna penyelewengan tumrap pepesthéné Gusti Allah kuwé.
-
-[^715]: Sing démaksud “pepesthéné wong-wong sing dhisit” yakuwé temuruné siksa maring wong-wong sing padha nggorohna nabi (utusan).
 
 ## 35:44
 
@@ -16299,8 +14869,6 @@ Lan padha baé tumrap wong-wong kuwé, apa sliramu élingna maring dhéwéké ut
 
 Setemené sliramu mung awéh pengéling-éling maring wong-wong sing padha gelem ngetutna pengéling-éling [^716] lan sing padha wedi maring Pengéran Sing Mahaasih, sena-jan dhéwéké padha urung nglakon weruh Penjenengané. Mangka wehana dhéwéké kabéh werta bebungah kanthi pengampura lan ganjaran sing mulya.
 
-[^716]: Pengéling-éling sing debutulna déning Kanjeng Nabi mung ana gunané tumrap wong-wong sing padha gelem mélu Kanjeng Nabi.
-
 ## 36:12
 
 Temen, Ingsun sing nguripna wong-wong sing wis padha mati, lan Ingsun pribadi sing nyathet apa sing wis dhéwéké padha pergawé lan tilas-tilasé sing dhéwéké (padha tinggal-na). Lan samubarang kabéh Ingsun kumpulna neng Kitab sing cetha (Lauh Mahfuz).
@@ -16337,8 +14905,6 @@ Dhéwéké (utusan-utusan) kuwé padha ngucap, “Apesmu kabéh kuwé merga ko d
 
 Lan teka sekang pinggir kota sewijiné wong lanang [^717] kanthi gupuh-gupuh, dhéwéké ngucap, “Hé kaumku! Padha mélua maring utusan-utusan kuwé.
 
-[^717]: juru tapsir, wong kuwé jenengé Habib An-Najjar.
-
 ## 36:21
 
 Melua baé maring wong sing ora njaluk upah maring ko kabéh; dhéwéké kuwé wong sing padha olih pituduh.
@@ -16363,8 +14929,6 @@ Setemené inyong wis precaya maring Pengérané ko kabéh; mangka padha derungok
 
 Déucapna (maring dhéwéké), “Mlebua maring suwarga.” [^718] Dhéwéké (wong lanang kuwé) matur, “Banget apiké énggané kaumé inyong padha ngaweruhi,
 
-[^718]: Miturut riwayat, wong lanang kuwé dépaténi déning kaumé ngucapna tembung minangka wewarah maring kaumé kaya désebut neng ayat 20 butul 25. Rikala dhéwéké arep mati malaékat temurun awéh werta lamon Gusti Allah wis ngampurani dosané lan dhéwéké bakal mlebu maring suwarga.
-
 ## 36:27
 
 apa sing njalari Pengéranku paring pengampura maring inyong lan ndadékna inyong klebu wong-wong sing padha demulyakna.”
@@ -16384,8 +14948,6 @@ Banget gedhéné pengajogé kewula-kewula mau, saben-saben ana sewiji rasul teka
 ## 36:31
 
 Apa dhéwéké padha ora ngaweruhi, sepira akéhé kaum seurungé dhéwéké sing wis Ingsun tumpes. Wong-wong (sing wis Ingsun tumpes) kuwé ora nana sing bisa bali maring dhéwéké kabéh. [^719]
-
-[^719]: Dhéwéké ora padha bali maring dunya.
 
 ## 36:32
 
@@ -16419,8 +14981,6 @@ Lan srengéngé mlaku neng papan ubengané. Mengkana kuwé ketetepané (Gusti Al
 
 Lan wis Ingsun tetepna papan mubengé wulan, saéngga (sewisé wulan butul maring nggon ubengan sing pungkasan) wulan bali maning kaya rupa manggar sing tuwa. [^720]
 
-[^720]: Kuwé mikiné cilik rupané kaya arit, banjur sewisé mapan neng papan ubengané wulan kuwé dadi bunder kempleng, banjur neng papan ubengan sing pungkasan keton kaya manggar (mancung) garing sing mlengkung.
-
 ## 36:40
 
 Ora gadhang tumrap srengéngé bisa nguber wulan, lan wengi uga ora bisa ndhisiti awan. Kabéh-kabéh padha mubeng neng garis ubengané dhéwék-dhéwék.
@@ -16432,8 +14992,6 @@ Lan sewijiné tandha (agungé Gusti Allah) nggo dhéwéké kabéh yakuwé Ingsun
 ## 36:42
 
 Lan Ingsun ciptakna (uga) nggo wong-wong kuwé (tumpakan liyané) kaya sing dhéwéké padha tumpaki. [^721]
-
-[^721]: Kéwan-kéwan tumpakan lan bekakas angkutan liyané
 
 ## 36:43
 
@@ -16463,8 +15021,6 @@ Lan dhéwéké kabéh (wong-wong sing kapir) padha ngucap, “Kapan janji (dinan
 
 Wong-wong kuwé mung ngenténi  siji jeritan [^722] sing bakal numpes dhéwéké kabéh rikala wong-wong kuwé lagi padha padu.
 
-[^722]: Sewara semprongan slomprét sing kawitan sing ngajurna bumi kiyé.
-
 ## 36:50
 
 Saéngga wong-wong kuwé ora padha kewawa gawé sewiji wasiyat lan dhéwéké kabéh (uga) ora bisa bali maning maring kulawargané.
@@ -16472,8 +15028,6 @@ Saéngga wong-wong kuwé ora padha kewawa gawé sewiji wasiyat lan dhéwéké ka
 ## 36:51
 
 Banjur slomprét [^723] desemprong, mangka senalika kuwé dhéwéké padha metu sekang kuburé (neng kahanan urip), nuju maring Pengérané.
-
-[^723]: Semprongan kiyé semprongan slomprét sing kepindho sing nangékna wong-wong sekang kubur.
 
 ## 36:52
 
@@ -16542,8 +15096,6 @@ Lan angger Ingsun ngersakna, mesthi Ingsun owahi wujudé wong-wong kuwé neng pa
 ## 36:68
 
 Lan sapa wongé sing Ingsun dawakna umuré, mesthi Ingsun balékna maring asal kedadéan(é). [^724] Mangka kenangapa dhéwéké padha ora mengerténi?
-
-[^724]: Malik maning dadi ora duwé daya lan linglung. Kaya bocah cilik.
 
 ## 36:69
 
@@ -16649,8 +15201,6 @@ kejaba (sétan) sing padha nyolong (pengucapan); mula dhéwéké kuwé deuber d�
 
 Mangka takokna maring wong-wong (musrik Mekah), “Apa penyiptanan ingatasé dhéwéké sing lewih angél, utawa apa [^725] sing wis Ingsun ciptakna kuwé?” Setemené Ingsun nyiptakna wong-wong kuwé sekang lemah lempung.
 
-[^725]: Maksudé: malaékat, langit, bumi lan liya-liyané.
-
 ## 37:12
 
 Malah sliramu (Muhammad) dadi gumun (maring ingkaré wong-wong kuwé) lan dhéwéké padha nyepélékna (sliramu).
@@ -16691,8 +15241,6 @@ Lan wong-wong mau padha ngucap, “Banget cilakané inyong kabéh! (Kayané) kiy
 
 Kiyé dina putusan [^726] sing gemiyén ko padha ora precaya (nggorohna).
 
-[^726]: Dina rikala Gusti Allah paring putusan lan piwales maring kewula-kewulané.
-
 ## 37:22
 
 (Dépréntahna maring malaékat), “Kumpulna wong-wong sing padha aniaya (dolim) karo batir-krabaté lan apa-apa sing gemiyén dhéwéké padha sembah,
@@ -16720,8 +15268,6 @@ Lan sebagéané wong-wong kuwé padha ngadhep maring sebagéan liyané padhadén
 ## 37:28
 
 Setemené (para pendhérék) padha ngucap (maring pemimpin-pemimpiné), “Ko sing gemiyén padha nekani inyong kabéh sekang iring tengen.” [^727]
-
-[^727]: Pemimpin-pemimpin kuwé nekani para pendhéréké kanthi nggawa apus-apus sing nyenengna ati.
 
 ## 37:29
 
@@ -16943,13 +15489,9 @@ Banjur Ingsun lelepna sing liyané.
 
 Lan temen, Ibrahim klebu golongané (Nuh). [^728]
 
-[^728]: Nabi Ibrahim klebu golongané Nabi Nuh olihé precaya maring Gusti Allah lan saripathiné piwulang agama
-
 ## 37:84
 
 (Élinga) rikala dhéwéké teka maring Pengérané kanthi ati sing suci, [^729]
-
-[^729]: Nulusna ati maring Gusti Allah kanthi temen.
 
 ## 37:85
 
@@ -16978,8 +15520,6 @@ Banjur wong-wong kuwé padha mléngos sekang dhéwéké lan lunga ninggalna dhé
 ## 37:91
 
 Banjur dhéwéké (Ibrahim) lunga kanthi sidhem-sidheman maring brehala-brehala (reca-recané) wong-wong kuwé; banjur dhéwéké ngucap, “Kenangapa ko padha ora mangan? [^730]
-
-[^730]: Ngina brehala-brehala kuwé, merga neng péreké brehala kuwé désandhingna pirang-pirang panganan sing apik minangka sajén.
 
 ## 37:92
 
@@ -17013,8 +15553,6 @@ Mangka wong-wong kuwé padha kepéngin ngrekadaya Ibrahim kanthi (ngobong) dhéw
 
 Lan dhéwéké (Ibrahim) ngucap, “Setemené inyong kudu lunga (sowan) maring Pengé-ranku, Penjenengané bakal paring pituduh maring inyong. [^731]
 
-[^731]: Nabi Ibrahim lunga maring sewijiné negari seprelu bisa nyembah Gusti Allah lan ajék-ajék maring dalané Penjenengané (dakwah).
-
 ## 37:100
 
 Dhuh Pengéran kula, mugi paring dhateng kula (anak) ingkang kelebet tiyang sae (saléh).”
@@ -17039,8 +15577,6 @@ Banjur Ingsun dangu dhéwéké, “Hé Ibrahim!
 
 Temen, sliramu wis mbenerna impén kuwé.” [^732] Temen, Mengkana kuwé Ingsun paring piwales maring wong-wong sing padha gawé becik.
 
-[^732]: Precaya lamon impén kuwé pancén nyata bener sekang Gusti Allah lan kudu detandangi.
-
 ## 37:106
 
 Setemené kiyé temen-temen sewiji coban sing nyata.
@@ -17048,8 +15584,6 @@ Setemené kiyé temen-temen sewiji coban sing nyata.
 ## 37:107
 
 Lan Ingsun ijoli bocah kuwé kanthi sewiji (kéwan) sembeléhan sing gedhé. [^733]
-
-[^733]: Sewisé nyata sabaré lan manuté Nabi Ibrahim lan Nabi Ismail, mangka Gusti Allah nglarang Ibrahim nyembeléh Ismail. Nggo nerusna gawé kurban, Gusti Allah ngijoli dhéwéké kanthi sembeléhan (wedhus). Kedadéan kiyé dadi dhasar saréngat kurban sing deleksanakna neng dina Bada Haji.
 
 ## 37:108
 
@@ -17123,8 +15657,6 @@ Lan temen, Ilyas nyata-nyata klebu salah sewijiné utusan (rasul).
 
 Apa pantes ko padha nyembah Ba’l [^734] lan ko kabéh ninggal (Gusti Allah) seapik-apiké (sembahan) sing nyiptakna.
 
-[^734]: Ba’l kuwé salah sijiné aran brehala sing dadi sembahané wong Phunicia.
-
 ## 37:126
 
 (Yakuwé) Gusti Allah Pengérané ko kabéh lan Pengérané kaki-nininé ko kabéh sing padha (urip) gemiyén?”
@@ -17169,8 +15701,6 @@ kejaba wong wadon tuwa (bojoné) bareng-bareng karo wong sing padha manggon (nen
 
 Banjur Ingsun tumpes wong-wong sing liyané. [^735]
 
-[^735]: Wong-wong sing manggon neng kota sing ora padha mélu maring Nabi Nuh.
-
 ## 37:137
 
 Lan setemené ko kabéh (warga Mekah) bakal ngliwati (petilasan-petilasané) wong-wong kuwé neng wektu esuk,
@@ -17187,19 +15717,13 @@ Lan temen, Yunus nyata-nyata klebu salah sijiné utusan (rasul),
 
 (élinga) rikala dhéwéké mlayu, [^736] maring prahu sing kebek momotan,
 
-[^736]: Lunga ninggalna kewajiban.
-
 ## 37:141
 
 banjur dhéwéké mélu deundhi [^737] nyatané dhéwéké klebu wong sing kalah (neng undhian).
 
-[^737]: Undhian dégawé merga momotan prahu kebek pisan. Angger sing numpak ora dekurangi kayané bisa kérem. Dadi deanakna undhian. Sapa sing undhiané kalah kudu debalangna maring segara, mangkané Nabi Nuh kepélu wong sing undhiané kalah.
-
 ## 37:142
 
 Banjur dhéwéké deuntal déning iwak gedhé kanthi kahanan sing ina. [^738]
-
-[^738]: Ina merga dhéwéké mlayu ninggalna kaumé
 
 ## 37:143
 
@@ -17228,8 +15752,6 @@ saéngga wong-wong kuwé padha precaya, merga kuwé Ingsun paringi kanugrahan n�
 ## 37:149
 
 Mangka sliramu takokna (Muhammad) maring wong-wong kuwé (kapir Mekah), “Apa anak-anak wadon kuwé nggo Pengéranmu mangkané nggo dhéwéké kabéh kuwé anak-anak lanang?” [^739]
-
-[^739]: Wong-wong musrik padha ngucap lamon Gusti Allah kagungan putra-putra wadon (malaékat), mangkané dhéwéké padha nganggep anak wadon kuwé ina.
 
 ## 37:150
 
@@ -17274,8 +15796,6 @@ Mahasuci Gusti Allah sekang apa sing wong-wong kuwé padha sipatna,
 ## 37:160
 
 kejaba kewula-kewulané Gusti Allah [^740] sing padha desucékna (sekang dosa).
-
-[^740]: golongan jin sing padha precaya.
 
 ## 37:161
 
@@ -17329,8 +15849,6 @@ Lan temen, janjiné Ingsun wis tetep tumrapé kewula-kewulané Ingsun sing padha
 
 Lan setemené wadyabalané Ingsun [^741] kuwé sing mesthi menang.
 
-[^741]: Utusan (rasul) karo pendhérék-pendhéréké.
-
 ## 37:174
 
 Mangka mléngosa sliramu (Muhammad) sekang wong-wong kuwé nganti butul wektu sing détemtokna,
@@ -17339,8 +15857,6 @@ Mangka mléngosa sliramu (Muhammad) sekang wong-wong kuwé nganti butul wektu si
 
 lan tidhokna maring wong-wong kuwé, mangka mbésuk dhéwéké bakal padha weruh (siksa kuwé). [^742]
 
-[^742]: Maksudé: butul Rasulullah s.a.w. nduwé kekuwatan.
-
 ## 37:176
 
 Mangka apa wong-wong kuwé padha njaluk siksané Ingsun dégelisna (tekané)?
@@ -17348,8 +15864,6 @@ Mangka apa wong-wong kuwé padha njaluk siksané Ingsun dégelisna (tekané)?
 ## 37:177
 
 Mangka angger (siksan) mau medhun neng lataré wong-wong kuwé, mangka banget alané wektu ésuk nggo wong-wong sing wis padha de-élingna [^743] kuwé.
-
-[^743]: Sing démaksud “wektu esuk” yakuwé ora mung wektu ésuk, ning sembarang wektu neng endi wong-wong sing nyerang seurungé subuh; mangka wong-wong sing kalah kuwé ngalami susah neng wektu ésuk
 
 ## 37:178
 
@@ -17395,13 +15909,9 @@ Apa dhéwéké ndadékna sembahan-sembahan kuwé Pengéran sing mung siji? Temen
 
 Banjur (pemimpin-pemimpiné) wong-wong kuwé padha lunga (kanthi ngucap), “Nganah padha lunga ko kabéh lan tetepa (nyembah) maring sembahan-sembahanmu, setemené kiyé nyata-nyata dadi prekara sing dekarepna. [^744]
 
-[^744]: Ujaré wong-wong kapir, nyembah brehala-brehala kuwé sing dékersakna déning Gusti Allah.
-
 ## 38:7
 
 Inyong kabéh padha urung nglakon krungu prekara kaya kiyé neng sejeroné agama sing wekasan; [^745] kiyé (nyewijikna Gusti Allah) ora liya mung (apus-apus) sing deana-anakna,
-
-[^745]: Sing démaksud déning wong kapir Quraisy, agama sing wekasan kuwé agama Nasrani.
 
 ## 38:8
 
@@ -17419,8 +15929,6 @@ Utawa, apa wong-wong kuwé padha nduwéni praja langit lan bumi lan apa sing ana
 
 (Wong-wong kuwé) golongan gedhé wadyabala sing ana neng kana, sing arep dékalahna. [^746]
 
-[^746]: Ayat kiyé nyritakna Perang Khandaq sing neng kana ana wadyabala sekang pirang-pirang golongan yakuwé golongan musrik, Yahudi lan sewetara brayat Arab sing padha nggrudug kaum muslimin neng Medinah. Perang kiyé rampung kanthi morak-mariké wadyabalané dhéwéké kabéh. Sebagéan ahli tapsir duwé penemu, sing démaksud neng ayat kiyé kuwé Perang Badar.
-
 ## 38:12
 
 Seurungé wong-wong kuwé, ana kaum Nuh, ‘Ad lan Fir’aun sing duwé wadyabala akéh, uga wis padha nggorohna (rasul-rasul),
@@ -17429,8 +15937,6 @@ Seurungé wong-wong kuwé, ana kaum Nuh, ‘Ad lan Fir’aun sing duwé wadyabal
 
 lan (semana uga) Samud, kaum Lut lan warga Aikah. [^747] Dhéwéké kabéh kuwé golongan-golongan sing padha gabungan (mbangkang maring para rasul).
 
-[^747]: Warga Madyan kuwé kaumé Nabi Syuaib.
-
 ## 38:14
 
 Sekabéhé wong-wong kuwé padha nggorohna rasul-rasul, mangka pantes dhéwéké padha ngrasakna siksané Ingsun.
@@ -17438,8 +15944,6 @@ Sekabéhé wong-wong kuwé padha nggorohna rasul-rasul, mangka pantes dhéwéké
 ## 38:15
 
 Lan sebeneré sing dhéwéké padha enténi mung jeritan sepisan, sing ora nana selané. [^748]
-
-[^748]: Nggo tandha tekané dina Kiyamat lan jeritan kiyé rosa banget tur banter.
 
 ## 38:16
 
@@ -17460,8 +15964,6 @@ Lan (Ingsun uga nglulutna) manuk-manuk neng kahanan padha ngumpul, kabéh padha 
 ## 38:20
 
 Lan Ingsun kuwatna prajané lan Ingsun paringna hikmah maring dhéwéké [^749] lan kewicaksanan neng sejeroné mutusi prekara.
-
-[^749]: Kenabian, kesempurnan ilmu lan tlitiné tindak-laku.
 
 ## 38:21
 
@@ -17511,19 +16013,13 @@ Lan maring Dawud Ingsun paringna (anak lanang arané) Sulaiman; dhéwéké kuwé
 
 mangka dhéwéké (Sulaiman) ngucap, “Setemené inyong seneng maring apa baé sing apik (jaran), sing njalari inyong kémutan maring (kemulyané) Pengéranku, nganthi srengéngé surup. [^750]
 
-[^750]: Sebagéan ahli tapsir ana sing negesi ayat 32 kaya kiyé, “Inyong nyata-nyata nyenengi barang sing apik (jaran) kiyé saéngga Inyong kelalén ora éling maring Gusti Allah nganti jaran-jaran kuwé ilang sekang pendelengan.”
-
 ## 38:33
 
 “Gawanen jaran-jaran kuwé kabéh maring inyong.” Banjur dhéwéké ngusap-usap sikil lan guluné jaran kuwé. [^751]
 
-[^751]: Sebagéan ahli tapsir ana sing negesi ayat 33 kaya kiyé, “Gawa maning kabéh kuwé maring inyong, banjur dhéwéké motong sikilé lan guluné.”
-
 ## 38:34
 
 Lan temen, Ingsun wis nguji Sulaiman lan Ingsun dadékna (dhéwéké) nggletak neng ndhuwur korsiné dadi pawakan (sing lemes merga mriyang), banjur dhéwéké mertobat. [^752]
-
-[^752]: Sebagéan ahli tapsir ngucap, sing démaksud “ujian” kuwé ambruké prajané Sulaiman saéngga wong liya njagong neng korsiné.
 
 ## 38:35
 
@@ -17560,8 +16056,6 @@ Lan élinga maring kewulané Ingsun Ayub, rikala dhéwéké sambat-sambat maring
 ## 38:43
 
 Lan Ingsun paringi dhéwéké kanugrahan (kanthi ngumpulna maning) kaluwargané lan Ingsun tikel-tikelna cacahé dhéwéké, merga kewelasan (rahmat) sekang Ingsun lan dadi piwulang nggo wong-wong sing padha duwé nalar waras. [^753]
-
-[^753]: Nabi Ayub kenang lara kulit sewetara wektu suwéné lan dhéwéké nyuwun pitulungan maring Gusti Allah sing banjur ngeparengaken penyuwuné lan dhawuh supayané dhéwéké nggejugna sikilé maring lemah. Nabi Ayub manut mangka sekang tilas sikilé metu banyu kanthi pituduhé Gusti Allah, banjur Nabi Ayub adus lan nginum nganggo banyu kuwé saéngga dhéwéké mari sekang prenyakité lan bisa kumpul maning karo kulawargané. Mangka dhéwéké kabéh banjur padha manak-pinak nganti cacahé dadi lipet pindho tenimbang mikiné. Neng sewiji wektu Nabi Ayub kémutan sumpahé, arep nggebug bojoné angger prenyakité wis mari merga bojoné nglakon ora gelem ngurusi wektu dhéwéké ésih kenang pilara. Ning tuwuh neng atiné Nabi Ayub rasa melas lan éman maring bojoné saéngga dhéwéké ora kewawa nandangi sumpahé. Mangka temurun pituduh sekang Gusti Allah kaya sing ketulis neng ayat 44 surah kiyé, supaya dhéwéké bisa ngleksanakna sumpahé kanthi ora nglarani bojoné, yakuwé nyabet bojoné karo suket sebengket.
 
 ## 38:44
 
@@ -17723,8 +16217,6 @@ nganti butul dina sing wis détemtokna wektuné (dina Kiyamat).”
 
 kejawi kewula-kewulané Penjenengan ingkang pinilih wonten antiwisipun kiyambeké sami. [^754]
 
-[^754]: Wong-wong sing wis keparingan pepadhang (taufik) nggo nglakoni kabéh pituduh lan dhawuhé Gusti Allah.
-
 ## 38:84
 
 (Gusti Allah) dhawuh, “Mangka sing bener (kuwé supatané Ingsun), lan mung bebener kuwé sing Ingsun ngendikakna.
@@ -17744,8 +16236,6 @@ Dhawuha (Muhammad), “Inyong ora njaluk upah semendhing-mendhinga maring ko kab
 ## 38:88
 
 Lan temen, ko kabéh bakal ngaweruhi (beneré) wertané (Al-Qur’an) sewisé sewetara wektu maning.” [^755]
-
-[^755]: Beneré werta-werta Al-Qur’an kuwé ana sing kelakon maring dunya ana uga neng akhérat. Sing kebukti neng dunya kayadéné beneré janjiné Gusti Allah maring wong-wong mukmin lamon dhéwéké kabéh bakal menang neng peperangan karo wong musrik, lan sing kelakon neng akhérat kayadéné beneré janjiné Gusti Allah ngenani piwales utawa prétungan sing bakal deleksanakna maring menungsa.
 
 ## 39:1
 
@@ -17771,15 +16261,9 @@ Penjenengané nyiptakna langit lan bumi kanthi (tujuan) sing sejati; Penjenengan
 
 Penjenengané nyiptakna ko kabéh sekang awakan sing siji (Adam), banjur sekang awakan siji kuwé, Penjenengané dadékna jodhoné lan Penjenengané nurunaken wolung pasang kéwan ingon nggo ko kabéh. Penjenengané ndadékna ko kabéh neng wetengé biyungmu kabéh, kedadéan mbaka kedadéan sejeroné telung petengan. [^756] Sing (temindak) mengkana kuwé Gusti Allah, Pengérané ko kabéh, Pengéran sing kagungan praja. Ora nana sembahan seliyané Penjenengané; mangka kenangapa ko padha bisa depléngosna?
 
-[^756]: Telung petengan kuwé, petengan neng weteng, petengan neng guagarba (rahim) lan petengan neng sejeroné widhungan.
-
 ## 39:7
 
 Angger ko padha mbangkang (ngertia) mangka setemené Gusti Allah ora mbutuhna ko kabéh [^757] lan Penjenengané ora karenan (maring) kapiré kewula-kewula-Né. Angger ko padha kesuwun (sukur), Penjenengané karenan (dhemen) maring kesuwunmu kuwé. Sapa wongé sing nglakoni dosa ora mikul dosané wong liya. [^758] Banjur mung maring Pengéranmu baliné ko kabéh, banjur Penjenengané wertakna maring ko kabéh apa sing wis ko kabéh padha pergawé. Temen, Penjenengané Maha Ngawuningani apa sing kesimpén neng njero dhadha(mu).
-
-[^757]: Menungsa arep precaya utawa ora, prekara kuwé ora mitunani Gusti Allah babar pisan.
-
-[^758]: Kabéh wong padha mikul dosané dhéwék-dhéwék.
 
 ## 39:8
 
@@ -17813,8 +16297,6 @@ Dhawuha, “Mung Gusti Allah sing inyong sembah kanthi temen-temen manut-miturut
 
 Mangka padha nyembaha maring seliyané Penjenengané sekarepé ko kabéh! (Hé wong-wong musrik). [^759] Dhawuha, “Setemené wong-wong sing padha tuna kuwé wong-wong sing gawé kapitunan maring awaké dhéwék lan kulawargané neng dina Kiyamat.” Élinga! Sing mengkana kuwé dadi kapitunan sing nyata.
 
-[^759]: Dhawuh kiyé ora démaksud kaya tegesé sing seluguné. Ning minangka dadi pengendikan murkané Gusti Allah maring kaum sing nyekuthokna Penjenengané (musrik) sing wis wara-wiri dédhawuhi supaya nyewijikna Gusti Allah ning dhéwéké tansah padha mbangkang.
-
 ## 39:16
 
 Neng ndhuwuré wong-wong kuwé ana sap-sapan sekang geni lan neng ngisoré uga ana sap-sapan maning. Mengkana kuwé Gusti Allah ngancam kewula-kewulané (karo siksa kuwé). “Hé kewula-kewulané Ingsun, mangka padha semaraha (takwa) maring Ingsun.”
@@ -17823,13 +16305,9 @@ Neng ndhuwuré wong-wong kuwé ana sap-sapan sekang geni lan neng ngisoré uga a
 
 Lan wong-wong sing padha ngedohi Tagut (yakuwé) ora nyembah dhéwéké [^760] lan wong-wong kuwé padha bali (tobat) maring Gusti Allah, dhéwéké kabéh pantes olih werta bebungah; merga kuwé butulna werta bebungah maring kewula-kewulané Ingsun,
 
-[^760]: Tagut kuwé sétan lan apa baé sing désembah seliyané Gusti Allah.
-
 ## 39:18
 
 (yakuwé) wong-wong sing padha ngrungokna wulangan banjur ngetutna wulangan sing paling apik [^761] neng antarané wulangan kuwé. Dhéwéké kabéh kuwé wong-wong sing déparingi pituduh déning Gusti Allah lan dhéwéké kabéh kuwé wong-wong sing padha duwé nalar sing waras.
-
-[^761]: Wong-wong sing padha ngrungokna piwulang-piwulang Al-Qur’an lan piwulang liyané, ning sing détutna kuwé piwulang Al-Qur’an mega kuwé sing paling apik.
 
 ## 39:19
 
@@ -17850,8 +16328,6 @@ Mangka apa wong-wong sing debukak atiné déning Gusti Allah nggo (nampani) agam
 ## 39:23
 
 Gusti Allah wis nurunaken pengendikan sing paling apik (yakuwé) Al-Qur’an sing serupa (ayat-ayat-É) tur debolan-baléni, [^762] mulané dadi mrinding kulité wong-wong sing padha wedi maring Pengérané merga kuwé (Al-Qur’an), banjur dadi anteng kulit lan atiné dhéwéké kabéh rikala padha éling maring Gusti Allah. Kuwé pituduhé Gusti Allah, kanthi Kitab kuwé Penjenengané paring pituduh maring sapa baé sing Penjenengané kersakna. Lan sapa wongé sing dejorna kesasar déning Gusti Allah, mangka ora nana sijia wong sing bisa awéh pituduh.
-
-[^762]: Hukum-hukum, piwulang lan crita-crita kuwé debolan-baléni olihé nyebut neng Al-Qur’an supayané lewih kuwat pengaruhé lan lewih ngresep. Sebagéan ahli tapsir ngucap, lamon maksudé kuwé, ayat-ayat Al-Qur’an kuwé debolan-baléni olihé maca kayadéné bukakané, surah Al-Fatihah.
 
 ## 39:24
 
@@ -17929,8 +16405,6 @@ Temen, Ingsun nurunaken maring sliramu Kitab (Al-Qur’an) kanthi nggawa bebener
 
 Gusti Allah ngasta nyawané (sewijiné wong) rikala matiné lan nyawané (sewijiné wong) sing urung mati rikala dhéwéké turu; mangka Penjenengané tahan nyawané (wong) sing wis Penjenengané tetepna patiné lan Penjene-ngané culna nyawa sing liyané nganti butul wektu sing détemtokna. [^763] Temen, sing mengkana kuwé nyata-nyata ana tandha-tandha (agungé) Gusti Allah tumrap wong-wong sing padha mikir.
 
-[^763]: Wong-wong sing padha mati kuwé rohé detahan déning Gusti Allah saéngga ora bisa bali maring ragane; lan wong-wong sing ora mati ning mung turu, rohé deculma maning saéngga bisa bali maring ragané
-
 ## 39:43
 
 Utawa apa wong-wong kuwé padha ngalap pitulungan maring seliyané Gusti Allah. Dhawuha, “Apa (ko kabéh tetep ngalap pitulungan) senajan sembahan-sembahan kuwé ora duwé sewiji apa lan padha ora (bisa) mengerténi?”
@@ -17974,8 +16448,6 @@ Lan apa ora padha ngaweruhi lamon Gusti Allah ngombérna rejeki tumrap sapa sing
 ## 39:53
 
 Dhawuhna, “Hé kewula-kewulané Ingsun sing padha ngliwati wates maring awaké dhéwék! Aja pisan-pisan ko padha pungkas (pedhot pengarep-arep) sekang kewelasané (rahmat) Gusti Allah. Setemené Gusti Allah ngampurani dosa-dosa [^764] sekabéhé. Temen, Gusti Allah Sing Maha Ngampura, Mahawelas.
-
-[^764]: Deleng An-Nisa’ (4): 48, kejaba dosa syirik.
 
 ## 39:54
 
@@ -18032,8 +16504,6 @@ Merga kuwé, preyogané mung Gusti Allah sing sliramu sembah, lan preyogané sli
 ## 39:67
 
 Lan wong-wong kuwé padha ora ngegungna Gusti Allah kanthi semesthiné, mangkané bumi sekabéhé neng gegemané Penjenengané neng dina Kiyamat lan langit degulung kanthi asta tengené Penjenengané. [^765] Mahasuci Penjenengané lan Mahaluhur Penjenengané sekang apa sing wong-wong kuwé padha sekuthokna.
-
-[^765]: Ayat kiyé nggambarna agungé lan kewasané Gusti Allah lan mung Penjenengané sing kewasa neng dina Kiyamat.
 
 ## 39:68
 
@@ -18143,8 +16613,6 @@ Lan wehna wong-wong kuwé pengéling-éling maring dina sing sengsaya pérek (di
 
 Penjenengané ngawuningani (penyawang) mata sing nyidrani [^766] lan apa baé sing kesimpén neng njeroné dhadha.
 
-[^766]: Penyawang sing délarang kayadéné menthelengi wong wadon liya sing udu muhrime
-
 ## 40:20
 
 Lan Gusti Allah mutusna kanthi bebener. Aridené dhéwéké sing désembah seliyané Penjenengané (Gusti Allah) ora bisa mutusna kanthi apa baé. Setemené Gusti Allah, Penjenengané Sing Maha Midhanget, Maha Mriksani.
@@ -18156,8 +16624,6 @@ Lan apa dhéwéké ora padha nganakna lelungan neng bumi, banjur nggatékna kepr
 ## 40:22
 
 Sing mengkana kuwé (kelakon) merga setemené utusan-utusan (rasul-rasul) wis teka maring wong-wong kuwé kanthi nggawa bukti-bukti sing nyata [^767] banjur dhéwéké padha sulaya (ingkar), mangka Gusti Allah nyiksa dhéwéké kabéh. Temen, Penjenengané Mahadigdaya, Mahakeras ukuman-É.
-
-[^767]: Mukjijat, hukum-hukum lan piwulang-piwulang sing degawa Rasul
 
 ## 40:23
 
@@ -18199,8 +16665,6 @@ Lan wong sing precaya kuwé ngucap, “Hé kaumku! Setemené inyong kewatir ko k
 
 Lan hé kaumku! Setemené inyong nyata-nyata kewatir maring ko kabéh ingatasé (siksan) dina celuk-celukan, [^768]
 
-[^768]: Dina kiyamat kuwé déarani dina celuk-celukan sebab wong sing ngumpul neng ara-ara Mahsyar sebagéan nyeluk sebagéan sing liya go jaluk tulung.
-
 ## 40:33
 
 (yakuwé) neng dina (rikala) ko padha nylinguk maring mburi (mlayu), ora nana sijia wong sing bisa nyelametna ko kabéh sekang (siksané) Gusti Allah. Lan sing sapa wongé dejorna kesasar déning Gusti Allah, mangka ora nana sewiji apa sing bisa awéh pituduh.”
@@ -18212,8 +16676,6 @@ Lan temen, seurungé kuwé Yusuf wis teka maring ko kabéh kanthi nggawa bukti-b
 ## 40:35
 
 (yakuwé) wong-wong sing padha merdebadna ayat-ayat-É Gusti Allah tanpa alesan sing butul maring dhéwéké. [^769]  Banget gedhéné bebendon (nggo wong-wong kuwé) neng sisihé Gusti Allah lan wong-wong sing padha precaya. Mengkana kuwé Gusti Allah ngunci atiné saben wong sing padha gemedhé lan temindak sewenang-wenang.
-
-[^769]: Dhéwéké nolak ayat-ayat-É Gusti Allah tanpa alasan (dalil) sing butul maring dhéwéké.
 
 ## 40:36
 
@@ -18403,13 +16865,9 @@ Lan Penjenengané ngawéruhna tandha-tandha (agung-É) maring ko kabéh. Banjur 
 
 Mangka apa wong-wong kuwé ora padha nganakna lelungan neng bumi, banjur dhéwéké kabéh nggatékna kepriwé wekasané wong-wong sing (padha urip) seurungé dhéwéké kabéh. Wong-wong kuwé lewih akéh lan luwih hébat kekuwatané karo maningé (luwih akéh) petilasan-petilasan kebudhayané neng bumi, [^770] mangka apa sing wong-wong kuwé padha usahakna ora bisa nulungi dhéwéké kabéh.
 
-[^770]: Kebudhayan kayadéné gedhong, bénténg, kraton lan perkakas uba rampé.
-
 ## 40:83
 
 Mangka rikala para rasul teka maring wong-wong kuwé kanthi nggawa bukti-bukti sing nyata, dhéwéké padha ngrasa seneng kanthi ilmu sing ana neng dhéwéké kabéh [^771] lan wong-wong kuwé dékubengi déning (siksa) sing gemiyén dhéwéké padha perguyokna.
-
-[^771]: Wong-wong kuwé wis ngrasa cukup kanthi ilmu kawruh sing wis dhéwéké duwéni lan ora ngrasa perlu maring ilmu sing déwulangna déning rasul-rasulé dhéwéké kabéh. Malah wong-wong kuwé padha ngremehna lan padha merguyu keterangan sing deasta déning para rasul kuwé.
 
 ## 40:84
 
@@ -18475,8 +16933,6 @@ Angger dhéwéké padha mléngos mangka ucapna, “Ingsun wis ngélingna ko kab�
 
 Rikala para utusan (rasul) teka maring ko kabéh sekang ngarep lan mburiné dhéwéké. [^772]  (kanthi pengajék-ajék), “Aja pisan-pisan ko kabéh nyembah seliyané Gusti Allah. Dhéwéké padha semaur, “Angger Pengérané inyong kabéh ngersakna mesthi Penjenengané nurunaken malaékat-É, mangka setemené inyong padha ngingkari wahyu sing sampéyan (Muhammad) déutus nggo mbutulna.”
 
-[^772]: Sing démaksud “sekang ngarep lan sekang mburi” kuwé sekang prenah ngendi baé.
-
 ## 41:15
 
 Mangka anadéné kaum ‘Ad, dhéwéké padha ngagul-agulna awaké dhéwék neng bumi kanthi ora (merdulekna) bebener lan dhéwéké padha ngucap, “Sapa wongé sing kekuwatané lewih hébat tenimbang inyong kabéh?” Apa dhéwéké ora padha nggatékna lamon setemené Gusti Allah sing nyiptakna dhéwéké kabéh. Penjenengané lewih hébat kekuwatané tenimbang dhéwéké kuwé? Lan dhéwéké wis padha ngingkari tandha-tandha (agungé) Ingsun.
@@ -18509,8 +16965,6 @@ Lan dhéwéké padha ngucap maring kulité dhéwék, “Kenangapa ko dadi seksi 
 
 Lan ko kabéh ora bisa umpetan sekang persekséné pengrungon, pendeleng, lan kulitmu ingatasé ko kabéh [^773] malah ko padha ngira Gusti Allah ora patiya ngawuningani maring apa sing ko kabéh padha lakoni.
 
-[^773]: Dhéwéké padha nglakoni dosa kanthi terang-terangan merga dhéwéké padha ngira lamon Gusti Allah ora ngerti kelakuané dhéwéké lan dhéwéké padha ora ngira lamon nyangka lamon pengrungon, pendeleng lan kulit bakal dadi seksi neng akhérat ingatasé kelakuané dhéwéké kabéh.
-
 ## 41:23
 
 Lan kuwé pengira-iramu sing wis ko padha sangkakna maring Pengéranmu (prasangka kuwé) wis ngrusakna ko kabéh, saéngga ko padha dadi wong sing kapitunan.
@@ -18522,8 +16976,6 @@ Senajan dhéwéké padha sabar (ingatasé siksa neraka) mangka neraka kuwé papa
 ## 41:25
 
 Lan Ingsun tetepna nggo dhéwéké kabéh batir-batir (sétan) sing ngalem-alem apa baé sing ana neng ngarepé lan mburiné dhéwéké [^774]  lan wis tetep ingatasé dhéwéké kabéh putusan siksa bareng karo umat-umat sing gemiyén seurungé dhéwéké sekang (golongan) jin lan menungsa. Temen, dhéwéké kabéh kuwé wong sing padha kapitunan.
-
-[^774]: “Sing ana neng ngarepé” yakuwé nepsu lan kenékmatan neng dunya sing lagi denékmati banjur sing démaksud karo “neng buriné dhéwéké kabéh” yakuwé angen-angen lan kekarepané sing ora bisa kesembadan
 
 ## 41:26
 
@@ -18601,8 +17053,6 @@ Apa sing déucapna (déning wong-wong kapir) maring sliramu ora liya apa sing wi
 
 Lan sekirané Al-Qur'an Ingsun dadékna wacanan nganggo seliyané basa Arab mesthi dhéwéké padha ngucap, “Kenangapa ora decethakna ayat-ayat-É?” Apa patut (Al-Qur'an) nganggo basa seliyané basa Arab mangkané (rasul), bangsa Arab. Dhawuha, “Al-Qur'an kuwé pituduh lan tamba tumrap wong-wong sing padha precaya. Lan wong-wong sing padha ora precaya neng kupingé ana sumpelan, lan (Al-Qur'an) kuwé dadi pepeteng tumrap dhéwéké kabéh [^775].  Dhéwéké padha kaya wong sing deceluk sekang kadohan.”
 
-[^775]: Ora awéh pitudhuh maring ko kabéh
-
 ## 41:45
 
 Lan temen, wis Ingsun paringna maring Musa Kitab (Taurat) banjur padha dépersulayakna. Sekirané ora nana keputusan sing lewih dhisit sekang Pengéranmu, wong-wong kapir kuwé mesthi wis détumpes. Lan setemené dhéwéké kabéh nyata-nyata neng sejeroné kemamangan sing nemen ingatasé kuwé.
@@ -18614,10 +17064,6 @@ Sapa wongé sing nindakna kebecikan mangka (ganjarané) nggo awaké dhéwéké l
 ## 41:47
 
 Maring Penjenengané kawruh ngenani dina Kiyamat débalékna. [^776]  Ora nana woh-wohan sing metu sekang kembangé lan ora nana wong wadon sijia sing meteng lan sing nglairna, kejaba sekabéhé kanthi sepemriksané Penjenengané. Neng dina rikala Penjenengané (Gusti Allah) nimbali dhéwéké kabéh, “Neng endi sekuthon-sekuthonané Ingsun kuwé? [^777]  Dhéwéké kabéh semaur, “Kula sedaya aturaken dhateng Penjenengan bilih mboten wonten teng antawisé kula sami ingkang saged ngaturaken perseksén (bilih Penjenengan kagungan sekhuthon).”
-
-[^776]: Mung Gusti Allah sing ngudanéni kapan tekané dina kiyamat
-
-[^777]: Patung-patung sing ko kabéh anggep sekutuné Gusti Allah
 
 ## 41:48
 
@@ -18739,8 +17185,6 @@ Ko bakal padha weruh wong-wong sing aniaya (dolim) kuwé banget wediné merga (k
 
 Kuwé (ganjaran) sing dewertakna (déning) Gusti Allah nggo bebungah kewula-kewula-Né sing precaya lan nglakoni kebecikan. Dhawuhna (Muhammad) “Inyong ora njaluk maring ko kabéh sewiji upah ingatasé pengajék-ajéku kejaba welas-asih neng sejeroné peseduluran.” Lan sapa wongé nglakoni kebecikan bakal Ingsun tambahna kebecikan nggo dhéwéké. Temen, Gusti Allah Maha Ngampura, Maha Ngesuwuni. [^778]
 
-[^778]: Gusti Allah kesuwun maring kawulané maksudé, Gusti Allah paring ganjaran maring lakon-lakon becik kewulané, ngampura kesalahané, nambah nékmaté lan liya-liyané.
-
 ## 42:24
 
 Utawa apa wong-wong kuwé padha ngucap, “Dhéwéké (Muhammad) wis gawé-gawé goroh ngenani Gusti Allah.” Sekirané Gusti Allah ngersakna mesthi Penjenengané ngunci atimu. Lan Gusti Allah mbusek sing luput (batil) lan mbenerna sing bener kanthi sabdané (Al-Qur'an). Temen Penjenengané Maha Ngawuningani isiné ati.
@@ -18853,8 +17297,6 @@ utawa Penjenengané nugrahakna bangsa (jinis) lanang lan wadon lan ndadékna gab
 
 Lan ora pantes tumrap sewiji menungsa lamon Gusti Allah bakal ngendika maring dhéwéké kejaba kanthi lantaran wahyu utawa sekang mburi aling-aling [^779],  utawa kanthi ngirim utusan (malaékat) banjur déwahyokna maring dhéwéké kanthi idin Penjenengané apa sing Penjenengané kersakna. Temen, Penjenengané Mahaluhur, Mahawicaksana.
 
-[^779]: Wong bisa ngrungokna kalam ilahi ning dhéwéké ora bisa ndeleng Gusti Allah kaya apa sing kedadéan maring nabi Musa a.s
-
 ## 42:52
 
 Lan mengkana kuwé Ingsun wahyokna maring sliramu (Muhammad) ruh (Al-Qur'an) kanthi dhawuh Ingsun. Seurungi sliramu ora ngaweruhi apa kuwé Kitab (Al-Qur'an) lan apa precaya kuwé. Ning Ingsun ndadékna Al-Qur'an kuwé cahya, kanthi kuwé Ingsun paring pituduh maring sapa sing Ingsun kersakna neng antarané kawula-kawulané Ingsun. Lan temen, sliramu nyata-nyata nuntun (menungsa) maring dalan sing jejeg.
@@ -18923,8 +17365,6 @@ lan setemené inyong kabéh bakal padha bali maring Pengérané inyong kabéh.�
 
 Lan wong-wong kuwé ndadékna sebagéan sekang kewula-kawulané (Gusti Allah) dadi bagéan sekang Penjenengané. [^780]  Temen, menungsa kuwé tukang ngingkari (nékmaté Gusti Allah) sing nyata.
 
-[^780]: Wong-wong musrik ngucapna lamon malaékat kuwé anak wadoné Gusti Allah mangkané malaékat kuwé sebagéan sekang titah lan ciptanané Gusti Allah.
-
 ## 43:16
 
 Apa pantes Penjenengané mundhut anak wadon sekang sing décipta déning Penjenengané lan paring anak lanang maring ko kabéh?
@@ -18936,8 +17376,6 @@ Lan angger salah sijiné sekang wong-wong kuwé déwéhi werta bebungah kanthi a
 ## 43:18
 
 Lan apa pantes (dadi anaké Gusti Allah) wong sing degedhékna minangka dadi pepaés, karo maningé dhéwéké ora kewawa awéh alesan sing tegas lan cetha neng sejeroné pesulayan.  [^781]
-
-[^781]: Ayat kiyé nggambarna kahanané wong wadon Arab rikala Al-Qur’an déturunaken. Dhéwéké kabéh ora déwéhi mirunggan (kesempatan) sinau, mulané dadi kurang kepinterané lan mung dédadékna pepaés. Wong wadon wektu kuwé ora duwé pengarsa sing cetha lan tegas nggo nglairna kekarepané nggo ngranggéh kemenangan.
 
 ## 43:19
 
@@ -18979,13 +17417,9 @@ kejaba (rika padha nyembah) Gusti Allah sing nyiptakna inyong; merga temen, Penj
 
 Lan (Ibrahim) ndadékna (kalimah tauhid) kuwé kalimah sing langgeng neng keturunané supayané dhéwéké padha bali (maring kalimat tauhid kuwé).  [^782]
 
-[^782]: Nabi Ibrahim ndadékna kalimah tauhid dadi cekelan nggo keturunané supayané angger ana neng antarané dhéwéké kabéh wong sing nyekuthokna Gusti Allah supayané gagiyan bali maring tauhid kuwé.
-
 ## 43:29
 
 Malah Ingsun wis paring kenékmatan urip maring wong-wong kuwé lan kaki-nininé dhéwéké nganti bebener (Al-Qur’an) teka maring dhéwéké kabéh bareng sewiji Utusan sing awéh penerangan. [^783]
-
-[^783]: Neng antarané keturunané Nabi Ibrahim ana sing nglalénaken tauhid lan Gusti Allah ora paring siksa, ning malah paring nékmat lan penguripan sing kuduné desukuri. Ning keturunané Nabi Ibrahim kuwé ora sukur malah nuruti nepsuné, merga kuwé Gusti Allah nurunaken Al-Qur’an lan sewijiné Rasul nggo awéh tuntunan nggo mbimbing dhéwéké kabéh.
 
 ## 43:30
 
@@ -19039,8 +17473,6 @@ Mangka temen, sekirané Ingsun mundhut sliramu (seurungé sliramu olih kemenanga
 
 utawa Ingsun weruhna maring sliramu (siksa) sing wis Ingsun ancamna maring wong-wong kuwé [^784] . Mangka temen, Ingsun kewasa ingatasé dhéwéké kabéh.
 
-[^784]: Menangé nabi Muhammad s.a.w lan ajuré kaum musrik
-
 ## 43:43
 
 Mangka cekelana sing kenceng sliramu maring (agama) sing wis déwahyokna maring sliramu. Temen, sliramu ana neng dalan sing jejeg.
@@ -19065,13 +17497,9 @@ Mangka rikala dhéwéké (Musa) teka maring wong-wong kuwé nggawa mukjijat-mukj
 
 Lan ora bakal Ingsun weruhna sewiji mukjijat maring dhéwéké kabéh kejaba (mukjizat kuwé) lewih gedhé tenimbang mukjijat-mukjijat (sing seurungé). Lan Ingsun tibakna maring wong-wong kuwé siksa [^785] supaya dhéwéké padha bali (maring dalan sing bener).
 
-[^785]: Sing démaksud siksa neng kéné, siksa duniawi minangka dadi coban sekang Gusti Allah kayadéné kekurangan pangan, tekané ama tanduran-tanduran lan liya-liyané.
-
 ## 43:49
 
 Lan wong-wong kuwé ngucap, “Hé tukang sihir! [^786] Nyuwuna maring Pengéranmu supaya (ngluwarna) inyong kabéh miturut karo sing wis déjanjékna déning Gusti Allah maring ko, setemené inyong kabéh (angger penyuwunmu dekabulna) bakal dadi wong sing padha olih pituduh.
-
-[^786]: Sing démaksud tukang sihir yakuwé Nabi Musa a.s.
 
 ## 43:50
 
@@ -19109,8 +17537,6 @@ Lan rikala putrané Maryam (Isa) dédadékna peumpaman, dadakan kaumé sliramu (
 
 Lan wong-wong kuwé padha ngucap, “Endi sing lewih apik, sembahan-sembahané inyong kabéh apa dhéwéké (Isa)?” Wong-wong kuwé padha ora awéh (peumpaman) maring sliramu anging kanthi maksud mung nggo mbantah, sebeneré dhéwéké kabéh kuwé kaum sing padha seneng pesulayan. [^787]
 
-[^787]: Ayat 57 lan 58 neng dhuwur nyritakna maning kedadéan wektu Rasulullah macakna surat Al-Anbiya ayat 98 sing tegesé, “Temen, ko kabéh (wong kapir) lan apa sing ko padha sembah seliyané Gusti Allah, dadi suluhé Jahanam.” Mangka sewijiné wong Quraysi sing arané Abdullah bin Az Zab’ari takon maring Rasulullah.s.a.w, ngenani kahanané Isa sing désembah wong Nasrani, apa dhéwéké kabéh uga dadi suluhé neraka jahanam kaya sembahan-sembahané. Rasulullah meneng (ora semaur) lan dhéwéké (wong Quraisy) padha gemuyu; banjur dhéwéké kabéh takon maning ngenani sing lewih apik antarané sembahan-sembahané dhéwéké kabéh karo Isa. Pertakonan-pertakonan kuwé mung nggo mbantah udu nggo nggolét bebener. Dalan pikirané dhéwéké kabéh kuwé dadi kesalahan sing gedhé. Isa ora ngerti lamona dhéwéké désembah lan ora rila angger désembah.
-
 ## 43:59
 
 Dhéwéké (Isa) ora liya mung sewiji kewula sing Ingsun paringi nékmat (dadi utusan) maring dhéwéké. Lan Ingsun dadékna dhéwéké minangka tulada piwulangan tumrap Bani Israil.
@@ -19130,8 +17556,6 @@ Lan aja pisan-pisan ko kabéh depléngosna déning sétan; temen, sétan kuwé m
 ## 43:63
 
 Lan rikala Isa teka nggawa keterangan, dhéwéké ngucap, “Temen inyong teka maring ko kabéh kanthi nggawa hikmah [^788] lan nggo nggenahna maring ko kabéh sebagéan sekang apa sing ko padha persulayakna. Mangka padha semaraha (takwa) maring Gusti Allah lan manuta maring inyong.
-
-[^788]: Kenabian, injil lan hukum.
 
 ## 43:64
 
@@ -19197,8 +17621,6 @@ Temen, Ingsun wis rawuh ngasta bebener maring ko kabéh ning akéh-akéhé ko pa
 
 Utawa, apa wong-wong kuwé wis padha ngerencanakna réka daya (jahat), mangka setemené Ingsun wis ngerencana (ngatasi réka dayané dhéwéké kabéh). [^789]
 
-[^789]: Kaum musrik Mekah ora mung wadheh maring bebener, malah dhéwéké kabéh uga wis ngrencanakna arep maténi Nabi Muhammad, ning rencana kuwé gagal merga Gusti Allah uga kagungan rencana nylamatna Nabi.
-
 ## 43:80
 
 Utawa, apa wong-wong kuwé ngira lamon Ingsun ora midhanget wewadi lan krisik-krisiké dhéwéké kabéh? Sebeneré (Ingsun midhanget), lan utusan-utusané Ingsun (malaékat) tansah nyathet neng sisihé dhéwéké kabéh.
@@ -19251,13 +17673,9 @@ Sekawit (sekawit) Kitab (Al-Qur’an) sing cetha,
 
 setemené Ingsun nurunaken kuwé (Kitab) neng wengi sing déberkahi. [^790] Temen ingsun kuwé sing awéh pengéling-eling.
 
-[^790]: Wengi Al-Qur’an kawitan déturunaken
-
 ## 44:4
 
 Neng (wengi kuwé) degenahna sekabéh urusan sing akéh hikmahé, [^791]
-
-[^791]: Kabéh prekara sing ana gandhéng-cénéngé karo penguripané titah kayadéné urip-mati, rejeki, nasib apik, nasib ala lan liyané.
 
 ## 44:5
 
@@ -19283,8 +17701,6 @@ Ning wong-wong kuwé neng sejeroné mamang, dhéwéké padha dolanan.
 
 Mangka enténana neng dina rikala langit nggawa pedhut sing katon cetha, [^792]
 
-[^792]: Marabaya kencoten sing nibani kaum Quraisy merga dhéwéké padha mbangkang maring Nabi Muhammad s.a.w.
-
 ## 44:11
 
 sing nglingkupi menungsa. Kiyé siksa sing perih.
@@ -19301,8 +17717,6 @@ Kepriwé dhéwéké kabéh bisa nampani pengéling-éling, mangkané (seurungé 
 
 banjur dhéwéké  padha mléngos sekang pengeling-eling, lan ngucap, “Dhéwéké kuwé wong sing nampa piwulang (sekang wong liya) lan wong édan. [^793]
 
-[^793]: Nabi Muhammad s.a.w. déarani nampa ilmu sekang wong sing udu bangsa Arab jenengé Addas agamané nasrani.
-
 ## 44:15
 
 Temen, (angger) Ingsun ngilangna siksa kuwé semendhing baé, mesthi dhéwéké kabéh bakal padha balik (ingkar).
@@ -19310,8 +17724,6 @@ Temen, (angger) Ingsun ngilangna siksa kuwé semendhing baé, mesthi dhéwéké 
 ## 44:16
 
 (Élinga) maring dina (rikala) Ingsun nggebug wong-wong kuwé kanthi rosa. [^794] Ingsun mesthi paring piwales.
-
-[^794]: Gebugan sing rosa kuwé neng Perang Badar. Rikala wong-wong musrik degebug mundur dadi kalah. Lan akéh pemimpiné sing padha tiwas.
 
 ## 44:17
 
@@ -19381,8 +17793,6 @@ Lan temen, Ingsun pilih wong-wong kuwé kabéh (Bani Israil) kanthi ilmuné (Ing
 
 Lan wis Ingsun paringna maring dhéwéké kabéh neng antarané tandha-tandha (agungé Ingsun) sewiji-wiji sing neng njeroné ana nékmat sing nyata. [^795]
 
-[^795]: Kaya iyub-iyubé awan, medhuné mann lan salwa; mancuré banyu sekang watu, lan sigaré segara.
-
 ## 44:34
 
 Setemené dhéwéké kabéh (kaum musrik) kuwé mesthi bakal ngucap,
@@ -19391,8 +17801,6 @@ Setemené dhéwéké kabéh (kaum musrik) kuwé mesthi bakal ngucap,
 
 “Ora nana pati kejaba pati neng dunya kiyé. Lan inyong kabéh ora bakal détangékna. [^796]
 
-[^796]: Wong-wong musrik Mekah ngingkari lamon sewisé mati menungsa bakal déuripna maning.
-
 ## 44:36
 
 mangka tekakna (maning) kaki-nininé inyong angger ko wong sing bener.”
@@ -19400,8 +17808,6 @@ mangka tekakna (maning) kaki-nininé inyong angger ko wong sing bener.”
 ## 44:37
 
 Apa dhéwéké kabéh (kaum musrik) sing lewih apik apa kaum Tubba’, [^797] lan wong-wong sing seurungé dhéwéké kabéh sing wis Ingsun tumpes merga dhéwéké kabéh kuwé wong-wong sing akéh dosané.
-
-[^797]: Tubba’ yakuwé gelar nggo raja-rajané suku Himyar lan Tubba’.
 
 ## 44:38
 
@@ -19475,8 +17881,6 @@ mengkana kuwé, banjur Ingsun paringna maring dhéwéké kabéh jodho (rupa) wid
 
 Neng njeroné dhéwéké padha bisa njaluk sekabéh werna woh-wohan kanthi aman lan ayem-tentrem, [^798]
 
-[^798]: Tanpa kewatir kentongan utawa kewatir lara.
-
 ## 44:56
 
 Wong-wong kuwé ora bakal ngrasakna mati neng njeroné seliyané pati sing kawitan (neng dunya). Gusti Allah ngayomi dhéwéké kabéh sekang siksa neraka,
@@ -19549,8 +17953,6 @@ Lan Penjenengané nundhukna apa sing ana neng langit lan apa sing neng bumi nggo
 
 Dhawuha (Muhammad) maring wong-wong sing padha precaya preyogané dhéwéké padha ngampurani wong-wong sing ora wedi maring dina-dinané Gusti Allah [^799] merga Penjenengané bakal paring piwales maring sewiji kaum sepadhan karo apa sing wis dhéwéké padha pergawé.
 
-[^799]: Dina-dina rikala  mangsané Gusti Allah nibakna siksan maring dhéwéké kabéh
-
 ## 45:15
 
 Sapa wongé nglakoni kebecikan mangka kuwé nggo awaké dhéwék, lan sapa wongé nglakoni kejahatan mangka kuwé bakal nibani awaké dhéwék, banjur maring Pengéranmu ko kabéh bakal débalékna.
@@ -19586,8 +17988,6 @@ Lan Gusti Allah ndadékna langit lan bumi kanthi tujuan sing sejati (hak) lan su
 ## 45:23
 
 Mangka apa ko nglakon weruh wong sing ndadékna hawa nepsuné dadi sembahan lan Gusti Allah ngejorna dhéwéké kesasar kanthi sekawuningan-É, [^800] lan Gusti Allah wis ngunci pengrungu lan atiné lan uga ndelah tutup ingatasé pendelengé dhéwéké? Mangka sapa sing kewawa awéh pituduh sewisé Gusti Allah (ngejorna dhéwéké kesasar?) Kenangapa ko kabéh padha ora ngalap piwulangan?
-
-[^800]: Gusti Allah ngejorna wong kuwé kesasar merga Gusti Allah wis ngawuningani lamon dhéwéké ora nrima pitudhuh-pitudhuh sing déparingna.
 
 ## 45:24
 
@@ -19685,13 +18085,9 @@ Dhawuha (Muhammad), “Inyong udu utusan sing kawitan neng antarané para utusan
 
 Dhawuha, “Terangna maring inyong kepriwé penemumu lamon sebeneré (Al-Qur’an) kiyé teka sekang Gusti Allah lan ko padha ngingkari kuwé, mangkané ana seksi siji sekang Bani Israil [^801] sing ngakoni (beneré) sing serupa karo sing désebut neng (Al-Qur’an) banjur dhéwéké precaya, ko padha ngagul-agulna awakmu dhéwék. Temen, Gusti Allah ora paring pitudhuh maring wong-wong sing padha aniaya (dolim).
 
-[^801]: Sing démaksud “wong siji sekang Bani Israil” kuwé Abdullah bin Salam, dhéwéké ngakoni precaya maring Kanjeng Nabi Muhammad sewisé nggatékna lamon neng antarané isi Al-Qur’an ana sing padha karo Taurat kayadéné ajaran tauhid, janji lan ancaman, kenabiané Kanjeng Nabi Muhammad, anané penguripan akhérat lan liya-liyané.
-
 ## 46:11
 
 Lan wong-wong sing mbangkang (kapir) ngucap maring wong-wong sing padha precaya, “Sekirané Al-Qur’an kuwé sewiji-wiji sing apik mesthi dhéwéké ora pantes padha ndhingini inyong kabéh (ngprecayai) maring kuwé.” [^802] Ning merga dhéwéké padha ora olih pituduh kanthi kuwé, mangka dhéwéké bakal padha ngucap, “Kiyé apus-apus sing lawas.”
-
-[^802]: Lamon wong-wong kapir kuwé ngina wong-wong Islam kanthi ngucap, “Sekirané Al-Qur’an kuwé bener mesti inyong lewih dhisit precaya maring kuwé tenimbang wong-wong sing miskin lan asor kayadéné Bilal, ‘Ammar, Suhaib, Habbab, lan liyané.
 
 ## 46:12
 
@@ -19700,8 +18096,6 @@ Lan seurungé (Al-Qur’an) kuwé wis ana Kitabé Musa minangka dadi pituduh lan
 ## 46:13
 
 Setemené wong-wong sing padha ngucap, “Pengéranku kuwé Gusti Allah,” banjur dhéwéké padha tetep mersudi (istiqomah) [^803] ora nana rasa kewatir tumrap dhéwéké kabéh lan dhéwéké (uga) ora padha susah neng ati.
-
-[^803]: Teguh kemantepané neng prekara tauhid lan ajeg temindak apiké.
 
 ## 46:14
 
@@ -19718,8 +18112,6 @@ Dhéwéké kabéh kuwé wong-wong sing Ingsun tampani laku apiké sing wis dhéw
 ## 46:17
 
 Lan wong sing ngucap maring wong tuwané, “Ah.” [^804] Apa ko sekloron ngélingna maring inyong lamon inyong bakal détangékna (sekang kubur), mangkané sewetara umat seurungé inyong wis padha keliwat? Banjur wong tuwané sekloron nyuwun pitulungan maring Gusti Allah (kanthi ngucap), “Cilaka ko, mara precayaa ko! Setemené janjiné Gusti Allah kuwé bener.” Banjur dhéwéké (anak kuwé) ngucap, “Kiyé mung dongéngé wong-wong gemiyén.”
-
-[^804]: Tembung-tembung, kalimat, utawa sasmita  sing nadané nantang.
 
 ## 46:18
 
@@ -19961,8 +18353,6 @@ lan supaya Gusti Allah nulung sliramu kanthi pitulung sing kuwat (akéh).
 
 Penjenengané sing nurunaken ketentreman maring atiné wong-wong mukmin nggo nambah  precaya ingatasé precayae  dhéwéké (sing wis ana). Lan Gusti Allah kagungan wadya bala tentara neng langit lan bumi. [^805] Lan Gusti Allah Maha Ngawuningani, Mahawicaksana;
 
-[^805]: Sing nulung sing dédadékna Gusti Allah kanggo wong-wong mukmin kayadéné malaékat, kéwan-kéwan, lisus, lan seliyané.
-
 ## 48:5
 
 Supaya Pengérané nglebokna wong-wong mukmin lanang lan wadon maring  njero suwarga sing ana bengawané mili neng ngisoré. Dhéwéké kabéh langgeng  neng njeroné lan Penjenengané arep mbusek kesalahanané dhewéké kabéh, lan sing mengkana kuwé kebegyan gedhé sekang Gusti Allah,
@@ -20027,8 +18417,6 @@ lan bandha rampasan perang sing akéh sing bisa dhéwéké tampa. Lan Gusti Alla
 
 Gusti Allah njanjékna maring ko kabéh bandha rampasan perang sing akéh sing bisa ko alap, mangka Penjenengané nggelisna (bandha rampasan perang) kiyé nggo ko kabéh [^806], lan Penjenengané nahan tangan menungsa sekang (nyilakani) ko (supaya ko kesuwun maring Penjenengané) lan supaya kedadean kuwé dadi bukti nyata nggo wong-wong mukmin lan supaya Penjenengané nuntun ko kabéh maring dalan sing jejeg.
 
-[^806]: Gusti Allah njanjékna bandha rampasan perang sing akéh maring kaum muslimin. Sing kawitan, Gusti Allah paring neng Perang Khaibar.
-
 ## 48:21
 
 Lan (kemenangan-kemenangan) ingatasé negari-negari liyané sing ko ora padha bisa ngira, ning setemené Gusti Allah wis nemtokna. Gusti Allah Mahakewasa ingatasé samubarang kabéh.
@@ -20053,13 +18441,9 @@ Wong-wong kapir padha ngalang-alangi ko kabéh mlebu maring Masjidilharam lan (n
 
 Rikala wong-wong sing  kapir nandur kesombongan neng njero atiné dhéwéké (yakuwé) kesombongan kebodhoan (jahiliyah), banjur Gusti Allah nurunaken ketentreman maring Rasul-E lan wong-wong mukmin; lan (Gusti Allah) majibna maring dhéwéké tetep tuhu nglakoni kalimat takwa [^807] lan dhéwéké lewih ngehaki ingatasé  kuwé lan patut nduwéni. Lan Gusti Allah Maha Ngawuningani samubarang kabéh.
 
-[^807]: “Kalimat takwa” yakuwé kalimat tauhid lan nyucékna lakon manut maring Gusti Allah.
-
 ## 48:27
 
 Temen, Gusti Allah bakal mbuktékna  maring Rasul-É ngenani benere impéné lamon sliramu mesthi bakal mlebu Masjidilharam, angger Gusti Allah kersa neng kahanan aman, kanthi nggundhuli rambut sirah lan nyendhekna kuwé, tur ko ora krasa wedi. Mangka Gusti Allah ngawuningani apa sing ko padha ora ngerténi lan seliyané kuwé Penjenengané wis paring kemenangan sing pérek. [^808]
-
-[^808]: Sewetara seurungé kedadéan Perdamaian Hudaibiyah, Nabi Muhammad s.a.w ngimpi lamon slirané bareng karo para sahabaté mlebu maring kota Mekah lan Masjidilharam senjeroné kahanan  wong-wong kaé nggundhul rambut lan separoné maning nyindekna rambuté. Nabi dhawuh lamon ngimpiné kuwé bakalan kedadén. Banjur warta kiyé kesebar maring kaum muslimin, wong-wong munapék, lan wong-wong Yahudi lan Nasrani. Sewisé “Perdamaian Hudaibiyah” lan kaum muslimin neng wektu kuwé ora ngasi mlebu Mekah, mangka wong-wong munapék madani Nabi lan ngomongna lamon ngimpine nabi Muhammad s.a.w kuwé mung lomboan thok. Mangka temurun ayat kiyé sing nggenahna lamon ngimpi Nabi kuwé mesti arep kedadén nyata neng taun sing arep teka. Angger rikala taun kedadéné Perdamaian Hudaibiyah kuwé kaum muslimin melebu kota Mekah, mangka keslametané wong-wong sing ngumpetna precayaé sing manggon neng kota Mekah neng wektu kuwé bakal cilaka.
 
 ## 48:28
 
@@ -20072,8 +18456,6 @@ Muhammad kuwé utusané Gusti Allah lan wong-wong sing bareng karo slirané duw�
 ## 49:1
 
 Hé wong-wong sing padha precaya! Aja pisan-pisan ko padha ndhisiti Gusti Allah lan Utusan-É [^809] lan padha semaraha (takwa) maring Gusti Allah. Temen, Gusti Allah Maha Midhanget, Maha Ngawuningani.
-
-[^809]: Maksudé, wong-wong mukmin ora kena netepna sewiji hukum seurungé ana ketetepan sekang Gusti Allah lan Utusan-É.
 
 ## 49:2
 
@@ -20351,13 +18733,9 @@ lan temen, (dina) piwalesan mesthi kelakoné.
 
 Sekawit (sekawit) langit sing duwé dalan-dalan, [^810]
 
-[^810]: Garis ubengé lintang, planét (kayadéné bumi) lan barang-barang langit liyané. Uga ana sing negesi Zaatil Hubuk “duwé penciptanan sing bagus”, “duwé pepaés lintang-lintang”, utawa “duwé bangunan sing kukuh”.
-
 ## 51:8
 
 temen, ko kabéh nyata-nyata padha neng kahanan beda-beda penemu, [^811]
-
-[^811]: Béda-bédané penemuné kaum musrik ngenani Kanjeng Nabi Muhammad lan Al-Qur’an.
 
 ## 51:9
 
@@ -20463,8 +18841,6 @@ supaya Ingsun ngrutugi wong-wong kuwé nganggo watu-watu sekang lemah (sing atos
 
 sing déwéhi tandha sekang Pengéranmu nggo (numpes) wong-wong sing padha ngliwati wates." [^812]
 
-[^812]: Watu-watu kuwé déwéhi tandha nganggo jeneng wong sing dépaténi.
-
 ## 51:35
 
 Banjur Ingsun tokna wong-wong sing padha precaya sing ana neng njeroné (negariné kaum Lut) kuwé.
@@ -20476,8 +18852,6 @@ Mangka Ingsun ora nemokna neng njeroné (negari kuwé), kejaba umah siji, umahé
 ## 51:37
 
 Lan Ingsun ninggali neng (negari kuwé) sewijiné tandha [^813] nggo wong-wong sing padha wedi maring siksa sing perih.
-
-[^813]: Watu-watu sing numpuk sing nggo numpes kaum Nabi Lut. Ana uga sing ngarani sijiné tlaga sing banyuné ireng lan bacin ambuné.
 
 ## 51:38
 
@@ -20586,8 +18960,6 @@ neng lembaran sing kebukak,
 ## 52:4
 
 sekawit Baitulma’mur (Ka’bah),  [^814]
-
-[^814]: Riwayat Bukhari, Muslim lan Tapsir Ibnu Kasir, “Umah neng langit kepitu sing tansah deramékena déning 70.000 malaékat sing padha maca tasbih”.
 
 ## 52:5
 
@@ -20761,8 +19133,6 @@ Mangka jorna wong-wong kuwé nganti dhéwéké padha nemoni dina (sing déjanjé
 
 Lan setemené tumrap wong-wong sing padha aniaya (dolim) ésih ana siksa seliyané kuwé. Ning akéh-akéhé dhéwéké padha ora mengerténi.  [^815]
 
-[^815]: Anané mangsan ketiga, kencoten, malapetaka sing nibani maring dhéwéké, siksa kubur lan liya-liyané.
-
 ## 52:48
 
 Lan sing sabara (Muhammad) ngenténi ketetepan sekang Pengéranmu, merga setemené sliranmu neng sejeroné pengawat-awaté Ingsun, lan maha-nyucekna (maca tasbéh) kanthi mengalembana Pengéranmu rikala sliramu tangi,
@@ -20826,8 +19196,6 @@ Lan temen, dhéwéké (Muhammad) wis mriksani (rupané Jibril sing sejati) neng 
 ## 53:14
 
 (yakuwé) neng Sidratilmuntaha, [^816]
-
-[^816]: Sidratilmuntaha yakuwé nggon sing paling dhuwur neng langit kepitu, sing wis detekani neng Nabi Muhammad rikala Mi’raj.
 
 ## 53:15
 
@@ -20968,8 +19336,6 @@ lan setemené Penjenengané sing maringi kesugihan lan kecukupan,
 ## 53:49
 
 lan setemené Penjenengané Pengéran (sing kagungan) lintang Syira’,  [^817]
-
-[^817]: Lintang sing désembah déning wong-wong Arab wektu zaman Jahiliyah.
 
 ## 53:50
 
@@ -21311,8 +19677,6 @@ Mangka nékmaté Pengéranmu sing endi sing ko padha gorohna?
 
 Pengéran (sing ngupakara) wétan loro lan Pengéran (sing ngupakara)kulon loro.  [^818]
 
-[^818]: Nggon mlethék lan surupé srengéngé neng mangsa panas lan mangsa adhem.
-
 ## 55:18
 
 Mangka nékmaté Pengéranmu sing endi sing ko padha gorohna?
@@ -21324,8 +19688,6 @@ Penjenengané ngejorna segara loro padha mili sing (sebanjuré) sekloroné ketem
 ## 55:20
 
 Neng antarané sekloroné ana wates sing ora deliwati déning saben-sabené. [^819]
-
-[^819]: Neng antarané mufasir ana sing nduwé penemu setemené La yabghiyan maksudé saben-sabené ora padha ngepéngini. Kanthi mengkana maksud ayat 19 lan 20, yakuwé ana rong segara sing loroné misah dewatesi kambi lemah genting kuwé ora dekarepna (ora deperlukena), mula neng akhiré, lemah genting kuwé debuang (dekeruk nggo keperluan liwate prahu), mula ketemu rong segara kuwé mau. Kaya Terusan Suez lan Terusan Panama.
 
 ## 55:21
 
@@ -21362,8 +19724,6 @@ Mangka nékmaté Pengéranmu sing endi sing ko padha gorohna?
 ## 55:29
 
 Apa sing neng langit lan neng bumi tansah terus padha nyuwun maring Penjenengané. Saben wektu Penjenengané neng sejeroné kegiatan. [^820]
-
-[^820]: Gusti Allah terus nyiptakna, nguripaken, matiaken, ngrumat, paring rejeki lan liya-liyané.
 
 ## 55:30
 
@@ -21405,8 +19765,6 @@ Mangka nékmaté Pengéranmu sing endi sing ko padha gorohna?
 
 Mangka neng dina kuwé menungsa lan jin ora détakoni ngenani dosané. [^821]
 
-[^821]: Neng wektuné arep déjaluki tanggungjawabé ingatasé sekabéhé amal penggawéné.
-
 ## 55:40
 
 Mula nékmaté Pengéranmu sing endi sing ko padha gorohna?
@@ -21434,8 +19792,6 @@ Mangka nékmaté Pengéranmu sing endi sing ko padha goroha?
 ## 55:46
 
 Lan tumrap sapa sing padha wedi maring wektu ngadhep maring Pengérané, ana suwarga loro.  [^822]
-
-[^822]: Suwarga nggo menungsa lan suwarga nggo jin. Ana uga mufasir duwé penemu suwarga dunya lan suwarga akhérat.
 
 ## 55:47
 
@@ -21500,8 +19856,6 @@ Mangka nékmaté Pengéranmu sing endi sing ko padha gorohna?
 ## 55:62
 
 Lan seliyané suwarga loro kuwé ana suwarga loro maning. [^823]
-
-[^823]: Seliyané suwarga loro sing kesebut mau ana maning suwarga nggo wong-wong mukmin sing kurang drajaté tenimbang wong-wong mukmin sing mlebu maring suwarga sing dhisit.
 
 ## 55:63
 
@@ -21599,13 +19953,9 @@ lan ko padha dadi telung golongan,
 
 yakuwé golongan tengen, [^824] banget mulyané golongan tengen kuwé,
 
-[^824]: Wong-wong sing nampa buku cathetan lakuné kanthi tangan tengen.
-
 ## 56:9
 
 lan golongan kiwé, [^825] banget sengsarané golongan kiwé kuwé,
-
-[^825]: Wong-wong sing nampa buku cathetan lakuné kanthi tangan kiwé.
 
 ## 56:10
 
@@ -21622,8 +19972,6 @@ Manggon neng njero suwarga kenékmatan,
 ## 56:13
 
 segolongan gedhé sekang wong-wong sing gemiyén, [^826]
-
-[^826]: Kabéh umat nabi-nabi seurungé Nabi Muhammad s.a.w. Lan sing démaksud wong sing keri yakuwé umaté Nabi Muhammad s.a.w.
 
 ## 56:14
 
@@ -21713,8 +20061,6 @@ lan kasur-kasur sing kandel tur empuk
 
 Ingsun nyiptakna wong-wong kuwé (widadari-widadari mau) nganggo cara langsung. [^827]
 
-[^827]: Dhéwéké padha déciptakena ora nganggo délairna lan langsung dadi perawan.
-
 ## 56:36
 
 banjur Ingsun dadékna dhéwéké kabéh prawan-prawan,
@@ -21782,8 +20128,6 @@ Banjur setemené ko kabéh, hé wong-wong sing kesasar lan ngapusi!
 ## 56:52
 
 mesti bakal padha mangan wit zaqqum, [^828]
-
-[^828]: Wit neng neraka sing njalari lara sing banget larané tumrap wong sing mangan wit kuwé.
 
 ## 56:53
 
@@ -21973,13 +20317,9 @@ Kagungané Penjenengané praja langit lan bumi, Penjenengané nguripna lan maté
 
 Penjenengané Sing Kawitan, Sing Wekasan, Sing Wadhag lan Sing Samar, [^829] lan Penjenengané Maha Ngawuningani samubarang kabéh.
 
-[^829]: “Sing Kawitan” yakuwé sing wis ana seurungé sekabéhané barang ana, “Sing Wekasan” yakuwé sing tetep ana sewisé sekabéhé barang musnah, “Sing Wadhag ” yakuwé sing Mahaluhur lan Sing Samar yakuwé ora nana sing ngalang-alangi Penjenengané lan Penjenengané lewih pérek maring titah tenimbang titah kuwé maring Penjenengané.
-
 ## 57:4
 
 Penjenengané sing nyiptakna langit lan bumi sejeroné nem mangsa; banjur milenggah neng ndhuwur ‘Arsy. Penjenengané ngawuningani apa sing mlebu maring bumi lan apa sing metu sekang njeroné, apa sing temurun sekang langit lan apa sing munggah maring nganah. [^830] Lan Penjenengané mbarengi ko kabéh neng ngendi baé ko padha ana. Lan Gusti Allah Maha Mriksani apa sing ko padha pergawé.
-
-[^830]: Sing démaksud “sing munggah” antarané amal-amal lan donga-donga kewula-Né.
 
 ## 57:5
 
@@ -22073,8 +20413,6 @@ Lan temen, Ingsun wis ngutus Nuh lan Ibrahim lan Ingsun paringna kenabian lan ki
 
 Banjur Ingsun susulaken utusan-utusan Ingsun ngetutburéni labeté dhéwéké kabéh, lan Ingsun susulaken (uga) Isa putrane Maryam; lan Ingsun paringna Injil maring dhéwéké lan Ingsun dadékna rasa aris lan welas asih neng njero atiné wong-wong sing padha ngetutbureni dhéwéké. Wong-wong kuwé padha ngana-nganakna rahbaniyah, [^831] mangkané Ingsun ora ngwajibna   (mréntahna) kuwé maring dhéwéké kabéh (sing Ingsun wajibna mung) nggolét karenané Gusti Allah, ning (kewajiban kuwé) ora padha dereksa sing semestiné. Mangka maring wong-wong sing precaya neng antarané dhéwéké kabéh Ingsun paringna ganjarané, lan akéh neng antarané dhéwéké sing padha dosa (pasék).
 
-[^831]: Ora duwé bojo utawa lanang (ora umah-umah) lan mingit  awak dhéwék sejeroné biara
-
 ## 57:28
 
 Hé wong-wong sing padha precaya! Padha semaraha (takwa) maring Gusti Allah lan precayaa maring utusan-Né (Muhammad), mesthi Gusti Allah maringna kewelasan (rahmat)-É maring ko kabéh rong bagéan, lan ndadékna cahya nggo ko kabéh lan kanthi cahya kuwé ko padha bisa mlaku lan Penjenengané ngampurani ko kabéh. Lan Gusti Allah Maha Ngampura, Mahawelas,
@@ -22086,8 +20424,6 @@ supayané Ahli Kitab padha ngaweruhi lamon semendhing baé dhéwéké ora bakal 
 ## 58:1
 
 Temen, Gusti Allah wis midhanget ucapané wong wadon sing ngajokna gugatan maring sliramu (Muhammad) ngenani lanangé, lan madulna (pekewuhé) maring Gusti Allah, lan Gusti Allah midhanget pewicarané sliramu sekloroné. Setemené Gusti Allah Maha Midhanget, Maha Mriksani. [^832]
-
-[^832]: Sebab temuruné ayat kiyé gandhéng karo masalah wong wadon sing jenengé Khaulah binti Tsa’labah sing wis dejihar neng lanangé Aus bin Samit, yakuwé kanthi ngucap maring bojoné, “Ko kuwé kanggoné Inyong wis kaya gigiré biyungku”; kanthi maksud dhéwéké ora olih maning nyampuri bojoné, kayadéné dhéwéké ora ulih nyampuri biyungé. Miturut adat Jahiliyah kalimah jihar kaya kuwé wis padha karo megat bojo. Mangka Khaulah madulna masalahé maring Kanjeng Rasul s.a.w. Rasulullah njawab, neng masalah kiyé urung ana putusané Gusti Allah. Lan neng riwayat liya Rasulullah ngendhika: “Ko wis délarang nyampuri bojomu.” Banjur Khaulah ngucap: “Bojoku urung ngucap tembung talak”. Banjur Khualah bola-bali ndhesek Rasulullah supayané netepna putusan neng prekara kiyé, mangka banjur temurun ayat kiyé lan ayat-ayat sebanjuré.
 
 ## 58:2
 
@@ -22173,8 +20509,6 @@ Gusti Allah wis netepna, “Ingsun lan utusan-utusané Ingsun mesthi menang.” 
 
 Sliramu (Muhammad) ora bakal nemu sewijiné kaum sing precaya maring Gusti Allah lan dina akhérat, padha andum ketresnan karo wong-wong sing padha nglawan maring Gusti Allah lan Rasul-É, senajan wong-wong kuwé ramané, anaké, seduluré utawa kulawargané. Dhéwéké kabéh kuwé wong-wong sing neng atiné wis detanduri déning Gusti Allah keprecayaan lan Gusti Allah wis neguhna dhéwéké kanthi pitulungan [^833] sing teka sekang Penjenengané. Banjur déning Penjenengané dhéwéké padha délebokna maring suwarga sing neng ngisoré mili bengawan-bengawan, wong-wong kuwé langgeng neng sejeroné. Gusti Allah karenan maring dhéwéké lan dhéwéké (uga) padha krasa marem ingatasé (lubéran kewelasan)-É. Wong-wong kuwé golongané Gusti Allah, Padha élinga, setemené golongané Gusti Allah kuwé sing begya.
 
-[^833]: Kekarepan lan kekuwatan batin, bresihé ati, kemenangan ingatasé mungsuh lan liya-liyané.
-
 ## 59:1
 
 Apa sing ana neng langit lan apa sing ana neng bumi padha maha-nyucekna (maca tasbéh) maring Gusti Allah; lan Penjenengané Sing Mahadigdaya, Mahawicaksana.
@@ -22182,8 +20516,6 @@ Apa sing ana neng langit lan apa sing ana neng bumi padha maha-nyucekna (maca ta
 ## 59:2
 
 Penjenengané sing ngetokna wong-wong kapir neng antarané Ahli Kitab sekang désané, rikala urak-urakan sing kawitan. [^834] Ko kabéh ora padha ngira, lamon wong-wong kuwé arep padha metu lan dhéwéké uga padha precaya, bénténg-bénténgé bakal bisa ngayomi dhéwéké kabéh sekang (siksané) Gusti Allah; mangka Gusti Allah nekakna (pesiksan) maring dhéwéké sekang prenah sing ora dhéwéké nyana-nyana. Lan Gusti Allah nuwuhna rasa wedi maring atiné; saéngga dhéwéké padha ngajurna umah-umahé karo tangané dhéwék lan tangané wong-wong mukmin. Mangka padha ngalapa (kedadéan kuwé) nggo piwulang, hé wong-wong sing padha duwé pandhangan!
-
-[^834]: Wong-wong Yahudi bani Nadir, dhéwéké sing awal-awal dékumpulna kanggo déurak metu sekang Medinah.
 
 ## 59:3
 
@@ -22201,8 +20533,6 @@ Apa sing ko padha tegor neng antarané wit-wit korma (duwéké wong-wong kapir) 
 
 Lan bandha rampasan fai’ [^835] sekang wong-wong kuwé sing déparingna déning Gusti Allah maring Rasul-É, ko ora padha merlokna jaran utawa onta nggo mekolih kuwé, ning Gusti Allah paring kewasa maring para utusan-utusan-É tumrap sapa sing Penjenengané kersakna. Lan Gusti Allah Mahakewasa ingatasé samubarang kabéh.
 
-[^835]: Banda rampasan sing déjikot sekang mungsuh kanthi ora nganggo perang, pembagéané béda karo pembagéan ghanimah. Ghanimah kuwé bandha rampasan sing déjikot sekang mungsuh sewisé perang. Pembagéan fai’ kaya sing désebut neng ayat 7, déné pembagéan ghanimah désebut neng ayat 41 surat Al-Anfal.
-
 ## 59:7
 
 Bandha rampasan (fai’) sekang wong-wong kuwé sing déparingna déning Gusti Allah maring Utusan-É (sing asalé) sekang warga pirang-pirang negari yakuwé nggo Gusti Allah, Rasul, sanak-kadangé (Rasul), bocah-bocah yatim, wong-wong miskin lan nggo wong-wong sing lagi neng lelungan, supaya bandha kuwé aja mung mubeng mung neng antarané wong-wong sugih neng antarané ko kabéh. Apa sing déwéhna déning Rasul maring ko kabéh preyoga détampani. Lan apa sing délarang déning dhéwéké tumrap ko kabéh peryoga tinggalna. Lan padha semaraha (takwa) maring Gusti Allah. Temen, Gusti Allah banget keras ukuman-É.
@@ -22210,8 +20540,6 @@ Bandha rampasan (fai’) sekang wong-wong kuwé sing déparingna déning Gusti A
 ## 59:8
 
 (Bandha rampasan kuwé uga) nggo wong-wong butuh (fakir) sing padha boyong [^836] sing déurak sekang désané lan ninggalna dunya branané seperlu nggoléti kanugrahan sekang Gusti Allah lan karenan-É lan seperlu nulungi agamané) Gusti Allah lan utusan-É. Dhéwéké kabéh kuwé wong-wong sing bener.
-
-[^836]: Kerabat Nabi, bocah-bocah yatim, wong-wong mlarat, lan wong sing neng lelungan lan kabéh wong pekir (butuh) lan padha boyongan.
 
 ## 59:9
 
@@ -22293,8 +20621,6 @@ Sanak-sedulurmu lan anak-anakmu ora bakal migunani tumrap ko kabéh neng dina Ki
 
 Temen, wis ana tepa-tuladha sing apik nggo ko kabéh neng (pribadine) Ibrahim lan wong-wong sing padha bareng karo dhéwéké, nalika dhéwéké ngucap maring kaumé, “Setemené inyong padha kipat sekang ko kabéh lan sekang apa sing ko padha sembah seliyané Gusti Allah, inyong kabéh ngingkari (kekapiran)mu lan wis genah antarané inyong lan ko kabéh ana mungsuhan lan wewadhéhan nggo selawas-lawasé nganti ko padha precaya mung maring Gusti Allah,” Kejaba ucapané Ibrahim maring ramané, [^837] “Temen, inyong arep nyuwunaken ngampura nggo rika, ning inyong babar pisan ora bisa nolak (siksané) Gusti Allah tumrap rika.” (Ibrahim matur), “Dhuh Pengéran kula sami, namung dhateng Penjenengan kula sedaya pasrah lan namung dhateng Penjenengan kula sami mertobat lan namung dhateng Penjenengan kula sami wangsul.
 
-[^837]: Nabi Ibrahim wis nglakon nyuwunaken ampura nggo ramané sing musrik maring Gusti Allah, kiyé ora kena détiru merga Gusti Allah ora mbenerna wong mukmin njalukna ampura nggo wong kapir (An-Nisa ayat 48).
-
 ## 60:5
 
 Dhuh Pengéran kula sami, mugi ampun Penjenengan dadosaken kula sedaya (inceran) pitnah tumrap tiyang-tiyang kapir. Lan mugi ngampurani kula sami, dhuh Pengéran kula sedaya. Sejatosipun Penjenengan Ingkang Mahadigdaya, Mahawicaksana.
@@ -22323,13 +20649,9 @@ Hé wong-wong sing padha precaya! Angger wong-wong wadon mukmin teka boyong mari
 
 Lan angger ana sewijiné (paribalen mahar) sing urung ko padha rampungna ingatasé bojo-bojomu sing mlayu maring wong-wong kapir, banjur ko kabéh bisa ngalahena dhéwéké, mangka wéhna (sekang bandha rampasan) maring wong-wong sing bojoné padha mlayu kuwé seakéhé mahar sing wis dhéwéké wéhna. [^838] Lan padha semaraha (takwa) ko kabéh maring Gusti Allah sing maring Penjenengané ko padha precaya.
 
-[^838]: Seurungé ghanimah debagékna maring lprecayag golongan sing duwé hak, debayarna lewih dhisit mahar-mahar maring wong lanang sing bojo-bojoné padha mlayu maring daérah kaum kapir.
-
 ## 60:12
 
 Hé Nabi! Angger wong-wong wadon mukmin padha teka maring sliramu nggo nganakna prasetia (bai’at), lamon dhéwéké padha ora arep nyekuthokena sewiji apa karo Gusti Allah, ora arep nyolong, ora arep royal (jinah), ora arep maténi bocah-bocah, ora arep temindhak apus-apus sing dhéwéké padha gawé-gawé antarané tangan lan sikilé dhéwéké [^839] lan ora ndurakani sliramu sejero-né urusan sing apik, mangka tampanana janji setiané lan nyuwunaken ngampura nggo dhéwéké maring Gusti Allah. Temen, Gusti Allah Maha Ngampura, Mahaasih.
-
-[^839]: Penggawéan sing dhéwéké gawé-gawé antarané tangan lan sikilé dhéwéké kuwé maksudhé nganakna akon-akon palsu prekara beciké antarané wong lanang lan wong wadon kaya pendakwa jinah, pendakwa lamon anaké si Fulan udu anaké lanangé lan liya-liyané.
 
 ## 60:13
 
@@ -22354,8 +20676,6 @@ Setemené Gusti Allah ngarenani wong-wong sing padha perang neng dalan-É sejero
 ## 61:5
 
 Lan (élinga) rikala Musa ngucap maring kaumé, “Hé kaumku! Kenangapa ko padha nglarani inyong, mangkané ko kabéh temen ngaweruhi lamon inyong setemené utusané Gusti Allah maring ko kabéh?” Mangka rikala wong-wong kuwé padha mléngos (sekang bebener), Gusti Allah mléngosna atiné dhéwéké kabéh. [^840] Lan Gusti Allah ora paring pituduh maring kaum sing padha dosa (pasék).
-
-[^840]: Merga dhéwéké padha mléngos sekang bebener, mangka Gusti Allah ngejorna kesasar atiné saéngga dhéwéké tambah adoh sekang bebener.
 
 ## 61:6
 
@@ -22445,8 +20765,6 @@ Angger wong-wong lamis (munapék) teka maring sliramu (Muhammad), dhéwéké pad
 
 Dhéwéké padha ndadékna sumpah-sumpahé minangka taméng, [^841] banjur dhéwéké ngalang-alangi (menungsa) sekang dalané Gusti Allah. Temen, banget alané apa sing dhéwéké padha pergawé.
 
-[^841]: Wong-wong kuwé padha sumpah lamon dhéwéké padha precaya nggo njaga bandha lan awaké supayané aja dépaténi utawa détawan utawa derampas bandhané.
-
 ## 63:3
 
 Sing mengkana kuwé merga setemené dhéwéké wis padha precaya, banjur dadi kapir, mangka atiné dhéwéké kabéh dekunci, saéngga dhéwéké padha ora bisa mengerténi.
@@ -22454,8 +20772,6 @@ Sing mengkana kuwé merga setemené dhéwéké wis padha precaya, banjur dadi ka
 ## 63:4
 
 Lan angger sliramu weruh wong-wong kuwé, awaké gawé gumun sliramu. Lan angger dhéwéké padha ngucap, sliramu ngrungokna ucapané. Dhéwéké kabéh kaya-kaya kayu sing desendhehna. [^842] Dhéwéké padha ngira lamon saben klorongan detujokna maring dhéwéké. Wong-wong kuwé mungsuh (sing sebeneré), mangka padha sing waspada maring dhéwéké kabéh; moga-moga Gusti Allah numpes wong-wong kuwé. Kepriwé dhéwéké padha bisa depléngosna (sekang bebener)?
-
-[^842]: Dhéwéké deumpamakna kaya kayu sing semendheh, maksudé nggo nyebutna sipaté sing ala, senajan awaké bagus-bagus lan dhéwéké pinter ngomong, tapi sebeneré uteké kosong ora bisa mahami bebener.
 
 ## 63:5
 
@@ -22540,8 +20856,6 @@ Lan padha manuta maring Gusti Allah lan manuta maring Rasul. Angger ko padha ml�
 ## 64:14
 
 Hé wong-wong sing padha precaya! Setemené neng antarané bojo-bojomu lan anak-anakmu ana sing dadi mungsuh tumrap ko kabéh, [^843]  mangka padha ngati-atia ko kabéh maring dhéwéké; lan angger ko padha aris lan ko padha welasi lan (uga) ngampurani (dhéwéké kabéh), mangka temen, Gusti Allah Maha Ngampura, Mahaasih.
-
-[^843]: Kadhang-kadhang bojo utawa anak bisa mlésétna lanangé utawa ramané nggo nglakoni penggawé-penggawéan sing ora débenerna déning agama.
 
 ## 64:15
 
@@ -22831,8 +21145,6 @@ sing wateké brangasan, kejaba kuwé uga kondhang jahaté.
 
 merga dhéwéké sugih lan akéh anaké [^844]
 
-[^844]: Wong sing duwé anak lan sugih lewih kepenak olih bala. Ning angger dhéwéké duwé sipat kesebut neng ayat 13, dhéwéké ora kena détutna.
-
 ## 68:15
 
 Angger ayat-ayat-É Ingsun déwacakna maring wong-wong kuwé, dhéwéké padha ngucap, “(Kiyé) dongeng-dongengé wong gemiyén.”
@@ -22840,8 +21152,6 @@ Angger ayat-ayat-É Ingsun déwacakna maring wong-wong kuwé, dhéwéké padha n
 ## 68:16
 
 Mbésuk dhéwéké bakal Ingsun paringi tandha neng telalé-(né). [^845]
-
-[^845]: Sing démaksud “telalé” neng kéné yakuwé irung. Dé-enggone tembung telalé neng kéné nggo ngina.
 
 ## 68:17
 
@@ -22858,8 +21168,6 @@ Banjur kebon kuwé ketiban marabaya (sing teka) sekang Pengéranmu rikala dhéw�
 ## 68:20
 
 Mangka dadiné kebon kuwé ireng kaya wengi sing peteng-dhédhet, [^846]
-
-[^846]: Mangka kobong kebon kuwé lan sing kéri areng sing ireng kaya wengi.
 
 ## 68:21
 
@@ -22893,8 +21201,6 @@ Malah inyong padha ora olih apa-apa,”
 
 ngucap wong sing paling temuwa neng antarané dhéwéké kabéh, “Apa ora inyong wis ngucap maring ko kabéh, kenangapa ko ora padha maha-nyucekna (maca tasbéh maring Pengéranmu).” [^847]
 
-[^847]: Kesuwun maring nékmat-É lan ora deniyati sewijiné barang sing kosok balen karo préntahé Gusti Allah, kaya niat ora bakal awéh maring fakir miskin.
-
 ## 68:29
 
 Dhéwéké padha ngucap, “Mahasuci Pengérané inyong kabéh, temen, inyong wong-wong sing padha aniaya (dolim).”
@@ -22915,8 +21221,6 @@ Moga-moga Pengéran maringi ganti maring dhéwék kabéh kanthi (kebon) sing lew
 
 Kaya kuwé siksa (neng dunya). Lan temen, siksané akhérat lewih gedhé sekirané dhéwéké padha ngaweruhi. [^848]
 
-[^848]: Gusti Allah nerangna lamon Penjenengané nguji warga Mekah kanthi ngganjar nékmat sing akéh nggo ngerténi apa dhéwéké padha kesuwun apa ora, kayadéné Gusti Allah wis nguji maring sing padha duwé kebon. Akhiré sing padha duwé kebon insap lan mlebu Islam kanthi gemrudug sewisé teluké kota Mekah.
-
 ## 68:34
 
 Temen, tumrap wong-wong sing padha takwa (desedhiakna) suwarga sing lubér kénékmatan neng sisihé Pengérané.
@@ -22924,8 +21228,6 @@ Temen, tumrap wong-wong sing padha takwa (desedhiakna) suwarga sing lubér kén�
 ## 68:35
 
 Apa pantes Ingsun merlakokna maring wong-wong Islam kuwé kayadéné (maring) wong-wong sing padha dosa (wong kapir)? [^849]
-
-[^849]: Maksudé, neng prekara piwales sing desediakena déning Gusti Allah nggo dhéwéké sekloroné.
 
 ## 68:36
 
@@ -22954,10 +21256,6 @@ Utawa apa dhéwéké padha duwé sekuthon-sekuthon? Angger kaya kuwé preyoga dh
 ## 68:42
 
 (Élinga) neng sewiji dina rikala kempol desingkabna [^850] lan dhéwéké deomongi supaya sujud; mangka dhéwéké padha ora kewawa, [^851]
-
-[^850]: Nggambarna kahanan wong sing lagi kewedén sing arep mlayu merga nggilaniné gonjang-ganjingé dina Kiyamat.
-
-[^851]: Dhéwéké padha dépréntah supaya sujud kuwé nggo nguji keprecayaané dhéwéké, mangkané dhéwéké ora sanggup maning merga ros-rosan balungé wis ringkih lan siksa wis ngubengi dhéwéké.
 
 ## 68:43
 
@@ -22995,8 +21293,6 @@ Banjur Pengérané milih lan ndadékna dhéwéké klebu wong sing apik.
 
 Lan temen, wong-wong kapir kuwé méh baé padha mlesetna sliramu kabéh kanthi sawangan matané dhéwéké, rikala dhéwéké krungu Al-Qur’an lan dhéwéké padha ngucap, “Dhéwéké (Muhammad) kuwé nyata-nyata wong ora waras.” [^852]
 
-[^852]: Miturut adat sing lemaku neng tanah Arab, sewijiné wong bisa maténi kéwan utawa menungsa kanthi nidhokna pendelengé sing landhep. Penggawéan kuwé arep detamakna maring Nabi Muhammad s.a.w. ning Gusti Allah ngreksa Kanjeng Nabi saéngga kalis sekang sambekala kuwé, kaya wis déjanjékna déning Gusti Allah neng Al-Maidah ayat 67. Kekuwatan pendelengan mata kuwé neng jaman siki déarani hipnotis.
-
 ## 68:52
 
 Mangkané Al-Qur’an kuwé ora liya (dadi) pengéling-éling tumrap sekabéh ngalam.
@@ -23004,8 +21300,6 @@ Mangkané Al-Qur’an kuwé ora liya (dadi) pengéling-éling tumrap sekabéh ng
 ## 69:1
 
 Dina Kiyamat, [^853]
-
-[^853]: Al-Haqqah miturut basa tegesé “sing mesthi kedadén”. Dina Kiyamat déarani Al-Haqqah merga mesthi kelakoné.
 
 ## 69:2
 
@@ -23019,13 +21313,9 @@ Lan apa ko ngerti apa dina Kiyamat kuwé?
 
 Kaum Samud lan ‘Ad wis padha nggorohna dina Kiyamat. [^854]
 
-[^854]: Al-qari’ah miturut basa tegesé “sing nggemeterna ati”. Dina Kiyamat déarani Al-Qari’ah merga nggemeterna ati.
-
 ## 69:5
 
 Mangka anadéné kaum Samud, dhéwéké padha wis détumpes kanthi sewara sing banget rosané, [^855]
-
-[^855]: Bledhég sing banget rosané sing njalari sewara sing gemlendheng lan bisa gawé ajur.
 
 ## 69:6
 
@@ -23039,13 +21329,9 @@ Gusti Allah nimpahna angin kuwé maring dhéwéké kabéh sedawané pitung wengi
 
 Mangka apa ko weruh sewiji wong baé sing ésih lewih neng antarané dhéwéké kabéh? [^856]
 
-[^856]: Dhéwéké padha ludhes deajurna lan babar blas ora duwé keturunan.
-
 ## 69:9
 
 Banjur teka Fir’aun lan wong-wong sing seurungé lan (warga) negari-negari sing padha dejungkir-walikna merga kesalahan sing gedhé. [^857]
-
-[^857]: Umat-umat gemiyén sing ngingkari nabi-nabi kayadéné kaum Saléh, kaum Syu’aib, lan liya-liyané lan negari sing dejungkir-walikna yakuwé negari-negari kaum Lut. Anadéné keluputan sing délakoni yakuwé ngapusi (ora precaya maring) para rasul.
 
 ## 69:10
 
@@ -23055,8 +21341,6 @@ Mangka wong-wong kuwé padha ndurakani utusan Pengérané, Gusti Allah sing nyik
 
 Setemené rikala banyu munggah (nganti butul maring gunung), Ingsun ngangkut (kaki-nininé) ko kabéh [^858] maring njero prahu,
 
-[^858]: Sing degawa neng prahuné Nabi Nuh nggo deslametna yakuwé kulawargané Nabi Nuh lan wong-wong sing padha precaya, ora klebu anaké sing duraka.
-
 ## 69:12
 
 supaya Ingsun dadékna (kedadéan kuwé) nggo pengéling-éling tumrap ko kabéh lan supaya degatékna neng kuping sing padha gelem ngrungokena.
@@ -23064,8 +21348,6 @@ supaya Ingsun dadékna (kedadéan kuwé) nggo pengéling-éling tumrap ko kabéh
 ## 69:13
 
 Mangka rikala slomprét desemprong sesemprongan, [^859]
-
-[^859]: Semprongan kawitan sing neng wektu kuwé sekabéhé ngalam dadi ajur.
 
 ## 69:14
 
@@ -23090,8 +21372,6 @@ Neng dina kuwé ko padha déadhepna (maring Pengéranmu), ora nana sewiji-wiji s
 ## 69:19
 
 Anadéné wong sing kitabé [^860] déparingna neng tangan tengené, mangka dhéwéké ngucap, “Jikota, wacakna kitabku (kiyé).”
-
-[^860]: Cathetan lakon penggawéyan.
 
 ## 69:20
 
@@ -23197,8 +21477,6 @@ Lan sekirané dhéwéké (Muhammad) gawé-gawé sebagéan pengucapan ingatasé (
 
 mesthi Ingsun cekel dhéwéké neng tangan tengené. [^861]
 
-[^861]: Ingsun paringi tindakan sekeras-kerasé.
-
 ## 69:46
 
 Banjur Ingsun potong saluran jantungé.
@@ -23242,8 +21520,6 @@ tumrap wong-wong kapir, sing ora nana sijia wong sing bisa nyegah kuwé,
 ## 70:4
 
 Para malaékat lan Jibril munggah (ngadhep) maring Pengéran, sejeroné sedina sepadhan karo seket éwu taun, [^862]
-
-[^862]: Para malaékat lan Jibril angger ngadhep Pengéran sedhawané sedina, nalika délakoni déning menungsa ngentongna wektu seket ewu taun.
 
 ## 70:5
 
@@ -23301,8 +21577,6 @@ Sing nyeluki wong sing padha ngungkuri lan sing mléngos (sekang agama),
 
 lan wong sing ngumpulna (dunya-brana) banjur nyimpén dunya kuwé. [^863]
 
-[^863]: Wong sing nyimpén bandhané lan ora gelem ngetokna jakat lan uga ora nyumbangna (infak) maring dalan sing bener.
-
 ## 70:19
 
 Temen, menungsa déciptakna (kanthi) sipat nggresula.
@@ -23351,8 +21625,6 @@ lan wong-wong sing padha ngreksa barang-wadiné (perjiné),
 
 kejaba nggo bojo-bojoné utawa batur tukon (budak) sing dhéwéké kabéh duwéni [^864] mangka setemené dhéwéké ora padha kecacad.
 
-[^864]: Budak sing depekolih neng sejeroné perang karo wong kapir. Neng sejeroné perang karo wong-wong kapir kuwé, wong-wong wadon sing détawan biasané debagek-bagekna maring kaum muslimin sing mélu neng perang, lan kebiasaan kiyé udu sewijiné kewajiban.
-
 ## 70:31
 
 Mangka sapa wongé nggolét neng senjabané kuwé (kayadéné jinah, njambu/lanang dhemen lanang, lan gerus-lumpang/wadon dhemen wadon), dhéwéké kabéh kuwé wong-wong sing padha ngliwati wates.
@@ -23381,8 +21653,6 @@ Mangka kenangapa wong-wong kapir kuwé padha teka ketharak-tharak maring ngarepm
 
 sekang tengen lan sekang kiwé kanthi panthan-panthan? [^865]
 
-[^865]: Miturut keterangané sebagéan ahli tapsir ayat kiyé gegayutan karo kedadéan rikala Rasulullah sembayang lan maca Al-Qur’an neng péreké Ka’bah, banjur wong-wong musrik ngumpul rombongan-rombongan neng ngarepé karo ngenyék lan ngucapna, “Angger wong mukmin nyata-nyata arep padha mlebu suwarga kayadéné ucapané Muhammad, Inyong padha sing arep mlebu suwarga dhisit.” Mangka temurun ayat 38.
-
 ## 70:38
 
 Apa saben wong sekang wong-wong kapir kuwé padha kepéngin mlebu suwarga sing lubér kenékmatan?
@@ -23390,8 +21660,6 @@ Apa saben wong sekang wong-wong kapir kuwé padha kepéngin mlebu suwarga sing l
 ## 70:39
 
 Ora gadhang! Setemené Ingsun nyiptakna dhéwéké kabéh sekang barang sing dhéwéké padha kaweruhi. [^866]
-
-[^866]: Sejatiné dhéwéké wong kapir déciptakna déning Gusti Allah sekang banyu mani supayané padha precaya lan takwa maring Penjenengané, kayadéné sing déucapna déning Rasul. Mangka angger dhéwéké ora padha precaya ora nana hak tumrap dhéwéké mlebu suwarga.
 
 ## 70:40
 
@@ -23445,13 +21713,9 @@ Lan sejatosipun kula saben ngajék-ajék kiyambeké sedaya (supados sami precaya
 
 Lajeng sejatosipun kula ngajék-ajék kiyambeké sami kanthi cara blag-blagan. [^867]
 
-[^867]: Dakwah kaya kiyé délakoni sewisé dakwah kanthi cara sidhem-sidheman ora pekolih (kasil)
-
 ## 71:9
 
 Lajeng kula ngajék-ajék kiyambeké sami kanthi blag-blagan lan kanthi sidhem-sidheman, [^868]
-
-[^868]: Sewisé nganakna dakwah kanthi sidhem-sidheman banjur kanthi blag-blagan, ning uga ora kasil, mangka Nabi Nuh a.s. nganakna karo-karoné pisan.
 
 ## 71:10
 
@@ -23472,8 +21736,6 @@ Kenangapa ko padha ora wedi maring agungé Gusti Allah?
 ## 71:14
 
 Lan temen, Penjenengané wis nyiptakna ko kabéh sejeroné pira-pira tingkatan (kedadéan). [^869]
-
-[^869]: Delengen surat Al-Mu’minun ayat 12, 13 lan 14.
 
 ## 71:15
 
@@ -23511,8 +21773,6 @@ lan wong-wong kuwé padha nglakoni apus-apus sing banget gedhene.”
 
 Lan wong-wong kuwé ngucap, “Ko aja pisan-pisan ninggalna sembahan-sembahanmu (reca) uga aja ninggalna (reca) Wadd, semana uga Suwa’, Yagus, Ya’uq lan Nasr.” [^870]
 
-[^870]: Wadd, suwa, yaqus, ya’ug lan Nasr yakuwé jeneng-jeneng reca.
-
 ## 71:24
 
 Lan éstu tiyang wau empun sami nyasaraken tiyang kathah, mangka mila Penjenengan ampun nambahi dhateng tiyang-tiyang ingkang peteng atiné (dolim) niku kejawi lampah ingkang sasar.
@@ -23549,8 +21809,6 @@ lan setemené Mahaluhur kuwé dadi agungé Pengérané inyong kabéh, Penjenenga
 
 Lan setemené wong sing bodho neng antarané inyong kabéh gemiyén mesti ngucap (omongan) sing ngliwati wates maring Gusti Allah. [^871]
 
-[^871]: Ngucapna lamon Gusti Allah kagungan garwa lan putra. Ujaré Ibnu Katsir, omongan kiyé déucapna seurungé jin kaé mlebu Islam.
-
 ## 72:5
 
 Lan setemené inyong kabéh ngira lamona menungsa karo jin kuwé ora arep ngucapna omongan sing goroh temuju maring Gusti Allah.
@@ -23558,8 +21816,6 @@ Lan setemené inyong kabéh ngira lamona menungsa karo jin kuwé ora arep ngucap
 ## 72:6
 
 lan setemené ana sewetara wong lanang sekang bangsa menungsa sing njaluk pengayoman [^872] maring wong-wong lanang sekang bangsa jin ning dhéwéké (jin) ndadékna wong-wong mau (menungsa) tambah kesasar.
-
-[^872]: Ana neng antarané wong-wong Arab, angger ngliwati panggonan sing sepi, dhéwéké padha njaluk pengayoman maring jin sing deprecayai mbaureksa panggonan kuwé.
 
 ## 72:7
 
@@ -23572,8 +21828,6 @@ Lan setemené inyong kabéh (jin) wis njajal ngaweruhi (wewadi) neng langit, mul
 ## 72:9
 
 lan setemené inyong kabéh (jin) gemiyén téyéng manggon neng sewetara panggonan neng langit seperlu nguping (werta-werta langit). Ning siki [^873] sapa sing (njajal) nguping (kaya kuwé) mesthi arep ngadhepi panah-panah geni sing nginggeng (siyaga ngobong dhéwéké).
-
-[^873]: Wektu seuwisé Kanjeng Nabi Muhammad s.a.w déutus dadi Rasul.
 
 ## 72:10
 
@@ -23658,8 +21912,6 @@ Hé wong sing kemulan (Muhammad)!
 ## 73:2
 
 Tangia (seprelu sembayang) neng wektu mbengi njabakna [^874] sebagéan (wektu) sing semendhing,
-
-[^874]: Sembayang wengi kiyé mikiné wajib, seurungé temurun ayat sing kaping 20. Seuwisé temurun ayat sing kaping 20 ukumé dadi sunah.
 
 ## 73:3
 
@@ -23777,8 +22029,6 @@ tumrap wong-wong sing padha mbangkang (kapir) ora gampang.
 
 Sakersané Ingsun (sing temindak) maring wong sing Ingsun dhéwék wis nyiptakna, [^875]
 
-[^875]: Ayat kiyé lan sewetara ayat-ayat sebanjuré temurun gandhéng ana wong kapir Mekah sing dadi bonggolé bangsa Quraisy, arané Al-Walid bin Mugirah.
-
 ## 74:12
 
 lan Ingsun paring dunya sing ngambra-ambra maring dhéwéké,
@@ -23847,8 +22097,6 @@ lan ko ngerti apa (neraka) Saqar kuwé?
 
 Kuwé (Saqar) ora ninggalna tur ora ngejorna, [^876]
 
-[^876]: Apa sing debalangna maring neraka kuwé désiksa nganti ajur terus débalékna maning kaya mauné seprelu désiksa maning.
-
 ## 74:29
 
 sing nggesengna kulité menungsa.
@@ -23864,8 +22112,6 @@ Lan sing Ingsun dadékna penjaga neraka kuwé mung sekang malaékat, lan Ingsun 
 ## 74:32
 
 Ora! [^877] Sekawit (sekawit) wulan,
-
-[^877]: “Ora” kuwé bantahan ingatasé omongan-omongané wong-wong musrik sing kepéngin maring prekara kesebut neng dhuwur.
 
 ## 74:33
 
@@ -23886,8 +22132,6 @@ minangka dadi pengéling-éling tumrapé menungsa,
 ## 74:37
 
 (yakuwé) tumrap sapa neng antarané ko kabéh sing kepéngin maju utawa mundur. [^878]
-
-[^878]: Maju nampani pengéling-éling lan sing démaksud mundur, ora gelem nampa pengéling-éling.
 
 ## 74:38
 
@@ -24021,8 +22265,6 @@ Neng dina kuwé dewertakna maring menungsa apa sing wis dépergawé lan apa sing
 
 Malah menungsa dadi seksi nggo awaké dhéwék, [^879]
 
-[^879]: Perangan awak menungsa dadi seksi ingatasé penggawéan sing délakoni neng dhéwéké kaya sing kesebut neng Surat An-Nur (24) ayat 24.
-
 ## 75:15
 
 lan senajan dhéwéké ngucapna alesan-alesané,
@@ -24083,8 +22325,6 @@ lan dhéwéké precaya lamon kuwé wektuné pisah (karo ngalam dunya).
 
 lan padha dhempétan kempol (kiwe) karo kempol (tengen), [^880]
 
-[^880]: Sebab banget nemené kesengsaran neng wektu kuwé lan wedi arep ninggalna ngalam dunya lan ngadhepi ngalam akhérat.
-
 ## 75:30
 
 maring Pengéranmu dina kuwé ko dégiring.
@@ -24137,8 +22377,6 @@ Mbok iya nglakon teka maring menungsa wektu sekang mangsa, sing rikala semana ur
 
 Temen, Ingsun wis nyipta menungsa sekang mani setétés sing campur [^881] sing Ingsun bakal nguji (kanthi préntah lan larangan), mula kuwé Ingsun dadékna dhéwéké krungu lan weruh.
 
-[^881]: Campur antarané winih lanang karo winih wadon.
-
 ## 76:3
 
 Temen, Ingsun wis nidhokna dalan jejeg, ana sing padha kesuwun ana uga sing sulaya (kufur).
@@ -24151,8 +22389,6 @@ Temen, Ingsun wis nyedhiani nggo wong-wong mbangkang (kapir) ranté, blenggu lan
 
 Temen, wong-wong sing temindak becik arep nginum sekang gelas (isi inuman) sing campurané yakuwé banyu kafur, [^882]
 
-[^882]: Aran sewijiné tuk neng suwarga sing banyuné putih tur ambuné enak lan rasané nékmat pisan.
-
 ## 76:6
 
 (yakuwé) tuk (neng jero suwarga) sing deinum neng kewula-kewulané Gusti Allah lan dhéwéké padha bisa mancurna kanthi apik temen.
@@ -24160,8 +22396,6 @@ Temen, wong-wong sing temindak becik arep nginum sekang gelas (isi inuman) sing 
 ## 76:7
 
 Wong-wong mau netepi kaul [^883] lan wedi maring sewijiné dina sing siksané mrata neng ngendi-ora.
-
-[^883]: Yakuwé niat lan janji arep nindakna sewijining laku sing degandhéngna karo barang sing dégayuh. Contoné, angger wis mari goli mriyang utawa bisa lulus ujian sewenéh wong arep puasa 3 dina utawa arep awéh sedhekah,
 
 ## 76:8
 
@@ -24263,19 +22497,13 @@ Penjenengané nglebokna sapa-sapa sing Penjenengané kersakna maring asihé (suw
 
 Sekawit (malaékat-malaékat) [^884] sing déutus nggo nggawa kebagusan,
 
-[^884]: Seperangan ahli tapsir nerjemahna, “Sekawit (demi) angin sing dekirim.”
-
 ## 77:2
 
 lan (malaékat-malaékat) sing mabur kanthi cemlorot, [^885]
 
-[^885]: Mabur seperlu ngleksanakna dhawuhé Gusti Allah.
-
 ## 77:3
 
 lan (malaékat-malaékat) sing nyebarna (asihé Gusti Allah) kanthi ora wangenan, [^886]
-
-[^886]: Rikala  malaékat temurun nggo nggawa wahyu, seperangan ahli tapsir duwé penemu, lamon sing démaksud karo an-nasyirat kuwé udan-barat.
 
 ## 77:4
 
@@ -24308,8 +22536,6 @@ lan rikala gunung-gunung delebur dadi lebu,
 ## 77:11
 
 lan rikala utusan-utusan wis détetepna wektuné. [^887]
-
-[^887]: Wektu nggo ngumpul bareng wargané dhéwék-dhéwék.
 
 ## 77:12
 
@@ -24371,8 +22597,6 @@ Mbok iya Ingsun ndadékna bumi nggo (panggonan) ngumpul,
 
 tumrap wong ésih urip lan sing wis mati? [^888]
 
-[^888]: Bumi ngumpulna wong-wong sing ésih urip neng platarané lan wong-wong sing wis mati neng njeroné.
-
 ## 77:27
 
 Lan Ingsun ndadékna neng bumi kuwé gunung-gunung sing dhuwur, lan Ingsun paring inuman maring ko nganggo banyu anta?
@@ -24388,8 +22612,6 @@ Cilaka temen neng dina kuwé, tumrap dhéwéké sing padha nggorohna (bebener).
 ## 77:30
 
 Nganah lunga ko nggo ngarah aub-aub (kukus geni neraka) sing nduwéni pang cacahé telu, [^889]
-
-[^889]: Sing duwé ulaban (Ind. lidah api) telu, yakuwé neng tengen, neng kiwé, lan neng ndhuwur. Kiyé tegesé, siksa sing ngubengi wong-wong kapir tepung gelang.
 
 ## 77:31
 
@@ -24463,8 +22685,6 @@ Cilaka temen neng dina kuwé, tumrap wong-wong sing padha nggorohna (bebener).
 
 Lan rikala dédhawuhna maring dhéwéké, “Padha ndhongko (rukuk),” wong-wong mau padha ora ndhongko. [^890]
 
-[^890]: Seperangan ahli tapsir ngucap lamon sing démaksud ndhongko (rukuk) neng kéné yakuwé tundhuk maring dhawuhé Gusti Allah; lan seperangan maning ngucap, maksudé kuwé sembayang.
-
 ## 77:49
 
 Cilaka temen neng dina kuwé, tumrap wong-wong sing nggorohna (bebener)!
@@ -24489,8 +22709,6 @@ sing neng prekara kiyé wong-wong mau padha pesulayan.
 
 Ora! [^891] Mbésuk dhéwéké arep padha ngaweruhi,
 
-[^891]: Bantahan maring wong-wong kapir Mekah sing ngingkari lamon menungsa padha tangi maning neng dina kiyamat.
-
 ## 78:5
 
 sepisan maning ora! Mbésuk dhéwéké arep padha ngaweruhi.
@@ -24514,8 +22732,6 @@ lan Ingsun ndadékna turuné ko kabeh nggo ngaso,
 ## 78:10
 
 lan Ingsun ndadékna wektu wengi nggo sandhangan, [^892]
-
-[^892]: Wektu wengi déarani “sandhangan” mergané wengi kuwé peteng nutupi jagat kaya sandhangan nutupi awaké menungsa.
 
 ## 78:11
 
@@ -24629,8 +22845,6 @@ Pengéran (sing ngreksa) langit lan bumi uga apa sing ana neng antarané sekloro
 
 Neng dina, rikalané roh [^893] lan para malaékat padha ngadeg larik-larikan, dhéwéké kabéh ora ngucap, kejaba sapa sing wis déparingi idin déning Pengéran Sing Mahaasih lan dhéwéké mung ngucap sing bener.
 
-[^893]: Para juru tapsir duwé penemu sing beda-beda ngenani “roh” neng ayat kiyé. Ana sing ngarani “Jibril” ana sing ngarani tentarané Gusti Allah lan uga ana ngarani “rohé menungsa”.
-
 ## 78:39
 
 Yakuwé dina sing mesthi kedadén. Mula sapa baé sing karep, mesthi dhéwéké ngambah dalan bali maring Pengérané.
@@ -24659,8 +22873,6 @@ lan (malaékat) sing nglancangi kanthi kebat,
 
 lan (malaékat) sing ngatur urusan (ngalam dunya). [^894]
 
-[^894]: Neng ayat 1–5 Gusti Allah sumpah kanthi malaékat-malaékat sing werna-werna sipaté lan urusané lemon menungsa bakal dényatna neng dina Kiyamat. Seperangan juru tapsir duwé penemu, lamon neng ayat kiyé, kejaba ayat 5, Gusti Allah sumpah kanthi lintang-lintang.
-
 ## 79:6
 
 (Temen, sliramu arep détangékna) neng dina rikala semprongan sing kawitan nggoncangna ngalam,
@@ -24680,8 +22892,6 @@ penyawangé padha ndhengkul.
 ## 79:10
 
 (Wong-wong kapir) ngucap: “Apa inyong temen arep padha débalékna maring penguripan sing asal? [^895]
-
-[^895]: Seuwisé wong-wong kapir krungu anané dina tangi seuwisé mati wong-wong mau gumun lan padha ngécé merga miturut piandelé dhéwéké ora ana dina tangi kuwé. Mulané wong-wong kapir mau padha takon.
 
 ## 79:11
 
@@ -24903,13 +23113,9 @@ Sekang apa Penjenengané (Gusti Allah) nyipta dhéwéké?
 
 Sekang mani setétés, Penjenengané nyipta banjur nemtokna kuwé. [^896]
 
-[^896]: Nemtokna tingkat-tingkat kedadénané, umuré, rejekiné, lan nasibé.
-
 ## 80:20
 
 Banjur dalané Penjenengan gampangna, [^897]
-
-[^897]: Nggampangna lairé utawa awéh kelonggaran maring dhéwéké nggo nglakoni dalan sing bener utawa dalan sing sasar.
 
 ## 80:21
 
@@ -25103,8 +23309,6 @@ Lan (Al-Qur’an) kuwé dudu pengucapané sétan sing kenang supata,
 
 mangka arep maring ngendi olihé ko padha lunga? [^898]
 
-[^898]: Sewisé déterangna lamon Al-Qur’an kuwé nyata-nyata temurun sekang Gusti Allah lan neng njeroné ana wulangan lan pituduh sing aséng menungsa ngambah dalan sing jejeg, banjur détakokna maring wong-wong kapir kuwé, “Dalan endi maning sing arep ko ambah?”
-
 ## 81:27
 
 (Al-Qur’an) kuwé ora liya wujud pengéling-éling tumrap ngalam sekabéhé,
@@ -25221,8 +23425,6 @@ neng sewijiné dina sing gedhé,
 
 Aja pisan-pisan kaya kuwé! Setemené cathetané wong duraka nyata-nyata débenahi neng sejeron Sijjin. [^899]
 
-[^899]: Jeneng kitab sing nyathet kabéh penggawéané wong-wong sing padha duraka.
-
 ## 83:8
 
 Lan apa ko ngerti (tegesé) Sijjin kuwé?
@@ -25255,8 +23457,6 @@ Babar pisan ora kaya kuwé! Malah apa sing dhéwéké padha pergawé kuwé wis n
 
 Babar pisan ora kaya kuwé! [^900] Setemené dhéwéké neng dina kuwé temen kaling-kalingan sekang (weruh) Pengérané.
 
-[^900]: Babar-pisan ora kaya sing déomongna déning wong-wong mau lamon dhéwéké kepérek maring Gusti Allah.
-
 ## 83:16
 
 Banjur, setemené dhéwéké nyata-nyata mlebu neraka.
@@ -25268,8 +23468,6 @@ Banjur, déucapna (maring dhéwéké), ”Kiyé (siksa) sing gemiyén ko padha n
 ## 83:18
 
 Babar-pisan ora! Setemené cathetané wong-wong sing ngabekti nyata-nyata désimpen sejeroné ‘Illiyyin. [^901]
-
-[^901]: Jeneng kitab sing nyathet kabéh penggeweané wong-wong sing padha bekti
 
 ## 83:19
 
@@ -25367,8 +23565,6 @@ lan nurut maring Pengérané, lan wis semesthiné nurut,
 
 Hé menungsa! Setemené ko wis sengkud nyambut gawé nggo Pengéranmu, mangka ko bakal sowan maring ngarsa Penjenengané. [^902]
 
-[^902]: Menungsa neng dunya kiyé, mbuh krasa mbuh ora jané lagi padha mlaku nuju maring Pengérané. Lan mesthi dhéwéké bakal ketemu Pengérané seprelu nampani piwales sekang Gustiné ingatasé penggawéan sing apik utawa penggawéan sing ala.
-
 ## 84:7
 
 Mangka anadéné wong sing cathetané déwéhna sekang sisih tengené,
@@ -25420,8 +23616,6 @@ sekawit wulan rikala wis bunder kempleng,
 ## 84:19
 
 Temen, ko arep nglakoni tingkat-mbaka-tingkat (sejeroné urip). [^903]
-
-[^903]: Sekang setétés winih lanang tekan délairna, nglakoni mangsa bocah, nonoman lan gedhé. Sekang urip dadi mati lan nganti détangékna maning.
 
 ## 84:20
 
@@ -25578,8 +23772,6 @@ mangka menungsa ora duwé maning sewijiné daya lan (uga) ora nana sing tulung.
 ## 86:11
 
 Sekawit langit sing ngemu udan, [^904]
-
-[^904]: Raj’i tegesé mubeng maning. Udan déjenengi raj’i neng Ayat kiyé merga udan kuwé asal sekang uwab sing mumbul sekang bumi maring langit banjur temurun maning maring bumi, terus balik dadi uwab maning lan mumbul maring langit, lan seterusé.
 
 ## 86:12
 
@@ -25793,8 +23985,6 @@ Sekawit fajar,
 
 sekawit wengi sing sepuluh, [^905]
 
-[^905]: Malem sepuluh wekasan wulan Puasa. Lan ana uga sing ngarani sepuluh malem kawitané wulan Muharam klebu neng sejeroné kuwé dina Asyura. Ana maning sing ngarani sepuluh wengi kawitané wulan Dulhijah.
-
 ## 89:3
 
 sekawit wengi sing genep lan sing ganjil,
@@ -25822,8 +24012,6 @@ sing urung tau débangun (sewijiné kota) kaya kuwé, neng negara-negara liya,
 ## 89:9
 
 lan (maring) kaum Samud sing natah watu-watu gedhé neng lebak (pelemahan sing endhép), [^906]
-
-[^906]: Petanahan endhép (Ind. lembah) kiyé anané neng bagéan lor tanah Arab, antarané kota Medinah lan Siria. Wong-wong neng kono padha nugeli watu gunung nggo mbangun umah gedhong sing dadi panggonané. Lan uga ana sing mbolongi gunung-gunung nggo manggon lan nggo pengayoman.
 
 ## 89:10
 
@@ -25853,13 +24041,9 @@ Mangka anadéné menungsa, rikala Pengéran nguji karo dhéwéké banjur mulyakn
 
 Ning angger Pengéran nguji dhéwéké banjur matesi rejekiné, mangka dhéwéké ngucap: ”Pengéranku wis ngina maring inyong.” [^907]
 
-[^907]: Gusti Allah nyalahna wong sing ngucap lamon dunya brana kuwé sewijiné kemulyan lan kemiskinan sewijiné palaina kaya kesebut neng ayat 15 lan 16. Ning setemené dunya utawa kemiskinan kuwé sewijiné cobané Gusti Allah kanggo para kewulané.
-
 ## 89:17
 
 Babar-pisan ora kaya kuwé! Malah ko ora mulyakna bocah yatim, [^908]
-
-[^908]: Ora awéh hak-haké bocah yatim lan ora temindak apik maring dhéwéké.
 
 ## 89:18
 
@@ -26149,13 +24333,9 @@ lan sekawit wayah wengi rikala wis sepi,
 
 Pengéranmu ora ninggalna sliramu (Muhammad) lan (uga) ora wadhéh maring sliramu, [^909]
 
-[^909]: Nalika temuruné wahyu maring Kanjeng Nabi Muhammad s.a.w, kandheg sewetara wektu wong-wong musrik padha ngucap, “Pengérané (Muhammad) wis ngedohi lan wadhéh maring dhéwéké.” Mulané temurun ayat kiyé nggo mbantah ucapané wong-wong musrik kuwé.
-
 ## 93:4
 
 temen, sing wekasan kuwé lewih apik tumrapmu tenimbang sing kawitan. [^910]
-
-[^910]: Pungkasan perjuangané Kanjeng Nabi Muhammad s.a.w, kuwé bakal nemoni kemenangan-kemenangan, lagi kawitané ngalami kangélan. Uga ana seperangan ahli tapsir duwé penemu, tembung akhérat tegesé “penguripan neng akhérat” sarta kabéh kenékmatané, lan uulaa détegesi “penguripan neng ngalam dunya”.
 
 ## 93:5
 
@@ -26168,8 +24348,6 @@ Mbok iya Penjenengané nemokna sliramu dadi bocah yatim, banjur Penjenengané ng
 ## 93:7
 
 lan Penjenengané nemokna sliramu dadi wong sing lagi bingung, [^911] banjur Penjenengané paring pituduh,
-
-[^911]: Bingung goli nggayuh bener sing ora bisa dépekolih nganggo nalar. Banjur Gusti Allah nurunaken wahyu maring Kanjeng Nabi Muhammad s.a.w.
 
 ## 93:8
 
@@ -26195,8 +24373,6 @@ Mbok ya Ingsun wis njembarna dhadhamu (Muhammad)?
 
 lan Ingsun uga wis ngénthéngna renggan sekang sliramu, [^912]
 
-[^912]: Kesusahan-kesusahan sing dérengga déning Kanjeng Nabi Muhammad s.a.w, sejeroné mbutulna ajaran Islam.
-
 ## 94:3
 
 sing ngebot-boti gigirmu,
@@ -26204,8 +24380,6 @@ sing ngebot-boti gigirmu,
 ## 94:4
 
 lan Ingsun wis ngluhurna sebutan (asma) mu [^913] nggo sliramu.
-
-[^913]: Ngluhurna drajat lan melokna asmané bareng karo asma Gusti Allah neng kalimah sahadat, nganggep bekti maring Kanjeng Nabi dadi bekti maring Gusti Allah.
 
 ## 94:5
 
@@ -26219,8 +24393,6 @@ setemené bareng karo (prekara) sing angél ana (prekara) sing gampang.
 
 Mangka rikala sliramu wis rampung (sekang sewijiné urusan), tetepa nyambut gawé sing sengkud (nggo urusan sing liya), [^914]
 
-[^914]: Seperangan ahli tapsir duwé penemu, angger sliramu (Muhammad) wis rampung nyebar agama, banjur ngibadaha maring Gusti Allah; angger sliramu wis rampung urusan dunya énggal tandangi urusan akhérat lan ana uga sing duwé penemu, “Angger wis rampung sembayang, gari padha ndonga.”
-
 ## 94:8
 
 lan mung maring Pengéranmu sliramu ngarep-arep.
@@ -26229,13 +24401,9 @@ lan mung maring Pengéranmu sliramu ngarep-arep.
 
 Sekawit (woh) Tin lan (woh) Zaitun, [^915]
 
-[^915]: Sing démaksud “Tin” neng seperangan ahli tapsir yakuwé panggonan Nabi Nuh a.s yakuwé Damaskus sing akéh wit Tin; lan “Zaitun” yakuwé Baitulmaqdis sing akéh wité zaitun.
-
 ## 95:2
 
 sekawit Gunung Sinai, [^916]
-
-[^916]: Gunung Sinai kuwé panggonané Nabi Musa nampa wahyu.
 
 ## 95:3
 
@@ -26301,8 +24469,6 @@ Kepriwé penemumu ngenani wong sing menging?
 
 sewijiné kewula sing lagi nglakoni sembayang, [^917]
 
-[^917]: Sing menging kuwé Abu Jahal lan sing dépenging Rasulullah. Ning upaya kiyé ora kasil sebab Abu Jahal weruh ana sing gawé wedi. Sewisé Rasulullah rampung sembayang, kabar kuwé déaturna maring Penjenengané. Banjur Rasulullah ngendika, “Angger Abu Jahal nglakoni sing kaya kuwé, mesthi dhéwéké désirnakna déning malaékat.
-
 ## 96:11
 
 Kepriwé penemumu lamon dhéwéké (sing dépénging sembayang kuwé) ana neng sendhuwuré bebener (pituduh),
@@ -26343,8 +24509,6 @@ Babar pisan ora kaya kuwé! Aja pisan-pisan ko manut maring dhéwéké; lan padh
 
 Setemené Ingsun wis nurunaken (Al-Qur’an) neng malem lailatul qodar. [^918]
 
-[^918]: Malem lailatul qodar duwé pirang-pirang pengertén, antarané malem kemulyan, merga neng wengi kuwé kawitané déturunaken Al-Qur’an sekang Lauh Mahfuz maring Kanjeng Nabi Muhammad s.a.w.
-
 ## 97:2
 
 Lan apa sliramu ngerti malem lailatul qodar kuwé?
@@ -26373,8 +24537,6 @@ Wong-wong sing mbangkang (kapir) sekang golongan Ahli Kitab lan wong-wong sing m
 
 neng njeroné kitab kuwé ana (isi) kitab-kitab sing jejeg (bener). [^919]
 
-[^919]: Isiné kitab-kita sing déparingna maring para nabi kayadéné Taurat, Zabur, lan Injil sing asli.
-
 ## 98:4
 
 Lan ora padha crah wong-wong Ahli Kitab kejaba sewisé tekan maring dhéwéké bukti sing nyata.
@@ -26382,8 +24544,6 @@ Lan ora padha crah wong-wong Ahli Kitab kejaba sewisé tekan maring dhéwéké b
 ## 98:5
 
 Mangkané dhéwéké padha mung dédhawuhi supaya nyembah maring Gusti Allah, kanthi tulus manut maring Penjenengané, mligi merga (nglakoni) agama, lan uga supaya nglakoni sembayang lan mbayar jakat, lan sing mengkana kuwé mau agama sing jejeg (bener). [^920]
-
-[^920]: Jejeg tegesé adoh sekang laku mango-tingal (syirik) lan adoh sekang sasar.
 
 ## 98:6
 
@@ -26420,8 +24580,6 @@ merga setemené Pengéranmu wis ndhawuhna (sing mengkana kuwé) maring dhéwék�
 ## 99:6
 
 Neng dina kuwé menungsa metu sekang kuburané kanthi kahanan sing panthan-panthan, [^921] nggo déketokna maring dhéwéké (piwales) sekabéh penggawéané.
-
-[^921]: Ana sing begya lan ana sing cilaka.
 
 ## 99:7
 
@@ -26523,8 +24681,6 @@ Lan apa ko ngerti neraka Hawiyah kuwé?
 
 Méwah-méwahan wis ndadékna ko padha kelalén, [^922]
 
-[^922]: Méwah-méwahan ngenani akéhé anak, bandha, pangkat, kemuktén lan liya-liyané, ndadékna ko kelalén bekti maring Gusti Allah.
-
 ## 102:2
 
 nganti ko mlebu sejeron kubur.
@@ -26573,8 +24729,6 @@ Cilaka temen tumrap kabéh tukang ngumpa-umpa lan tukang nacad,
 
 sing ngumpulna kambi ngétung-étung bandhané, [^923]
 
-[^923]: Ngumpulna lan ngitung-itung bandha sing ndadékaken dhéwéké dadi medit lan ora gelem nginfakna neng dalané Gusti Allah.
-
 ## 104:3
 
 dhéwéké (menungsa) ngira lamon bandhané kuwé bisa nglanggengna.
@@ -26607,8 +24761,6 @@ Temen, geni kuwé détutup rapet tumrap (awaké) dhéwéké,
 
 Apa sliramu (Muhammad) ora nggatékna kepriwé Pengéranmu kepareng temindak maring wadya bala sing nunggang gajah? [^924]
 
-[^924]: Wadya bala utawa tentara sing dépimpin déning Abrahah, Gubernur Yaman sing arep nggempur Ka’bah. Seurungé mlebu maring kota Mekah wadya bala kuwé déserang déning rombongan manuk sing padha mbandhemi nganggo krikil nganti tentara kuwé ajur.
-
 ## 105:2
 
 Apa penjenengané ora ndadékna réka dayané dhéwéké (wadya bala kuwé) muspra?
@@ -26632,8 +24784,6 @@ Jalaran kulinané wong-wong Quraisy,
 ## 106:2
 
 (yakuwé) pakulinané wong-wong kuwé lungan neng mangsa adhem karo mangsa panas. [^925]
-
-[^925]: Wong-wong Quraisy biasa lungan utamané dagang maring Negara Syam neng mangsa panas lan maring Yaman neng mangsan adhem. Neng dalan wong-wong mau olih jaminan aman sekang para penguwasa negara sing keliwatan. Kiyé dadi kenékmatan sing gedhé paringané Gusti Allah. Mulané pantes temen angger wong-wong kuwé padha nyembah maring Gusti Allah sing awéh nékmat sing akeh kuwé.
 
 ## 106:3
 
@@ -26663,19 +24813,13 @@ Mangka cilaka temen wong-wong sing sembayang,
 
 (yakuwé) wong-wong sing ngemprah maring sembayangé, [^926]
 
-[^926]: Wong-wong sing ora ngregani lan nglirwakna ngamal lan wektu-wektuné sembayang.
-
 ## 107:6
 
 Sing padha pamér, [^927]
 
-[^927]: Maksudé pamer kuwé, temindak sing ora nggo nggolét ridoné Gusti Allah, ning kon olih pengalem utawa kewentar neng masrakat
-
 ## 107:7
 
 lan wegah (awéh) pitulungan. [^928]
-
-[^928]: Seperangan ahli tapsir napsiri “bebeh mbayar jakat”.
 
 ## 108:1
 
@@ -26728,8 +24872,6 @@ Mangka padha nyuckéna (maca tasbéh) kanthi ngalembana Pengéranmu lan nyuwuna 
 ## 111:1
 
 Cilaka tangan loroné Abu Lahab lan temen-temen cilaka dhewéké. [^929]
-
-[^929]: Sing dékarepna karo “tangan loroné Abu Lahab” yakuwé Abu Lahab
 
 ## 111:2
 
@@ -26806,3 +24948,1861 @@ sing ngridhu neng njero dhadhané menungsa,
 ## 114:6
 
 sekang (golongan) jin lan menungsa.”
+
+[^1]: Yaumiddin (dina piwales), dina nalikané menungsa nampa piwales ingatasé penggawéané, apik utawa ala. Déarani uga yaumul qiyamah, yaumul hisab, lan liya-liyané
+
+[^2]: Dalan sing jejeg, yakuwé dalan urip sing bener sing bisa njalari begya neng dunya lan neng akhérat
+
+[^3]: Wong-wong sing kebendon (kenang bendu), yakuwé wong-wong sing nguja nglawan Islam. Wong-wong sing kesasar yakuwé wong-wong sing nguja ngambah dalan seliyané ajaran Islam.
+
+[^4]: Sewetara surat-surat neng Al-Qur’an débukak kambi hurup abjad kayadéné, Alif Lam Mim, Alif Lam Mim Ra, lan liyané. Maknané hurup -hurup kuwé mung Gusti Allah sing priksa. Ana sing duwé penemu lamona hurup-hurup jeneng surat lan ana uga sing duwé penemu lamona gunané nggo narik kawigatén, utawa nggo nidhokna lamona Al-Qur’an kuwé déturunaken nganggo Basa Arab sing désungsun sekang hurup-hurup abjad mau.
+
+[^5]: Takwa yakuwé manut sekabéhé dhawuhé Gusti Allah lan ngedohi sekabéhé larangan-É.
+
+[^6]: Sing démaksud nyumbangna bandha neng dalané Gusti Allah, kayadéné blanja nggo kebutuhan jihad, mbangun sekolahan, rumah sakit, usaha nliti-nliti babagan ilmu lan liyané.
+
+[^7]: Sing déturunaken maring Nabi-nabi seurungé Nabi Muhammad s.a.w yakuwé; Taurat, Zabur, Injil, lan shuhuf-shuhuf (lembaran-lembaran) sing ora wujud kitab.
+
+[^8]: Kapir (kafir, jamaké kuffar), yakuwé wong sing ora precaya maring anané Gusti Allah, utusan-utusan-É, malaékat-malaékat-É, kitab-kitab-É, lan dina Kiyamat.
+
+[^9]: Saéngga naséhat utawa hidayah kuwé ora bisa mlebu maring atiné wong-wong mau.
+
+[^10]: Prenyakit ati kayadéné rasa mamang lan ora precaya maring prekara sing bener, lamis (munapék) lan mbangkang.
+
+[^11]: Nglanggar tatanan sing détetepna agama bakal njalari ngalam kiyé rusak, malah ancur.
+
+[^12]: Ngélmu lan kuwasané Gusti Allah nglingkupi wong-wong kapir.
+
+[^13]: Wong kuwé kesasar sebab dhéwéké mbangkang tur ora gelem mahami pituduh-pituduhé Gusti Allah. Neng ayat kiyé, sebab dhéwéké mbangkang tur ora gelem mahami apa sebabé Gusti Allah ndadékna lemud minangka conto, dadiné dhéwéké padha kesasar.
+
+[^14]: Wong pasék yakuwé wong sing nerak aturané agama, mbuh omongané utawa kelakuané.
+
+[^15]: Khalifah tegesé wong sing ngganténi, makili, pemimpin utawa penggawa.
+
+[^16]: Iblis kepélu golongané jin lan klebu sing dépréntah kon sujud.
+
+[^17]: Apus-apusé sétan, sapa sing mangan wohé wit kuwé, bakal langgeng neng suwarga, deleng Taha (20): 120.
+
+[^18]: Dolim tegesé  gawé aniaya. Wong sing dolim yakuwé wong sing nglakoni penggawé aniaya, sing gawé kapitunan maring awaké dhéwék utawa wong liya.
+
+[^19]: Nabi Adam a.s. lan Hawa padha ndhahar wohé wit sing délarang kuwé, sing njalari sekloroné déurak déning Gusti Allah sekang suwarga lan déturunaken maring dunya.
+
+[^20]: Pengucap kuwé miturut sebagéan juru tapsir yakuwé pengucap nggo njaluk pengampura (tobat).
+
+[^21]: Israil yakuwé sebutan kanggo Nabi Yakub a.s. Bani Israil yakuwé anak-turuné Nabi Yakub a.s lan siki kewentar kambi aran bangsa Yahudi.
+
+[^22]: Neng antarané janji Bani Israil maring Gusti Allah yakuwé mung nyembah maring Gusti Allah, ora gawé tandhingan tumrap Gusti Allah, lan precaya maring Nabi Muhammad s.a.w kayadéné sing désebut neng njeroné Taurat.
+
+[^23]: Batil tegesé luput, penggawé aniaya, mungkar lan seliyané,
+
+[^24]: Syafaat yakuwé pitulungan sing déparingna déning Rasul utawa wong-wong pinesthi nggo ngénthéngna siksa utawa rénggané wong neng akhérat, kanthi keparengé Gusti Allah.
+
+[^25]: Fira’un kuwé parabané ratu-ratu Mesir jaman kuna. Miturut sejarah, fir’aun rikala jaman Nabi Musa a.s. arané Menephthan (1232-1224 SM) anaké Ramses.
+
+[^26]: Sewijiné wates wektu sing déjanjékna déning Gusti Allah nggo nampa pituduh (Taurat), ning umaté Nabi Musa a.s ora padha sabar ngenténi, akhiré umaté Nabi Musa padha nyembah reca pedhét (anak sapi) gawéané Samiri.
+
+[^27]: Sing démaksud kitab yakuwé Taurat. Lan sing démaksud Furqan yakuwé keterangan-keterangan liya nggo mbédakna sing becik karo sing ala.
+
+[^28]: “Maténi awakmu” ana sing negesi, wong-wong sing ora nyembah reca pedhét kuwé maténi wong sing padha nyembah. Ana uga sing negesi, wong sing nyembah reca pedhét kuwé kon padha patén-paténan, lan ana uga sing negesi wong-wong mau dékongkon maténi awaké dhéwék-dhéwék minangka nggo tobat.
+
+[^29]: Mann yakuwé sewenéh madu. Salwa yakuwé sewenéh manuk puyuh.
+
+[^30]: Saben golongan sekang 12 golongan Bani Israil, kaya sing désebut neng Al-A’raf (7): 160
+
+[^31]: Sabi’in kuwé umat seurungé  Nabi Muhammad s.a.w sing padha ngerti anané Pengéran Sing Mahatunggal, lan precaya maring  pengaruh lintang-lintang.
+
+[^32]: Dina Sabat yakuwé dina Setu, dinané  wong Yahudi nggo ngibadah.
+
+[^33]: Kethék: temen dadi kethék minangka supatané Gusti Allah. Ana juru tapsir sing ngartékna, nduwéni wateké kethék.
+
+[^34]: Wewadi Gusti Allah ndhawuhi nyembeléh sapi, supayané ilang rasa ormaté wong-wong mau maring reca pedhét sing padha désembah déning wong-wong mau.
+
+[^35]: Maksudé wong-wong Yahudi sing padha ngowahi isiné Taurat utamané bab Nabi Muhammad s.a.w.
+
+[^36]: Neng njeroné Taurat déterangna bab Nabi Muhammad s.a.w. Sing arep rawuh minangka nabi pungkasan, ning keterangan kuwé déumpetna neng wong Yahudi, merga wedi bakal mbalik maring awaké dhéwék.
+
+[^37]: Malsukna lan ngowahi ayat nggo kepentingané dhéwék.
+
+[^38]: kabéh janji lan sumpah sing déucapna déning Bani Israil kaya sing kesebut neng njeroné ayat 83 lan 84 neng ndhuwur, wong-wong mau nglanggar. Nyatané sejarahé neng antarané rong golongan Yahudi neng Medinah yakuwé Bani Quraizah utawa Khazraj balané Bani Nadir gawéné perang. Angger ana wong Yahudi neng antarané rong golongan kuwé détawan neng liyané, contoné neng Bani Aus, balané Bani Quraizah utawa Bani Khazraj balané Bani Nadzir, padha brayan nebus.
+
+[^39]: Al-Qur’an uga mulangna tauhid (nyewijékna Gusti Allah) kaya sing déwulangna Taurat.
+
+[^40]: Wahyu (kenabian) maring Nabi Muhammad s.a.w.
+
+[^41]: Bendu nomer siji merga mbangkang maring Nabi Musa a.s, lan bendu nomer loro merga ngingkari Nabi Muhammad s.a.w.
+
+[^42]: Musrik yakuwé wong sing nyekuthokna Gusti Allah karo seliyané (mangro tingal).
+
+[^43]: Raina tegesé mara gatékna inyong kabéh. Ning wong Yahudi kambi mrengut goli ngomongna, dadiné sing démaksud neng wong Yahudi mau yakuwé “Ru’unah sing tegesé bodo banget, sing dadi pengala-ala kanggo Rasulullah. Kuwé sebabé Gusti Allah ndhawuhi batir-batiré Nabi ngganti Raina karo unzurna sing tegesé padha karo “Raina”.
+
+[^44]: Wong Yahudi padha ngucap, mung dhéwéké sing bakal padha mlebu maring suwarga. Wong-wong Nasrani uga padha ngucap, mung dhéwéké  sing bakal padha mlebu suwarga.
+
+[^45]: yakuwé panggonané Nabi Ibrahim a.s jumeneng nalikané mbangun ka’bah
+
+[^46]: sibgah Allah, tegesé celupané Gusti Allah, maksudé agamané Gusti Allah
+
+[^47]: Yakuwé persekséné Gusti Allah sing ana neng njero Taurat lan Injil, setemené Nabi Ibrahim a.s. Lan anak putuné dudu wong sing manut agama Yahudi utawa Nasrani, lan setemené Gusti Allah bakal ngutus Nabi Muhammad s.a.w.
+
+[^48]: Umat sing adil, sing ora abot sesisih, maring dunya utawa maring akhérat, ning seimbang antarané sekaroné.
+
+[^49]: Padha ngerti kenabiané Muhammad s.a.w lan sipat-sipaté kaya sing désebut neng Taurat lan Injil.
+
+[^50]: Ingsun paring welas lan pengampura maring sliramu kabéh.
+
+[^51]: Urip neng ngalam séjén sing dudu ngalamé inyong kabéh, neng endi dhéwéké padha olih pirang-pirang nékmat neng ngersané Gusti Allah, lan mung Gusti Allah sing mriksani kepriwé kahanané penguripan neng ngalam kuwé.
+
+[^52]: Pengucap kiyé déarani istirja’ (pengucap mbalekna maring Gusti Allah). Sunah déucapna rikala kenang bilai, gedhé utawa cilik.
+
+[^53]: Panggonan-panggonan ngibadah maring Gusti Allah
+
+[^54]: Mlaku lan mlayu-mlayu dhologan ping pitu antarané Shafa lan Marwah rikala nglakoni ngibadah haji utawa umrah. Gusti Allah mertélakna kanthi dhawuh, “Ora nana dosa” merga sebagéan sahabat ngrasa abot nglakoni sa’i neng kono, krana panggonan kuwé tilas panggonan brehala. Lan wektu jaman jahiliyah papan  kuwé uga dénggo panggonan sa’i. Supayané ngilangna rasa abot kuwé Gusti Allah nurunaken ayat kiyé.
+
+[^55]: Gusti Allah kesuwun maring kawula-Né, maringi ganjaran maring ngamalé, ngapurani luputé, nambahi nékmaté lan liyané.
+
+[^56]: Tegesé nglakoni penggawé-penggawé apik nggo ngilangna tinggalan ala sekang keluputan-keluputan sing wis délakoni, lan njelasna bebener sing déumpetna.
+
+[^57]: Wong sing aniaya (kapitunan/dolim) neng kéné yakuwé wong sing nyembah seliyané Gusti Allah. Maksudé, rikala wong sing aniaya kuwé weruh sembahané ora awéh piguna babar blas neng dina Kiyamat, dhéwéké mesthi precaya lamon sekabéhé daya (kekuwatan) mung kagungané Gusti Allah.
+
+[^58]: Panganan sing dépangan asalé sekang pekolih adol ayat-ayat sing déturunaken déning Gusti Allah, ndadékna sebab wong-wong mau padha mlebu geni neraka.
+
+[^59]: Qisas yakuwé ukuman sing sepadhan karo penggawé élék sing délakoni ingatasé awak menungsa.
+
+[^60]: Wasiyat kuwé ora nglewihi sepertelu sekang sekabéhé bandha wong sing wasiyat, ayat kiyé mligi nggo ahli waris sing dénasakh (déganti ukumané) karo ayat bab waris (An Nisa (4) : 11).
+
+[^61]: Ngakurna yakuwé préntah wong sing wasiyat gawé adil sejeroné wasiyat padha karo wates-wates sing détemtokna syara (aturané agama).
+
+[^62]: Wong sing mriyangé nemen, wong sing banget tuwané, wong sing meteng lan nyusoni.
+
+[^63]: Awéh pangan maring lewih sekang wong melarat siji neng sedina.
+
+[^64]: I’tikaf yakuwé ana neng njeroné mesjid kambi niyat ngibadah lan dhépé-dhépé maring Gusti Allah.
+
+[^65]: Rikala jaman jahiliyah, wong-wong sing padha ihram dhong haji, wong-wong mau padha mlebu umah sekang ndhuwur, udu sekang ngarep. Prekara kiyé uga détakokna déning sahabat-sahabat maring Rasulullah s.a.w, mula banjur ayat kiyé temurun.
+
+[^66]: Pitenah (gawé kisruh), kayadéné ngurak sahabat sekang désa kelairané, ngrampas bandha lan nglarani utawa ngganggu wong ngamalaken agamané.
+
+[^67]: Angger wong Islam déserang neng wulan haram, sing sebeneré neng wulan haram ora olih perang, mangka déolihna males nyerang neng wulan kuwé uga.
+
+[^68]: Maksudé kayadéné wulan haram (wulan Dzulkaidah, Dzulhijah, Muharam, lan Rajab), tanah haram (Mekah) lan ihram.
+
+[^69]: Hadyu yakuwé kéwan sing désembeléh minangka ganti (dam) penggawéyan wajib sing ora délakoni; utawa minangka dhendha merga nglanggar apa-apa sing ora kena délakoni sejeroné ngibadah haji.
+
+[^70]: Yakuwé wulan Syawal, Dzulkaidah, lan Dzulhijah
+
+[^71]: Saru (rafats) tegesé ngetokna omongan sing nyebabna tekané brahi, penggawéyan sing saru utawa nglakoni karonsih (junub).
+
+[^72]: Biasané wong jahiliyah sewisé nglakoni haji padha ngedir-dirna kaki-nininé. Sewisé ayat kiyé temurun, padatan kuwé déganti karo dzikir maring Gusti Allah.
+
+[^73]: Maksudé zikir neng kéné, maca takbir, tasbih, tahmid lan liya-liyané. Dina-dina sing kepétung yakuwé telung dina sewisé dina riyaya haji, yakuwé tanggal 11, 12, lan 13 wulan Dzulhijjah. Dina-dina kuwé déarani dina tasrék (tasyriq).
+
+[^74]: Pitnah neng kéné tegesé penggawé nganiaya lan sekabéhé penggawé sing maksudé njajah Islam lan wong-wong muslim.
+
+[^75]: Sekabéhé inuman sing gawé wuru/mabok
+
+[^76]: Aja nyampur karo bojo neng wektu héd.
+
+[^77]: Sing démaksud suci yakuwé seuwisé adus wajib bar héd. Ana sing nepsiri sewisé getihé mandheg ora metu maning.
+
+[^78]: Nglarang sumpah nganggo asmané Gusti Allah nggo ora nglakoni sing ora apik, kayadéné: Demi Allah inyong arep ora nulung bocah yatim. Ning angger sumpah kuwé wis keucap, kudu mbayar kafarat.
+
+[^79]: Sing démaksud penyantun (halim) yakuwé ora secepeté nyiksa wong sing nglakoni dosa.
+
+[^80]: Sumpah illa maring bojo, maksudé sumpah ora arep ngumpuli bojo. Kanthi sumpah kiyé bojo lara ati, sebab ora dékumpuli utawa décampuri lan ora dépegat. Kanthi temuruné ayat kiyé mengko wong lanang seuwisé patang wulan kudu milih antarané kumpul karo bojoné lan bayar kafarat (dhendha) sumpah apa megat bojoné.
+
+[^81]: Quru’ jamak sekang qor’u sing tegesé suci, utawa héd.
+
+[^82]: Sebab lanang duwé tanggungjawab maring keslametané lan kejembarané balé-somah utawa keluwarga (An-Nisa’ (4): 34).
+
+[^83]: Ayat kiyé dadi dhasar hukum khulu’ lan penampanan ‘iwad. Khulu’ kuwé hak bojo nggo pegatan sekang lanangé kanthi mbayar ‘iwad liwat pengadilan.
+
+[^84]: Idah kuwé wektu nunggu (ora olih umah-umah) nggo wong wadon sebab pegatan utawa détinggal mati lanangé.
+
+[^85]: Umah-umah maning karo jat lanangé utawa wong lanang liya.
+
+[^86]: Dandan, lungan, utawa nampani gotékan.
+
+[^87]: Wong wadon sing olih dégotéki kanthi pesemon yakuwé wong wadon sing neng wektu idah merga matiné sing lanang utawa merga pegatan bain. Éwadéné wong wadon sing lagi idah pegat roj’i ora kena dégotéki senajan nganggo pesemon.
+
+[^88]: Tembung pesemon sing apik.
+
+[^89]: Yakuwé sing lanang utawa wali. Angger wali sing mbébasna mangka sing lanang débébasna ora mbayar separoné mas kawin. Éwadéné angger sing lanang sing mbébasna, mangka dhéwéké mbayar sekabéhané mas kawin.
+
+[^90]: Ya kuwé lanangé utawa wali, Angger wali sing mbébasna mangka sing lanang débébasna sekang mbayar separo mas kawin. Banjur angger sing lanang sing mbébasna mangka dhéwéké mbayar mas kawin sekabéhé.
+
+[^91]: Sembayang wusta miturut hadits sing soheh yakuwé sembayang ngasar.
+
+[^92]: Maksud nyilihi maring Gusti Allah yakuwé nginfakna (nyumbang) bandha neng dalané Gusti Allah.
+
+[^93]: Dhéwéké kabéh lan anak-anaké détawan.
+
+[^94]: Tabut kuwé pethi sing nggo nyimpén kiyab Taurat.
+
+[^95]: Miturut sebagéan ahli tapsir sing démaksud rohul kudus kuwé Malaékat Jibril.
+
+[^96]: Sebagéan ahli tapsir negesna karo ilmuné Gusti Allah, ana sing negesna karo kuwasané lan ana sing negesna liyané.
+
+[^97]: Sétan lan apa baé sing désembah seliyané Gusti Allah
+
+[^98]: Miturut sebagéan riwayat yakuwé Namrud raja Babilonia
+
+[^99]: Nguripna yakuwé ngejorna urip lan sing démaksud maring sing matékna yakuwé maténi. Ucapané kuwé nggo ngina maring Nabi Ibrahim a.s.
+
+[^100]: Ucapan sing apik, nolak nganggo cara sing apik, lan awéh pengampura yakuwé ngampurani penggawé sing kurang sopan sekang sing njaluk,
+
+[^101]: kiyé peumpamané wong sing nyumbangna bandhané krana pamer, mbanggakna perwéwéhé maring wong liya lan nglarani atiné wong sing déwéhi.
+
+[^102]: Hikmah yakuwé kesanggupané ngerténi kesunyatan syariat agama.
+
+[^103]: Janji nggo nindakna sewiji kebecikan maring Gusti Allah, nggo ngepérek maring Gusti Allah, peryoga nganggo sarat utawa ora.
+
+[^104]: Ngedhéngna sodakoh supayané détiru neng wong liya udu nggo pamer (riya).
+
+[^105]: Wong sing ngalap riba ora tentrem jiwané kaya wong sing kelebon sétan.
+
+[^106]: Riba sing wis déjikot (dépangan) seurungé temurun ayat kiyé kena ora débalékna.
+
+[^107]: Nyirnakna riba yakuwé nyirnakna bandha kuwé apa ngilangna berkahé. Lan ngakéhna sedekah yakuwé mundhakna bandha sing wis détokna sedhekahé apa nikelna berkahé.
+
+[^108]: Wong-wong sing ngalalna riba lan tetep nglakoken.
+
+[^109]: Gusti Allah sing ngatur langit lan seisiné bumi
+
+[^110]: Al-Furqon (Al-qur’an) yakuwé kitab sing mbédakna antarané sing bener lan sing salah.
+
+[^111]: Ayat-ayat sing gamblang lan tegas maksudé, bisa dépahami kanthi gampang.
+
+[^112]: Ayat-ayat sing maksudé samar, angél dépahami utawa mung Gusti Allah sing priksa.
+
+[^113]: Ketemuné rong golongan kuwé antarané kaum Muslimin karo kaum musrikin, kedadéané neng Perang Badar. Badar kuwé sewijiné panggonan sing ana neng kidul Medinah.
+
+[^114]: Kéwan-kéwan kayadéné onta, sapi, wedhus, lan gembel.
+
+[^115]: Yakuwé kitab-kitab sing déturunaken seurungé Al-Qur’an.
+
+[^116]: Wuta aksara maksudé wong sing ora ngerti maca lan nulis. Miturut sebagéan juru tapsir sing démaksud ummi yakuwé wong musrik Arab sing ora ngerti maca lan nulis, ujaré sebagéan liya yakuwé wong-wong sing ora déparingi Kitab.
+
+[^117]: Sebagéan juru tapsir awéh conto nggo ayat kiyé karo metuné pitik sekang endhog lan endhog sekang pitik.
+
+[^118]: Mbenerna (ngiyakna) tekané siji nabi sing décipta karo kalimah “kun” (dadia) tanpa rama yakuwé Nabi Isa a.s.
+
+[^119]: Ana sebagéan juru tapsir sing nepsiri jemparing (anak panah). Maksudé ngogan (undian) nganggo cara mbalang jemparing.
+
+[^120]: Al-Kitab neng kéné ana sing nepsiri karo piwulang nulis lan ana uga sing nepsiri kitab-kitab sing déturunaken déning Gusti Allah seurungé, kejaba Taurat lan Injil.
+
+[^121]: Mubahalah yakuwé saben-saben golongan neng antarané wong-wong sing béda penemuné padha-padha nyuwun maring Gusti Allah kanthi temenan, moga-moga Gusti Allah nibakna laknat maring golongan sing ngapusi. Nabi aséng utusan Nasrani Najran bareng-bareng nglakoni mubahalah, ning dhéwéké ora wani, lan kiyé dadi bukti beneré Nabi Muhammad s.a.w.
+
+[^122]: Wong Yahudi lan Nasrani karo-karoné padha nganggep Nabi Ibrahim a.s sekang golongané. Banjur Gusti Allah mbantah wong-wong kaé kanthi alesan lamon Nabi Ibrahim a.s. Kuwé teka seurungé dhéwéké kabéh.
+
+[^123]: Yakuwé ngenani Nabi Musa as, Nabi Isa as, lan Nabi Muhammad s.a.w.
+
+[^124]: Yakuwé masalah Nabi Ibrahim as.
+
+[^125]: Jejeg yakuwé adoh sekang lakon nyekutokna Gusti Allah) lan adoh sekang sesasar.
+
+[^126]: Ayat-ayaté Gusti Allah sing déturunaken maring Nabi Muhammad s.a.w.
+
+[^127]: Nutupi dhawuh-dhawuhé Gusti Allah sing wis ketulis neng Taurat lan Injil kanthi omongan sing dégawé-gawé neng wong (Ahli Kitab) dhéwék.
+
+[^128]: Bener ngenani kenabiané Muhammad s.a.w. Sing wis ana neng Taurat lan Injil.
+
+[^129]: Maring wong-wong sing seagama karo sliramu (Yahudi utawa Nasrani) supayané dhéwéké ora sida mlebu Islam utawa maring wong-wong Islam sing mauné sekang agamamu kon goyang precayané lan bali maring kapir.
+
+[^130]: Nabi-nabi janji dhateng Gusti Allah angger teka siji Rasul sing asmané Muhammad dhéwéké arep precaya maring Muhammad lan nulungi. Perjanjian nabi-nabi kiyé kejiret uga neng umaté.
+
+[^131]: Sewisé Taurat déturunaken, ana sewetara panganan sing déharamna ingatasé dhéwéké kabéh minangka ukuman. Jeneng-jeneng panganan kuwé kesebut neng njeroné. Seterusé delengen surat An-Nisa’ (4): 160 lan Al-An’am (6): 146.
+
+[^132]: Goroh maring Gusti Allah yakuwé ngomongna lamon seurungé Taurat déturunaken, Gusti Allah wis ngaramna sewetara panganan maring Bani Israil
+
+[^133]: Ahli Kitab ngomongna lamon umah sembahan sing dhisit dhéwék débangun neng Baitul Maqdis, mulané kuwé Gusti Allah nyewala (mbantah).
+
+[^134]: Delengen surat al-Baqoroh (2): 125
+
+[^135]: Wong sing sanggup nganakna sangu lan uba-rampéné lelungan tur sehat raga, lan dalané maring Tanah Suci aman tur keluwarga sing détinggal déjamin penguripané
+
+[^136]: Nyekséni maksudé ngaweruhi lamon agama sing kepareng mungguh Gusti Allah kuwé agama Islam.
+
+[^137]: Ma’ruf kuwé penggawéyan apa baé sing merekna kepérek maring Gusti Allah. Mungkar kuwé penggawéyan apa baé sing ngadohna awak sekang Gusti Allah.
+
+[^138]: Segolongan Ahli Kitab sing wis ngrasuk agama Islam.
+
+[^139]: Kedadéan kiyé kelakon rikala Perang Uhud sing miturut ahli sejarah kelakon neng taun kaping-3 H.
+
+[^140]: Yakuwé Bani Salamah sekang trah Khazraj lan Bani Haritsah sekang trah Aus, loroné sekang barisan kaum muslimin.
+
+[^141]: Kahanané wong Muslim ora pideksa (ora daya) merga cacahé semendhing lan bekakas perangé kurang.
+
+[^142]: Yakuwé kanthi matiné wong pitung puluh pemimpin wong-wong kapir lan ketawané pitung puluh wong kapir liyané.
+
+[^143]: Miturut riwayat Bukhari ngenani temuruné ayat kiyé, merga Nabi Muhammad s.a.w nyuwun maring Gusti Allah nyelametna sebagéan penggedhé kaum musrikin lan nyirnakna sebagéan sing liya.
+
+[^144]: Sing démaksud riba neng kéné yakuwé riba nasi’ah. Miturut akéh-akéhé ulama, nek riba nasi’ah kuwé selawasé haram, ora ketang ora tikel-matikel.
+
+[^145]: Sing déarani penggawéyan ala (Fahisyah) yakuwé dosa gedhé sing akibaté ora mung nggo awaké dhéwék ning uga wong liya, kayadéné jina, riba, aniaya (gawé kapitunan) maring awaké dhéwék yakuwé nglakoni dosa, sing akibaté nggo awaké dhéwék, gedhé utawa cilik.
+
+[^146]: Sing démaksud sunahé Gusti Allah neng kéné yakuwé ukuman-ukumané Gusti Allah sing rupané marabaya, musibah sing tiba maring wong-wong sing nggorohna para utusan.
+
+[^147]: Jihad bisa détegesi: a). Perang nggo ngedegna Islam lan ngayomi wong Islam; b). Merangi hawa nepsu; c). Ngewéhna bandha nggo kebagusan Islam lan umat Islam; d). Ngilangna penggawéyan jahat lan ngadegna kebecikan.
+
+[^148]: Nabi Muhammad s.a.w, kuwé sewijiné menungsa sing deangkat déning Gusti Allah dadi Utusan.Utusan-utusan seurungé wis padha séda sebab dépaténi, ana uga sing séda biasa. Merga kuwé Nabi Muhammad s.a.w uga bakal séda kayadéné Utusan-utusan sing wis keliwat. Rikala kedadéan Perang Uhud kesebar crita lamon Nabi Muhammad s.a.w séda dépaténi. Crita kiyé ngacokna kaum muslimin dadi ana sing duwé maksud njaluk pengayoman maring Abu Sufyan (pemimpiné kaum Quraisy). Neng wektu kuwé wong munapék (uga) ngomong lamon bener Muhammad kuwé sewijiné nabi mesthiné dhéwéké ora bakal séda dépaténi. Mangka Gusti Allah nurunaken ayat kiyé nggo nentremna atiné kaum muslimin lan mbantah omongané wong munapék kuwé (Sahih Bukhari bab Jihad). Abu Bakar r.a nerangna ayat kiyé – nggo ngilangna bombing neng kalangané para sahabat rikala sédané Nabi Muhammad s.a.w, utamané nggo ngleremna Umar Ibnu Katab r.a lan para kanca sing ora precaya maring sédané Nabi Muhammad kuwé. (Sahih Bukhari bab Takwané para sahabat).
+
+[^149]: Ngliwati wewates hukum sing wis détetepna déning Gusti Allah SWT.
+
+[^150]: Ganjaran dunya bisa rupa kemenangan-kemenangan, olih bandha rampasan, pengalem, lan liya-liyané.
+
+[^151]: Yakuwé nglakoni préntahé Nabi Muhammad s.a.w,supayané regu juru panah tetep neng panggonan sing wis détudhuhna neng kahanan sing kaya apa baé.
+
+[^152]: Yakuwé menang perang lan bandha rampasan.
+
+[^153]: Kaum muslimin ora téyéng ngalahna dhéwéké kabéh.
+
+[^154]: Susahé kaum muslimin désebabna dhéwéké kabéh ora manut préntahé Kanjeng Nabi sing dadi kalah sekang wong-wong kapir.
+
+[^155]: Wong-wong Islam sing teguh keyakinané.
+
+[^156]: Wong-wong Islam sing ésih mamang.
+
+[^157]: Penyana angger pancén Muhammad s.a.w kuwé nyata-nyata Nabi lan Utusané Gusti Allah, mesthi Penjenengané ora bakal dékalahna neng peperangan.
+
+[^158]: Rong wadyabala kuwé, wadyabala kaum Muslimin lan wadyabala kaum musrikin neng Perang Uhud.
+
+[^159]: Mati neng dalané Gusti Allah ning udu merga perang.
+
+[^160]: Urusan perang lan masalah-masalah dunya liyané kaya urusan politik, ekonomi, kemasrakatan lan liya-liyané.
+
+[^161]: Omongan kiyé détujokna maring Nabi lan kanca-kancané nggo pengenyékan, merga dhéwéké kabéh nganggep lamon Nabi ora ngerti strategi perang, sebab Nabi nglakoni perang rikala cacahé kaum Muslimin semendhing. Omongan kiyé kena dégunakna nggo nampik pengenyékan sing détujokna maring wong munapék dhéwék.
+
+[^162]: Urip neng sejeroné ngalam liya sing udu ngalamé dhéwék kiyé. dhéwéké kabéh olih werna-werna kenékmatan neng sisihé Gusti Allah. Lan mung Gusti Allah sing ngerténi kaya apa kahanané urip neng ngalam kuwé.
+
+[^163]: Batir-batiré sing ésih urip lan tetep jihad neng dalané Gusti Allah.
+
+[^164]: Wong-wong kapir Mekah utawa wong-wong munapék sing tetep ngalangi agama Islam.
+
+[^165]: Karo ndawakna umuré dhéwéké kabéh ngejorna dhéwéké nggawé dosa sesenengé atiné.
+
+[^166]: Kahanan kaum muslimin campur dadi siji karo kaum munapék.
+
+[^167]: Neng antarané Rosul-Rasul, Nabi Muhammad s.a.w depilih ning Gusti Allah karo ngawéhna kelewihan maring slirané wujud pengertén nggo ngerténi isi atiné menungsa, nganthi slirané téyéng nentukna sapa wongé ning antarané dhéwéké kabéh sing bener-bener nduwéni precaya lan sapa wongé ning antarané dhéwéké sing munapék apa kapir.
+
+[^168]: Zubur yakuwé lembaran-lembaran sing isi wahyu sing déparingna maring nabi–nabi seurungé Nabi Muhammad s.a.w sing isiné amot hikmah-hikmah.
+
+[^169]: Kitab-kitab sing déturunaken maring nabi-nabi sing isiné hukum syariat kayadéné Taurot, Injil lan Zabur.
+
+[^170]: Neng antarané keterangan sing déumpetna mau yakuwé prekara bakal rawuhé Nabi Muhammad s.a.w.
+
+[^171]: Maksudé kayadéné wong lanang asalé sekang wong lanang lan wong wadon, mangka kayadéné wong wadon asalé sekang wong lanang lan sekang wong wadon. Karo-karoné padha-padha menungsa, ora nana kelewihané sing siji karo liyané prekara precaya lan amalé.
+
+[^172]: Miturut adaté wong Arab, angger dhéwéké takon sewiji-wiji utawa njaluk maring wong liya dhéwéké padha ngucap asmané Gusti Allah kayadéné As’aluka billah, tegesé, Inyong takon utawa njaluk maring ko kanthi asmané Gusti Allah.
+
+[^173]: Temindak adil yakuwé penggawéyan sing adil goli nyukupi kebutuhané bojoné kayadéné sandhang, panggonan, giliran lan liya-liyané sing sipaté lair lan batin.
+
+[^174]: Islam ngolihna poligami kanthi sarat-sarat kusus. Seurungé temurun ayat kiyé poligami wis ana, lan wis tau délakoni déning nabi-nabi seurungé Nabi Muhammad s.a.w. Ayat kiyé matesi poligami nganti mung wong papat baé.
+
+[^175]: Batur-tukon lan perbudakan neng pengertian kiyé neng mangsa siki wis ora nana.
+
+[^176]: Perwéwéh kiyé yakuwé mas kawin sing gedhé-ciliké détetepna kanthi sepakaté rong péhak, merga perwéwéh kuwé kudu délakoni kanthi iklas.
+
+[^177]: Wong sing urung sempurna akalé yakuwé bocah yatim sing urung baligh (diwasa) utawa wong diwasa sing urung téyéng ngatur bandhané.
+
+[^178]: Nylidhiki (pendadaran = ujian) maring dhéwéké neng prekara agama, usaha-usahané dhéwéké, penggawéyan lan liya-liyané nganti dékaweruhi menawa bocah kuwé kena déprecaya.
+
+[^179]: Sedulur sing ora nduwéni hak waris sekang banda warisan.
+
+[^180]: Piwéwéh sekedaré ora kena lewih sekang sepertelon banda warisan.
+
+[^181]: Bagéané wong lanang tikel loro sekan wong wadon yakuwé sebab kewajibané wong lanang lewih abot sekang wong wadon, kayadéné kewajiban mbayar maskawin lan awéh napkah (deleng An-Nisa’ (4) : 34).
+
+[^182]: Nyusahna maring ahli waris yakuwé penggawéyan-penggawéyan kayadéné : (a) masiyatna lewih sekang sepertelon bandha tinggalané. (b) awéh wasiyat kanthi maksud ngurangi bandha warisan. Senajan kurang sekang sepertelon angger ana niyat ngurangi hak waris, uga ora désekolihi.
+
+[^183]: Miturut sebagéan juru tapsir yakuwé penggawéyan jina, ning miturut pinemu sing liyané yakuwé sekabéhané penggawéyan saru kayadéné : jina, homoseks, lan sing serupané. Miturut pinemuné Muslim lan Mujahid yakuwé musahakah (lesbian: wadon dhemen wadon).
+
+[^184]: Miturut sebagéan juru tapsir, dalan sing liyané kuwé yakuwé kanthi temuruné An-Nur (24) : 2, ngenani hukum pecut.
+
+[^185]: Ayat kiyé ora ateges marisna wong wadon ora karo dalan paksa kuwé désekolihi. Miturut sebagéan adaté wong Arab Jahiliyah angger sewijiné menungsa mati, mangka anaké sing paling tuwa utawa anggota kulawargané sing liya marisi randha kuwé. Randha kuwé kena débojo dhéwéké utawa débojokna karo wong liya sing maharé déjikot neng pewaris utawa ora dékenakna rabi maning.
+
+[^186]: Maksudé biyung neng awal ayat kiyé yakuwé biyung, nini, lan seterusé maring ndhuwur, lan sing démaksud anak wadon yakuwé anak wadon, putu wadon lan seterusé maring ngisor, semana uga sing liyané. Éwadéné démaksud “anak-anaké bojomu sing ana neng pengreksanmu” miturut umumé para ulama klebu anak kewalon sing ora neng pengreksané.
+
+[^187]: Wong-wong wadon sing déduwéni sing lanangé ora mélu détawan bareng dhéwéké. Keterangan seterusé deleng An-Nisa (4) : 3.
+
+[^188]: Seliyané wong wadon sing wis désebut neng An-Nisa (4) : 23.
+
+[^189]: Nambahi, ngelong utawa ora mbayar babar pisan mas kawin sing wis détetepna.
+
+[^190]: Neng jero saréngat antarané kena mbojo batur-tukon (budak) angger wis cukup sarat-saraté.
+
+[^191]: Gusti Allah wis majibna maring lanangé kon ngembuli bojoné kanthi apik.
+
+[^192]: Nusyuz yakuwé ninggalna kewajibané dadi bojo, kayadéné lunga sekang ngumah ora pamit maring sing lanang.
+
+[^193]: Pérek lan adoh neng kéné ana sing napsiri karo panggonan, srawung keluwarga, lan ana uga sing napsiri antarané sing Islam lan sing ora Islam.
+
+[^194]: Ibnu Sabil yakuwé wong sing lagi neng dalan udu maksiyat lan kentongan sangu. Klebu uga bocah yatim sing ora genah rama-biyungé.
+
+[^195]: Zarrah kuwé barang sing paling lembut lan paling énthéng.
+
+[^196]: Akéh ngulama njelasna tegesé ngemék neng kéné yakuwé mék-mékan kulit, lan sebagéan sing liya negesna kembulan selaki-rabi utawa karon-sih.
+
+[^197]: Ngowahi tegesé, nggon, utawané nambahi lan ngurangi tembung.
+
+[^198]: Dhéwéké kabéh ngucapna, “Rungokna,” ning atiné padha ngucap, “Moga-moga ko ora téyéng ngrungu (budheg)”.
+
+[^199]: Sekang omongan raa’inaa padha baé unzurna sing tegesé ‘gatékna Inyong kabéh’. Seterusé delengen Al-Baqoroh (2) : 104.
+
+[^200]: Ana sing ngarani ukuran keprecayaan sing tipis, lan ana sing ngarani cacahé wong sing semendhing.
+
+[^201]: Miturut akéh-akéhé juru tapsir, maksudé yakuwé ngganti rainé dhéwéké kabéh terus députer maring mburi nggo pengasoran.
+
+[^202]: Jibt padha baé Tagut yakuwé sétan lan apa baé sing désembah seliyané Gusti Allah SWT.
+
+[^203]: Angger sing nyekel kuwasa medhomani kitabé Gusti Allah lan sunnah Rasul.
+
+[^204]: Wong sing ajeg mungsuhi Nabi Muhammad s.a.w lan wong Islam. Ana sing napsiri kuwé Abu Zahrah tukang tenung neng jamané Nabi, lan ana sing ngarani, kuwé Ka’ab bin Asyraf (wong lamis/munapék).
+
+[^205]: Njaluk keputusan maring liyané Nabi Muhammad s.a.w.
+
+[^206]: Wong sing mbuktékna awaké duwé precaya lan njaluk idin mangkat perang seurungé ana préntah kon perang.
+
+[^207]: Utusan (Kanjeng Nabi Muhammad) ora nanggung-jawab ingatasé tindakanné dhéwéké kabéh lan ora njamin wong-wong kuwé ora nglakoni keluputan.
+
+[^208]: Wong-wong penting batiré Rasul.
+
+[^209]: Miturut juru tapsir sing liyané, maksudé yakuwé: angger sewijiné kabar ngenani ketrenteman lan kemirisan kuwé débutulna maring Rasul lan Ulil Amri, mesti Rasul lan Ulil Amri sing ahli bisa netepna pengertén (istimbat) sekang kabar kuwé.
+
+[^210]: Préntah perang kuwé kudu déleksanakna déning Nabi Muhammad s.a.w, merga sing ketiban préntah slirané pribadi. Ayat kiyé ana gandhéng-cenengé karo warga Medinah sing akéh-akéhé padha ngedhap mélu perang Badar  bareng Kanjeng Nabi. Mulané temurun ayat kiyé sing akon maring Kanjeng Nabi mangkat perang senajan dhéwékan.
+
+[^211]: Golongané wong precaya sing mbélani golongané wong lamis (munapék) lan golongané wong precaya sing dadi mungsuhé dhéwéké kabéh.
+
+[^212]: Décritakna, lamon sewetara wong Arab sing teka maring Kanjeng Nabi s.a.w neng Medinah, terus padha mlebu Islam, ning banjur dhéwéké padha kenang prenyakit Medinah. Merga kuwé dhéwéké padha bali kapir maning, lan padha metu sekang Medinah. Banjur wong-wong kuwé ketemu karo batir-batiré Kanjeng Nabi, sing banjur takon apa sebabé dhéwéké padha ninggalna Medinah. Wong-wong kuwé padha crita lamon dhéwéké padha kenang prenyakit Medinah. Para batiré Kanjeng Nabi takon, “Kenangapa ko ora padha nyonto sing apik sekang Kanjeng Nabi?”. Neng prekara kiyé para batiré Kanjeng Nabi pecah dadi rong golongan. Separoné duwé penemu lamon wong-wong kuwé wis dadi lamis (munapék). Separoné maning duwé penemu lamon dhéwéké kabéh kuwé ésih klebu Islam. Banjur temurun ayat kiyé sing nyalahna kaum muslimin merga pecah dadi rong golongan kuwé, lan mréntahna supayané wong-wong Arab mau décekel lan dépaténi, angger dhéwéké padha ora boyong maring Medinah, merga dhéwéké kabéh dépadhakna karo wong musrik liyané.
+
+[^213]: Ayat kiyé dadi dhasar hukum suaka.
+
+[^214]: Ora mbalani lan wis nganakna sesrawungan karo wong-wong muslimin.
+
+[^215]: Uga démaksud wong sing padha ngucapna kalimah Laa ilaaha illallah.
+
+[^216]: Wong kuwé urung genah Islamé tumrap wong akéh, ko uga padha kaya kuwé gemiyén.
+
+[^217]: Wong-wong Islam Mekah sing ora gelem boyong bareng Kanjeng Nabi s.a.w, mangkané dhéwéké kabéh jané sanggup. Dhéwéké kabéh détindhes lan dépeksa neng wong kapir kon mélu bareng dhéwéké lunga maring Perang Badar; akhiré neng antarané dhéwéké kabéh ana sing mati (kenang panah) neng peperangan kuwé.
+
+[^218]: Miturut tapsir umum, tegesé qasar kuwé sembayang sing patang rekangat dédadékna rong rekangat.
+
+[^219]: Miturut sebagéan akéh juru tapsir, angger wis rampung serekangat, terus dérampungna serekangat maning dhéwékan, lan Kanjeng Nabi lenggah nunggu klompok sing nomer loro.
+
+[^220]: Rekangat sing sepisanan, lan rekangat pindhoné uga padha dérampungi dhéwék lan dhéwéké kabéh ngrampungi sembayang bareng-bareng Kanjeng Nabi s.a.w.
+
+[^221]: Carané sembayang khauf kaya kesebut neng ayat 102, kiyé délakokna neng kahanan sing kira-kira ésih bisa délakoni. Angger kahanané ora bisa, mangka sembayang kuwé délakokna sebisa-bisané, senajan mung karo ngucapna tasbéh (ucapan subhanallah).
+
+[^222]: Ayat kiyé lan sewetara ayat seterusé déturunaken gandhéng sangkut karo laku maling sing délakokna déning Tu’mah lan dhéwéké ngumpetna barang colongané neng umahé wong Yahudi. Tu’mah ora ngakoni penggawéyané kuwé, malah ndakwa sebeneré sing nyolong barang kuwé wong Yahudi. Prekara kiyé déwadulna déning sedulur-seduluré Tu’mah maring Kanjeng Nabi s.a.w, lan dhéwéké padha nyuwun supayané Kanjeng Nabi mbélani Tu’mah lan ngukum wong Yahudi mau, Ning dhéwéké padha ngerti jan-jané sing nyolong barang kuwé Tu’mah. Nabi s.a.w, pribadhi méh baé mbenerna dakwanané Tu’mah lan seduluré ingatasé wong Yahudi.
+
+[^223]: Asal maknané tembung inasan kuwé wadon-wadon. Reca-reca brehala sing désembah neng wong Arab Jahiliyah kuwé biasané déarani karo aran-aran wadon, umpamané al-Lata, al-Uzza lan Manah. Bisa uga tegesé wong-wong mati, barang-barang sing ora keton lan barang-barang sing ora duwé daya.
+
+[^224]: Neng kabéh menungsa ana daya nggo temindak apik, uga ana daya nggo temindak ala. Sétan arep nggunakna daya kuwé nggo gawé ala, nggo nyilakani menungsa.
+
+[^225]: Miturut peprecayaé wong Arab jahiliyah, kéwan-kéwan sing arep nggo korban maring reca brehala, kudu dépotong kupingé dhisit, lan kéwan sing kaya kiyé ora olih nggo détunggangi lan ora kena dénggo ngapa-apa lan kudu déculna maning.
+
+[^226]: Ngowahi ciptanané Gusti Allah bisa ateges ngowahi apa sing décipta déning Gusti Allah kayadéné ngebiri kéwan. Ana sing napsiri karo ngowahi agamané Gusti Allah.
+
+[^227]: “mu” neng kéné ana sing napsiri kaum Muslimin lan ana uga sing napsiri kaum musrikin. Maksudé ganjaran neng akhérat ora kaya angen-angen lan kekarepané dhéwéké kabéh, ning patrap karo pepesthén agama.
+
+[^228]: Waca An-Nisa (4): 2 lan 3
+
+[^229]: Miturut adat Arab jahiliyah, sewiji wali nguwasani wong wadon yatim sing dadi rumatané, lan ngewasani bandhané. Agger wadon yatim kuwé ayu rupané, banjur débojo lan déjikot bandhané. Angger wong wadon yatim kuwé ala rupané déalang-alangi kawin karo wong lanang liya supayané bisa ngewasani bandhané. Ayat kiyé nglarang adat kuwé.
+
+[^230]: Deleng tegesé nusyuz tumrap wong wadon neng cathetan An-Nisa (4) : 34. Nusyuz tumrap wong lanang kuwé temindak keras maring bojo, ora gelem ngembuli lan ora gelem awéh apa sing dadi haké.
+
+[^231]: Kaya wong wadon nrima sewetara haké dékurangi asal lanangé gelem becik maning.
+
+[^232]: Wateké menungsa kuwé ora gelem ngeculna bagéan haké maring wong liya kanthi rila atiné, senajan kaya kuwé angger bojo ngrilakna sebagéan haké, mangka sing lanang kena nampani.
+
+[^233]: Kanthi cara mbukak wadi-wadiné wong mukmin lan mbutulna théthék-bengéké maring wong kapir, utawa angger dhéwéké perang neng péhaké wong mukmin dhéwéké goli perang ora temekan ati.
+
+[^234]: Gusti Allah ngejorna dhéwéké neng pengakon precaya, mula kuwé dhéwéké déladheni kaya ngladheni para mukmin. Sewetara kuwé Gusti Allah wis nyedhiakna neraka nggo dhéwéké minangka dadi piwales apus-apusé dhéwéké kuwé.
+
+[^235]: Dhéwéké sembayang mung kalan-kalan, yakuwé angger dhéwéké ana neng ngarepé wong.
+
+[^236]: “Ngapiki awak” tegesé nyambet gawé sing apik nggo ngilangna ngakibat sing ala lan kesalahan sing kelakon.
+
+[^237]: Maringi ganjaran ingatasé amal kawula-Né ngampura kesalahané, nambahi nékmat-É.
+
+[^238]: Wong sing kenang aniaya olih ngajokna maring hakim utawa penguwasa ala-alané wong sing nganiaya.
+
+[^239]: Precaya maring Gusti Allah, ora precaya maring utusan-utusan-É.
+
+[^240]: Reca anak sapi kuwé dégawé sekang emas nggo désembah
+
+[^241]: Dina Sabat kuwé dina Setu, dina sing mligi nggo wong Yahudi.
+
+[^242]: Kelakuan-kelakuan kuwé nglaknati dhéwéké, dhéwéké désamber gludhug, rikala dhéwéké dadi kethek.
+
+[^243]: Dhéwéké ngarani Isa putrané Maryam kuwé utusané Gusti Allah mung nggo ngécé, merga wong-wong kuwé dhéwék ora precaya kenabiané Isa a.s.
+
+[^244]: Ayat kiyé minangka bantahan ingatasé anggepané wong Yahudi, lamon dhéwéké wis padha merjaya Nabi Isa a.s.
+
+[^245]: Saben wong Yahudi lan Nasrani rikala pérek mati arep padha precaya maring Nabi Isa a.s lan ngakoni seurungé Penjenengané séda, lamon Penjenengané kuwé utusané Gusti Allah, udu putrané Gusti Allah. Ning precayaé dhéwéké kuwé wis kasép.
+
+[^246]: Gusti Allah dhawuh langsung maring Nabi Musa a.s ngetonaken istiméwané slirané, lan mula kuwé Nabi Musa a.s désebut kalimullah. Éwadéné utusan-utusan sing liya déparingi wahyu sekang Gusti Allah lantaran Malaékat Jibril. Anadéné Nabi Muhammad s.a.w nglakon pangendikan langsung karo Gusti Allah neng wektu wenginé isro’-mi’raj.
+
+[^247]: Aja ngasi ko kabéh ngomongna nabi Isa.as kuwé Pengéran, kayadéné wong nasrani
+
+[^248]: Maksudé kalimah (sabda) yakuwé “kun”, dadiné Nabi Isa a.s déciptakna tanpa rama.
+
+[^249]: Désebut semprongan (sebulan) sekang Gusti Allah merga semprongan kuwé sekang Gusti Allah.
+
+[^250]: Malaékat sing ana neng sekubeng ‘Arsyi, kaya Jibril, Mikail lan Israfil.
+
+[^251]: Kalalah, kuwé wong mati sing ora ninggalna rama lan anak.
+
+[^252]: Janji neng kéné janji tuhu (manut-miturut) kawula maring Gusti Allah lan janji sing dégawé déning menungsa neng jeroné sesrawungan sepadhané.
+
+[^253]: Syi’ar-syi’ar kesuciane Gusti Allah yakuwé kabéh amalan sing délakoni mung sejeroné ibadah haji kaya tata cara nglakokna thawaf lan sa’i, lan panggonan-panggonané nglakoni kaya ka’bah Safa lan Marwa.
+
+[^254]: Wulan haram yakuwé Dzulkaidah, Dzulhijjah, Muharram lan Rajab. Neng wulan-wulan kuwé délarang nglakoni perang.
+
+[^255]: Hadyu, yakuwé kéwan sing désembeléh nggo ngganti (dam) pegawéan  wajib sing détinggalna. Utawa nggo dhendha merga nglanggar bab-bab sing délarang nglakokna neng jerone ngibadah  haji.
+
+[^256]: Qolaid yakuwé kéwan hadyu sing déwéhi kalung supayané déngerténi wong lamon kéwan kuwé wis dékanggokna nggo dégawa maring ka’bah
+
+[^257]: Maksudé karo kanugrahan yakuwé kebegyan sing déparingi Gusti Allah sejeroné lelungan  ngibadah haji. Anadéné karenané Gusti Allah yakuwé ganjaran ngibadah  haji
+
+[^258]: Getih sing metu sekang awak, kayadéné désebutna neng Al An’am (6) : 145
+
+[^259]: Kéwan sing ketekek (kendhat), sing dégebug, sing tiba, sing désrudug lan sing décengkerem kéwan galak kuwé halal angger konangan ésih urip lan ésih bisa désembeléh seurungé mati.
+
+[^260]: Al-azlam tegesé jemparing (anak panah – Ind.) sing urung nganggo wulu. Wong Arab jahiliyah nganggo barang kuwé nggo nemtokna apa dhéwéké arep nglakoni sewiji pegawéan apa ora. Carané : dhéwéké njikot jemparing telu sing urung nganggo wulu, sewisé détulisi dhéwék-dhéwék yakuwé karo “lakonana” karo “aja lakonana”, lan sing nomer telu ora détulisi apa-apa. Jemparing telu kuwé désogna neng sewijiné wadhah lan dédelah neng njero Ka’bah. Angger dhéwéké arep padha nglakoni sewiji penggawéyan mangka dhéwéké njaluk supayané juru kunci Ka’bah njikot jemparing siji kuwé. Dhéwéké arep nglakoni utawa ora nglakoni penggawéyan kuwé manut maring tulisan sing ana neng jemparing sing déjikot. Angger sing kejikot jemparing sing ora nana tulisané, ngogané débaléni maning.
+
+[^261]: Sing démaksud karo dina kiyé yakuwé, wektuné haji wada’, haji pungkasan sing délakoni déning Nabi Muhammad s.a.w.
+
+[^262]: Désekolihi mangan panganan sing déharamna neng ayat kiyé angger kepeksa.
+
+[^263]: Kéwan buron sing décekel déning kéwan galak (contoné alap-alap sing délatih nyekel manuk) mligi nggo wong sing ngingu lan kéwan galak kuwé ora mangan kéwan buroné semendhing-mendhinga.
+
+[^264]: Ana sing duwe penemu,  wong-wong wadon sing bébas.
+
+[^265]: Lara sing ora olih kenang banyu
+
+[^266]: Nyénggol miturut teges sing umum yakuwé “sénggolan kulit”. Ning miturut sebagéan juru tapsir, yakuwé “kembulan karo bojo”.
+
+[^267]: Janji arep ngrungokna lan mélu Nabi neng sejeroné apa baé sing déikrarna wektu bai’ah (prasetia).
+
+[^268]: Nyumbangna bandha nggo netepi kewajiban kanthi ati sing iklas.
+
+[^269]: Ngowahi maksud tembung-tembung, panggonan utawa nambahi lan ngurangi.
+
+[^270]: Cahya, maksudé Nabi Muhammad s.a.w lan kitab maksudé Al-Qur’an.
+
+[^271]: Tanah Palestina kuwé détemtokna déning Gusti Allah nggo kaum Yahudi selagi dhéwéké padha precaya lan manut maring Gusti Allah.
+
+[^272]: Para ahli tapsir ngucap, arané Qabil lan Habil.
+
+[^273]: Yakuwé merjaya (maténi) wong udu merga qisas.
+
+[^274]: Hukum kiyé ora mung ngenani Bani Israil baé, ning uga ngenani menungsa sekabéhané. Neng ngarsané Gusti Allah merjaya (maténi) wong siji padha karo merjaya sekabéh menungsa, kaya kuwé uga sewaliké.
+
+[^275]: Nugel tangan tengen lan sikil kiwé, lan angger nglakoni kejahatan sepisan maning mangka détugel tangan kiwé lan sikil tengen.
+
+[^276]: Wong-wong Yahudi banget seneng ngrungokna omongan-omongan pendhitané  sing goroh, utawa banget seneng ngrungokna dhawuh-dhawuh/ngendikané Nabi Muhammad s.a.w. Nggo débutulna maring pendhita-pendhita lan kanca-kancané wong-wong mau nganggo cara sing ora jujur.
+
+[^277]: Wong-wong mau banget seneng ngrungokna omongan-omongané pemimpin-pemimpine sing goroh sing urung tau ketemu karo Nabi Muhammad s.a.w. Merga banget wadheh maring slirane  utawa banget senengé ngrungokna pengendikané Nabi Muhammad s.a.w nggo débutulna kanthi ora jujur maring kanca-kancané.
+
+[^278]: Kayadéné dhuwit sogok lan sepadhané.
+
+[^279]: Wong-wong sing nuruti kitab Injil kuwé déwajibna mutus (ngukumi) prekara miturut apa sing déturunaken déning Gusti Allah neng jero kitab Injil kuwé, nganti tekan wektuné déturunaken Al-Qur’an.
+
+[^280]: Wong sing ora mutusna prekara karo hukumé Gusti Allah ana telung werna: a). Merga wadheh lan ingkaré maring hukumé Gusti Allah, wong sing kaya kiyé kapir (Al-Maidah (5) 44). b). Merga mélu hawa napsu lan gawé tuna maring wong liya déarani dolim (aniaya), (Al-Maidah (5) 45) c). Merga pasék kayadéné sing ana jeroné ayat 47 surat kiyé.
+
+[^281]: Al-Qur’an kiyé dadi ukuran nggo nemtokna bener lan orané ayat-ayat sing déturunaken senjeroné kitab-kitab seurungé.
+
+[^282]: Umaté Nabi Muhammad s.a.w lan umat-umat seurungé.
+
+[^283]: Wong-wong Yahudi sing nglanggar kemulyané dina Sabat (deleng Al-Baqarah (2) : 65).
+
+[^284]: Maksudé yakuwé medhit.
+
+[^285]: astané Gusti Allah ora padha karo tangan menungsa (mahluk).
+
+[^286]: Gusti Allah bakal paring welas-asih sekang langit kanthi nurunaken udan, nukulna wit-witan sing wohé rémbél-rémbél.
+
+[^287]: Ora nana wong sijia sing bisa merjaya (maténi) Nabi Muhammad s.a.w.
+
+[^288]: Perjanjian kuwé isiné, wong-wong mau precaya maring Gusti Allah lan utusan-utusan-É.
+
+[^289]: Lamon Nabi Isa a.s. lan biyungé kuwé menungsa biasa, sing butuh apa sing débutuhna menungsa liya, kayadéné mangan, nginum lan sepadhané.
+
+[^290]: Kéwan buron padha sing olih dépangan utawa ora, kejaba manuk gaok, manuk dok, ketunggéng, sremet lan asu galak. Neng sewiji riwayat klebu uga ula.
+
+[^291]: Sing dégawa nganti butul tanah haram nggo désembeléh neng kono lan dagingé déwéhna maring fakir miskin.
+
+[^292]: Sepadhané karo rega kéwan ingon nggenténi kéwan sing dépaténi kuwé.
+
+[^293]: Puasa sing jumlah dinané seakéhé mud (takeran) sing déwéhna maring fakir miskin, serega kéwan sing dépaténi, carané wong siji fakir miskin olih siji mud (luwih kurang 6,5 ons).
+
+[^294]: Maténi kéwan seurungé temurun ayat sing ngaramna kiyé.
+
+[^295]: Kéwan buron segara sing olihé nganggo dalan usaha kayadéné mancing, njaring lan sepadhané. Klebu pengertén segara yakuwé kali, tlaga, blumbang lan sepadhané.
+
+[^296]: Iwak utawa kéwan segara sing goli olih kanthi gampang merga wis mati kemambang utawa nggletak neng kisik segara lan sepadhané.
+
+[^297]: Ka’bah lan seubengé dadi panggonan sing aman tumrapé menungsa nggo nglakoni urusan-urusan sing ana gandhéng-cenengé karo dunya lan akhérat, lan pusaté ngibadah haji.
+
+[^298]: Bahirah: onta wadon sing wis manak ping lima lan anak sing nomer lima kuwé lanang. Banjur onta wadon kuwé déiris kupingé, déumbar, ora kena détunggangi maning lan ora kena déjikot banyu susuné.
+
+[^299]: Sa’ibah: onta wadon sing déjorna lunga maring endi baé merga sawijiné nadar, kaya dené, angger sewijiné wong Arab jahiliyah arep nglakoni sawiji-wiji utawa lelungan sing ngrekasa, mangka dhéwéké biasané gawé nadar arep ndadékna ontané sa’ibah angger maksudé utawa lelungané kasil lan slamet.
+
+[^300]: Washilah: sewiji wedhus gémbél wadon manak kembar lanang lan wadon, mangka sing lanang kiyé déarani wasilah, ora kena désembeléh lan kudu dépasrahna maring brehala.
+
+[^301]: Ham: onta lanang sing ora kena déganggu-ganggu maning, merga wis bisa gawé meteng onta wadon ping sepuluh. Perlakon maring bahirah, saibah, wasilah, lan ham kiyé kepercayané wong Arab jahiliyah.
+
+[^302]: Nglakoni cidra (ora bares) neng persekséné dhéwéké lan kiyé nembé konangan sewisé dhéwéké nglakoni sumpah.
+
+[^303]: Sumpah kuwé débalékna, maksudé sumpahé seksi-seksi sing sejen agama kuwé détolak karo sumpahé seksi-seksi, yakuwé sekang sanak-sedulur utawa wong-wong sing sumpah kuwé bakal olih piwales neng dunya lan akhérat, merga nglakoni sumpah palsu.
+
+[^304]: “ayat” neng kéné tegesé mukjizat utawa ayat Al-Qur’an utawa kedadéan-kedadéan sing ana neng ngalam sing mbuktikna kewasané Gusti Allah.
+
+[^305]: Nggo nggenahna  lamon Nabi Muhammad s.a.w kuwé  nabi temen.
+
+[^306]: Umpama déturunaken malaékat maring wong-wong kaé, mangkané dhéwéké padha ora precaya, mesthi dhéwéké bakal désiksa déning Gusti Allah, nganti wong-wong mau mati kabéh.
+
+[^307]: Angger Gusti Allah ngutus malaékat dadi Rasul mesthi Gusti Allah ngutus dhéwéké wujud menungsa, merga menungsa ora bisa weruh malaékat, lan wong-wong mau mesthi uga bakal ngucap, “Kiyé udu malaékat, ning menungsa kayadéné dhéwék.” Wong-wong mau bakal tetep mamang.
+
+[^308]: Gusti Allah wis janji, minangka wujud lomané Penjenengané bakal nglubéri welas-asih maring kabéh sing décipta (makhluk-É).
+
+[^309]: Sebagéan juru tapsir nepsiri Kitab kuwé Lauh Mahfuz sing tegesé nasibé kabéh makhluk wis detulis (détetepna) neng Lauh Mahfuz. Lan ana uga sing nepsiri Al-Qur’an, maksudé neng Al-Qur’an kuwé wis ana pokok-pokok agama, aturan-aturan, hukum-hukum, hikmah-hikmah lan tuntunan murih begyané menungsa neng dunya lan akhérat.
+
+[^310]: Wektu Rasulullah s.a.w. Lagi lenggahan bareng karo sewetara wong mukmin sing déanggep asor lan mlarat déning kaum Quraisy, teka para pemimpin Quraisy arep wicara karo Kanjeng Nabi, ning dhéwéké padha ora gelem njagong bareng karo wong mukmin mlarat kuwé, lan dhéwéké padha usul supayané wong-wong mukmin mlarat kuwé déurak baé, dadi dhéwéké kabéh bisa wicara karo Kanjeng Nabi, banjur temurun ayat kiyé.
+
+[^311]: Mesthi Gusti Allah nurunaken siksa maring ko kabéh nganti ko padha sirna
+
+[^312]: Siksa sing teka sekang ndhuwur contoné udan watu, samberan bledhég, lan liya-liyané. Sing teka sekang ngisor contoné lindhu, blabur, lan liya-liyané.
+
+[^313]: Gusti Allah nerangna tandha-tandha kewasa-Né neng werna-werna rupa karo cara sing gonta-ganti. Ana uga juru tapsir sing negesna ayat kiyé karo ayat-ayat sing wujudé pengéling-éling, crita-crita, aturan hukum, lan liya-liyané.
+
+[^314]: Sebagéan juru tapsir nerangna lamon sing dégorohna mau yakuwé Al-Qur’an.
+
+[^315]: Maksudé yakuwé syirik
+
+[^316]: Neng antarané juru tapsir  ana sing napsirna lamon sing démaksud abihi (ramané) yakuwé pamané.
+
+[^317]: Sewisé dedhéngna déning Gusti Allah maring Nabi Ibrahim tetenger keagungan-E lan tambah teguh precayaé maring Gusti Allah (ayat 75), mangka Nabi Ibrahim a.s mimpin kaumé maring tauhid kanthi ngetutna ngalam pikirané wong-wong mau.
+
+[^318]: Nggo pesemon maring wong-wong kesasar kayadéné dhéwéké déanggep bocah cilik sing urung duwé nalar.
+
+[^319]: Neng antarané juru tapsir ana sing duwé penemu sing démaksud “papan manggon” yakuwé balung sulbiné ramané lan “papan simpénan” yakuwé gua garba (rahimé) biyung. Lan ana uga sing ngarani papan manggon yakuwé neng dhuwur bumi wektu menungsa ésih urip lan panggonan simpénan yakuwé neng njero bumi (kuburan) wektu menungsa wis mati.
+
+[^320]: Dhéwéké ngucap lamon  Gusti Allah duwé anak kaya wong Yahudi ngucap Uzair putrané Gusti Allah, lan wong-wong musrik ngomong lamon malaékat anak wadoné Gusti Allah. Dhéwéké padha ngomong kaya kuwé sebab bodho.
+
+[^321]: Sapa wongé ngerténi sing bener lan nglakoni kebagusan, lan olih pituduh, mula uwis butul maring puncaké kesenengan.
+
+[^322]: Wong musrik sumpah, angger teka sekang Gusti Allah mukjijat,dhéwéké bakal precaya, sebab kuwé wong mukmin njaluk maring Nabi supayané Gusti Allah nurunaken mukjijat sing démaksud kuwé. Gusti Allah nolak kekarepané wong-wong mukmin mau karo ayat kiyé.
+
+[^323]: Penemu sebagéan mufasir Akabiramujrimiha tegesé yakuwé penjahat-penjahat gedhé.
+
+[^324]: Jin (sétan) wis kasil ngapusi menungsa lan mélu krisikané, lan ngrasakna werna-werna kenékmatan dunya.
+
+[^325]: Dériwayatna lamon kasil tanduran lan kéwan ingon sing dhéwéké sedhiakna nggo Gusti Allah, dhéwéké wéhna maring fakir, miskin, lan ngamal sosial malah maring brehala. Lan sing nggo brehala-brehala, déwéhna maring sing njaga brehala ora nggo fakir, miskin, utawa ngamal sosial. Padatan kuwé délaknat déning Gusti Allah.
+
+[^326]: Sebagéan wong Arab nganut saréngaté Nabi Ibrahim. Nabi Ibrahim a.s nglakon  dépréntah Gusti Allah ngorbanaken putrané Ismail. Banjur pemimpin-pemipin agamané wong-wong mau padha mblangsakna tegesé kurban kuwé, saéngga bisa awéh kawruh lamon maténi anak kuwé apik kanthi alesan nggo dhépé-dhépé maring Gusti Allah, mangkané alesan sebeneré yakuwé merga dhéwéké padha wedi mlarat lan wedi kewirangan.
+
+[^327]: Sing démaksud kéwan duwé kuku kuwé kéwan-kéwan sing jenthik-jenthiké ora misah sing siji karo sing liyané, kayadéné: onta, bébék, banyak, lan liya-liyané. Sebagéan juru tapsir negesi kéwan sing duwé kuku kaya jaran, keledai, lan liya-liyané.
+
+[^328]: Sing débenerna déning saréngat kayadéné qisas, maténi wong murtad, rajam, lan liya-liyané.
+
+[^329]: Kayadéné syirik, ngubengi Ka’bah karo wuda lan liya-liyané.
+
+[^330]: Pepaés sekang Gusti Allah lan panganan sing apik kuwé bisa dérasakna neng dunya kiyé déning wong sing precaya lan wong sing ora precaya, lan neng akhérat mbésuk mung mligi nggo wong sing padha precaya.
+
+[^331]: Tegesé penyuwunan lan ngamalé dhéwéké ora détampa déning Gusti Allah.
+
+[^332]: Tegesé dhéwéké ora gadhang mlebu suwarga kayadéné ora gadhangé onta mlebu maring bolongan dom.
+
+[^333]: Pilenggah neng ndhuwur ‘Arsy yakuwé sewiji sipaté Gusti Allah sing wajib déprecayai, kayadéné ingatasé keagungané Gusti Allah lan kesuciané Penjenengané.
+
+[^334]: Dhéwéké padha gagiyan sujud maring Gusti Allah merga precaya sing bener pengajéké Nabi Musa a.s. Lan udu sihir kaya sing dhéwéké padha nyana seurungé.
+
+[^335]: Negari Syam lan Mesir lan negari-negari sekubengé sing nglakon dékuwasani déning Fir’aun gemiyén, sewisé kerajan Fir’aun rubuh negari-negari kuwé déwarisi neng Bani Israil.
+
+[^336]: Sing démaksud bangunan-bangunané Fir’aun sing déancurna déning Gusti Allah yakuwé bangunan-bangunan sing dédegna neng dhéwéké kanthi nganiaya Bani Israil, kayadéné kota Ramses, menara sing débangun Haman sekang préntahé Fir’aun.
+
+[^337]: Para juru tapsir ana sing duwé penemu, tegesé yakuwé agunge lan kuwasané Gusti Allah, lan ana uga sing nepsirna lamon sing keton kuwé sunaré Gusti Allah. Kaya apa baé ketoné Gusti Allah kuwé ora kaya ketoné makhluk, mung keton sing sepadhan karo sipat-sipaté Gusti Allah sing ora bisa déukur karo ukuran menungsa.
+
+[^338]: Lauh yakuwé pethilan sekang watu utawa kayu sing ketulis isi Taurat sing détampa déning Nabi Musa a.s. Sewisé tapa neng Gunung Sinai.
+
+[^339]: Utamakna sing wajib-wajib dhisit sekang sing sunah lan mubah.
+
+[^340]: Gusti Allah bakal ngetona negariné wong-wong sing pasék kaya Fir’aun, ‘Ad, Samud, lan liyané sing musnah bareng dhéwéké merga kejahatané lan kepasékané dhéwéké.
+
+[^341]: Dhéwéké padha gawé reca anak sapi sekang emas. Mufasir-mufasir duwé penemu lamon  reca kuwé tetep ora ora duwe  nyawa. Swara sing kaya sapi kuwé merga ana angin sing mlebu maring njero bolongan patung kuwé karo cara sing dékenal neng Samiri wektu kuwé lan sebagéan mufasir ana sing napsirna  patung sing dégawé kuwé banjur dadi awak sing duwe nyawa  lan duwé swara sapi
+
+[^342]: Apa ko ora sabar ngenténi tekané Inyong bali sewisé tapa (munajat) maring Pengéran, saéngga ko padha gawé reca pedhét nggo désembah kayadéné nyembah Gusti Allah.
+
+[^343]: Pegawéané dhéwéké gawé patung anak sapi lan nyembah kuwé  sewijining coba sekang Gusti Allah nggo nguji dhéwéké padha, sapa sing sebeneré kuwat precayaé lan sapa sing ésih mamang. Wong sing ora kuwat precayaé kuwé sing mélu Samiri lan nyembah reca pedhét kuwé. Ning wong-wong sing kuwat piandelé (precayaé), tetep neng peprecayaé (precayaé).
+
+[^344]: Neng saréngat sing dégawa neng Nabi Muhammad s.a.w. ora nana maning renggan sing abot sing dépikulna maring Bani Israil. Umpamané: nyaréngatna maténi awaké dhéwék nggo sempurnané tobat, wajib pidana pati ingatasé rajapati sing désengaja utawa ora tanpa olih mbayar diyat (dhendha), motong bagéan awak sing nglakoni keluputan, mbuwang utawa nggunting bujur sing kenang kotoran (najis).
+
+[^345]: Dhéwéké awéh pituduh lan nuntun karo pathokan maring pituduh lan tuntunan sing teka sekang Gusti Allah. Lan uga neng hal ngadili prekara, dhéwéké mesthi nggoléti keadilan karo pathokané maring pituduh lan tuntunané Gusti Allah.
+
+[^346]: Dhéwéké padha dépréntah ngucap, “Hittatun” (njaluk déluwarna sekang dosa) ning dhéwéké ngowahi karo ngenyék lan ngucapna, “hittun fi sya’irah” (tegesé gandum).
+
+[^347]: Kota Eilah, neng pesisir Laut Merah antarané Kota Madyan lan Gunung Sinai.
+
+[^348]: Manut aturan, dhéwéké ora kena nyambet gawé  neng dina Sabat, merga dina sabat kuwé mligi mung nggo ngibadah.
+
+[^349]: Alesan dhéwéké yakuwé dhéwéké uwis nglakoni dhawuhé Gusti Allah kon aweh pengéling.
+
+[^350]: Supaya wong-wong musrik kuwé aja ngucap lamon kaki-nininé gemiyén wis nyekuthokna Pengéran, lan dhéwéké ora ngerti babar pisan lamon nyekuthokna Pengéran kuwé luput, ora nana dalan maning nggo dhéwéké, mung tiru kaki-nininé sing nyekuthokna Pengérané. Merga kuwé dhéwéké nganggep dhéwéké ora patut désiksa merga keluputané kaki-nininé dhéwéké kabéh.
+
+[^351]: Aja dépikirna wong-wong sing nyembah Gusti Allah kanthi nyebut asma-asma sing ora padha karo sipat-sipat keagungané Gusti Allah, utawa kanthi nyebut asma-asma Asma’ul Husna ning maksudé nggo ngotori asmané Gusti Allah utawa nyebut Asma’ul Husna nggo jeneng-jeneng seliyané Gusti Allah.
+
+[^352]: Wong-wong musrik ndadékna sekuthon nggo Pengéran neng ciptanané anak kuwé maksudé anaké dhéwéké padha déanggep kewulané brehala sing dhéwéké sembah. Merga kuwé dhéwéké njenengi anak-anaké karo aran Abdul Uzza, Abdul Manat, Abdus Syam lan liya-liyané.
+
+[^353]: Ukara yabtisyun neng kéné détegesi sing keras, maksudé nempiling, ngrusak, nggebug sing rosa lan liyané.
+
+[^354]: Maca A’udzubillahiminasy-syaitanir-rajim.
+
+[^355]: Angger padha déwacakna Al-Qur’an inyong kabéh déwajibna ngrungokna lan nggatékna karo meneng, neng njero sembayang utawa neng njaba sembayang, kejaba neng sembayang bebarengan (jamangah), makmum kena maca surah Al-Fatihah dhéwék utawa ngrungokna thok wektu imam maca ayat-ayat Al-Qur’an.
+
+[^356]: kiyé salah sijiné ayat sajadah sing désunahna dhéwék sujud seuwisé wacané utawa ngrungu,nalika lagi sembayang utawa neng njaba sembayang. Sujud kiyé déjenengi sujud tilawah.
+
+[^357]: Nyebut sipat-sipat sing ngagungna lan mulyakna Penjenengané.
+
+[^358]: Miturut Al Maragi, Gusti Allah ngatur pembagéan bandha rampasan perang kanthi bener, kayadéné Gusti Allah ndhawuhi wong-wong kuwé lunga sekang umahé (neng Medinah) kon perang maring Badar kanthi bener uga. Miturut At Tabari, metu sekang umah maksudé perang.
+
+[^359]: Rombongan Abu Sufyan sing nggawa dagangan sekang Suriah. Lan kelompok sing duwé kekuwatan senjata yakuwé kelompok sing teka sekang Mekah sing dépimpin déning Utbah bin Rabi’ah bareng karo Abu Jahal.
+
+[^360]: Kiyé kedadéan neng sejeroné perang, nggon wadi sing gawé mati yakuwé gulu. Ning angger mungsuh nganggo klambi wesi, dadi angél dékalahna, mangka tangané sing délumpuhna, supayané ora bisa nyekel pedhama (senjata), kaya pedhang, tumbak, lan liya-liyané dadi gampang détahan.
+
+[^361]: Peumpaman neng njero ayat kiyé ora tegesé Gusti Allah ora ngerti, ning Gusti Allah Maha Ngerténi lamon neng dhéwéké ora nana kebagusan.
+
+[^362]: Ngundang (préntah) ko padha perang nggo ngegungna kalimaté Gusti Allah lan nguripna Islam lan muslimin. Uga tegesé ngundang ko kabéh maring precaya, pituduh, lelabuh (jihad), lan sekabéhané sing ana gandhéngé karo kebegyan neng dunya lan akhérat.
+
+[^363]: Bandha sing dépekolih sekang wong-wong kapir liwat perang, lan sing olih ora karo perang déjenengi fa’i, pembagéan kuwé neng ayat kiyé yakuwé sing gandhéngé karo bandha rampasan perang (gonimah) thok.
+
+[^364]: Sepralima sekang gonimah kuwé débagi maring: a) Gusti Allah karo Rasulé, b) Kulawargané Rasul (Bani Hasyim lan Bani Mutolib), c) bocah yatim, d) Wong mlarat, e) Ibnu Sabil, yakuwé wong sing lagi neng dalan, f) lan pat-pralima sekang gonimah kuwé débagi maring wong-wong sing padha mélu perang.
+
+[^365]: Dina ketemuné rong wadyabala neng perang Badar, dina Jemuah tangggal 17 Puasa taun Hijriyah. Sebagéan juru tapsir duwé penemu lamon ayat kiyé ngisaratna maring kawitané medhunné Al-Qur’anul Karim neng malem 17 Puasa.
+
+[^366]: Kaum muslimin wektu kuwé ana neng pinggir lebak (tanah endhép) sing pérek maring Medinah, lan wong-wong kapir ana neng pinggir lebak sing adoh sekang Medinah lan kafilah sing dépimpin neng Abu Sufyan ana neng pinggir kisik kurang lewih 5 mil sekang Badar.
+
+[^367]: Menangé kaum muslimin lan ancuré kaum musrikin.
+
+[^368]: Dhéwéké padha ora ngerti lamon perang kuwé kuduné nggo mbéla piandel (agama) lan manut dhawuhé Gusti Allah. Dhéwéké perang mung mligi nggo mbéla adat jahiliyah lan tujuan-tujuan dunya liyané.
+
+[^369]: Sulaya pendapat para juru tapsir masalah haji akbar, ana sing ngomongna dina nahar, ana sing ngomongna dina ‘arofah. Sing démaksud haji akbar neng kéné ya kuwé kedadéan taun kaping-9 hijriyah.
+
+[^370]: Sing démaksud wulan-wulan harom neng kéné kuwé mangsa pathang wulan sing déwéhna tempo maring wong-wong musrik kuwé, ya kuwé mulai 10 zulhijah (dina temuruné ayat kiyé), nganti 10 rabi’ul akhir.
+
+[^371]: Ora débenerna nglakoni haji lan umrah miturut sebagéan ahli tapsir, yakuwé kaum musrik mlebu tanah haram, mbuh nggo haji utawa umrah utawa keperluan liyané neng taun 9 hijriyah.
+
+[^372]: Dhéwéké kabéh nuruti ajaran wong-wong pinter lan pendhita-pendhitané kanthi apa anané, senajan wong-wong pinter kuwé lan para pendhitané ngongkon gawé dosa utawa nglarang apa sing désekolihi (halal).
+
+[^373]: Dhéwéké kabéh bakal sirna merga sumpah apus-apusé dhéwék.
+
+[^374]: Dhéwéké kabéh kepéngin merjaya Kanjeng Nabi.
+
+[^375]: Wong wadon, bocah-bocah, wong sing ora pideksa, wong sing pilara lan wong tuwa.
+
+[^376]: Jakat mbresihna dhéwéké kabéh sekang sipat medhit lan mata dunya.
+
+[^377]: Jakat nyuburna sipat-sipat apik neng njero atiné dhéwéké kabéh lan ngrembakakna bandhané.
+
+[^378]: Sing démaksud karo wong sing merangi Gusti Allah lan Utusan-É kawit gemiyén, yakuwé sewiji pendhita Nasrani sing jeneng Abu Amir sing dhéwéké padha ngenténi tekané wong sekang Syiria nggo nglakoni sembayang neng mesjid sing débangun neng dhéwéké, temuli nggawa tentara Romawi sing bakal merangi kaum muslimin. Ning Abu Amir ora sida teka, merga dhéwéké mati neng Syiria. Lan mesjid sing débangun neng kaum munapék kuwé dérubuhna kanthi dhawuhé Nabi. Ngepasi karo wahyu sing détampa sewisé kondur sekang perang Tabuk.
+
+[^379]: Nganti dhéwéké kabéh mati. Ana sing napsirna lamon dhéwéké kabéh ora bisa tobat maning.
+
+[^380]: Ana uga sing napsirna karo wong sing padha puasa.
+
+[^381]: Sewiji kawula ora bakal désiksa déning Gusti Allah kur sebab kesasaré. Kejaba angger kawula kuwé nerjang dhawuh-dhawuh sing wis déjelasna.
+
+[^382]: Ka’b bin Malik, Hilal bin Umayyah, lan Maroroh bin Rabi’. Dhéwéké kabéh désalahna merga ora gelem mélu perang.
+
+[^383]: Prenyakit batin, kayadéné mbangkang (kufur), lamis (munapék), mamang lan liyané.
+
+[^384]: Kalimah kiyé painan maring wong sing nyembah reca, sing déarani lamon reca-reca kuwé bisa awéh pitulung neng ngersané Gusti Allah.
+
+[^385]: Katetepané Gusti Allah yakuwé angger pasulayane menungsa neng dunya kuwé bakal députusna neng akhérat.
+
+[^386]: Bumi sing éndah karo gunung-gunung lan tanah-tanah lebak wis ijo karo tanduran-tandurané.
+
+[^387]: Wong-wong sing nyembah brehala kuwé sebeneré udu nyembah brehala, ning nyembah hawa nefsuné dhéwéké, merga hawa nefsuné dhéwéké kabéh sing ngakon nyembah brehala.
+
+[^388]: Sebagéan ayat-ayat Al-Qur’an kuwé nerangna kanthi terwaca (rinci) hukum-hukum sing wis désebutna uga neng njero Al-Qur’an kuwé.
+
+[^389]: Tegesé dhéwéké padha keton nggatékna apa sing déwaca déning Kanjeng Nabi lan apa sing déwulangna, ning atiné dhéwéké kabéh ora nrima.
+
+[^390]: Tegesé nyekséni tandha-tandha kenabianmu, ning dhéwéké kabéh jan-jané ora ngakoni.
+
+[^391]: Sebagéan juru tapsir ana sing ngartekna asarru kanthi “ngetonaken”.
+
+[^392]: Sing deslametna neng Gusti Allah kuwé jasad (awak wadhage). Miturut sejarah, sewisé Fir’aun kerem, mayidé minggir maring kikis segara detemokna neng wong-wong Mesir terus debalsem, mula wutuh nganti siki lan bisa dédeleng neng musium Mesir. Seterusé deleng Al-Baqarah (2):50
+
+[^393]: Dejlentreh dadi pirang-pirang werna, ana sing ngenani tauhid, hukum, cerita, akhlak, ngélmu, janji, pepénget lan liya-liyané, detata sesurat-sesurat, seayat-seayat lan seterusé.
+
+[^394]: Ngumpetna rasa mungsuhan lan lamisé (munapék) dhéwéké kabéh maring Nabi Muhammad s.a.w.
+
+[^395]: Miturut sebagéané para juru tapsir, sing démaksud karo “nggon netep ” neng kéné kuwé dunya, lan “nggon simpénan” yakuwé akhérat. Lan miturut sebagéan juru tapsir liyané, maksudé ”nggon netep” yakuwé balung sulbi, lan “nggon simpénan” yakuwé rahim.
+
+[^396]: Ana sing napsirna seksi kuwé malekat Jibril, Al-Qur’an utawa Kanjeng Nabi Muhammad.
+
+[^397]: Maksudé para seksi yakuwé malaékat, nabi-nabi lan perangane awaké dhéwék.
+
+[^398]: Maksudé, dhéwéké kabéh usaha supaya wong liya ngingkari agama sing bener.
+
+[^399]: Jeneng putrané nabi Nuh as, sing kapir kuwé Qan’an, lan putra-putrané sing precaya kuwé Sam, Ham, Jafis.
+
+[^400]: Yakuwé Gusti Allah wis ngleksanakna janjiné karo maténi wong sing kapir maring nabi Nuh as lan nylametna wong sing precaya.
+
+[^401]: Gunung Judi ana neng Armenia sisih kidul, watesan karo Mesopotamia
+
+[^402]: Menungsa depapanakén neng dunya (bumi) supayané ngewasani lan makmuraken dunya kuwé.
+
+[^403]: Penggawéané dhéwéké  padha nyembeléh onta kuwé sewijiné planggaran maring larangané Nabi Saleh. Merga kuwé Gusti Allah nibakna maring dhéwéké kabéh ukuman yakuwé matesi uripé dhéwéké kabéh mung neng wektu telung dina, mangka minangka simbingan, dhéwéké kabéh dékongkon seneng-seneng sedawané telung dina.
+
+[^404]: Kaya kuwé sigrané dhéwéké deajurna déning bledhég mau, mulané dhéwéké padha ajur-mumur tanpa tilas, kaya-kaya dhéwéké kabéh ora nglakon ana.
+
+[^405]: Nabi Lut krasa susah merga tekané para utusané Gusti Allah kuwé merga dhéwéké kabéh wujud bujang sing bagus-bagus. Kaum Lut dhemen banget maring bujang-bujang sing bagus nggo nglakoni homo seksual (lanang dhemen lanang, wadon dhemen wadon). Lut krasa ora sanggup ngreksa tamuné angger ana gangguan sekang wong-wong kuwé.
+
+[^406]: Ucapan  kiyé dhéwéké padha ucapna nggo ngenyék Nabi Syuaib a.s.
+
+[^407]: Kiyé tetembungan sing maksudé nggenahna kelanggengané dhéwéké kabéh neng njero neraka selawasé. Ngalam akhérat uga duwé langit lan bumi.
+
+[^408]: Sekirané ora nana ketetepan nundha siksa nggo dhéwéké kabéh nganti dina Kiyamat mesthi dhéwéké uga dépaténi rikala wektu kuwé.
+
+[^409]: Dadi wong kecing sing uripé ora nana regané.
+
+[^410]: Wong sekang Mesir sing tuku Yusuf kuwé sewijiné penggedhé Mesir, Al-Aziz, biasa dengerténi kanthi jeneng Qitfir. Neng sebagéan kitab tapsir désebutna jeneng bojoné, Rail lan ana uga sing nyebut Zulaiha utawa Zaliha. Ning riwayat sing nyebutna jeneng-jeneng kuwé ora bisa détanggungjawabna.
+
+[^411]: Ayat kiyé ora nidhokna lamon Nabi Yusuf a.s. duwé kekarepan sing ala maring wong wadon kuwé, ning godhané kuwé gedhé banget nganti sekirané slirané ora dekuwatna karo precaya maring Gusti Allah SWT, mesti slirané mlebu maring kemaksiyatan.
+
+[^412]: Miturut riwayat rong pemuda kuwé ya kuwé babu-babuné raja, sewijiné babu sing ngurusi inuman raja lan sijiné maning tukang nggawé roti.
+
+[^413]: Sing démaksud kahanan ya kuwé penemuné wong-wong wadon kuwé maring Yusuf apa dhéwéké kegodha karo godaan kuwé utawa ora.
+
+[^414]: Miturut sejarah kedadéan mangsa paceklik neng Mesir lan neng seubengané, mangka kanthi dhawuhé Nabi Yaqub a.s. sedulur-seduluré Yusuf teka sekang Kan’an maring Mesir ngadhep penggedhé-penggedhé Mesir nggo njaluk banah panganan.
+
+[^415]: Miturut akéh-akéhé juru tapsir barang-barang sekang sedulur-seduluré Nabi Yusuf a.s. sing nggo dadi alat ijol bahan pangan kuwé yakuwé lumping utawa trompah.
+
+[^416]: Temindak kiyé détrapna minangka réka-réka kanthi cara nandur pekerti maring dhéwéké, kon mengkoné padha  gelem mbalik maning maring Mesir kanthi nggawa Bunyamin.
+
+[^417]: Sewijiné wadhah sing dégawé sekang emas sing dégunakna nggo nginum lan bisa uga nggo naker.
+
+[^418]: Miturut saréngaté Nabi Yakub a.s sapa wongé nyolong mangka ukumané dedadikna budhak (batur tukon) setahun.
+
+[^419]: Yakuwé nganakna sambung silaturahim lan peseduluran
+
+[^420]: Gusti Allah nyasarna: wong kuwé nyasar merga ingkar lan ora gelem mahami ayat-ayat-É Gusti Allah
+
+[^421]: Wong Yahudi lan Nasrani sing wis mlebu Islam.
+
+[^422]: Neng saben-saben mangsa ana hukum sekang Gusti Allah sing tematrap ingatasé kawula-kawulané miturut kersané Penjenengané
+
+[^423]: Ulama-ulama Ahli kitab sing mlebu Islam.
+
+[^424]: Al-Qur’an déturunaken kambi Basa Arab, ora banjur détegesi Al-Qur’an mung nggo wong Arab tok, ning nggo kabéh menungsa.
+
+[^425]: Kedadéan-kedadéan sing wis kelakon ingatasé kaum-kaum gemiyén uga nékmat lan siksa sing paha déalami dhéwéké kabéh.
+
+[^426]: Tegesé slamet sekang sekabéh bebaya
+
+[^427]: Klebu tembung sing apik yakuwé tembung (kalimah) tauhid, yakuwé kabéh ucapan sing ajek-ajek maring prekara apik lan ngalangi prekara sing mungkar lan uga penggawéyan sing apik. Tembung tauhid, kaya tembung La ilaha illallah.
+
+[^428]: Klebu tembung sing ala yakuwé kufur, syirik, kabéh omongan sing ora apik lan penggawéyan sing ora apik.
+
+[^429]: Sing dékarepna sekang ucapan sing teguh neng kéné yakuwé tembung apik sing désebutna neng ayat 24 ndhuwur.
+
+[^430]: Ayat-ayat-É (saréngaté) Gusti Allah sing kukuh kaya gunung.
+
+[^431]: Kalimah kiyé déucapna neng wong-wong kapir Mekah nggo ngina maring Nabi Muhammad.
+
+[^432]: Ayat kiyé awéh jaminan ingatasé suciné lan murniné Al-Qur’an selawas-lawasé.
+
+[^433]: Sunnatullah neng kéné yakuwé numpes wong sing nggorohna rasul.
+
+[^434]: Kabéh kuwé sumberé sekang Gusti Allah. Khazanah bisa détegesi gudhang.
+
+[^435]: Lamuk, tanduran (ketemuné tepung sari karo putik neng kembangé tanduran), lan liya-liyané.
+
+[^436]: Sujud neng kéné udu maksudé nyembah, ning minangka ngormati.
+
+[^437]: Kota Sodom sing ana neng péreké Laut Tengah.
+
+[^438]: Wong-wong kuwé padha kepéngin nglakoni homo seksual (lanang dhemen lanang) kambi dhayoh-dhayoh mau (sing jané malaékat) lan pancén dhéwéké wis padha nglakon ngancam Lut supayané aja ngalang-alangi dhéwéké padha nglakoni penggawéyan kaya kuwé.
+
+[^439]: Wong Arab kulina supata karo umuré wong. Neng kéné Gusti Allah supata karo umur utawa uripé Nabi Muhammad nggo mulyakna penjenengané.
+
+[^440]: Wong-wong Aikah kuwé kaumé Nabi Syuaib. Aikah kuwé panggonan sing ana alasé neng tlatah Madyan.
+
+[^441]: Yakuwé kotané kaum Lut (Sodom) lan Aikah.
+
+[^442]: Wong-wong kota Hijr yakuwé kaum Samud. Hijr kuwé nggon sing anané neng Wadi Qura antarané Medinah lan Suriah.
+
+[^443]: Sing démaksud para utusan neng kéné yakuwé Nabi Saléh. Mestiné neng kéné désebuté rasul, ning désebutna para utusan (jamak) merga nggorohna siji utusan padha karo nggorohna kabéh utusan.
+
+[^444]: Kedadéan kuwé ana neng dina kepapat, sewisé tekané aban-aban maring wong-wong mau.
+
+[^445]: Sing démaksud pitung ayat sing débolan-baléni yakuwé surat Al-Fatihah sing kesungsun sekang pitung ayat. Sebagéan juru tapsir ngarani pitung surat sing dawa yakuwé Al-Baqarah, Ali Imran, Al-Maidah, An-Nisa’, Al-A’raf, Al-An’am lan Al-Anfal utawa At-Taubah.
+
+[^446]: Wong-wong sing nampa sebagéan isiné Kitab lan nolak sebagéan sing liya.
+
+[^447]: Yakuwé wong Yahudi lan Nasrani sing mbagi Al-Qur’an, ana bagéan sing dhéwéké padha precaya lan nana uga sing dhéwéké padha ingkari.
+
+[^448]: Dina Kiyamat sing wis déancamna maring wong musrik.
+
+[^449]: Bagal kuwé pranakané jaran karo keledai.
+
+[^450]: Para malaékat, nabi-nabi lan wong sing padha precaya.
+
+[^451]: Mati neng kahanan suci sekang kufur lan maksiyat, utawa uga kena détegesi wong-wong kuwé mati neng kahanan seneng merga ana werta bebungah sekang malaékat angger wong-wong kuwé arep mlebu suwarga.
+
+[^452]: Yakuwé tekané malaékat nggo njabud nyawané.
+
+[^453]: Yakuwé tekané siksa sekang Gusti Allah nggo numpes wong-wong kuwé.
+
+[^454]: Yakuwé wong sing duwé kawruh ngenani nabi lan kitab-kitab.
+
+[^455]: Yakuwé préntah, larangan, aturan, lan liya-liyané sing ana neng Al-Qur’an.
+
+[^456]: Miturut sebagéan ahli tapsir, takhawwuf tegesé kahanan wedi.
+
+[^457]: Wong-wong mau ngucap lamon Gusti Allah duwé anak wadon yakuwé malékat-malaékat merga wong-wong mau wadhéh banget maring anak wadon kaya sing kesebut neng ayat sewisé.
+
+[^458]: Maksudé peumpaman kiyé nggo mbantah wong musrik sing madhakna Gusti Allah sing maringi rejeki karo brehala-brehala sing ora bisa ngapa-ngapa.
+
+[^459]: Maksudé Nabi Muhammad  s.a.w ora bisa awéh tuntunan lan pituduh maring sewiji wong sing njalari wong kuwé dadi precaya.
+
+[^460]: Sing démaksud sekuthon yakuwé apa sing désembah seliyané Gusti Allah utawa sétan sing ajék nyembah maring brehala.
+
+[^461]: Peprecaya lamon Gusti Allah duwé sekuthon lan sekuthon kuwé bisa awéh pitulung (sapangat) maring wong-wong kuwé seliyané Gusti Allah.
+
+[^462]: Wong-wong Islam sing cacahé ésih semendhing wis nganakna janji sing kuwat karo Nabi Muhammad s.a.w rikala padha weruh wong Quraisy sing cacahé akéh lan pengalamané cukup, banjur metu kepénginan nggo mbatalna janji maring Nabi Muhammad s.a.w. Mangka penggawéyan kuwé délarang déning Gusti Allah.
+
+[^463]: Ayat kiyé nerangna lamon wong lanang lan wong wadon miturut Islam olih ganjaran sing padha lan lakon bagusé kudu débarengi karo precaya.
+
+[^464]: Basa ‘Ajam kuwé basa seliyané basa Arab lan uga bisa détegesi basa Arab sing ora apik, merga wong sing déarani mulang Nabi Muhammad s.a.w kuwé udu wong Arab lan mung ngerti semendhing basa Arab.
+
+[^465]: Kencot lan wedi kuwé nibani wong-wong mau kayadéné klambi nutupi awaké dhéwéké kabéh.
+
+[^466]: Deleng Al-An’am (6): 146
+
+[^467]: Wong sing cekelan maring prekara sing bener lan ora tau ninggalna.
+
+[^468]: Ngormati dina Setu yakuwé kanthi ngakéhna ngibadah lan temindak sing bagus, uga ninggalna pegawéan pedinan.
+
+[^469]: Hikmah yakuwé ucapan sing tegas lan bener sing bisa mbédakna antarané sing bener hak lan sing luput.
+
+[^470]: Masjidil Aqsa lan tlatah sekubengé olih berkah sekang Gusti Allah merga temuruné nabi-nabi neng negari kuwé lan merga suburé lemahé.
+
+[^471]: Ngucapna tembung “ah” maring wong tuwa ora déolihna neng agama apa maning ngucapna tembung utawa temindak maring wong tuwa lewih kasar sekang kuwé.
+
+[^472]: Maksudé angger ko padha ora bisa nglakoni dhawuhé Gusti Allah kaya sing désebut neng ayat 26 mangka ucapna maring wong-wong kuwé ucapan sing apik supayané wong-wong kuwé ora keciwa merga urung olih pitulung sekang ko kabéh. Lan ko padha ngupayakna nggo olih rejeki (rahmat) sekang Pengéranmu, sing marakna ko bisa ngewéhna maring wong-wong kuwé hak-haké.
+
+[^473]: Deleng catetan al-An’am (6): 15
+
+[^474]: Kekuwasan neng kéné yakuwé ahli waris sing mati utawa penguwasa sing nuntut Qisas utawa nerima diyat. Deleng Al-Baqoroh ayat 178 lan An-nisa ayat 92
+
+[^475]: Kabéh larangan sing désebut neng ayat 22, 23, 26, 29, 31, 32, 33, 34, 36, lan 37 surat kiyé.
+
+[^476]: Apa sing déucapna neng wong-wong kuwé minangka pengéran yakuwé brehala, malaékat, jin, lan liya-liyané.
+
+[^477]: Angger Nabi Muhammad s.a.w nganti déurak neng wong-wong Mekah mesthi dhéwéké padha ora arep suwé urip neng dunya, lan Gusti Allah bakal numpes wong-wong Mekah kuwé. Boyongé Nabi Muhammad s.a.w maring Medinah udu merga urakané wong-wong Quraisy, ning mung merga dhawuhé Gusti Allah.
+
+[^478]: Ngimpi kuwé terjemah sekang tembung Ar-Ru’ya sing démaksud ayat kiyé yakuwé ngimpi bab perang Badar sing déalami Rasulullah s.a.w seurungé kedadéané Perang Badar. Uga akéh ahli tapsir nerjemahna tembung Ar-Ru’ya karo tembung peningal sing tegesé, peningalan sing déalami Rasulullah s.a.w rikala Isra’ lan Mi’raj.
+
+[^479]: Angger nganti kedadéan Nabi Muhammad s.a.w detundhung déning wong Mekah, mesthiné dhéwéké kabéh ora bakal suwé urip neng dunya, lan Gusti Allah arep numpes dhéwéké kabéh. Boyonge  Nabi Muhammad s.a.w maring Medinah udu merga détundhung déning kaum Quraysi, ning merga préntahé Gusti Allah.
+
+[^480]: Maksudé saben-saben umat sing ngurak Rasul mesti arep déancurna déning Gusti Allah. Kaya kuwé sunnah (ketetepané) Gusti Allah swt.
+
+[^481]: Ayat kiyé nerangna wektu sembayang sing lima. Lingsiré srengéngé nggo wektu sembayang Zuhur lan Asar, petengé wengi nggo wektu Magrib, Isya, lan Subuh.
+
+[^482]: Njaluk maring Gusti Allah supayané awaké dhéwék kabéh mlebu maring ngibadah lan rampung sekang kelawan niyat sing apik lan iklas lan bresih sekang riya lan sekang apa baé sing ngrusak ganjaran. Ayat kiyé uga ngisaratna maring Nabi supayané hijrah sekang Mekah maring Medinah. Lan uga ana sing napsirna njaluk maring Gusti Allah supayané dhéwék kabéh mlebu kubur kanthi apik lan uga metu wektu dina berbangkit kanthi apik.
+
+[^483]: Mukjizat sing sanga yakuwé teken, tangan, walang, tuma, kodok, getih, angin topan, segara, lan gunung (Sinai).
+
+[^484]: Ora nana neng njero Al-Qur’an teges sing lawanan lan ora nana sing nyimpang sekang prekara sing bener.
+
+[^485]: Raqim, sebagéan ahli tapsir negesna jenengé asu lan sebagéan negesna watu sing ana tulisané.
+
+[^486]: Gusti Allah nurokna wong-wong nom kuwé suwéné 309 taun qomariyah neng njero guwa. Tiliki ayat 25 surat kiyé, nganti wong-wong kuwé ora bisa détangékna déning sewara apa baé.
+
+[^487]: Golongan loro kuwé wong-wong enom kuwé lan sing pesulayan ngenani sepira suwéné olihé manggon neng guwa.
+
+[^488]: Menyat lan ngadep Raja Dikyanus sing dolim lan sombong.
+
+[^489]: Ucapan kiyé antarané wong-wong kuwé dhéwék merga anané wisik (ilham) sekang Gusti Allah
+
+[^490]: Sing dadi pesulayan yakuwé bab dina Kiyamat, apa arep kedadén utawa ora lan apa iya menungsa olihé détangékna neng dina Kiyamat karo jasad lan rohé utawa rohé thok. Mangka Gusti Allah nemokna wong-wong mau karo “ahli guwa” neng crita kiyé nggo nggenahna lamon dina Kiyamat mesthi bakal teka lan menungsa olihé détangékna neng dina Kiyamat kuwé raga karo rohé.
+
+[^491]: Ahli Kitab lan liyané neng jamané Nabi Muhammad s.a.w.
+
+[^492]: Miturut riwayat, ana wong Quraisy sing takon maring Kanjeng Nabi Muhammad s.a.w ngenani roh, critané Ashabul Kahfi (wong sing manggon neng guwa) lan critané Zulkarnaen banjur kiyambeké njawab, tekaa ngésuk maring sliraku supayané tek critakna maring ko. Lan kiyambeké ora ngendika Insya Allah (tegesé angger Gusti Allah ngersakna). Ning nyatané ngasi dina ésuké wahyu ora temurun kanggo nyritakna prekara-prekara mau lan Kanjeng Nabi ora téyéng njawab. Mula temurun ayat 23-24 kuwé ndhuwur, dadi piwulang maring Kanjeng Nabi. Gusti Allah uga ngémutna lamon Kanjeng Nabi kesupén nyebut Insya Allah kudu gagiyan nyebut bar-baré.
+
+[^493]: Maring wong mukmin lan wong kapir
+
+[^494]: Wong Yahudi loro sing siji mukmin lan sing siji kapir.
+
+[^495]: Miturut ahli tapsir, miturut hadis, kawula neng kéné yakuwé Khidir, lan sing démaksud rahmat neng kéné yakuwé wahyu lan kenabian. Lan sing démaksud karo ilmu yakuwé ngeneni prekara  sing gaib kaya sing arep déterangna neng ayat seterusé.
+
+[^496]: Butul maring pinggir segara sisih kulon, neng nggon Zulkarnaén weruh srengéngé lagi surup.
+
+[^497]: Miturut sebagéan juru tapsirr, golongan sing détemoni Zulkarnaén kuwé umat sing mlarat.
+
+[^498]: Wong-wong kuwé ora téyéng mahami basané wong liya, jalaran basané adoh banget bédané sekang basa sing liya, lan wong-wong kuwé ora téyéng nerangna maksudé merga kurang cerdas.
+
+[^499]: Yakjuj lan Makjuj kuwé bangsa loro sing gawé rusak neng bumi.
+
+[^500]: Ora precaya maring anané dina Kiyamat
+
+[^501]: Sinaoni Taurat kuwé, ngamalna isiné lan butulna maring umatmu.
+
+[^502]: Pemahaman Taurat lan nemen ngudi kawruh  agama.
+
+[^503]: Sewisé sekabéhé ngalam musnah, mangka mung Gusti Allah sing langgeng.
+
+[^504]: Nabi Ibrahim a.s. yakuwé Nabi sing banget gelisé olihé mbeneraken kabéh prekara sing gaib sing teka sekang Gusti Allah.
+
+[^505]: Sebagéan ahli tapsir duwé penemu lamon sing démaksud “Ahlahu” yakuwé kulawargané, lan sebagéan duwé penemu umaté.
+
+[^506]: Ndawakna umur lan ngejorna wong-wong kesasar mau urip seneng-seneng.
+
+[^507]: Gusti Allah bakal njikot maring bandha lan anak-anaké, nganti dhéwéké nemoni Gusti Allah dhéwékan.
+
+[^508]: “Nganakna janjian karo Gusti Allah” yakuwé nglakoni sekabéh préntahé Gusti Allah kanthi precaya lan takwa maring Penjenengané.
+
+[^509]: Sipaté Gusti Allah sing wajib Inyong kabéh precayai, cocog karo agungé Gusti Allah lan sucine
+
+[^510]: Maksudé ayat kiyé yakuwé ora perlu nyerokna sewara rikala nyenyuwun merga Gusti Allah midhanget donga senajan déucapna kanthi sewara lirih.
+
+[^511]: Nabi Musa nyuwun maring Gusti Allah supayané dhadhané dejembarna nggo ngadhepi Fir’aun sing kewentar dadi raja sing kejem.
+
+[^512]: Saben wong sing nyawang Nabi Musa a.s. bakal krasa melas maring dhéwéké.
+
+[^513]: Sing dépaténi yakuwé sewijiné wong bangsa Qibti sing lagi gelut karo Bani Israil kayadéné sing deriwayatna neng njeroné surat al-Qasas (28) : 15.
+
+[^514]: Nabi Musa a.s. teka maring negari Madyan nggo mlayu, neng kana dhéwéké dejodhokna déning Nabi Syuaib a.s. Karo salah sijiné anak wadoné lan netep pirang-pirang taun lawasé.
+
+[^515]: Bani Israil, wektu dhéwéké padha neng Mesir dadi budhaké Fir’aun. Wong-wong kuwé depaksa kerja ngedegna bangunan-bangunan sing gedhé lan kota-kota. Mangka Nabi Musa njaluk maring Fir’aun supayané wong-wong mau débébasna.
+
+[^516]: Paring akal, insting (naluri) lan kodrat gawan nggo nerusna uripé dhéwék-dhéwék.
+
+[^517]: Sing démaksud tandha-tandha neng kéné yakuwé tandha-tandha dadi kenabiné Musa a.s. Neng ketemuné Nabi Musa a.s. karo Fir’aun kiyé, mung deketokna nembé loro mukjijat, yakuwé teken Nabi Musa a.s. dadi ula lan tangané dadi putih mencorong.
+
+[^518]: Nggebug segara kuwé karo teken. Waca Asy-Syu\`ara (26) : 63.
+
+[^519]: Wong-wong mau dékongkon nggawa pepaés sekang emas duwéké wong-wong Mesir, banjur déning Samiri dépréntah supayané pepaés kuwé debalangna maring geni sing wis deurubna neng njeroné sewijiné bolongan nggo dédadékna reca wujudé pedhét (anak sapi). Banjur wong-wong kuwé mbalangna lan depeloni uga déning Samiri.
+
+[^520]: Waca cathetan Al-A\`raf (7) : 148.
+
+[^521]: Sing démaksud “tilasé utusan” neng kéné yakuwé piwulang-piwulangé. Miturut maring paham kiyé, Samiri njikot sebagéan wulangané Musa banjur debuwang wulangan-wulangan kuwé, dadiné dhéwéké kesasar. Miturut sebagéan ahli tapsir, sing démaksud “tilasé utusan” yakuwé tilas tlapak sikilé jarané Jibril a.s, tegesé Samiri njikot segegem lemah sekang tilas tlapak jaran kuwé banjur debalangna maring njeroné tosan sing wis deremuk dadiné tosan kuwé mujud pedhét (anak sapi) sing bisa moni.
+
+[^522]: Supaya Samiri urip mencil, minangka ukuman neng dunya. Lan minangka ukuman neng akhérat, dhéwéké bakal dédelah neng neraka.
+
+[^523]: Desemprongé slomprét (sangkakala) sing ping pindhoné, yakuwé semprongan nggo nangékna menungsa sekang kuburané utawa nguripna maning.
+
+[^524]: Wong sing jejeg pikirané utawa ngamalé neng antarané wong-wong sing dosa.
+
+[^525]: Nabi Muhammad s.a.w. decegah neng Gusti Allah nirokna wacanané Jibril, kalimah sekalimah seurungé Jibril a.s. rampung olihé macakna, supayané Nabi Muhammad ngapalna lan mahami nyata-nyata ayat sing duturunaken.
+
+[^526]: Wélingané Gusti Allah kiyé désebut sejeroné Al-Baqarah (2) : 35.
+
+[^527]: Sing démaksud “durhaka” neng kéné yakuwé nglanggar larangané Gusti Allah merga klalen, lan ora sengaja, kaya sing désebutna neng ayat 115 surat kiyé. Lan sing démaksud “sesat” yakuwé nuruti apa baé sing dekrisikna déning sétan. Keluputané Adam a.s. ora patiya gedhé miturut ukurané menungsa biasa wis désebut duraka lan sasar, merga dhuwuré drajat Adam a.s. lan nggo dadi tuladha kanggo wong gedhé lan pemimpin-pemimpin supayané ngadohi tindakan-tindakan sing délarang ora kejaba sing cilik-cilik.
+
+[^528]: Maksudé: Gusti Allah milih Nabi Adam a.s. nggo dadi wong sing pérek maring Pengérané.
+
+[^529]: Maksudé sihir neng kéné yakuwé ayat-ayat Al-Qur\`an.
+
+[^530]: “sekang ngarsané Ingsun” yakuwé sing cocog karo sipat-sipaté Gusti Allah.
+
+[^531]: Ngarani lamon Gusti Allah kagungan garwa lan putra.
+
+[^532]: Ucapan-ucapan kuwé déucapna déning Nabi Ibrahim a.s. neng ati thok. Maksudé, Nabi Ibrahim a.s. arep nindakna réka dayané nggo ngremuk brehala-brehalané wong-wong kuwé, sewisé dhéwéké padha padha lunga sekang panggonané brehala mau.
+
+[^533]: Negari Syam, klebu neng njeroné Palestina. Gusti Allah mberkahi negari kuwé, tegesé akéh-akéhé nabi asalé sekang negari kiyé lan lemahé uga subur.
+
+[^534]: Homosék (lanang dhemen lanang, wadon dhemen wadon) lan bégal, lan wong-wong nglakoni penggawéyan kuwé kanthi ngedhéng.
+
+[^535]: Miturut  Ibnu Abbas, ana sekumpulan wedhus wis ngrusak tanduran wektu wengi kuwé. Sing duwé tanduran madulna prekara kuwé maring Nabi Dawud a.s. Dhéwéké awéh putusan, lamon wedhus-wedhus kuwé kudu depasrahna maring sing duwé tanduran minangka dadi gantiné tanduran sing rusak. Ning Nabi Sulaiman a.s. awéh putusan supaya wedhus-wedhus kuwé depasrahna mung sewetara maring sing duwé tanduran nggo déjikot pigunané. Lan sing duwé wedhus kudu ngganti tanduran kuwé nganggo tanduran sing anyar. Nek tanduran sing anyar wis bisa depanen kasilé, sing duwé wedhus  olih njikot wedhusé maning. Putusané Nabi Sulaiman a.s. sing lewih sreg.
+
+[^536]: Neng njero wetengé iwak, neng segara, lan neng wektu wengi.
+
+[^537]: Sekirané Gusti Allah ora nyembadani penyuwuné, yakuwé paring keturunan, Zakaria masrahna awaké maring Gusti Allah, merga Gusti Allah yakuwé ahliné marisna sing paling apik.
+
+[^538]: Kabéh kitab sing déturunaken déning Gusti Allah maring nabi-nabi-Né. Sebagéan ahli tapsir mertélakna lamon “Zabur” yakuwé kitab sing déturunaken maring Nabi Dawud a.s., déné “Az-Zikr” yakuwé kitab Taurat.
+
+[^539]: Ora kanthi yakin
+
+[^540]: Mbalik kapir maning.
+
+[^541]: Tembung sama’ neng kéné détegesi trutug (pyan utawa plapon umah). Angger sama\` détegesi langit (arti sing biasa), mangka terjemahané dadi: angger mungsuhé Muhammad s.a.w jéngkél krana dhéwéké ulih pitulungan sekang langit, jorna baé wong-wong mau ngulur tali maring langit, lan sawang apa bisa wong-wong mau medhot pitulungan kuwé nganggo cara sing wis kesebut? Kanthi tembung liya, bodho banget wong-wong kuwé angger padha ngira wong-wong mau bisa medhot pitulungané Gusti Allah kanthi cara sing cupet kuwé.
+
+[^542]: Dina riyaya haji lan dina Tasrék, yakuwé tanggal 10, 11, 12 lan 13 Zulhijah.
+
+[^543]: Sing démaksud karo tembung “ngilangna guluh” neng kéné yakuwé ngethok rambut, ngethok kuku lan sepadhané
+
+[^544]: Arti hurumat (sing déormati) neng ayat kiyé yakuwé wulan haram (Muharam, Rajab, Zulkaidah, Zulhijah), bumi haram, lan makamé Ibrahim.
+
+[^545]: Syiar-É Gusti Allah yakuwé sekabéh pegawéan sing délakokna sejeroné ngibadah kaji lan panggonan-panggonan nglakoniné.
+
+[^546]: Tiliki Al-Baqarah (2) : 196.
+
+[^547]: Maksudé kéwan-kéwan hadyu kena ndéjikot manpangaté kayadéné détunggangi, deperes susuné, lan sepadhané nganti dina nahar.
+
+[^548]: Biasané onta désembeléh selagi kéwan kuwé ngadeg.
+
+[^549]: Sebagéan ahli tapsir negesi tamanna karo “maca” lan umniyyatihi “wacanané”. Yakuwé angger Nabi s.a.w maca sewijiné ayat sing isiné awéh pengéling-éling maring wong-wong kapir, dhéwéké padha nirokna wacanané Nabi s.a.w kanthi tambahan tembung-tembung sing mbenerna keyakinané dhéwéké.
+
+[^550]: Budhak-budhak sing ana neng sejeroné perang karo wong kapir, udu budhak sing ana neng senjabané perang agama, sing siki wis ora nana maning.
+
+[^551]: Sebagéan menungsa mati, lan sebagéan liya délairna.
+
+[^552]: Kaya kuwé alané pungkasané wong-wong kuwé, nganti dhéwéké padha ora duwé daya semendhing-mendhinga, ora béda kaya runtah sing dekélikna banjir, mangkané wong-wong kuwé awaké gedhé lan kuwat.
+
+[^553]: Mukjijaté Nabi Musa a.s. sing ana sangang werna.
+
+[^554]: Bahaya kencoten. Kaum musrik nglakon ngalami kencoten, merga ora tekané banah panganan sekang Yaman maring Mekah, aridené Mekah lan sekubengé kahanané peceklik, nganti banget mlaraté wektu semana.
+
+[^555]: Setengah saking kalahé wong-wong mau neng Perang Badar sing neng perang kuwé wong-wong sing dadi penggedhé sekang wong-wong mau akéh sing dépaténi utawa détawan, lan mangsa garing sing déalami wong-wong mau, nganti wong-wong mau padha ngrasakna kencoten.
+
+[^556]: Deancam kanthi dinané détangékna.
+
+[^557]: Barzakh yakuwé panggonan utawa kahanané wong sewisé mati nganti dhéwéké détangékna neng dina Kiyamat.
+
+[^558]: Ora patut wong sing precaya umah-umah karo tukang jinah, semana uga sewaliké
+
+[^559]: Maksudé ayat 6-7 kuwé, wong sing ndakwa nglakoni jinah kanthi ora nekakna seksi wong papat, kuduné sumpah kanthi nyebut asmané Gusti Allah lamon dhéwéké sing bener neng dakwané kuwé. Sebanjuré dhéwéké sumpah sepisan maning lamon dhéwéké bakal kenang laknaté Gusti Allah angger dhéwéké goroh. Prekara kiyé neng pekih (ilmu fiqih) déarani li\`an.
+
+[^560]: Warta goroh kiyé ngenani garwané Rasulullah s.a.w. \`Aisyah r.a. Ummul Mukminin, sewisé perang Badar karo Bani Mustoliq neng wulan Sadran 5 H. Perang antarané kaum munapék lan uga \`Aisyah karo Nabi s.a.w, dhasaré undhian sing deanakna neng antarané garwa-garwané Nabi. Neng dalan lagi baliné sekang perang wong-wong kuwé padha mandheg neng sijiné panggonan. \`Aisyah r.a. metu sekang sekedhupé merga ana sewijiné perlu, terus mbalek maning. Ijig-ijig dhéwéké krasa kalungé ilang, terus dhéwéké lunga maning nggoléti kalung. Sewetara kaya kuwé rombongané mangkat kanthi sangka lamon \`Aisyah r.a. ésih neng njeroné sekedhup. Sewisé \`Aisyah ngerti sekedhupé wis mangkat, dhéwéké lenggah neng panggonané lan ngarep-arep sekedup kuwé mbalek marani dhéwéké. Kebeneran liwat neng panggonan kuwé sijiné sahabaté Nabi, Safwan ibnu Mu\`attal, sing weruh ana sisjiné wong lagi saré dhéwékan lan dhéwéké kaget kelawan ngucap, “Inna lillahi wa inna ilaihi raji\`un, garwané Rasul!” \`Aisyah r.a. wungu. Terus dhéwéké demanggakna déning Sofwan nitih ontané. Safwan mlaku nuntun onta nganti butul maring Medinah. Wong-wong sing weruh dhéwéké padha ngomong-omongna nganggo penemuné dhéwék-dhéwék. Kawit ana kabar-kabur. Sebanjuré wong-wong munapék nggedhék-nggedhékna kabar kuwé, dadiné pitnah ingatasé \`Aisyah kuwé tambah ngambra-ambra, nganti ndadékna oregé kaum muslimin.
+
+[^561]: Sing démaksud wong-wong wadon sing limpi yakuwé wong-wong wadon sing ora tau sepisan-pisanan éling maring kelakuané sing ala.
+
+[^562]: Ayat kiyé nudhuhna suciné \`Aisyah r.a. Lan Safwan sekang sekabéh penyana sing dedakwakna maring dhéwéké kabéh. Rasulullah kuwé wong sing paling apik, mulané wadon sing apik uga sing dadi garwané kiyambeké.
+
+[^563]: “Bolongan sing ora tedhas” (misykat) yakuwé sijiné bolongan neng tembok umah sing ora tedhas nganti maring sisihé, biasané nggo wadhah diyan, utawa barang-barang liya.
+
+[^564]: Wit zaitun kuwé thukulé neng pucuk gunung, kuwé ulih soroté srengéngé neng wektuné srengéngé mlethék utawa arep surup, dadiné wité lemu lan wohé ngasilna lenga sing apik.
+
+[^565]: Sing maca tasbéh kuwé wong sing désebut neng ayat 37.
+
+[^566]: Wong-wong kapir, merga ngamal-ngamalé  padha ora dedhasari  precaya, ora pekolih piwales sekang Gusti Allah neng akhérat, senajan neng dunya wong-wong mau ngira arep olih piwales ingatasé ngamal-ngamalé kuwé.
+
+[^567]: Neng antarané sepadhané wong muslimin, lan antarané wong-wong muslimin karo sing udu muslimin.
+
+[^568]: Telung werna wektu sing biasané neng wektu-wektu kuwé awak akéh kebukak. Mula merga kuwé, Gusti Allah nglarang batur tukon (budak) lan bocah-bocah sing durung umur mlebu maring senthong turuné wong tuwa angger ora idin.
+
+[^569]: Anak-anaké wong merdhéka sing udu muhrim sing wis diwasa, kudu njaluk idin dhisit angger arep mlebu maring senthong turuné wong tuwané neng ayat 27 lan 28 surat kiyé.
+
+[^570]: Klambi njaba sing angger deudhari ora ngetonaken ngorat.
+
+[^571]: Umah sing déwéhna maring ko nggo deurusi.
+
+[^572]: Wong-wong sing ngarep-arep kemusnahan (ilang babar-pisan), supaya ucul sekang siksa sing banget gedhéné, yakuwé siksa  neng neraka sing banget panasé karo débanda, neng panggonan sing banget rupek uga, kayadéné sing dégambarna kuwé.
+
+[^573]: Sewisé wong-wong mau dékumpulna bareng-bareng karo apa sing dhéwéké padha sembah, yakuwé malaékat, Uzair, Nabi Isa a.s. Lan réca-réca, lan sewisé Gusti Allah nakokna maring sing désembah kuwé, apa dhéwéké padha sing nyasarna wong-wong mau utawané wong-wong mau sing sasar dhéwék, mangka sing désembah kuwé semaur lamon ora pantes tumrap dhéwéké nyembah seliyané Gusti Allah, apamaning kongkon wong liya nyembah seliyané Gusti Allah.
+
+[^574]: Tembung sing biasa déucapna neng wong Arab rikala ngadhepi mungsuh utawa coban sing ora bisa déindhani. Tembung kiyé tegesé, “moga-moga Pengéran ngedohna bebaya kiyé sekang inyong kabéh.”
+
+[^575]: Sing démaksud amalé dhéwéké neng kéné yakuwé amal-amalé sing apik-apik sing dhéwéké kabéh lakokna wektu neng dunya, amal-amal kuwé ora olih piwales déning Gusti Allah merga dhéwéké kabéh ora precaya.
+
+[^576]: Nyokoti jenthik loroné maksudé ngajog maring polahé.
+
+[^577]: Sing démaksud si Fulan, yakuwé sétan utawa wong sing wis nyasaraken neng dunya.
+
+[^578]: Maksudé: Al-Qur’an kuwé ora déturuaken sekabéhané/sewutuhé, tapi déturunaken kanthi mipil merga supaya atiné Nabi Muhammad s.a.w dadi kuwat lan mantep.
+
+[^579]: Rass yakuwé telaga sing wis garing banyuné banjur dédadékna aran salah sijiné kaum, yakuwé kaum Rass. Dhéwéké  padha nyembah reca, banjur Gusti Allah ngutus Nabi Syuaib a.s.
+
+[^580]: Maksudé: Layangan kuwé Ingsun busek alon-alon kaya surupé srengéngé cuk semendhing.
+
+[^581]: Musaharah tegesé peseduluran merga jejodhoan, Umpamané mantu,mertuwa, ipé lan seterusé.
+
+[^582]: Penyuwuné Musa, supayané Harun déangkat dadi utusan nggo mbantu dhéwéké.
+
+[^583]: Musa ngucap lamon dhéwéké dosa maring wong-wong Mesir yakuwé anggepané wong-wong Mesir . Merga sebeneré Musa ora duwé dosa sebab dhéwéké maténi wong Mesir kuwé ora sengaja. wacanen surat Al Qashas ayat 15.
+
+[^584]: Nabi Musa a.s. urip bareng Fir'aun kurang lewih 18 taun, kawit cilik.
+
+[^585]: Maksudé yakuwé tindakané Nabi Musa a.s. maténi wong Qibti. Wacanen surat Al Qashas ayat 15.
+
+[^586]: Maksudé: dhadhung-dhadhung lan teken-teken sing debalangna tukan sihir kuwé sing ketoné kaya-kaya dadi ula, kabéh ula-ula kuwé dépangan déning tekené Musa sing temen-temen dadi ula.
+
+[^587]: Wektu Fir'aun lan wadyabalané nyusul Musa lan Bani Israil, mangka dhéwéké kabéh wis metu sekang negariné lan ninggalna prajané, kesugihané lan liya-liyané.
+
+[^588]: Gusti Allah arep awéh maring Bani Israil praja sing kuwat, kerasulan lan liya-liyané.
+
+[^589]: Sing démaksud rombongan sing liya yakuwé Fir'aun lan sewadyabalané. Maksudé ayat kiyé yakuwé neng bagéan sing sigar kuwé Gusti Allah mérekna Fir'aun lan wadyabalné karo Musa lan Bani Israil.
+
+[^590]: warga Madyan, yakuwé umaté Nabi Syuaib a.s.
+
+[^591]: Maksudé. tukang guritan (penyair, tukang nulis singir) ana sing senengé dolanan karo tembung-tembung sing ora duwé karep sing apik, lan ora duwé ati sing mantep.
+
+[^592]: Nyéléhna tangan maring dhadha ngliwati gulu kelambi.
+
+[^593]: Nabi Sulaiman a.s. ngganténi kenabian lan keratoné Nabi Dawud a.s. uga marisi ngélmu lan Kitab Zabur sing déturunaken maring dhéwéké.
+
+[^594]: Hud-hud yakuwé sebangsané manuk platuk.
+
+[^595]: Saba’ yakuwé jeneng keraton neng jaman gemiyén, ibukotané Ma’rib, panggonané pérek kota San’a, sikiné dadi ibukotané Yaman.
+
+[^596]: Ratu Balqis sing mréntah keraton Sabaiyah neng jaman Nabi Sulaiman a.s.
+
+[^597]: Umpamané: Nurunaken udan sekang langit, nukulaken wit-witan, ngetokna wesi-wesi sekang bumi lan liya-liyané.
+
+[^598]: Kitab sing dekarepna neng kene yakuwé kitab sing déturunaken seurungé nabi Sualprecaya.a.s, yakuwé Taurat lan Zabur.
+
+[^599]: Balqis wis weruh kenabiané Sulaiman a.s, seurungé korsiné depindhah sekang negeri Saba’ maring Palestina sesuwéné sekedhépan mata.
+
+[^600]: Mitirut ahli tapsir, sing dekarepna karo kota kiyé yakuwé kota kaum Samud, yakuwé kota Al-Hijr.
+
+[^601]: Nabi Saléh a.s lan wong-wong sing padha mélu dhéwéké.
+
+[^602]: Maksudé fahisyah neng kéné yakuwé junub sing ora lumrah, klebu lanang karo lanang utawa wadon karo wadon.
+
+[^603]: Sing démaksud segara loro neng kéné yakuwé segara sing asin lan kali sing gedhé maring segara. Kali sing anyeb kuwé sewisé butul muara ora langung dadi asin.
+
+[^604]: Maksudé: wong-wong musrik Arab nggorohna ayat-ayat-É Gusti Allah tanpa dépikir ndisit.
+
+[^605]: Fir’aun kewatir terus prajané arep deancurna déning Bani Israil merga kuwé dhéwéké maténi anak-anak lanang sing lair sekang kaum Bani Israil. Ayat kiyé negesna arep ana kedadéan sing dekewatirna déning Fir’aun.
+
+[^606]: Sewisé biyungé Musa ngendhangaken Musa neng kali Nil, mangka krasa ngajog lan atiné mamang merga kewatir ingatasé keslametané Musa, malah méh baé dhéwéké nggembor njaluk tulung maring wong supaya njikot anaké maning, sing arep ndadékna kebukané wadi lamon Musa kuwé anaké dhéwéké.
+
+[^607]: Maksudé: Musa ngajog ingatasé matiné wong kuwé mau merga jotosané, merga dhéwéké ora duwé niyat maténi wong kuwé ning mung mbélani kaumé.
+
+[^608]: Sewisé Musa a.s. ngrampungna perjanjian karo Syu'aib a.s. dhéwéké mangkat bareng kulawargané lan pirang-pirang wedhus sing déwéhi déning mertuwané, mangka neng sewijiné wengi sing peteng dhédet lan adhem Musa a.s. butul neng salah siji panggonan ning saben dhéwéké ngurubna geni, geni kuwé ora bisa murub. Kedadéan kuwé banget gawé Musa krasa aneh mangka Musa ngucap maring bojoné kaya neng ayat 29 kuwé.
+
+[^609]: Neng panggonan lan wektu kuwé Musa a.s. molahi dedhapuk dadi rasul.
+
+[^610]: Nabi Musa a.s. seliyané ngrasa wedi maring Fir’aun uga ngrasa kurang lancar pengucapé ngadhepi Fir’aun. Mangka nyenyuwun supayané Gusti Allah ngutus Harun a.s bareng dhéwéké sing lewih lancar ngucapé.
+
+[^611]: Miturut sebagéan ahli tapsir, sing démaksud sihran yakuwé kitab taurat lan Al-Qur’an
+
+[^612]: Maksudé: sewisé dhéwéké kabéh ancur panggonan kuwé wis suwung lan ora demakmurna maning, banjur panggonan kuwé mbalik maring sing duwé hak yakuwé Gusti Allah.
+
+[^613]: Maksudé: wong sing déwéhi kanékmatan urip neng dunya ning ora denggo nggolét kesbecikan  urip akhérat, merga kuwé dhéwéké neng akhérat délebokna neraka.
+
+[^614]: Sing démaksud: seksi neng kéné yakuwé rasul sing déutus maring dhéwéké sawetara wektu.
+
+[^615]: Karun yakuwé salah sijiné anak pamané  Nabi Musa a.s.
+
+[^616]: Yakuwé suwarga
+
+[^617]: Maksudé panggonan nggo bali neng kéné yakuwé kota Mekah. Kiyé sewijiné janjiné Gusti Allah, Nabi Muhammad s.a.w. arep bali maring Mekah dadi wong sing menang, lan kiyé wis kedadéan wektu taun kaping wolu hijriyah rikala Nabi naklukna Mekah. Kiyé uga salah sijiné mukjijaté Nabi.
+
+[^618]: Maksudé, wong kuwé wedi karo aniaya-aniayané wong liya maring dhéwéké merga precayaé, kaya wediné maring siksané Gusti Allah, merga kuwé precayaé détinggal.
+
+[^619]: Maksudé, dhéwéké kabéh nganggep reca-reca kuwé bisa awéh sapangat maring dhéwéké neng sisihé Gusti Allah, lan kiyé jan-jané goroh.
+
+[^620]: Gusti Allah nangékna menungsa sewisé mati neng akhérat.
+
+[^621]: Kanthi awéh anak putu sing apik, kenabian sing ora nana pedhoté maring keturunané, lan pengalembana sing apik.
+
+[^622]: Sebagéan musafir negesi taqta’unas sabil kanthi “nglakokna pegawéan clemer tumrap wong-wong sing sedawané lelungan”, merga dhéwéké padha sebagéan gedhé nglakoni njambu (lanang dhemen lanang) kuwé maring dhayoh-dhayoh sing teka maring désané. Ana maning sing negesi kanthi “ngrusak dalan keturunan” merga dhéwéké padha nglakoni njambu (homoseksual).
+
+[^623]: Warta menawa Nabi Ibrahim a.s arep kanugrahan putra.
+
+[^624]: Nabi Lut a.s ngrasa sedih arep teka utusan-utusané Gusti Allah merga arupa bocah nom sing ganteng, semana uga kaumé Lut dhemen maring bocah nom sing ganteng nggo nglakoni nepsuné (homoseksual). Lan dhéwéké ora sanggup awéh nglindungi angger ana bebaya sekang kaumé.
+
+[^625]: Lewihan-lewihané ambruké negari Sodom, negariné kaum Lut.
+
+[^626]: Wong-wong sing sewisé déwéhna maring dhéwéké keterangan-keterangan lan pertelan-pertelan kanthi cara sing paling apik, dhéwéké kabéh tetep mbantah lan mbangkang lan uga tetep nyatakna dadi mungsuh.
+
+[^627]: Ayat-ayat Al-Qur’an kuwé dejaga neng njero dhadha kanthi deapalna déning akéh wong muslim turun-temurun lan dépahami déning dhéwéké kabéh saéngga ora nana sewiji wong baé sing bisa ngubah Al-Qur’an.
+
+[^628]: Détetepna siksa kuwé neng dina piwalesan neng akhérat.
+
+[^629]: Kanthi murni taaté maring Gusti Allah.
+
+[^630]: Nggorohna kenabiané Nabi Muhammad s.a.w.
+
+[^631]: Romawi Wétan sing pusaté neng kota Konstantinopel.
+
+[^632]: Paling pérek maring negari Arab yakuwé Suriah lan Palestina.
+
+[^633]: Bangsa Romawi (rikala ayat kiyé temurun) dadi bangsa sing agamané Nasrani sing duwé Kitab Suci, anadéné Bangsa Persia (Iran) agamané Majusi sing nyembah geni lan brehala (musrik). Bangsa loro kuwé padha perang. Rikala ana kabar kalahé bangsa Romawi déning bangsa Persia, wong musrik Mekah padha bungah merga padha mehak musrik Persia. Anadéné wong Islam Mekah padha susah merga kuwé. Banjur temurun ayat kiyé lan ayat sing sebanjuré sing nerangna lamon bangsa Romawi sewisé kalah bakal menang neng jangkah sewetara taun baé. Kuwé temen kedadén. Sewetara taun sewisé kuwé bangsa Romawi menang lan bangsa Persia kalah, Kanthi kedadéan kuwé dadi nyata beneré Kanjeng Nabi Muhammad s.a.w, minangka Nabi lan Rasul lan bebeneré Al-Qur’an minangka sabdané Gusti Allah.
+
+[^634]: Antarané telu nganti sangang taun. Wektu antarané kalahé bangsa Romawi (taun 614-615 Masehi) karo menangé (taun 622 M) kuwé kira-kira pitung taun.
+
+[^635]: Miturut sebagéan juru tapsir, ayat kiyé détegesi, “....malah dhéwéké padha dadi kapir merga brehala-brehala.”
+
+[^636]: Maksudé maca tasbéh neng ayat 17 yakuwé sembayang. Ayat 17 karo 18 nerangna wektu sembayang sing lima.
+
+[^637]: Peumpman kuwé nggambarna lamon ora pantes anané sekuthon neng antarané perangan-angan sing ora sepadhan, contoné antarané majikan karo kewula, apa maning antarané mahluk karo Gusti Allah, mesthi lewih ora pantes maning.
+
+[^638]: Fitrahé Gusti Allah maksudé ciptanané Gusti Allah. Menungsa déciptakna déning Gusti Allah duwé naluri precaya maring agama yakuwé agama sing nyewijikna Gusti Allah. Angger ana menungsa sing ora nyewijikna Gusti Allah, kuwé ora sebaéné.
+
+[^639]: Ninggalna agama nyewiji (tauhid) lan mélu werna-werna peprecayaan nuruti kepénginané wong-wong kuwé.
+
+[^640]: Sing démaksud “rahmat” neng kéné yakuwé uwalé sekang bebaya mau.
+
+[^641]: Yakuwé sebagéané dhéwéké padha neng njero neraka lan sebagéané maning padha neng njero suwarga.
+
+[^642]: “Sing nggawa kabar bebungah” tegesé, lamuk kandel sing degawa angin banjur dadi udan. Merga kuwé bisa dérasakna kewelasané Gusti Allah kanthi thukulé wewijen sing wis dedhédher lan dadi ijoné tandur-tanduran, padha wohé thethukulan lan liya-liyané.
+
+[^643]: Kanthi tekané para utusan sing nggawa keterangan maring kaumé kuwé, mangka sebagéané padha precaya lan sebagéané padha ora precaya, malah nganti ana sing nglarani para utusan (rasul). Mangka maring wong sing padha gawé dosa kuwé Gusti Allah paring siksa maring dhéwéké kabéh.
+
+[^644]: Wong-wong kapir kuwé depadhakna Gusti Allah karo wong-wong mati sing ora bisa krungu kawruh-kawruh maning. Semana uga depadhakna wong-wong budheg sing ora bisa krungu angger deceluk sekang mburi.
+
+[^645]: Maksudé, kaya dhéwéké goroh neng senjeroné ucapané, semana uga kaya kuwé dhéwéké goroh terus neng dunya.
+
+[^646]: Maring wong sing nggunakna crita suwung nggo nyasarna menungsa.
+
+[^647]: Nyapih anak kuwé seora-orané nganti umur rong taun.
+
+[^648]: “Gusti Allah Mahaalus” yakuwé ilmuné Gusti Allah nglingkupi samubarang kabéh nganti sing paling lembut (cilik).
+
+[^649]: Angger mlaku aja kebanteren lan uga aja kedhologen.
+
+[^650]: Ilmu-Né lan hikmah-É, tegesé kabéh kuwé ora cukup nggo nulis kalimah Allah.
+
+[^651]: Dalan sing jejeg kuwé ngakoni nyewijiné Gusti Allah.
+
+[^652]: Menungsa ora bakal ngaweruhi kanthi maton apa sing bakal dhéwéké pergawé neng dina ngésuk utawa apa sing bakal dhéwéké pekolih, senajan kaya kuwé dhéwéké déwajibna setiyar (usaha).
+
+[^653]: Milenggah neng sendhuwuré ‘Arsy salah sijiné sipaté Gusti Allah sing kudu inyong kabéh andeli selaras karo keluhuran lan kesuciané Penjenengané.
+
+[^654]: Sapangat yakuwé pitulungan sing déwéhna déning rasul utawa wong-wong pinilih nggo ngénthéng-énthéng siksa utawa renggan sewijiné wong neng akhérat.
+
+[^655]: Wertané sing degawa neng malaékat. Ayat kiyé sewijiné perlambang (tamsil) ingatasé agungé Gusti Allah lan keluhuran-É.
+
+[^656]: Déuripna maning nggo nampani piwalesé Gusti Allah neng dina Kiyamat.
+
+[^657]: Dhéwéké padha sujud, manut-miturut maring Gusti Allah lan gentur (khusuk). Desunahna nglakoni sujud tilawah angger maca utawa krungu ayat-ayat sajdah sing kaya kiyé.
+
+[^658]: Dhéwéké padha ora turu neng wektu sing biasané wong padha turu.
+
+[^659]: Maksudé, kayadéné déwéhna Taurat maring Musa, semana uga Al-Qur’an déwéhna maring Muhammad. Kayadéné Taurat dadi pituduh tumrap Bani Israil, mangka dédadékna Al-Qur’an tumrap umat Nabi Muhammad.
+
+[^660]: Sing démaksud sabar yakuwé sabar senjeroné ngedegna  kebecikan.
+
+[^661]: Dina kemenangan yakuwé dina Kiyamat.
+
+[^662]: Nabi Muhammad s.a.w bareng karo wong-wong sing precaya (mukmin) dépréntah supaya nunggu dina kemenangan ingatasé wong sing padha mbangkang (kapir) lan ajuré wong-wong kuwé.
+
+[^663]: Zihar kuwé ucapané wong lanang maring bojoné, “Gigirmu haram tumrap Inyong kayadéné gigiré biyungku,” utawa ucapan liya sing sepadhan. Kuwé dadi padatané wong Arab Jahiliyah, lamon wong lanang ngucap kaya kuwé maring bojoné, dadiné si bojo déharamna nggo dhéwéké selawasé. Ning bareng Islam teka, apa sing déharamna selawasé kuwé debusek, lan bojo-bojo kuwé bali halal tumrap sing lanang kanthi mbayar kafarat (dhendha).
+
+[^664]: Maula-maula kuwé batur tukon sing wis merdhéka utawa wong sing dadi anak pupon, kayadéné Salim anak puponé Huzaifah, deceluké Maula Huzaifah.
+
+[^665]: Wong-wong mukmin padha lewih tresna maring Nabiné, ngungkuli tresnané maring awaké dhéwék.
+
+[^666]: Gawé apik neng kéné tegesé awéh wasiyat waris sing ora lewih sekang sepertelon bandhané.
+
+[^667]: Kesanggupané mbutulna agama maring umaté dhéwék-dhéwék.
+
+[^668]: Neng dina Kiyamat, Gusti Allah bakal mundhut priksa maring para nabi butul ngendi usahané mbutulna piwulang-piwulangé Gusti Allah maring umaté, lan butul ngendi umaté olihé ngleksanakna piwulangé Gusti Allah kuwé.
+
+[^669]: Ayat kiyé nerangna critané Ahzab yakuwé golongan-golongan sing détumpes sejeroné Perang Khandaq merga nglawan Gusti Allah lan Utusan-É. Sing démaksud wadyabala sing ora keton kuwé para malaékat sing sengaja déturunaken déning Gusti Allah nggo numpes mungsuh-mungsuhé Gusti Allah kuwé.
+
+[^670]: Nggambarna sepira gedhéné rasa wedi lan gemeteré wektu kuwé.
+
+[^671]: Sing déjanjékna déning Gusti Allah lan Utusan-É yakuwé kemenangan sewisé ngalami kangélan.
+
+[^672]: Ngenténi apa sing wis déjanjékna déning Gusti Allah maring dhéwéké.
+
+[^673]: Sejeroné Perang Khandaq wong-wong mukmin ora nglakoni perang merga Gusti Allah wis nyingkirna mungsuhé kanthi nurunaken angin gedhé lan para malaékat.
+
+[^674]: Sewisé golongan-golongan sing padha gabungan kocar-kacir, mangka Gusti Allah dhawuh maring Kanjeng Nabi supaya numpes Bani Quraizah (Ahli Kitab) lan ngurak dhéwéké kabéh sekang bénténg-bénténgé, banjur sekabéh wong lanangé sing mélu perang dépaténi, wong-wong wadoné karo bocah-bocah détawan.
+
+[^675]: Tanah-tanah sing bakal déleboni déning wadyabala Islam.
+
+[^676]: Sing démaksud ngasor neng kéné yakuwé wicara kanthi cara sing bisa gawé wani wong lanang liya temindak ala maring dhéwéké.
+
+[^677]: Maksudé wong sing duwé niyat ala maring wong wadon, umpamané jinah.
+
+[^678]: Supayané garwa-garwané Rasul tetep manggon neng njero umah, lan olih metu angger ana perlu sing debenerna déning syara’.
+
+[^679]: Sing démaksud Jahiliyah gemiyén yakuwé jahiliyah kekapiran seurungé Nabi Muhammad s.a.w lan sing démaksud Jahiliyah siki yakuwé jahiliyah kemaksiyatan sewisé ana Islam.
+
+[^680]: Ahlul bait tegesé keluwarga balesomahe Rasulullah s.a.w.
+
+[^681]: Sewisé entong idahé.
+
+[^682]: Para utusan (rasul) sing mbutulna saréngat-saréngaté Gusti Allah maring menungsa.
+
+[^683]: Kanjeng Nabi Muhammad udu ramané salah sijiné sahabat, merga kuwé randhané Zaid (Zaenab) kena degarwa déning Kanjeng Nabi.
+
+[^684]: Waras slamet sekang sekabéh bebaya.
+
+[^685]: Miturut riwayat, sewiji wektu garwa-garwané Kanjeng Nabi ana sing iri lan ana sing njaluk tambahan blanja, dadi Kanjeng Nabi medhot srawung karo dhéwéké nganti sewulan lawasé. Sebab wedi dépegat déning Kanjeng Nabi, dhéwéké padha sowan maring Kanjeng Nabi lan matur rila maring apa baé sing bakal députusna déning Nabi maring dhéwéké. Temuruné ayat kiyé awéh kepareng maring Kanjeng Nabi nggo ngembuli sapa sing dekarepna sekang bojo-bojoné utawa ora ngembuli dhéwéké; lan uga awéh kepareng maring Nabi nggo apikan maning (rujuk) maring bojo-bojoné angger ana bojo sing wis dépegat.
+
+[^686]: Ayat kiyé nglarang para sahabat mlebu maring umahé Rasulullah seprelu mangan karo nunggu-nunggu wektu dhaharé Rasulullah.
+
+[^687]: Slawat sekang Gusti Allah tegesé paring kewelasan (rahmat); sekang malaékat nyuwunaken ampura, lan angger sekang wong mukmin tegesé penyuwun supaya deparing kewelasan, Umpamané nganggo kalimah Allahumma salli ‘ala Muhammad.
+
+[^688]: Kanthi ngucapna kalimah kayadéné Assalamu ‘alaika ayyuhan Nabi, tegesé moga-moga keslametan ingatasé penjenengan hé, Nabi.
+
+[^689]: Jilbab kuwé klambi sarung ombér sing bisa nutupi sirah, rai lan dhadha.
+
+[^690]: Zarrah kuwé semut sing paling cilik. Wong Arab mbasakna sewiji barang sing banget ciliké nganggo tembung zarrah.
+
+[^691]: Sing dhéwéké maksud sewijiné wong lanang kuwé Kanjeng Nabi Muhammad minangka painan ingatasé kiyambeké.
+
+[^692]: Maksudé angger Sulaiman nganakaken lelaku sekang ésuk butul awan mangka adohé padha karo adohé onta mlaku sewulan. Semana uga angger Sulaiman nganakaken lelaku sekang awan butul soré, mangka cepeté padha karo lelaku sewulan.
+
+[^693]: Blabur gedhé sing dadi ambrolé bendungan Ma’rib.
+
+[^694]: Wit Asl kaya wit cemara, wit Sidr kaya wid widara.
+
+[^695]: Negari sing neng Syam, merga suburé lan negari-negari sing kepérek yakuwé antarané Yaman lan Syam, saéngga wong-wong padha bisa mlaku neng wektu wengi lan awan ora kudu mandheg neng segara wedhi lan ora nana kangélan.
+
+[^696]: Supaya kota-kota sing pérek debusek, supaya lelakon dadi dawa lan dhéwéké padha téyéng ngukuhi dhéwék (monopoli) dagangan kuwé saéngga bathiné lewih gedhé.
+
+[^697]: Ayat kiyé nerangna lamon awéhé sapangat (pitulung) mung bisa kelakon kanthi idiné Gusti Allah. Wong-wong sing bakal déparingi idin awéh sapangat (pitulung) lan wong-wong sing arep olih pitulung padha krasa wedi lan ngarep-arep idiné Gusti Allah kuwé.
+
+[^698]: Merga déné wong-wong sing padha mbangkang (kapir) kuwé padha olih kenékmatan sing gedhé neng dunya, mangka dhéwéké padha rumangsa détresnani déning Gusti Allah lan ora bakal kenang siksa neng akhérat,
+
+[^699]: Jin sing duraka yakuwé sétan.
+
+[^700]: Peparingé Gusti Allah ngenani kepinteran lan kawruh, umur dawa, kekuwatan awak, sugih dunya brana lan liya-liyané.
+
+[^701]: “Loro-loro utawa siji-siji” tegesé olihé ngadhep maring Gusti Allah, banjur mikirna kahanané Kanjeng Nabi Muhammad kuwé apiké délakoni neng wektu sing sepi lan kiyé ora bisa délakoni neng kahanan ramé.
+
+[^702]: Kanjeng Nabi babar pisan ora njaluk upah maring wong-wong kuwé, ning sing déjaluk neng Kanjeng Nabi, dhéwéké padha precaya maring Gusti Allah. Lan precaya kuwé nggo kebegyané dhéwéké kabéh.
+
+[^703]: Angger bebener wis teka mangka sing luput (batil) bakal ajur mumur lan ora bisa polah apa-apa nggo nglawan lan ngrubuhna bebener kuwé.
+
+[^704]: Sewisé dhéwéké padha weruh kaya apa nggilaniné siksa neng dina Kiyamat kuwé mangka dhéwéké nembé padha gelem precaya maring Gusti Allah lan Utusan-É, mangkané papan nggo precaya kuwé wis adoh pisan yakuwé neng dunya.
+
+[^705]: Sing dekepingini déning wong-wong kuwé, precaya maring Gusti Allah utawa bali maring dunya nggo mertobat.
+
+[^706]: Sebagéan ahli tapsir negesi lamon ucapan sing apik kuwé kalimah tauhid yakuwé laa ilaha illallah; lan uga ana duwé penemu dikir maring Gusti Allah, lan ana uga sing duwé penemu kabéh ucapan sing apik sing déucapna krana Gusti Allah.
+
+[^707]: Ucapan sing apik lan temindak sing becik kuwé détampa lan déparingi ganjaran déning Gusti Allah.
+
+[^708]: Sebagéan ahli tapsir negesi gaib neng ayat kiyé yakuwé rikala wong-wong kuwé dhéwékan ora weruh wong liya.
+
+[^709]: Kanjeng Nabi Muhammad ora bisa awéh pituduh maring wong-wong musrik sing wis mati atiné.
+
+[^710]: Agama tauhid (ora mangro tingal) lan hukum-hukumé.
+
+[^711]: Gusti Allah paring pituduh maring sapa sing Penjenengané kersakna kanthi paring kesanggupan nggo ngrungokna lan nampa keterangan-keterangan.
+
+[^712]: Wong-wong sing padha ngaweruhi ilmu agungé lan kewasané Gusti Allah.
+
+[^713]: Gusti Allah kesuwun maring kewula-Né, tegesé paring ganjaran ingatasé lakon-lakon beciké kewula lan ngampurani salahé, nambahi kenékmatané lan seterusé.
+
+[^714]: Nganiaya (gawé kapitunan) awaké dhéwék yakuwé lewih akéh salahé tenimbang apiké, lan “tengah-tengah” tegesé, salah karo apiké padha akéhé, lan “wong-wong sing lewih dhisit olihé gawé kebecikan” yakuwé wong sing apiké akéh pisan lan mung semendhing olihé gawé kesalahan.
+
+[^715]: Sing démaksud “pepesthéné wong-wong sing dhisit” yakuwé temuruné siksa maring wong-wong sing padha nggorohna nabi (utusan).
+
+[^716]: Pengéling-éling sing debutulna déning Kanjeng Nabi mung ana gunané tumrap wong-wong sing padha gelem mélu Kanjeng Nabi.
+
+[^717]: juru tapsir, wong kuwé jenengé Habib An-Najjar.
+
+[^718]: Miturut riwayat, wong lanang kuwé dépaténi déning kaumé ngucapna tembung minangka wewarah maring kaumé kaya désebut neng ayat 20 butul 25. Rikala dhéwéké arep mati malaékat temurun awéh werta lamon Gusti Allah wis ngampurani dosané lan dhéwéké bakal mlebu maring suwarga.
+
+[^719]: Dhéwéké ora padha bali maring dunya.
+
+[^720]: Kuwé mikiné cilik rupané kaya arit, banjur sewisé mapan neng papan ubengané wulan kuwé dadi bunder kempleng, banjur neng papan ubengan sing pungkasan keton kaya manggar (mancung) garing sing mlengkung.
+
+[^721]: Kéwan-kéwan tumpakan lan bekakas angkutan liyané
+
+[^722]: Sewara semprongan slomprét sing kawitan sing ngajurna bumi kiyé.
+
+[^723]: Semprongan kiyé semprongan slomprét sing kepindho sing nangékna wong-wong sekang kubur.
+
+[^724]: Malik maning dadi ora duwé daya lan linglung. Kaya bocah cilik.
+
+[^725]: Maksudé: malaékat, langit, bumi lan liya-liyané.
+
+[^726]: Dina rikala Gusti Allah paring putusan lan piwales maring kewula-kewulané.
+
+[^727]: Pemimpin-pemimpin kuwé nekani para pendhéréké kanthi nggawa apus-apus sing nyenengna ati.
+
+[^728]: Nabi Ibrahim klebu golongané Nabi Nuh olihé precaya maring Gusti Allah lan saripathiné piwulang agama
+
+[^729]: Nulusna ati maring Gusti Allah kanthi temen.
+
+[^730]: Ngina brehala-brehala kuwé, merga neng péreké brehala kuwé désandhingna pirang-pirang panganan sing apik minangka sajén.
+
+[^731]: Nabi Ibrahim lunga maring sewijiné negari seprelu bisa nyembah Gusti Allah lan ajék-ajék maring dalané Penjenengané (dakwah).
+
+[^732]: Precaya lamon impén kuwé pancén nyata bener sekang Gusti Allah lan kudu detandangi.
+
+[^733]: Sewisé nyata sabaré lan manuté Nabi Ibrahim lan Nabi Ismail, mangka Gusti Allah nglarang Ibrahim nyembeléh Ismail. Nggo nerusna gawé kurban, Gusti Allah ngijoli dhéwéké kanthi sembeléhan (wedhus). Kedadéan kiyé dadi dhasar saréngat kurban sing deleksanakna neng dina Bada Haji.
+
+[^734]: Ba’l kuwé salah sijiné aran brehala sing dadi sembahané wong Phunicia.
+
+[^735]: Wong-wong sing manggon neng kota sing ora padha mélu maring Nabi Nuh.
+
+[^736]: Lunga ninggalna kewajiban.
+
+[^737]: Undhian dégawé merga momotan prahu kebek pisan. Angger sing numpak ora dekurangi kayané bisa kérem. Dadi deanakna undhian. Sapa sing undhiané kalah kudu debalangna maring segara, mangkané Nabi Nuh kepélu wong sing undhiané kalah.
+
+[^738]: Ina merga dhéwéké mlayu ninggalna kaumé
+
+[^739]: Wong-wong musrik padha ngucap lamon Gusti Allah kagungan putra-putra wadon (malaékat), mangkané dhéwéké padha nganggep anak wadon kuwé ina.
+
+[^740]: golongan jin sing padha precaya.
+
+[^741]: Utusan (rasul) karo pendhérék-pendhéréké.
+
+[^742]: Maksudé: butul Rasulullah s.a.w. nduwé kekuwatan.
+
+[^743]: Sing démaksud “wektu esuk” yakuwé ora mung wektu ésuk, ning sembarang wektu neng endi wong-wong sing nyerang seurungé subuh; mangka wong-wong sing kalah kuwé ngalami susah neng wektu ésuk
+
+[^744]: Ujaré wong-wong kapir, nyembah brehala-brehala kuwé sing dékersakna déning Gusti Allah.
+
+[^745]: Sing démaksud déning wong kapir Quraisy, agama sing wekasan kuwé agama Nasrani.
+
+[^746]: Ayat kiyé nyritakna Perang Khandaq sing neng kana ana wadyabala sekang pirang-pirang golongan yakuwé golongan musrik, Yahudi lan sewetara brayat Arab sing padha nggrudug kaum muslimin neng Medinah. Perang kiyé rampung kanthi morak-mariké wadyabalané dhéwéké kabéh. Sebagéan ahli tapsir duwé penemu, sing démaksud neng ayat kiyé kuwé Perang Badar.
+
+[^747]: Warga Madyan kuwé kaumé Nabi Syuaib.
+
+[^748]: Nggo tandha tekané dina Kiyamat lan jeritan kiyé rosa banget tur banter.
+
+[^749]: Kenabian, kesempurnan ilmu lan tlitiné tindak-laku.
+
+[^750]: Sebagéan ahli tapsir ana sing negesi ayat 32 kaya kiyé, “Inyong nyata-nyata nyenengi barang sing apik (jaran) kiyé saéngga Inyong kelalén ora éling maring Gusti Allah nganti jaran-jaran kuwé ilang sekang pendelengan.”
+
+[^751]: Sebagéan ahli tapsir ana sing negesi ayat 33 kaya kiyé, “Gawa maning kabéh kuwé maring inyong, banjur dhéwéké motong sikilé lan guluné.”
+
+[^752]: Sebagéan ahli tapsir ngucap, sing démaksud “ujian” kuwé ambruké prajané Sulaiman saéngga wong liya njagong neng korsiné.
+
+[^753]: Nabi Ayub kenang lara kulit sewetara wektu suwéné lan dhéwéké nyuwun pitulungan maring Gusti Allah sing banjur ngeparengaken penyuwuné lan dhawuh supayané dhéwéké nggejugna sikilé maring lemah. Nabi Ayub manut mangka sekang tilas sikilé metu banyu kanthi pituduhé Gusti Allah, banjur Nabi Ayub adus lan nginum nganggo banyu kuwé saéngga dhéwéké mari sekang prenyakité lan bisa kumpul maning karo kulawargané. Mangka dhéwéké kabéh banjur padha manak-pinak nganti cacahé dadi lipet pindho tenimbang mikiné. Neng sewiji wektu Nabi Ayub kémutan sumpahé, arep nggebug bojoné angger prenyakité wis mari merga bojoné nglakon ora gelem ngurusi wektu dhéwéké ésih kenang pilara. Ning tuwuh neng atiné Nabi Ayub rasa melas lan éman maring bojoné saéngga dhéwéké ora kewawa nandangi sumpahé. Mangka temurun pituduh sekang Gusti Allah kaya sing ketulis neng ayat 44 surah kiyé, supaya dhéwéké bisa ngleksanakna sumpahé kanthi ora nglarani bojoné, yakuwé nyabet bojoné karo suket sebengket.
+
+[^754]: Wong-wong sing wis keparingan pepadhang (taufik) nggo nglakoni kabéh pituduh lan dhawuhé Gusti Allah.
+
+[^755]: Beneré werta-werta Al-Qur’an kuwé ana sing kelakon maring dunya ana uga neng akhérat. Sing kebukti neng dunya kayadéné beneré janjiné Gusti Allah maring wong-wong mukmin lamon dhéwéké kabéh bakal menang neng peperangan karo wong musrik, lan sing kelakon neng akhérat kayadéné beneré janjiné Gusti Allah ngenani piwales utawa prétungan sing bakal deleksanakna maring menungsa.
+
+[^756]: Telung petengan kuwé, petengan neng weteng, petengan neng guagarba (rahim) lan petengan neng sejeroné widhungan.
+
+[^757]: Menungsa arep precaya utawa ora, prekara kuwé ora mitunani Gusti Allah babar pisan.
+
+[^758]: Kabéh wong padha mikul dosané dhéwék-dhéwék.
+
+[^759]: Dhawuh kiyé ora démaksud kaya tegesé sing seluguné. Ning minangka dadi pengendikan murkané Gusti Allah maring kaum sing nyekuthokna Penjenengané (musrik) sing wis wara-wiri dédhawuhi supaya nyewijikna Gusti Allah ning dhéwéké tansah padha mbangkang.
+
+[^760]: Tagut kuwé sétan lan apa baé sing désembah seliyané Gusti Allah.
+
+[^761]: Wong-wong sing padha ngrungokna piwulang-piwulang Al-Qur’an lan piwulang liyané, ning sing détutna kuwé piwulang Al-Qur’an mega kuwé sing paling apik.
+
+[^762]: Hukum-hukum, piwulang lan crita-crita kuwé debolan-baléni olihé nyebut neng Al-Qur’an supayané lewih kuwat pengaruhé lan lewih ngresep. Sebagéan ahli tapsir ngucap, lamon maksudé kuwé, ayat-ayat Al-Qur’an kuwé debolan-baléni olihé maca kayadéné bukakané, surah Al-Fatihah.
+
+[^763]: Wong-wong sing padha mati kuwé rohé detahan déning Gusti Allah saéngga ora bisa bali maring ragane; lan wong-wong sing ora mati ning mung turu, rohé deculma maning saéngga bisa bali maring ragané
+
+[^764]: Deleng An-Nisa’ (4): 48, kejaba dosa syirik.
+
+[^765]: Ayat kiyé nggambarna agungé lan kewasané Gusti Allah lan mung Penjenengané sing kewasa neng dina Kiyamat.
+
+[^766]: Penyawang sing délarang kayadéné menthelengi wong wadon liya sing udu muhrime
+
+[^767]: Mukjijat, hukum-hukum lan piwulang-piwulang sing degawa Rasul
+
+[^768]: Dina kiyamat kuwé déarani dina celuk-celukan sebab wong sing ngumpul neng ara-ara Mahsyar sebagéan nyeluk sebagéan sing liya go jaluk tulung.
+
+[^769]: Dhéwéké nolak ayat-ayat-É Gusti Allah tanpa alasan (dalil) sing butul maring dhéwéké.
+
+[^770]: Kebudhayan kayadéné gedhong, bénténg, kraton lan perkakas uba rampé.
+
+[^771]: Wong-wong kuwé wis ngrasa cukup kanthi ilmu kawruh sing wis dhéwéké duwéni lan ora ngrasa perlu maring ilmu sing déwulangna déning rasul-rasulé dhéwéké kabéh. Malah wong-wong kuwé padha ngremehna lan padha merguyu keterangan sing deasta déning para rasul kuwé.
+
+[^772]: Sing démaksud “sekang ngarep lan sekang mburi” kuwé sekang prenah ngendi baé.
+
+[^773]: Dhéwéké padha nglakoni dosa kanthi terang-terangan merga dhéwéké padha ngira lamon Gusti Allah ora ngerti kelakuané dhéwéké lan dhéwéké padha ora ngira lamon nyangka lamon pengrungon, pendeleng lan kulit bakal dadi seksi neng akhérat ingatasé kelakuané dhéwéké kabéh.
+
+[^774]: “Sing ana neng ngarepé” yakuwé nepsu lan kenékmatan neng dunya sing lagi denékmati banjur sing démaksud karo “neng buriné dhéwéké kabéh” yakuwé angen-angen lan kekarepané sing ora bisa kesembadan
+
+[^775]: Ora awéh pitudhuh maring ko kabéh
+
+[^776]: Mung Gusti Allah sing ngudanéni kapan tekané dina kiyamat
+
+[^777]: Patung-patung sing ko kabéh anggep sekutuné Gusti Allah
+
+[^778]: Gusti Allah kesuwun maring kawulané maksudé, Gusti Allah paring ganjaran maring lakon-lakon becik kewulané, ngampura kesalahané, nambah nékmaté lan liya-liyané.
+
+[^779]: Wong bisa ngrungokna kalam ilahi ning dhéwéké ora bisa ndeleng Gusti Allah kaya apa sing kedadéan maring nabi Musa a.s
+
+[^780]: Wong-wong musrik ngucapna lamon malaékat kuwé anak wadoné Gusti Allah mangkané malaékat kuwé sebagéan sekang titah lan ciptanané Gusti Allah.
+
+[^781]: Ayat kiyé nggambarna kahanané wong wadon Arab rikala Al-Qur’an déturunaken. Dhéwéké kabéh ora déwéhi mirunggan (kesempatan) sinau, mulané dadi kurang kepinterané lan mung dédadékna pepaés. Wong wadon wektu kuwé ora duwé pengarsa sing cetha lan tegas nggo nglairna kekarepané nggo ngranggéh kemenangan.
+
+[^782]: Nabi Ibrahim ndadékna kalimah tauhid dadi cekelan nggo keturunané supayané angger ana neng antarané dhéwéké kabéh wong sing nyekuthokna Gusti Allah supayané gagiyan bali maring tauhid kuwé.
+
+[^783]: Neng antarané keturunané Nabi Ibrahim ana sing nglalénaken tauhid lan Gusti Allah ora paring siksa, ning malah paring nékmat lan penguripan sing kuduné desukuri. Ning keturunané Nabi Ibrahim kuwé ora sukur malah nuruti nepsuné, merga kuwé Gusti Allah nurunaken Al-Qur’an lan sewijiné Rasul nggo awéh tuntunan nggo mbimbing dhéwéké kabéh.
+
+[^784]: Menangé nabi Muhammad s.a.w lan ajuré kaum musrik
+
+[^785]: Sing démaksud siksa neng kéné, siksa duniawi minangka dadi coban sekang Gusti Allah kayadéné kekurangan pangan, tekané ama tanduran-tanduran lan liya-liyané.
+
+[^786]: Sing démaksud tukang sihir yakuwé Nabi Musa a.s.
+
+[^787]: Ayat 57 lan 58 neng dhuwur nyritakna maning kedadéan wektu Rasulullah macakna surat Al-Anbiya ayat 98 sing tegesé, “Temen, ko kabéh (wong kapir) lan apa sing ko padha sembah seliyané Gusti Allah, dadi suluhé Jahanam.” Mangka sewijiné wong Quraysi sing arané Abdullah bin Az Zab’ari takon maring Rasulullah.s.a.w, ngenani kahanané Isa sing désembah wong Nasrani, apa dhéwéké kabéh uga dadi suluhé neraka jahanam kaya sembahan-sembahané. Rasulullah meneng (ora semaur) lan dhéwéké (wong Quraisy) padha gemuyu; banjur dhéwéké kabéh takon maning ngenani sing lewih apik antarané sembahan-sembahané dhéwéké kabéh karo Isa. Pertakonan-pertakonan kuwé mung nggo mbantah udu nggo nggolét bebener. Dalan pikirané dhéwéké kabéh kuwé dadi kesalahan sing gedhé. Isa ora ngerti lamona dhéwéké désembah lan ora rila angger désembah.
+
+[^788]: Kenabian, injil lan hukum.
+
+[^789]: Kaum musrik Mekah ora mung wadheh maring bebener, malah dhéwéké kabéh uga wis ngrencanakna arep maténi Nabi Muhammad, ning rencana kuwé gagal merga Gusti Allah uga kagungan rencana nylamatna Nabi.
+
+[^790]: Wengi Al-Qur’an kawitan déturunaken
+
+[^791]: Kabéh prekara sing ana gandhéng-cénéngé karo penguripané titah kayadéné urip-mati, rejeki, nasib apik, nasib ala lan liyané.
+
+[^792]: Marabaya kencoten sing nibani kaum Quraisy merga dhéwéké padha mbangkang maring Nabi Muhammad s.a.w.
+
+[^793]: Nabi Muhammad s.a.w. déarani nampa ilmu sekang wong sing udu bangsa Arab jenengé Addas agamané nasrani.
+
+[^794]: Gebugan sing rosa kuwé neng Perang Badar. Rikala wong-wong musrik degebug mundur dadi kalah. Lan akéh pemimpiné sing padha tiwas.
+
+[^795]: Kaya iyub-iyubé awan, medhuné mann lan salwa; mancuré banyu sekang watu, lan sigaré segara.
+
+[^796]: Wong-wong musrik Mekah ngingkari lamon sewisé mati menungsa bakal déuripna maning.
+
+[^797]: Tubba’ yakuwé gelar nggo raja-rajané suku Himyar lan Tubba’.
+
+[^798]: Tanpa kewatir kentongan utawa kewatir lara.
+
+[^799]: Dina-dina rikala  mangsané Gusti Allah nibakna siksan maring dhéwéké kabéh
+
+[^800]: Gusti Allah ngejorna wong kuwé kesasar merga Gusti Allah wis ngawuningani lamon dhéwéké ora nrima pitudhuh-pitudhuh sing déparingna.
+
+[^801]: Sing démaksud “wong siji sekang Bani Israil” kuwé Abdullah bin Salam, dhéwéké ngakoni precaya maring Kanjeng Nabi Muhammad sewisé nggatékna lamon neng antarané isi Al-Qur’an ana sing padha karo Taurat kayadéné ajaran tauhid, janji lan ancaman, kenabiané Kanjeng Nabi Muhammad, anané penguripan akhérat lan liya-liyané.
+
+[^802]: Lamon wong-wong kapir kuwé ngina wong-wong Islam kanthi ngucap, “Sekirané Al-Qur’an kuwé bener mesti inyong lewih dhisit precaya maring kuwé tenimbang wong-wong sing miskin lan asor kayadéné Bilal, ‘Ammar, Suhaib, Habbab, lan liyané.
+
+[^803]: Teguh kemantepané neng prekara tauhid lan ajeg temindak apiké.
+
+[^804]: Tembung-tembung, kalimat, utawa sasmita  sing nadané nantang.
+
+[^805]: Sing nulung sing dédadékna Gusti Allah kanggo wong-wong mukmin kayadéné malaékat, kéwan-kéwan, lisus, lan seliyané.
+
+[^806]: Gusti Allah njanjékna bandha rampasan perang sing akéh maring kaum muslimin. Sing kawitan, Gusti Allah paring neng Perang Khaibar.
+
+[^807]: “Kalimat takwa” yakuwé kalimat tauhid lan nyucékna lakon manut maring Gusti Allah.
+
+[^808]: Sewetara seurungé kedadéan Perdamaian Hudaibiyah, Nabi Muhammad s.a.w ngimpi lamon slirané bareng karo para sahabaté mlebu maring kota Mekah lan Masjidilharam senjeroné kahanan  wong-wong kaé nggundhul rambut lan separoné maning nyindekna rambuté. Nabi dhawuh lamon ngimpiné kuwé bakalan kedadén. Banjur warta kiyé kesebar maring kaum muslimin, wong-wong munapék, lan wong-wong Yahudi lan Nasrani. Sewisé “Perdamaian Hudaibiyah” lan kaum muslimin neng wektu kuwé ora ngasi mlebu Mekah, mangka wong-wong munapék madani Nabi lan ngomongna lamon ngimpine nabi Muhammad s.a.w kuwé mung lomboan thok. Mangka temurun ayat kiyé sing nggenahna lamon ngimpi Nabi kuwé mesti arep kedadén nyata neng taun sing arep teka. Angger rikala taun kedadéné Perdamaian Hudaibiyah kuwé kaum muslimin melebu kota Mekah, mangka keslametané wong-wong sing ngumpetna precayaé sing manggon neng kota Mekah neng wektu kuwé bakal cilaka.
+
+[^809]: Maksudé, wong-wong mukmin ora kena netepna sewiji hukum seurungé ana ketetepan sekang Gusti Allah lan Utusan-É.
+
+[^810]: Garis ubengé lintang, planét (kayadéné bumi) lan barang-barang langit liyané. Uga ana sing negesi Zaatil Hubuk “duwé penciptanan sing bagus”, “duwé pepaés lintang-lintang”, utawa “duwé bangunan sing kukuh”.
+
+[^811]: Béda-bédané penemuné kaum musrik ngenani Kanjeng Nabi Muhammad lan Al-Qur’an.
+
+[^812]: Watu-watu kuwé déwéhi tandha nganggo jeneng wong sing dépaténi.
+
+[^813]: Watu-watu sing numpuk sing nggo numpes kaum Nabi Lut. Ana uga sing ngarani sijiné tlaga sing banyuné ireng lan bacin ambuné.
+
+[^814]: Riwayat Bukhari, Muslim lan Tapsir Ibnu Kasir, “Umah neng langit kepitu sing tansah deramékena déning 70.000 malaékat sing padha maca tasbih”.
+
+[^815]: Anané mangsan ketiga, kencoten, malapetaka sing nibani maring dhéwéké, siksa kubur lan liya-liyané.
+
+[^816]: Sidratilmuntaha yakuwé nggon sing paling dhuwur neng langit kepitu, sing wis detekani neng Nabi Muhammad rikala Mi’raj.
+
+[^817]: Lintang sing désembah déning wong-wong Arab wektu zaman Jahiliyah.
+
+[^818]: Nggon mlethék lan surupé srengéngé neng mangsa panas lan mangsa adhem.
+
+[^819]: Neng antarané mufasir ana sing nduwé penemu setemené La yabghiyan maksudé saben-sabené ora padha ngepéngini. Kanthi mengkana maksud ayat 19 lan 20, yakuwé ana rong segara sing loroné misah dewatesi kambi lemah genting kuwé ora dekarepna (ora deperlukena), mula neng akhiré, lemah genting kuwé debuang (dekeruk nggo keperluan liwate prahu), mula ketemu rong segara kuwé mau. Kaya Terusan Suez lan Terusan Panama.
+
+[^820]: Gusti Allah terus nyiptakna, nguripaken, matiaken, ngrumat, paring rejeki lan liya-liyané.
+
+[^821]: Neng wektuné arep déjaluki tanggungjawabé ingatasé sekabéhé amal penggawéné.
+
+[^822]: Suwarga nggo menungsa lan suwarga nggo jin. Ana uga mufasir duwé penemu suwarga dunya lan suwarga akhérat.
+
+[^823]: Seliyané suwarga loro sing kesebut mau ana maning suwarga nggo wong-wong mukmin sing kurang drajaté tenimbang wong-wong mukmin sing mlebu maring suwarga sing dhisit.
+
+[^824]: Wong-wong sing nampa buku cathetan lakuné kanthi tangan tengen.
+
+[^825]: Wong-wong sing nampa buku cathetan lakuné kanthi tangan kiwé.
+
+[^826]: Kabéh umat nabi-nabi seurungé Nabi Muhammad s.a.w. Lan sing démaksud wong sing keri yakuwé umaté Nabi Muhammad s.a.w.
+
+[^827]: Dhéwéké padha déciptakena ora nganggo délairna lan langsung dadi perawan.
+
+[^828]: Wit neng neraka sing njalari lara sing banget larané tumrap wong sing mangan wit kuwé.
+
+[^829]: “Sing Kawitan” yakuwé sing wis ana seurungé sekabéhané barang ana, “Sing Wekasan” yakuwé sing tetep ana sewisé sekabéhé barang musnah, “Sing Wadhag ” yakuwé sing Mahaluhur lan Sing Samar yakuwé ora nana sing ngalang-alangi Penjenengané lan Penjenengané lewih pérek maring titah tenimbang titah kuwé maring Penjenengané.
+
+[^830]: Sing démaksud “sing munggah” antarané amal-amal lan donga-donga kewula-Né.
+
+[^831]: Ora duwé bojo utawa lanang (ora umah-umah) lan mingit  awak dhéwék sejeroné biara
+
+[^832]: Sebab temuruné ayat kiyé gandhéng karo masalah wong wadon sing jenengé Khaulah binti Tsa’labah sing wis dejihar neng lanangé Aus bin Samit, yakuwé kanthi ngucap maring bojoné, “Ko kuwé kanggoné Inyong wis kaya gigiré biyungku”; kanthi maksud dhéwéké ora olih maning nyampuri bojoné, kayadéné dhéwéké ora ulih nyampuri biyungé. Miturut adat Jahiliyah kalimah jihar kaya kuwé wis padha karo megat bojo. Mangka Khaulah madulna masalahé maring Kanjeng Rasul s.a.w. Rasulullah njawab, neng masalah kiyé urung ana putusané Gusti Allah. Lan neng riwayat liya Rasulullah ngendhika: “Ko wis délarang nyampuri bojomu.” Banjur Khaulah ngucap: “Bojoku urung ngucap tembung talak”. Banjur Khualah bola-bali ndhesek Rasulullah supayané netepna putusan neng prekara kiyé, mangka banjur temurun ayat kiyé lan ayat-ayat sebanjuré.
+
+[^833]: Kekarepan lan kekuwatan batin, bresihé ati, kemenangan ingatasé mungsuh lan liya-liyané.
+
+[^834]: Wong-wong Yahudi bani Nadir, dhéwéké sing awal-awal dékumpulna kanggo déurak metu sekang Medinah.
+
+[^835]: Banda rampasan sing déjikot sekang mungsuh kanthi ora nganggo perang, pembagéané béda karo pembagéan ghanimah. Ghanimah kuwé bandha rampasan sing déjikot sekang mungsuh sewisé perang. Pembagéan fai’ kaya sing désebut neng ayat 7, déné pembagéan ghanimah désebut neng ayat 41 surat Al-Anfal.
+
+[^836]: Kerabat Nabi, bocah-bocah yatim, wong-wong mlarat, lan wong sing neng lelungan lan kabéh wong pekir (butuh) lan padha boyongan.
+
+[^837]: Nabi Ibrahim wis nglakon nyuwunaken ampura nggo ramané sing musrik maring Gusti Allah, kiyé ora kena détiru merga Gusti Allah ora mbenerna wong mukmin njalukna ampura nggo wong kapir (An-Nisa ayat 48).
+
+[^838]: Seurungé ghanimah debagékna maring lprecayag golongan sing duwé hak, debayarna lewih dhisit mahar-mahar maring wong lanang sing bojo-bojoné padha mlayu maring daérah kaum kapir.
+
+[^839]: Penggawéan sing dhéwéké gawé-gawé antarané tangan lan sikilé dhéwéké kuwé maksudhé nganakna akon-akon palsu prekara beciké antarané wong lanang lan wong wadon kaya pendakwa jinah, pendakwa lamon anaké si Fulan udu anaké lanangé lan liya-liyané.
+
+[^840]: Merga dhéwéké padha mléngos sekang bebener, mangka Gusti Allah ngejorna kesasar atiné saéngga dhéwéké tambah adoh sekang bebener.
+
+[^841]: Wong-wong kuwé padha sumpah lamon dhéwéké padha precaya nggo njaga bandha lan awaké supayané aja dépaténi utawa détawan utawa derampas bandhané.
+
+[^842]: Dhéwéké deumpamakna kaya kayu sing semendheh, maksudé nggo nyebutna sipaté sing ala, senajan awaké bagus-bagus lan dhéwéké pinter ngomong, tapi sebeneré uteké kosong ora bisa mahami bebener.
+
+[^843]: Kadhang-kadhang bojo utawa anak bisa mlésétna lanangé utawa ramané nggo nglakoni penggawé-penggawéan sing ora débenerna déning agama.
+
+[^844]: Wong sing duwé anak lan sugih lewih kepenak olih bala. Ning angger dhéwéké duwé sipat kesebut neng ayat 13, dhéwéké ora kena détutna.
+
+[^845]: Sing démaksud “telalé” neng kéné yakuwé irung. Dé-enggone tembung telalé neng kéné nggo ngina.
+
+[^846]: Mangka kobong kebon kuwé lan sing kéri areng sing ireng kaya wengi.
+
+[^847]: Kesuwun maring nékmat-É lan ora deniyati sewijiné barang sing kosok balen karo préntahé Gusti Allah, kaya niat ora bakal awéh maring fakir miskin.
+
+[^848]: Gusti Allah nerangna lamon Penjenengané nguji warga Mekah kanthi ngganjar nékmat sing akéh nggo ngerténi apa dhéwéké padha kesuwun apa ora, kayadéné Gusti Allah wis nguji maring sing padha duwé kebon. Akhiré sing padha duwé kebon insap lan mlebu Islam kanthi gemrudug sewisé teluké kota Mekah.
+
+[^849]: Maksudé, neng prekara piwales sing desediakena déning Gusti Allah nggo dhéwéké sekloroné.
+
+[^850]: Nggambarna kahanan wong sing lagi kewedén sing arep mlayu merga nggilaniné gonjang-ganjingé dina Kiyamat.
+
+[^851]: Dhéwéké padha dépréntah supaya sujud kuwé nggo nguji keprecayaané dhéwéké, mangkané dhéwéké ora sanggup maning merga ros-rosan balungé wis ringkih lan siksa wis ngubengi dhéwéké.
+
+[^852]: Miturut adat sing lemaku neng tanah Arab, sewijiné wong bisa maténi kéwan utawa menungsa kanthi nidhokna pendelengé sing landhep. Penggawéan kuwé arep detamakna maring Nabi Muhammad s.a.w. ning Gusti Allah ngreksa Kanjeng Nabi saéngga kalis sekang sambekala kuwé, kaya wis déjanjékna déning Gusti Allah neng Al-Maidah ayat 67. Kekuwatan pendelengan mata kuwé neng jaman siki déarani hipnotis.
+
+[^853]: Al-Haqqah miturut basa tegesé “sing mesthi kedadén”. Dina Kiyamat déarani Al-Haqqah merga mesthi kelakoné.
+
+[^854]: Al-qari’ah miturut basa tegesé “sing nggemeterna ati”. Dina Kiyamat déarani Al-Qari’ah merga nggemeterna ati.
+
+[^855]: Bledhég sing banget rosané sing njalari sewara sing gemlendheng lan bisa gawé ajur.
+
+[^856]: Dhéwéké padha ludhes deajurna lan babar blas ora duwé keturunan.
+
+[^857]: Umat-umat gemiyén sing ngingkari nabi-nabi kayadéné kaum Saléh, kaum Syu’aib, lan liya-liyané lan negari sing dejungkir-walikna yakuwé negari-negari kaum Lut. Anadéné keluputan sing délakoni yakuwé ngapusi (ora precaya maring) para rasul.
+
+[^858]: Sing degawa neng prahuné Nabi Nuh nggo deslametna yakuwé kulawargané Nabi Nuh lan wong-wong sing padha precaya, ora klebu anaké sing duraka.
+
+[^859]: Semprongan kawitan sing neng wektu kuwé sekabéhé ngalam dadi ajur.
+
+[^860]: Cathetan lakon penggawéyan.
+
+[^861]: Ingsun paringi tindakan sekeras-kerasé.
+
+[^862]: Para malaékat lan Jibril angger ngadhep Pengéran sedhawané sedina, nalika délakoni déning menungsa ngentongna wektu seket ewu taun.
+
+[^863]: Wong sing nyimpén bandhané lan ora gelem ngetokna jakat lan uga ora nyumbangna (infak) maring dalan sing bener.
+
+[^864]: Budak sing depekolih neng sejeroné perang karo wong kapir. Neng sejeroné perang karo wong-wong kapir kuwé, wong-wong wadon sing détawan biasané debagek-bagekna maring kaum muslimin sing mélu neng perang, lan kebiasaan kiyé udu sewijiné kewajiban.
+
+[^865]: Miturut keterangané sebagéan ahli tapsir ayat kiyé gegayutan karo kedadéan rikala Rasulullah sembayang lan maca Al-Qur’an neng péreké Ka’bah, banjur wong-wong musrik ngumpul rombongan-rombongan neng ngarepé karo ngenyék lan ngucapna, “Angger wong mukmin nyata-nyata arep padha mlebu suwarga kayadéné ucapané Muhammad, Inyong padha sing arep mlebu suwarga dhisit.” Mangka temurun ayat 38.
+
+[^866]: Sejatiné dhéwéké wong kapir déciptakna déning Gusti Allah sekang banyu mani supayané padha precaya lan takwa maring Penjenengané, kayadéné sing déucapna déning Rasul. Mangka angger dhéwéké ora padha precaya ora nana hak tumrap dhéwéké mlebu suwarga.
+
+[^867]: Dakwah kaya kiyé délakoni sewisé dakwah kanthi cara sidhem-sidheman ora pekolih (kasil)
+
+[^868]: Sewisé nganakna dakwah kanthi sidhem-sidheman banjur kanthi blag-blagan, ning uga ora kasil, mangka Nabi Nuh a.s. nganakna karo-karoné pisan.
+
+[^869]: Delengen surat Al-Mu’minun ayat 12, 13 lan 14.
+
+[^870]: Wadd, suwa, yaqus, ya’ug lan Nasr yakuwé jeneng-jeneng reca.
+
+[^871]: Ngucapna lamon Gusti Allah kagungan garwa lan putra. Ujaré Ibnu Katsir, omongan kiyé déucapna seurungé jin kaé mlebu Islam.
+
+[^872]: Ana neng antarané wong-wong Arab, angger ngliwati panggonan sing sepi, dhéwéké padha njaluk pengayoman maring jin sing deprecayai mbaureksa panggonan kuwé.
+
+[^873]: Wektu seuwisé Kanjeng Nabi Muhammad s.a.w déutus dadi Rasul.
+
+[^874]: Sembayang wengi kiyé mikiné wajib, seurungé temurun ayat sing kaping 20. Seuwisé temurun ayat sing kaping 20 ukumé dadi sunah.
+
+[^875]: Ayat kiyé lan sewetara ayat-ayat sebanjuré temurun gandhéng ana wong kapir Mekah sing dadi bonggolé bangsa Quraisy, arané Al-Walid bin Mugirah.
+
+[^876]: Apa sing debalangna maring neraka kuwé désiksa nganti ajur terus débalékna maning kaya mauné seprelu désiksa maning.
+
+[^877]: “Ora” kuwé bantahan ingatasé omongan-omongané wong-wong musrik sing kepéngin maring prekara kesebut neng dhuwur.
+
+[^878]: Maju nampani pengéling-éling lan sing démaksud mundur, ora gelem nampa pengéling-éling.
+
+[^879]: Perangan awak menungsa dadi seksi ingatasé penggawéan sing délakoni neng dhéwéké kaya sing kesebut neng Surat An-Nur (24) ayat 24.
+
+[^880]: Sebab banget nemené kesengsaran neng wektu kuwé lan wedi arep ninggalna ngalam dunya lan ngadhepi ngalam akhérat.
+
+[^881]: Campur antarané winih lanang karo winih wadon.
+
+[^882]: Aran sewijiné tuk neng suwarga sing banyuné putih tur ambuné enak lan rasané nékmat pisan.
+
+[^883]: Yakuwé niat lan janji arep nindakna sewijining laku sing degandhéngna karo barang sing dégayuh. Contoné, angger wis mari goli mriyang utawa bisa lulus ujian sewenéh wong arep puasa 3 dina utawa arep awéh sedhekah,
+
+[^884]: Seperangan ahli tapsir nerjemahna, “Sekawit (demi) angin sing dekirim.”
+
+[^885]: Mabur seperlu ngleksanakna dhawuhé Gusti Allah.
+
+[^886]: Rikala  malaékat temurun nggo nggawa wahyu, seperangan ahli tapsir duwé penemu, lamon sing démaksud karo an-nasyirat kuwé udan-barat.
+
+[^887]: Wektu nggo ngumpul bareng wargané dhéwék-dhéwék.
+
+[^888]: Bumi ngumpulna wong-wong sing ésih urip neng platarané lan wong-wong sing wis mati neng njeroné.
+
+[^889]: Sing duwé ulaban (Ind. lidah api) telu, yakuwé neng tengen, neng kiwé, lan neng ndhuwur. Kiyé tegesé, siksa sing ngubengi wong-wong kapir tepung gelang.
+
+[^890]: Seperangan ahli tapsir ngucap lamon sing démaksud ndhongko (rukuk) neng kéné yakuwé tundhuk maring dhawuhé Gusti Allah; lan seperangan maning ngucap, maksudé kuwé sembayang.
+
+[^891]: Bantahan maring wong-wong kapir Mekah sing ngingkari lamon menungsa padha tangi maning neng dina kiyamat.
+
+[^892]: Wektu wengi déarani “sandhangan” mergané wengi kuwé peteng nutupi jagat kaya sandhangan nutupi awaké menungsa.
+
+[^893]: Para juru tapsir duwé penemu sing beda-beda ngenani “roh” neng ayat kiyé. Ana sing ngarani “Jibril” ana sing ngarani tentarané Gusti Allah lan uga ana ngarani “rohé menungsa”.
+
+[^894]: Neng ayat 1–5 Gusti Allah sumpah kanthi malaékat-malaékat sing werna-werna sipaté lan urusané lemon menungsa bakal dényatna neng dina Kiyamat. Seperangan juru tapsir duwé penemu, lamon neng ayat kiyé, kejaba ayat 5, Gusti Allah sumpah kanthi lintang-lintang.
+
+[^895]: Seuwisé wong-wong kapir krungu anané dina tangi seuwisé mati wong-wong mau gumun lan padha ngécé merga miturut piandelé dhéwéké ora ana dina tangi kuwé. Mulané wong-wong kapir mau padha takon.
+
+[^896]: Nemtokna tingkat-tingkat kedadénané, umuré, rejekiné, lan nasibé.
+
+[^897]: Nggampangna lairé utawa awéh kelonggaran maring dhéwéké nggo nglakoni dalan sing bener utawa dalan sing sasar.
+
+[^898]: Sewisé déterangna lamon Al-Qur’an kuwé nyata-nyata temurun sekang Gusti Allah lan neng njeroné ana wulangan lan pituduh sing aséng menungsa ngambah dalan sing jejeg, banjur détakokna maring wong-wong kapir kuwé, “Dalan endi maning sing arep ko ambah?”
+
+[^899]: Jeneng kitab sing nyathet kabéh penggawéané wong-wong sing padha duraka.
+
+[^900]: Babar-pisan ora kaya sing déomongna déning wong-wong mau lamon dhéwéké kepérek maring Gusti Allah.
+
+[^901]: Jeneng kitab sing nyathet kabéh penggeweané wong-wong sing padha bekti
+
+[^902]: Menungsa neng dunya kiyé, mbuh krasa mbuh ora jané lagi padha mlaku nuju maring Pengérané. Lan mesthi dhéwéké bakal ketemu Pengérané seprelu nampani piwales sekang Gustiné ingatasé penggawéan sing apik utawa penggawéan sing ala.
+
+[^903]: Sekang setétés winih lanang tekan délairna, nglakoni mangsa bocah, nonoman lan gedhé. Sekang urip dadi mati lan nganti détangékna maning.
+
+[^904]: Raj’i tegesé mubeng maning. Udan déjenengi raj’i neng Ayat kiyé merga udan kuwé asal sekang uwab sing mumbul sekang bumi maring langit banjur temurun maning maring bumi, terus balik dadi uwab maning lan mumbul maring langit, lan seterusé.
+
+[^905]: Malem sepuluh wekasan wulan Puasa. Lan ana uga sing ngarani sepuluh malem kawitané wulan Muharam klebu neng sejeroné kuwé dina Asyura. Ana maning sing ngarani sepuluh wengi kawitané wulan Dulhijah.
+
+[^906]: Petanahan endhép (Ind. lembah) kiyé anané neng bagéan lor tanah Arab, antarané kota Medinah lan Siria. Wong-wong neng kono padha nugeli watu gunung nggo mbangun umah gedhong sing dadi panggonané. Lan uga ana sing mbolongi gunung-gunung nggo manggon lan nggo pengayoman.
+
+[^907]: Gusti Allah nyalahna wong sing ngucap lamon dunya brana kuwé sewijiné kemulyan lan kemiskinan sewijiné palaina kaya kesebut neng ayat 15 lan 16. Ning setemené dunya utawa kemiskinan kuwé sewijiné cobané Gusti Allah kanggo para kewulané.
+
+[^908]: Ora awéh hak-haké bocah yatim lan ora temindak apik maring dhéwéké.
+
+[^909]: Nalika temuruné wahyu maring Kanjeng Nabi Muhammad s.a.w, kandheg sewetara wektu wong-wong musrik padha ngucap, “Pengérané (Muhammad) wis ngedohi lan wadhéh maring dhéwéké.” Mulané temurun ayat kiyé nggo mbantah ucapané wong-wong musrik kuwé.
+
+[^910]: Pungkasan perjuangané Kanjeng Nabi Muhammad s.a.w, kuwé bakal nemoni kemenangan-kemenangan, lagi kawitané ngalami kangélan. Uga ana seperangan ahli tapsir duwé penemu, tembung akhérat tegesé “penguripan neng akhérat” sarta kabéh kenékmatané, lan uulaa détegesi “penguripan neng ngalam dunya”.
+
+[^911]: Bingung goli nggayuh bener sing ora bisa dépekolih nganggo nalar. Banjur Gusti Allah nurunaken wahyu maring Kanjeng Nabi Muhammad s.a.w.
+
+[^912]: Kesusahan-kesusahan sing dérengga déning Kanjeng Nabi Muhammad s.a.w, sejeroné mbutulna ajaran Islam.
+
+[^913]: Ngluhurna drajat lan melokna asmané bareng karo asma Gusti Allah neng kalimah sahadat, nganggep bekti maring Kanjeng Nabi dadi bekti maring Gusti Allah.
+
+[^914]: Seperangan ahli tapsir duwé penemu, angger sliramu (Muhammad) wis rampung nyebar agama, banjur ngibadaha maring Gusti Allah; angger sliramu wis rampung urusan dunya énggal tandangi urusan akhérat lan ana uga sing duwé penemu, “Angger wis rampung sembayang, gari padha ndonga.”
+
+[^915]: Sing démaksud “Tin” neng seperangan ahli tapsir yakuwé panggonan Nabi Nuh a.s yakuwé Damaskus sing akéh wit Tin; lan “Zaitun” yakuwé Baitulmaqdis sing akéh wité zaitun.
+
+[^916]: Gunung Sinai kuwé panggonané Nabi Musa nampa wahyu.
+
+[^917]: Sing menging kuwé Abu Jahal lan sing dépenging Rasulullah. Ning upaya kiyé ora kasil sebab Abu Jahal weruh ana sing gawé wedi. Sewisé Rasulullah rampung sembayang, kabar kuwé déaturna maring Penjenengané. Banjur Rasulullah ngendika, “Angger Abu Jahal nglakoni sing kaya kuwé, mesthi dhéwéké désirnakna déning malaékat.
+
+[^918]: Malem lailatul qodar duwé pirang-pirang pengertén, antarané malem kemulyan, merga neng wengi kuwé kawitané déturunaken Al-Qur’an sekang Lauh Mahfuz maring Kanjeng Nabi Muhammad s.a.w.
+
+[^919]: Isiné kitab-kita sing déparingna maring para nabi kayadéné Taurat, Zabur, lan Injil sing asli.
+
+[^920]: Jejeg tegesé adoh sekang laku mango-tingal (syirik) lan adoh sekang sasar.
+
+[^921]: Ana sing begya lan ana sing cilaka.
+
+[^922]: Méwah-méwahan ngenani akéhé anak, bandha, pangkat, kemuktén lan liya-liyané, ndadékna ko kelalén bekti maring Gusti Allah.
+
+[^923]: Ngumpulna lan ngitung-itung bandha sing ndadékaken dhéwéké dadi medit lan ora gelem nginfakna neng dalané Gusti Allah.
+
+[^924]: Wadya bala utawa tentara sing dépimpin déning Abrahah, Gubernur Yaman sing arep nggempur Ka’bah. Seurungé mlebu maring kota Mekah wadya bala kuwé déserang déning rombongan manuk sing padha mbandhemi nganggo krikil nganti tentara kuwé ajur.
+
+[^925]: Wong-wong Quraisy biasa lungan utamané dagang maring Negara Syam neng mangsa panas lan maring Yaman neng mangsan adhem. Neng dalan wong-wong mau olih jaminan aman sekang para penguwasa negara sing keliwatan. Kiyé dadi kenékmatan sing gedhé paringané Gusti Allah. Mulané pantes temen angger wong-wong kuwé padha nyembah maring Gusti Allah sing awéh nékmat sing akeh kuwé.
+
+[^926]: Wong-wong sing ora ngregani lan nglirwakna ngamal lan wektu-wektuné sembayang.
+
+[^927]: Maksudé pamer kuwé, temindak sing ora nggo nggolét ridoné Gusti Allah, ning kon olih pengalem utawa kewentar neng masrakat
+
+[^928]: Seperangan ahli tapsir napsiri “bebeh mbayar jakat”.
+
+[^929]: Sing dékarepna karo “tangan loroné Abu Lahab” yakuwé Abu Lahab

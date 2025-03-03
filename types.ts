@@ -38,10 +38,10 @@ export interface Verse {
     sura: number;
     verse: number;
     text: Root;
-    footnotes: VerseFootnote[]
 }
 
 export interface Document {
     metadata: Metadata;
-    verseList: Verse[]
+    verseList: Verse[],
+    footnoteList: VerseFootnote[]
 }

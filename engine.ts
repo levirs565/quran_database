@@ -1,6 +1,6 @@
-import { Document, Metadata, Verse } from "./types.ts"
+import { Document, Metadata, Verse, VerseFootnote } from "./types.ts"
 import * as yaml from "@std/yaml";
-import { Heading, Root, RootContent } from "https://esm.sh/@types/mdast@4.0.4";
+import { FootnoteDefinition, Heading, Root, RootContent, Yaml } from "https://esm.sh/@types/mdast@4.0.4";
 import remarkParse from 'https://esm.sh/remark-parse@11'
 import rehypeParse from 'https://esm.sh/rehype-parse@9';
 import rehypeRemark from 'https://esm.sh/rehype-remark@10';
@@ -45,105 +45,72 @@ export function documentToMdAst(document: Document): Root {
         }, [
             u("text", { value: title })
         ]) as Heading,
-        ...document.verseList.flatMap((verse) => {
-            const heading = u("heading", {
+        ...document.verseList.flatMap((verse) => [
+            u("heading", {
                 depth: 2
             }, [
                 u("text", { value: `${verse.sura}:${verse.verse}` })
-            ])
-            const footnotes = verse.footnotes.map((footnote) =>
-                u("footnoteDefinition", {
-                    identifier: `${footnote.index}`,
-                }, footnote.text.children
-                )
-            )
-            return [
-                heading,
-                ...verse.text.children,
-                ...footnotes
-            ] as RootContent[]
-        })
+            ]),
+            ...verse.text.children,
+        ] as RootContent[]
+        ),
+        ...document.footnoteList.map(
+            (footnote) => u("footnoteDefinition", {
+                identifier: `${footnote.index}`,
+            }, footnote.text.children
+            ) as FootnoteDefinition
+        )
     ]);
 }
+
 
 export function mdastToMd(ast: Root) {
     return mdastStringifyProcessor.stringify(ast);
 }
 
 export function mdastToDocument(root: Root): Document {
-    let currentIndex = -1
-    let current: RootContent | undefined = undefined;
+    let frontmatter: any;
+    let title: string = "";
 
-    function next() {
-        if (currentIndex + 1 >= root.children.length) {
-            current = undefined;
-        } else {
-            currentIndex++;
-            current = root.children[currentIndex];
+    const footnoteList: VerseFootnote[] = [];
+    const verseList: Verse[] = []
+
+    let lastVerse: Verse | undefined = undefined;
+
+    for (const node of root.children) {
+        if (node.type == "yaml") {
+            frontmatter = yaml.parse(node.value);
         }
-    }
-
-    function parseFrontmatter(): any {
-        if (!current || current.type != "yaml") {
-            console.log(JSON.stringify(current))
-            throw new Error("Expected YAML frontmatter");
+        else if (node.type == "footnoteDefinition") {
+            footnoteList.push({
+                index: Number.parseInt(node.identifier),
+                text: u("root", [...node.children])
+            })
         }
-
-        const frontmatter = yaml.parse(current.value);
-        next()
-        return frontmatter;
-    }
-
-    function parseMetadata() {
-        const frontmatter = parseFrontmatter();
-
-        if (!current || current.type != "heading" || current.depth != 1) {
-            throw new Error("Expected heading with depth 1")
-        }
-        const title = toString(current);
-        next();
-
-        return {
-            ...frontmatter,
-            title,
-        } as Metadata
-    }
-
-    function parseVerseList() {
-        const verseList: Verse[] = [];
-        while (current) {
-            const headerText = toString(current);
-            const [sura, verseNumber] = headerText.split(":", 2).map(text => Number.parseInt(text))
-            const verse: Verse = {
-                sura,
-                verse: verseNumber,
-                text: u("root", []),
-                footnotes: []
-            }
-
-            next();
-            while (current && current.type != "heading") {
-                if (current.type != "footnoteDefinition") {
-                    verse.text.children.push(current)
-                } else {
-                    verse.footnotes.push({
-                        index: Number.parseInt(current.identifier),
-                        text: u("root", [...current.children])
-                    })
+        else if (node.type == "heading") {
+            if (node.depth == 1) {
+                title = toString(node)
+            } else if (node.depth == 2) {
+                const headerText = toString(node);
+                const [sura, verseNumber] = headerText.split(":", 2).map(text => Number.parseInt(text))
+                lastVerse = {
+                    sura,
+                    verse: verseNumber,
+                    text: u("root", []),
                 }
-                next();
+                verseList.push(lastVerse)
             }
-            verseList.push(verse)
+        } else if (lastVerse) {
+            lastVerse.text.children.push(node)
         }
-        return verseList;
     }
-
-    next();
-    const metadata = parseMetadata()
-    const verseList = parseVerseList();
 
     return {
-        metadata,
-        verseList
+        metadata: {
+            title,
+            ...frontmatter
+        },
+        verseList,
+        footnoteList
     }
 }

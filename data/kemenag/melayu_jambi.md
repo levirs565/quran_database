@@ -13,8 +13,6 @@ Dengan namo Allah nang Maha Pangasih lagi Maha Panyayang.
 
 Sagalo puji bagi Allah, Tuhan [^1] samesta alam.
 
-[^1]: Allah disebut rabb (tuhan) sagalo alam kareno Diolah nang lah manciptokan, mameliharo, mandidik, mangatur, mengururs, mambagih rezki, dan sagalonyo kapado makhluk-Nyo.
-
 ## 1:3
 
 Nang Maha Pangasih lagi Maha Panyayang.
@@ -22,8 +20,6 @@ Nang Maha Pangasih lagi Maha Panyayang.
 ## 1:4
 
 Pamilik Hari Pambalasan. [^2]
-
-[^2]: ‘Yaumid-dīn (Hari Pambalasan) adolah hari katiko kagi manusio manerimo pembalasan tahadap amal-amalnyo nang baik dan nang buruk. Hari tu disebut jugo yaumul-qiyāmah (Hari Kiamat), yaumul-ḥisāb (Hari Pangitungan) dan sabagainyo.
 
 ## 1:5
 
@@ -33,8 +29,6 @@ Cumo kapado Engkaulah kami manyembah dan cumo kapado Engkaulah kami mamohon pert
 
 Bimbinglah kami ka jalan nang lurus, [^3]
 
-[^3]: Jalan nang lurus iolah jalan hidup nang benar sasuai dengan ajaran Islam nang takandung di dalam Al-Qur’an dan hadis.
-
 ## 1:7
 
 (Yaitu) jalan orang-orang nang sudah Engkau bagih nikmat, bukan (jalan) orang-orang nang dimurkoi dan bukan (pula jalan) orang-orang nang sesat.
@@ -42,8 +36,6 @@ Bimbinglah kami ka jalan nang lurus, [^3]
 ## 2:1
 
 Alif Lām Mīm. [^4]
-
-[^4]: Dalam Al-Qur’an tadapat 29 surat nang dimuloi dengan huruf arab nang muqatta’ah (dibaco namo hurufnyo), saperti Alif Lām Mīm, Alif Lām Rā. Makno sasungguhnyo dari rangkaian huruf-huruf tu hanyo Allah Swt. nang tau. Ado nang bapendapat bahwa huruf-huruf tu gunonyo untuk manarik perhatian atau untuk manunjukkan mukjizat Al-Qur’an
 
 ## 2:2
 
@@ -69,8 +61,6 @@ Sasungguhnyo orang-orang kafir tu samo bae bagi orang-orang tu, apokah kamu (Nab
 
 Allah lah mangunci hati dan panganingan orang-orang tu. [^5] Pado pangliatan orangorang tu ado panutup, dan bagi orang-orang tu sikso nang sangat berat.
 
-[^5]: Allah Swt. lah mangunci hati dan panganingan orang kafir sahinggo nasehat atau hidayah idak biso masuk ka dalam hatinyo
-
 ## 2:8
 
 Di antaro manusio ado nang bakato, “Kami baiman kapado Allah dan hari akhir,” padohal sasungguhnyo orang-orang tu idak tamasuk orang-orang nang baiman.
@@ -83,13 +73,9 @@ Orang-orang tu mangicuh Allah dan orang-orang nang baiman, padohal orang-orang t
 
 Dalam hati orang-orang tu ado panyakit, [^6] lalu Allah manambah panyakitnyo dan orang-orang tu mandapat sikso nang sangat pedih kareno orang-orang tu mangicuh.
 
-[^6]: Panyakit hati nang dimaksud adolah karaguan tentang kabenaran ugamo Islam, kamunafikan, atau katidaksukoan tahadap kanabian Rasulullah saw
-
 ## 2:11
 
 Apobilo dikatokan kapado orang-orang tu, “Janganlah babuat karusan di bumi!” [^7] Orang-orang tu manjawab, “Sasungguhnyo kami hanyolah orang-orang nang mangerjokan kabaikan.”
-
-[^7]: Di antaro bentuk karusakan di atas bumi adolah kakufuran, kamaksiatan, manyebarkan rahasio orang baiman dan mambagihkan kasetiaan kapado orang kafir. Malanggar nilai-nilai nang ditetapkan ugamo kagi mangakibatkan alam iko rusak, bahkan hancur.
 
 ## 2:12
 
@@ -123,8 +109,6 @@ Perumpamoan orang-orang tu macam orang-orang nang manyalokan api. Satelah (api t
 
 Atau, macam (orang-orang nang ditimpo) hujan lebat dari langit, nang disertoi kelam, petir dan kilat. Orang-orang tu manyumbat kuping dengan jari-jarinyo (tuk mangelak) suaro petir tu kareno takut mati. Allah manguasoi orang-orang nang kafir. [^8]
 
-[^8]: Maksudnyo adolah bahwa pangetauan dan kakuasoan Allah Swt. maliputi orang-oranng kafir.
-
 ## 2:20
 
 Hampir bae kilat tu manyambar pangliatan orang-orang tu, tiap kali (kilat tu) manyinari, orang-orang tu bejalan di bawah (sinar) tu, dan apobilo kelam manimpo orang-orang tu, orang-orang tu barenti. Sakironyo Allah mangendaki, mustilah Dio hilangkan panganingan jugo pangliatan orang-orang tu. Sungguh, Allah Maha Kuaso atas sagalo sasuatu.
@@ -153,12 +137,6 @@ Sampekanlah berito senang kapado orang-orang nang baiman dan baramal soleh bahwa
 
 Sasungguhnyo Allah idak segan mambuat perumpamoan saekor nyamuk atau nang lebih kecik dari tu. [^9] Adopun orang-orang nang baiman mangetaui kalu tu kabenaran dari Tuhannyo. Tapi, orang-orang kafir bakato, “Apo maksud Allah dengan perumpamoan iko? Dengan (perumpamoan) tu banyak orang nang disesatkan-Nyo. [^10] Dengan tu jugo banyak orang-orang nang dibagih-Nyo patunjuk. Tapi idak ado nang Dio sesatkan dengan (perumpamoan) tu, salain orang-orang fasik. [^11]
 
-[^9]: Makhluk nang kecik nang dikiro lemah, macam nyamuk, semut, lebah, laba-laba, atau lainnyo, sabenarnyo banyak manyimpan hikmah untuk manjadi palajaran bagi manusio.
-
-[^10]: Saseorang manjadi sesat kareno kaengkarannyo dan idak mau mamahami patunjuk- patunjuk Allah. Dalam ayat iko dijelaskan bahwa orang-orang tu engkar dan idak mau mamahami apo sebabnyo Allah mambuat nyamuk sabagai perumpamoan. Akibatnyo, orang-orang tu manjadi sesat.
-
-[^11]: Orang fasik adolah orang nang malanggar katentuan-katentuan ugamo, baik barupo ucapan maupun gawenyo.
-
 ## 2:27
 
 (Yaitu) orang-orang nang malanggar perjanjian Allah sasudah (perjanjian) tu diteguhkan, mamutuskan apo nang di perentahkan Allah untuk disambungkan (silaturrahmi), dan babuat karusakan di bumi. Orang-orang tulah orang-orang nang rugi.
@@ -171,13 +149,9 @@ Macam mano kamu engkar kapado Allah, padohal kamu (tadinyo) mati, lalu Dio mangi
 
 Dio-lah (Allah) nang manciptokan sagalo nang ado di bumi untukmu, kemudian Dio manuju ka langit, lalu Dio manyempurnokannyo manjadi tujuh langit. [^12] Dio Maha Mangetaui sagalo sasuatu.
 
-[^12]: Langit nang bamakna ruang di luar bumi dengan sagalo isinyo (bulan, planet, komet, bintang, galaksi) nang jumlahnyo tak bahingga (disimbolkan dengan ungkapan ‘tujuh langit’) sasungguhnya terus berevolusi. Allah Swt. manyebutnyo ‘manyempurnokannyo’, karena prosesnya terus balanjut. Banyak bintang nang mati, namun banyak jugo bintang nang lahir. Sedangkan nang dimaksud dengan, ‘manyempurnokan’ adolah proses pambentukan bintang-bintang baru nang terus balanjut sejak pambentukan alam semesta.
-
 ## 2:30
 
 (Ingatlah) ketiko Tuhan-mu bafirman kapado paro malaikat, “Aku bakal manjadikan Khalifah [^13] di bumi.” Orang-orang tu bakato, “Apokah Engkau hendak manjadikan orang-orang nang marusak dan manumpahkan darah di sano, sedangkan kami batasbih mamuji-Mu dan manyucikan namo-Mu? Dio bafirman, “Sasungguhnyo Aku mangetaui apo nang idak kamu kataui.”
-
-[^13]: Dalam Al-Qur'an kata ‘khalīfah’ mampunyoi makno pangganti, pamimpin, panguaso, atau pangelola alam samesta.
 
 ## 2:31
 
@@ -195,27 +169,17 @@ Dio (Allah) bafirman, “Oi Adam, bagi taukanlah kapado malaikat-malaikat tu nam
 
 (Ingatlah) katiko Kami bafirman kapado paro malaikat, “Sujudlah kamu kapado Adam!” Mako, paro malaikat tu pun sujud, kacuali Iblis. [^14] Io manolaknyo dan manyongkakkan diri, dan dio tamasuk golongan kafir.
 
-[^14]: Iblis tamasuk nang disuruh sujud dan barasal dari golongan jin.
-
 ## 2:35
 
 Kami bafirman, “Oi Adam, tinggallah kamu dan binimu di dalam surgo, makanlah dengan nikmat (sagalo rupo makanan) nang ado di sano sasukomu, dan janganlah kamu dekati pohon iko, [^15] sahinggo kamu tamasuk orang-orang nang aniayo!” [^16]
-
-[^15]: Setan mangicuh Nabi Adam a.s. bahwa siapo nang makan buah pohon tu kagi kekal di dalam surgo (tengok surat Thāhā/20 : 120).
-
-[^16]: Orang zalim adolah orang nang malakukan gawe aniayo nang marugikan dirinyo dewek maupun orang lain.
 
 ## 2:36
 
 Lalu, setan manggelincirkan kaduonyo dari surgo [^17] sahinggo kaduonyo dikaluarkan dari sagalo kanikmatan ketiko kaduonyo di sano (surgo). Kami bafirman, “Turunlah kamu! Sabagian kamu manjadi musuh bagi nang lain serto bagi kamu ado genah tinggal dan kasenangan di bumi sampe waktu nang ditentukan.”
 
-[^17]: Nabi Adam a.s. dan Hawa mamakan buah pohon nang dilarang tu, sahinggo diusir Allah SWT. dari surgo dan diturunkan ka dunio.
-
 ## 2:37
 
 Kemudian, Adam manerimo baberapo kalimat [^18] dari Tuhan-nyo, lalu Dio pun manerimo tobatnyo. Sasungguhnyo Diolah Nang Maha Panerimo tobat lagi Maha Panyayang.
-
-[^18]: Nang dimaksud baberapo kalimat pado ayat ko adolah ucapan untuk mamohon ampun (tobat) dari Allah SWT macam disebut dalam surah al-A’raf/7:23.
 
 ## 2:38
 
@@ -229,10 +193,6 @@ Kami bafirman, “Turunlah kamu gegalo dari surgo! Kemudian, kalu benar-benar da
 
 Oi Bani Israil! [^19] Ingatlah nikmat-Ku nang lah Aku bagihkan kapadomu dan penuhilah janjimu kapado-Ku, [^20] niscayo Aku penuhi janji-Ku kapadomu. Hanyo kapado-Ku hendaknyo kamu takut.
 
-[^19]: Israil adolah namo lain Nabi Ya‘qub a.s. Oleh kareno tu, Bani Israil adolah katurunan Nabi Ya‘qub a.s. dan kini dikenal dengan bangso Yahudi.
-
-[^20]: Di antaro Janji Bani Israil kapado Allah iolah hanyo manyembah Allah, idak manyekutukan-Nyo, serto baiman kapado Nabi Muhammad saw. Samacam mano nang tasebut di dalam Taurat.
-
 ## 2:41
 
 Baimanlah kamu kapado apo nang lah Aku turunkan (Al-Qur'an) nang mambenarkan nang ado pado kamu (Taurat) dan janganlah kamu manjadi orang-orang nang pertamo kafir kapadonyo. Janganlah kamu manukarkan ayat-ayat-Ku dengan hargo murah dan batakwalah hanyo kapado-Ku.
@@ -240,8 +200,6 @@ Baimanlah kamu kapado apo nang lah Aku turunkan (Al-Qur'an) nang mambenarkan nan
 ## 2:42
 
 Janganlah kamu campur adukkan kabenaran dengan kabatilan [^21] dan (jangan pulak) kamu singitkan kabenaran, sedangkan kamu mangetauinyo.
-
-[^21]: Nang dimaksud dengan kebatilan adolah kesalahan, kejahatan, kemungkaran, dan sabagainyo.
 
 ## 2:43
 
@@ -267,25 +225,17 @@ Oi Bani Israil, ingatlah nikmat-Ku nang lah Aku bagihkan kapadomu dan sasungguhn
 
 Takutlah kamu pado suatu hari (kiamat), nang sasaorang idak mampu mambelo orang lain dikit pun, syafaat [^22] dan tebusan apo pun darinyo idak diterimo, dan orang-orang tu idak bakal ditolong.
 
-[^22]: Syafaat iolah pertolongan nang, antaro lain, dibagihkan oleh malaikat, paro nabi, atau orang-orang mukmin pilihan atas izin Allah Swt. untuk maringankan azab sasaorang atau bebannyo di akherat.
-
 ## 2:49
 
 (Ingatlah) katiko Kami manyelamatkan kamu dari (Fir’aun dan) pangikut- pangikut Fir’aun. [^23] Orang-orang tu manimpokan siksoan nang sangat berat kapadomu. Orang-orang tu manyeùbelih anak-anak lakimu dan manalakkan hidup anak-anak perempuanmu. Pado nang demikian ado cobaan nang besak dari Tuhan-mu.
-
-[^23]: Fir‘aun adolah gelar bagi rajo-rajo Mesir Kuno. Menurut sabagian ahli sejarah, Fir‘aun pado maso Nabi Musa a.s. adolah Menepthan (1232–1224 SM) nang dikenal dengan Ramses II.
 
 ## 2:50
 
 (Ingatlah) katiko Kami mambelah laut untukmu, lalu Kami manyelamatkanmu dan manenggelamkan (Fir’aun dan) pangikut Fir’aun, sedangkan kamu manyaksikannyo. [^24]
 
-[^24]: Allah Swt. mambagi mukjizat kapado Nabi Musa a.s. dengan membagihkan jalan malalui laut nang tasibak. Belum ado panjelasan ilmiah, caronyo. Salah sikok caronyo, biso jadi palintasan eksodus malalui celah teluk nang sempit. Dengan kakuasoan Allah Swt., rombongan Nabi Musa a.s. melintasi tepat saat laut surut maksimum saat purnama atau bulan baru sahinggo cukup waktu untuk melintas. Sekitar 6 jam kemudian, rombongan Fir‘aun mengejar. Saat di tengah, aek laut mulai pasang dan manenggelamkan rombongan Fir‘aun.
-
 ## 2:51
 
 (Ingatlah) katiko Kami manjanjikan (petunjuk Taurat) kapado Musa (malalui munajat selamo) empat puluh malam. [^25] Kemudian, kamu (Bani Israil) manjadikan (patung) anak jawi (sabagai sasembahan) sasudah (kapergian)-nyo dan kamu (manjadi) orang-orang nang zholim.
-
-[^25]: Allah Swt. manjanjikan bahwa waktu munajat Nabi Musa a.s. untuk manerimo patunjuk (Taurat) adolah empat puluh malam. Tapi, umatnyo idak sabar manunggunyo sahinggo orang tu menyembah patung anak jawi nang dibuat oleh Samiri.
 
 ## 2:52
 
@@ -295,13 +245,9 @@ Sasudah tu, kami memaafkan kamu supayo kamu basyukur.
 
 (Ingatlah) katiko Kami bagihkan kitab (Taurat) dan furqān kapado Musa supayo kamu mandapat patunjuk. [^26]
 
-[^26]: Kitab nang dimaksudkan adolah kumpulan wahyu nang disebut Taurat dan baguno sabagai furqān, yaitu mambedakan antaro hak dan batil.
-
 ## 2:54
 
 (Ingatlah) katiko Musa bakato kapado kaumnyo, “Oi kaumku, sasungguhnyo kamu lah manganiayo dirimu dewek dengan manjadikan (patung) anak jawi (sabagai sembahan). Kareno tu, batobatlah kapado panciptomu dan bunuhlah dirimu. [^27] Tu lebih baik bagimu dalam pandangan panciptomu. Dio bakal manerimo tobatmu. Sasungguhnyo Diolah nang Maha Panerimo Tobat lagi Maha Panyayang.
-
-[^27]: Untuk ungkapan “mambunuh dirimu” ado nang mangartikan, budak-budak nang idak manyembah patung anak jawi tu mambunuh orang nang manyembahnyo. Ado pulak nang mangartikan, orang nang manyembah patung anak jawi tu saling mambunuh dan ado pulak nang mangartikan orang-orang tu disuruh mambunuh diri orang-orang tu masing-masing untuk bataubat.
 
 ## 2:55
 
@@ -314,8 +260,6 @@ Kemudian, Kami mambangkitkan kamu sasudah kamatianmu, supayo kamu besyukur.
 ## 2:57
 
 Kami mamayungi kamu dengan awan dan Kami manurunkan kapadomu manna dan salwa. [^28] Makanlah (makanan) nang baik-baik dari rezeki nang lah Kami bagihkan kapadomu. Orang-orang tu idak manganiayo Kami, tapi justru orang-orang tulah nang manganiayo diri dewek.
-
-[^28]: ‘Manna’ adolah sejenis madu, salwa adolah sejenis burung puyuh.
 
 ## 2:58
 
@@ -337,10 +281,6 @@ Lalu, orang-orang nang aniayo mangganti perentah dengan (perentah laen) nang ida
 
 Sasungguhnyo orang-orang nang baiman, orang-orang Yahudi, orang-orang Nasrani dan orang-orang Shabiin, [^29] siapo bae (di antaro orang-orang tu) nang baiman kapado Allah dan hari akhir, jugo mangerjokan kabajikan (pasti) mandapat pahalo dari Tuhannyo, idak ado raso takut pado orang-orang tu dan orang-orang tu idak basedih hati. [^30]
 
-[^29]: Shabi’in adolah umat sabelum Nabi Muhammad saw nang mangetaui adonyo Tuhan nang Maha So, dan mampercayoi adonyo pangaruh bintang-bintang.
-
-[^30]: Ayat ini marupokan katentuan umum bagi setiap umat pado masanyo masing-masing. Misalnya, umat Yahudi pado maso Nabi Musa a.s. dan umat Nasrani pado maso Nabi Isa a.s.
-
 ## 2:63
 
 (Ingatlah) katiko Kami mangambil janjimu dan Kami angkat gunung (Sinai) di atasmu (sambil bafirman), “Pegang kuatlah apo nang lah Kami bagihkan kapadomu dan ingatlah apo nang ado di dalamnyo supayo kamu batakwa.
@@ -360,8 +300,6 @@ Mako, Kami jadikan (nang demikian) tu peringatan bagi orang-orang pado maso tu d
 ## 2:67
 
 (Ingatlah) katiko Musa bakato kapado kaumnyo, “Allah mamarintahkan kamu agar manyembelih sekok sapi.” Orang-orang tu batanyo, “Apokah engkau bakal manjadikan kami sabagai ejekan?” Dio manjawab, aku balindung kapado Allah supayo idak tamasuk orang-orang nang bengak (jahil). [^31]
-
-[^31]: Kata ‘jahil’ biso berarti ‘bengak, mayakini sasuatu nang idak benar, atau malakukan perbuatan nang idak layak dikerjokan’.
 
 ## 2:68
 
@@ -503,8 +441,6 @@ Sasudah tibo kapado orang-orang tu sorang Rasul (Nabi Muhammad) dari Allah nang 
 
 Orang-orang tu mangikuti apo nang dibaco oleh setan-setan pado maso kerajaan Sulaiman. Sulaiman tu idak kafir, tapi setan-setan tulah nang kafir. Orang-orang tu mangajarkan sihir kapado manusia dan apo nang diturunkan kapado duo malaikat di negeri Babilonia, yaitu Harut dan Marut. Padohal, keduonyo idak mangajarkan sasuatu kapado sasorang sabelum mangatokan, “Sasungguhnyo kami hanyolah fitnah (cobaan bagimu) [^32] oleh sebab tu janganlah kufur!”. Mako, orang-orang tu mampelajari dari keduonyo (malaikat tu) apo nang (dapat) mamisahkan antaro sorang (laki) dan bininyo. Orang-orang tu idak bakal dapat mancelakokan sasorang dengan sihirnyo, kacuali dengan izin Allah. Orang-orang tu mampelajari sasuatu nang mancelakokan dan idak mambagih manfaat kapado orang-orang tu. Sungguh, orang-orang tu benar-benar lah mangetaui bahwa siapo nang mambeli (manggunokan sihir) tu niscayo idak bakal mandapat kauntungan di akherat. Sungguh, buruk nianlah perbuatan orang-orang tu nang manjual dirinyo dengan sihir kalu orang-orang tu mangetaui(-nyo).
 
-[^32]: Dalam Al-Qur’an, kato ‘fitnah’ digunokan untuk menyatokan sajumlah makno sasuai dengan konteksnya, seperti ‘ujian, cobaan, azab, manghalangi kabenaran, dan mangusir orang dari kampung halamannya’.
-
 ## 2:103
 
 Seandainyo orang-orang tu baiman dan batakwa, pahalo dari Allah pasti lebih baik, sakironyo orang-orang tu mangetaui(-nyo).
@@ -512,8 +448,6 @@ Seandainyo orang-orang tu baiman dan batakwa, pahalo dari Allah pasti lebih baik
 ## 2:104
 
 Oi orang-orang nang baiman, janganlah kamu katokan, “Rā’ina.” Tapi katokanlah, “Unzurna” [^33] dan aningkanlah. Orang-orang kafir bakal mandapat azab nang pedih.
-
-[^33]: Ra’ina artinyo perhatikanlah kami. Tapi orang Yahudi bersungut mangucapkannyo, sahinggo nang orang-orang tu maksud iolah Ru’unah nang artinyo bodoh nian, sabagai ejekan kapado Rasulullah. Tulah sebabnyo Allah 11
 
 ## 2:105
 
@@ -531,8 +465,6 @@ Apokah kamu idak mangetaui bahwa Allah mamiliki kerajoan langit dan bumi? (Katau
 
 Ataukah kamu mangendaki untuk mamintak Rasulmu (Nabi Muhammad) seperti halnyo Musa (pernah) dimintak (Bani Israil) dahulu? [^34] Siapo nang mangganti iman dengan kakafiran, sungguh, dio lah tasesat dari jalan nang lurus.
 
-[^34]: Bani Israil pernah maminta kapado Nabi Musa a.s. agar dapat mangimak Allah Swt., mambuat berhalo nang disembah selain Allah Swt., dan lain-lain.
-
 ## 2:109
 
 Banyak di antaro Ahlulkitab mangendaki supayo orang-orang tu dapat mangembalikan kamu sasudah kamu baiman manjadi kafir balik kareno raso dengki dalam diri orang-orang tu sasudah kabenaran jelas bagi orang-orang tu. Mako, maafkanlah (biarkanlah) dan balapang dadolah (bapalinglah dari orang-orang tu) sahinggo Allah mambagihkan perentah-Nyo. Sasungguhnya Allah Maha Kuaso atas sagalo sasuatu.
@@ -544,8 +476,6 @@ Laksanokanlah sembahyang dan bayarlah zakat. Sagalo kabaikan nang kamu kerjokan 
 ## 2:111
 
 Orang-orang tu (Yahudi dan Nasrani) bakato, “Idak bakal masuk surgo malainkan orang-orang Yahudi atau Nasrani.” [^35] Tu (hanyo) angan-angan orang-orang tu. Katokanlah (Nabi Muhammad), “Tunjukkan bukti kabenaranmu kalu kamu orang-orang nang benar.”
-
-[^35]: Orang Yahudi mangatokan bahwa orang-orang tu bae nang kelam masuk surgo. Orang Nasrani mangatokan nang samo, yaitu bahwa dirinyo dewek lah nang kagi masuk surgo.
 
 ## 2:112
 
@@ -562,8 +492,6 @@ Siapokah nang lebih aniayo daripado orang-orang nang malarang masjid-masjid Alla
 ## 2:115
 
 Hanyo punyo Allah timur dan Barat. Ke mano bae kamu manghadap, di sanolah wajah Allah. [^36] Sasungguh Allah Mahaluas lagi Maha Mangetaui.
-
-[^36]: ‘Wajah Allah Swt. (wajhullāh)’ biso bararti ‘Zat Allah Swt.’ atau ‘rida Allah Swt.’, sedang nang dimaksud di iko adolah ‘arah kiblat nang diridai oleh Allah Swt. saat saseorang idak biso manentukan arah kiblat karena alasan tatentu’. Maksud iko tagambar dalam sebab nuzul nang dituturkan oleh ‘Amir bin Rabi‘ah r.a. Dia bakato, “Kami menemani Rasulullah saw. dalam sebuah perjalanan. Tibo-tibo langit tatutup mendung sahinggo kami kasulitan manentukan arah kiblat. Kami pun salat dan mambagih tando (pado arah sembahyang kami). Macam tu matahari muncul, kami sadar lah sembahyang tanpo manghadap ka arah kiblat. Kami laporkan hal iko kapado Rasulullah, lalu turunlah ayat iko.” (Riwayat Ibnu Majah, Baihaqi dan Tirmizi).
 
 ## 2:116
 
@@ -605,8 +533,6 @@ Takutlah kamu tu pado hari (katiko) idak saorang pun dapat manggantikan (mambelo
 
 (Ingatlah) katiko Kami manjadikan rumah tu (Ka‘bah) genah bakumpul dan genah nang aman bagi manusio. (Ingatlah katiko Aku katokan,) “Jadikanlah sabagian maqam Ibrahim [^37] genah sembahyang. (Ingatlah katiko) Kami wasiatkan kapado Ibrahim dan Ismail, “Bersihkanlah rumah-Ku untuk orang nang tawaf, nang i‘tikaf, orang nang rukuk dan orang nang sujud (sembahyang)!”
 
-[^37]: Maqam Ibrahim adolah genah dio tegak katiko mambangun Ka‘bah. Namun, ado jugo nang mamahaminya sabagai seluruh Masjidilharam samacam mano jugo ado nang mamahaminya sabagai genah dio pernah sembahyang.
-
 ## 2:126
 
 (Ingatlah) katiko Ibrahim badoa, “Ya Tuhanku, jadikanlah (negeri Makah) iko negeri nang aman dan bagihlah rezeki berupo buah-buahan kapado penduduknyo (hasil tanaman, tumbuhan nang biso dimakan) kapado penduduknyo, yaitu di antaro orang-orang tu nang baiman kapado Allah dan hari kemudian.” Dio (Allah) bafirman, “Kapado orang nang kafir bakal Aku bagih kasenangan semantaro, kemudian bakal Aku pakso dio ke dalam sikso nerako. Tulah saburuk-buruk genah balik.”
@@ -622,8 +548,6 @@ Ya Tuhan kami, jadikanlah kami orang-orang nang baserah diri kapado-Mu, (jadikan
 ## 2:129
 
 Ya Tuhan Kami, utuslah di antaro orang-orang tu seorang Rasul dari bagian orang-orang tu dewek, nang mambacokan kapado orang-orang tu ayat-ayat-Mu, mangajarkan Kitab dan Hikmah (Sunah) [^38] kapado orang-orang tu, dan manyucikan orang-orang tu. Sungguh, Engkaulah Nang Maha Perkaso, Maha Bijaksano.”
-
-[^38]: Di antaro arti hikmah adolah: sunah, pamahaman nang mandalam atas ajaran agama, kabenaran, pambicaraan nang akurat, raso takut kapado Allah Swt., kanabian, risalah, akal, dan keserasian antaro pangetauan dan pangamalan.
 
 ## 2:130
 
@@ -661,8 +585,6 @@ Kalu orang-orang tu lah mangimani apo nang kamu imani, sungguh orang-orang tu la
 
 (Paliharolah) sibgah Allah. [^39] “Siapo nang lebih baik sibgah-nyo daripado Allah ? Dan hanyo kapado-Nyo kami manyembah.
 
-[^39]: Sibgah (Ṣibgah)’ Allah Swt. berarti ‘celupan Allah Swt.’. Maksudnyo adolah iman kapado Allah Swt. nang idak disertai dengan kamusyrikan. Istilah tu digunokan karena iman manyatu dalam hati seperti manyatunyo warna pado bahan nang dicelupkan dan pengaruh celupan tu tampak pado pakaian samacam mano pangaruh iman tampak pado diri seorang mukmin.
-
 ## 2:139
 
 Katokanlah (Nabi Muhammad), “Apokah kamu (Yahudi dan Nasrani) kendak badebat dengan kami tentang Allah? Padohal, Dio adolah Tuhan kami dan Tuhan kamu. Bagi kami amalan kami, bagi kamu amalan kamu. Hanyo kapado-Nyo kami dengan tulus manghambokan diri.
@@ -683,13 +605,9 @@ Orang-orang nang kurang akal di antaro manusio bakal bakato, “Apokah nang mama
 
 Demikian pulak Kami lah manjadikan kamu (umat Islam) umat pertengahan [^40]  , supayo kamu manjadi saksi atas (gawe) manusio dan supayo rasul (Nabi Muhammad) manjadi saksi atas (gawe) kamu. Kami idak manetapkan kiblat (Baitulmaqdis) nang (dahulu) kamu bakiblat kapadonyo, kacuali untuk mangetaui (dalam kanyataan) siapo bae di antaro kamu nang babalik ka belakang. Sasungguhnyo (pamindahan kiblat) tu sangat berat kacuali bagi orang-orang nang lah dibagih patunjuk oleh Allah. Dan Allah idaklah manyio-nyiokan iman kamu, sabenar-benarnyolah Allah tu Maha Pangasih lagi Maha Panyayang kapado manusio.
 
-[^40]: Umat pertengahan bararti umat pilihan, tabaik, adil, dan seimbang baik dalam kayakinan, pikiran, sikap maupun perilaku.
-
 ## 2:144
 
 Sungguh, Kami imak wajahmu (Nabi Muhammad) sering mangadah ka langit. Mako, pasti kagi Kami palingkan kamu ka kiblat nang kamu suko. Lalu, hadapkanlah wajahmu ka arah Masjidilharam. Di manopun kamu sagalonyo barado, mako ngadapkanlah wajahmu ka arah tu. Sasungguhnyo orang-orang nang dibagih Kitab [^41] benar-benar mangetaui bahwa (pamindahan kiblat ka Masjidilharam) tu adolah kabenaran dari Tuhan orang-orang tu. Allah idak lengah atas apo nang orang-orang tu kerjokan.
-
-[^41]: Ahlulkitab adolah kaum Yahudi dengan kitab Tauratnyo dan Kaum Nasrani dengan kitab Injilnyo (surah al-Baqarah/2: 105).
 
 ## 2:145
 
@@ -698,8 +616,6 @@ Sungguh, kalu kamu (Nabi Muhammad) mandatangkan ayat-ayat (katerangan) kapado or
 ## 2:146
 
 Orang-orang nang sudah Kami bagih Kitab (Taurat dan Injil) mangenalnyo (Nabi Muhammad) [^42] seperti orang-orang tu mangenal anak-anaknyo dewek. Sasungguhnyo separo dari orang-orang tu manyingitkan kabenaran padohal orang-orang tu mangetaui.
-
-[^42]: Orang-orang Yahudi dan Nasrani tu sangat mangenal kanabian dan sifat-sifat Nabi Muhammad samacam mano nang lah disebutkan oleh Allah dalam kitab Taurat dan Injil.
 
 ## 2:147
 
@@ -749,12 +665,6 @@ Orang-orang tulah nang mandapatkan ampunan dan rahmat dari Tuhannyo dan orang-or
 
 Sasungguhnyo Safa dan Marwah marupokan sabagian syi’ar (ugamo) Allah. [^43] Mako, siapo Baibadah haji ka Baitullah atau baumroh, idak ado doso baginyo mangerjokan sa’i [^44] antaro kaduonyo. Siapo dengan karelaan hati mangerjokan kabaikan, mako sasungguhnyo Allah Maha Mansyukuri, [^45] lagi Maha Mangetaui.
 
-[^43]: Nang dimaksud dengan syiar adolah simbol-simbol kaagungan ugamo Allah Swt.
-
-[^44]: Sa’i bararti ‘bajalan dan balari-lari kecil tujuh kali antaro Safa dan Marwah katiko malakukan ibadah haji atau umrah’. Ungkapan ‘idak ada doso’ dimaksudkan untuk manghilangkan raso kaberatan sabagian sahabat untuk mangerjokan sai kareno Safa dan Marwah bekas genah barhalo.
-
-[^45]: Allah Swt. mansyukuri hambo-Nyo, mambagi pahalo tahadap amalnyo, memaafkan kasalahannyo, manambo nikmatnya dan sabagainyo.
-
 ## 2:159
 
 Sasungguhnyo orang-orang nang manyingitkan apo nang lah Kami turunkan berupo katerangan-katerangan dan patunjuk, sasudah Kami jelaskan kapado manusio dalam Kitab (Al-Qur’an), orang-orang tulah nang dilaknat Allah dan dilaknat (jugo) oleh orang-orang nang malaknat,
@@ -762,8 +672,6 @@ Sasungguhnyo orang-orang nang manyingitkan apo nang lah Kami turunkan berupo kat
 ## 2:160
 
 Kacuali orang-orang nang sudah batobat, mangadokan perbaikan, dan manerangkan(-nyo). [^46] Orang-orang tulah nang Aku terimo tobatnyo. Akulah Maha Panerimo Tobat lagi Maha Panyayang.
-
-[^46]: Maksudnyo adolah mangerjokan amal-amal saleh untuk manghilangkan kaburukan nang diakibatkan kareno kasalahan-kasalahannyo dan manjelaskan kabenaran nang disembunyikannyo.
 
 ## 2:161
 
@@ -780,8 +688,6 @@ Tuhan kamu adolah Tuhan Mang Maha Esa. Idak ado tuhan selain Dio Nang Maha Panga
 ## 2:164
 
 Sasungguhnyo pado panciptoan langit dan bumi, pergantian malam dan siang, [^47] kapal nang balayar di laut dengan (muatan) nang baguno bagi manusio, apo nang Allah turunkan dari langit berupo aek, lalu dengannyo Dio manghidupkan bumi sasudah mati (kering), dan Dio manebarkan di dalamnyo sagalo macam binatang, dan pangisaran angin dan awan nang dikendalikan antaro langit dan bumi, (sagalonyo) sungguh merupokan tando-tando (kaagungan Allah) bagi kaum nang barakal (mamahami).
-
-[^47]: Pargantian malam dan siang nang disebabkan rotasi bumi lah manggerakkan udara secaro global berupo angin. Dengan angin, kapal dapat bagerak manggunokan layar. Angin jugo nang manggerakkan uap aek dari lautan mambentuk awan dan mamindahkannyo ke daratan tacurah sabagai hujan. Dengan hujan tu, tumbuhlah tumbuhan nang manghidupi beragam jenis hewan.
 
 ## 2:165
 
@@ -839,8 +745,6 @@ Kabajikan tu bukanlah manghadapkan mukomu ka arah Timur dan Barat, malainkan kab
 
 Oi orang-orang nang baiman, diwajibkan kapadomu (mangerjokan) kisas bakaitan dengan orang-orang nang dibunuh. Orang merdeka dengan orang merdeka, hambo sahayo dengan hambo sahayo, dan perempuan dengan perempuan. Siapo mandapatkan maaf dari kaluargonyo hendaklah mangikuti dengan dengan caro nang patut dan hendaklah manunaikannyo dengan caro nang baik. [^48] Nang macam tu adolah karinganan dan rahmat dari Tuhanmu. Siapo nang malampaui batas sasudah tu, mako io kagi mandapat sikso nang pedih nian.
 
-[^48]: Perentah untuk mambagihkan kabaikan dengan caro nang baik balaku untuk kaduo belah pihak, baik pambunuh maupun wali orang nang dibunuh.
-
 ## 2:179
 
 Dalam kisas tu ado (jaminan) kahidupan bagimu wahai orang-orang nang berakal supayo kamu batakwa.
@@ -848,8 +752,6 @@ Dalam kisas tu ado (jaminan) kahidupan bagimu wahai orang-orang nang berakal sup
 ## 2:180
 
 Diwajibkan kapadomu, apobilo saseorang di antaro kamu didatangi (tando-tando) kamatian sedang dio maninggalkan wasiat kapado kadua orang tuo dan karib karabat dengan caro nang patut (sabagai) kawajiban bagi orang-orang nang batakwa. [^49]
-
-[^49]: Manurut jumhur ulama, ayat iko dinasakh dengan ayat waris dan hadis ‘lā waṣiyyata li wāriṡin’ (Idak ado wasiat untuk ahli waris).
 
 ## 2:181
 
@@ -859,8 +761,6 @@ Siapo nang mangubahnyo (wasiat tu), sasudah manganingnyo, sasungguhnya dosonyo h
 
 Tapi, siapo nang kuatir tahadap orang nang bawasiat (kagi balaku) idak adil atau babuat doso, lalu dio mandamaikan orang-orang tu, [^50] dio idak badoso. Sasungguhnyo Allah Maha Pangampun lagi Maha Panyayang.
 
-[^50]: Maksud mandamaikan di siko iolah manyuruh orang nang bawasiat untuk balaku adil dalam bawasiat sasuai dengan katentuan ugamo.
-
 ## 2:183
 
 Oi orang-orang nang baiman, diwajibkan atas kamu bapuaso samacam mano diwajibkan kapado orang-orang nang sabelum kamu supayo kamu batakwa.
@@ -868,8 +768,6 @@ Oi orang-orang nang baiman, diwajibkan atas kamu bapuaso samacam mano diwajibkan
 ## 2:184
 
 (Yaitu) baberapo hari tatentu. Mako, siapo di antaro kamu sakit atau dalam perjalanan (lalu idak bapuaso), (wajib mangganti) sabanyak hari (nang dio idak bapuaso itu) pado hari-hari nang lain. Bagi orang nang berat mangerjokannya, wajib mambayar fidiah, (Yaitu) mambagih makan saorang miskin. Siapo dengan karelaan hati mangerjokan kabajikan, [^51] tu lebih baik baginyo dan bapuaso tu lebih baik bagimu kalu kamu mangetaui.
-
-[^51]: Siapo nang mamberi makan kapado lebih dari saorang miskin untuk sahari, itu lebih baik.
 
 ## 2:185
 
@@ -891,8 +789,6 @@ Janganlah kamu makan harto di antaro kamu dengan caro nang batil dan (janganlah)
 
 Orang-orang tu batanyo kapadomu (Nabi Muhammad) mangenai bulan sabit. [^52] Katokanlah, « Bulan sabit adolah (patunjuk) waktu bagi manusio dan (ibadah) haji. » Bukanlah suatu kabajikan mamasuki rumah dari belakangnyo, tapi kabajikan tu adolah (kabajikan) orang nang batakwa. Masukilah rumah-rumah dari pintu-pintunyo, dan batakwalah kapado Allah supayo kamu bauntung.
 
-[^52]: Bulan sabit adolah bukti mayakinkan pagantian bulan. Sasudah tampak bulan sabit ujung bulan nang tipis seperti pelepah kurma (surah Yāsīn/36: 39) manjelang pagi, malam berikutnyo ‘bulan mati’ (malam tanpo bulan samo sekali), kemudian disusul tampaknyo hilal, bulan sabit tipis sasaat sasudah magrib. Tulah awal bulan nang digunokan untuk parhitungan waktu ibadah seperti ibadah puaso Ramadan dan ibadah haji.
-
 ## 2:190
 
 Perangilah di jalan Allah orang-orang nang mamerangi kamu dan jangan malampaui batas. Sasungguhnyo Allah idak manyukoi orang-orang nang malampaui batas.
@@ -900,8 +796,6 @@ Perangilah di jalan Allah orang-orang nang mamerangi kamu dan jangan malampaui b
 ## 2:191
 
 Bunuhlah orang-orang nang mamerangimu di mano bae kamu jumpoi dan usirlah orang-orang tu dari genah orang-orang tu mangusirmu. Padohal, fitnah [^53] tu lebih kejam daripado pambunuhan. Lalu janganlah kamu perangi orang-orang tu di Masjidilharam, kacuali kalu orang-orang tu mamerangi kamu di genah tu. Kalu orang-orang tu mamerangimu, mako perangilah orang-orang tu. Macam tulah balasan bagi orang-orang kafir.
-
-[^53]: Fitnah dalam ayat iko maksudnyo perbuatan nang menimbulkan kakacauan, seperti mangusir orang dari kampung halamannyo, marampas harto, manyakiti orang lain, manghalangi orang dari jalan Allah Swt., atau malakukan kamusyrikan (imak catatan kaki surah al-Baqarah/2: 102).
 
 ## 2:192
 
@@ -915,10 +809,6 @@ Perangilah orang-orang tu sampe idak ado lagi fitnah dan ugamo (kataatan) hanyo 
 
 Bulan haram dengan bulan haram [^54] dan (tahadap) sasuatu nang dihormati [^55] balaku (hukum) kisas. Oleh sebab tu, siapo nang manyerang kamu, seranglah satimpal dengan serangan tahadapmu. Batakwalah kapado Allah dan katauilah bahwa Allah basamo orang nang batakwa.
 
-[^54]: Maksudnyo adolah bahwa kalu diserang pado bulan haram, umat Islam dibolehkan untuk mambalas serangan di bulan tu.
-
-[^55]: Sasuatu nang dihormati dapat bararti bulan haram, yaitu Zulkaidah, Zulhijah, Muharam, dan Rajab; tanah haram (Makkah), dan dalam kaadaan baihram.
-
 ## 2:195
 
 Balanjokanlah hartomu di jalan Allah, janganlah manjerumuskan dirimu ka dalam kabinasaan, dan babuat baiklah. Sasungguhnyo Allah manyukoi orang-orang nang babuat baik.
@@ -927,23 +817,13 @@ Balanjokanlah hartomu di jalan Allah, janganlah manjerumuskan dirimu ka dalam ka
 
 Sempurnokanlah (ibadah) haji dan umroh kareno Allah. Tapi, kalu kamu takepung (oleh musuh), (potonglah) hadyu [^56] nang mudah didapat dan jangan mancukur (rambut) kepalomu sabelum hadyu sampe di genah pamotongannyo. Kalu ado di antaro kamu nang sakit atau ado gangguan di kapalo (lalu bacukur), dio wajib bafidyah, yaitu bapuaso, basedekah atau bakurban. [^57]  apobilo kamu dalam kaadaan aman, sesiapo nang mangerjokan umroh sabelum haji (tamatu’), dio (wajib manyembelih) hadyu nang mudah didapat. Tapi, kalu idak mandapatkannyo, dio (wajib) bapuaso tigo hari dalam (maso) haji dan tujuh (hari) sasudah kamu balik. Tulah sepuluh hari nang sempurno. Katentuan tu balaku bagi orang-orang nang kaluargonyo idak manetap di sekitar Masjidilharam. Batakwalah kapado Allah dan katauilah bahwa Allah Mahakeras hukuman-Nyo.
 
-[^56]: Hadyu adolah hewan ternak nang disembelih di tanah haram Makkah pado Iduladha dan hari-hari tasyrik kareno manjalankan haji tamattu’ atau qiran, maninggalkan salah sikok manasik haji atau umrah, mangerjokan salah sikok larangan manasik, atau murni mau mandekatkan diri kapado Allah Swt. sebagai ibadah sunah.
-
-[^57]: Fidyah (tebusan) kareno idak dapat manyempurnokan manasik haji dengan alasan tatentu.
-
 ## 2:197
 
 (Maso) haji tu (balangsung pado) bulan-bulan nang sudah dimaklumi. [^58] Siapo nang mangerjokan (ibadah) haji dalam (bulan-bulan) tu, janganlah babuat rafas, [^59] babuat maksiat, dan batengkar dalam (mangerjokah ibadah) haji. Sagalo kabaikan nang kamu kerjokan (pasti) Allah mangetauinyo. Babekallah kareno sasungguhnya sabaik-baik bekal adolah takwa. Batakwalah kapado-Ku oi orang-orang nang punyo akal sehat.
 
-[^58]: Waktu nang dimaklumi untuk palaksanoan ibadah haji iolah Syawal, Zulkaidah, dan 10 malam Zulhijah.
-
-[^59]: ‘Rafaṡ’ bararti ‘mengeluarkan perkatoan nang manimbulkan birahi, perbuatan nang idak senonoh, atau hubungan seks’.
-
 ## 2:198
 
 Idaklah suatu doso bagimu mancari karunio dari Tuhanmu (pado musim haji). Apobilo kamu kamu batolak dari Arafah, bazikirlah kapado Allah di Masyarilharam. [^60] Bazikirlah kapado-Nyo kareno Diol ah mambagih patunjuk kapadomu meskipun sabelumnyo kamu benar-benar tamasuk orang-orang nang sesat.
-
-[^60]: Nang dimaksud dengan ‘Masyarilharam’ adolah bukit Quzah di Muzdalifah, tapi Muzdalifah secaro kaseluruhan dapat digunokan untuk tempat mabīt.
 
 ## 2:199
 
@@ -964,10 +844,6 @@ Orang-orang tulah nang mandapatkan bagian dari apo nang sudah orang-orang tu ker
 ## 2:203
 
 Bazikirlah kapado Allah pado hari nang sudah ditentukan bilangannyo. [^61] Sesiapo nang mampercepat (maninggalkan Mina) sasudah duo hari, mako idak ado doso baginyo. Siapo nang mangakhirkannyo idak ado ado doso (pulak) baginyo, [^62] (yakni) bagi orang nang batakwa. Batakwalah kapado Allah dan katauilah bahwa hanyo kapado-Nyo kamu bakal dikumpulkan.
-
-[^61]: Maksud zikir di siko iolah membaco takbir, tasbih, tahmid, dan sebagainyo. Maksud baberapo hari nang babilang iolah hari tasyriq, yaitu tigo hari satelah Iduladha (tanggal 11, 12, dan 13 bulan Zulhijah).
-
-[^62]: Mampercepat pado ayat iko bararti maninggalkan Mina pado tanggal 12 Zulhijjah sabelum matahari tabenam (nafar awwal). Adopun mangakhirkannyo bararti maninggalkan Mina pado tanggal 13 Zulhijjah (nafar ṡāni).
 
 ## 2:204
 
@@ -1029,13 +905,9 @@ Orang-orang tu batanyo kapadomu (Nabi Muhammad) mangenai baperang pado bulan har
 
 Sasungguhnyo orang-orang nang baiman serto orang-orang nang bahijrah dan bajihad [^63] di jalan Allah, orang-orang tu mangharap rahmat Allah. Allah Maha Pangampun lagi Maha Panyayang.
 
-[^63]: Jihad secaro umum bararti mancurahkan sagalo kamampuan, baik harto maupun rago untuk mamparjuangkan ugamo Allah Swt. dengan niat nang ikhlas kareno Allah Swt
-
 ## 2:219
 
 Orang-orang tu batanyo kapadomu (Nabi Muhammad) tentang khamr [^64] dan judi. Katokanlah, “Pado kaduonyo tadapat doso besak dan baberapo manfaat bagi manusio. (Tapi), doso kaduonya lebih besak daripado manfaatnyo.” Orang-orang tu jugo batanyo kapadomu (tentang) apo nang orang-orang tu infakkan. Katokanlah, “(Nang diinfakkan tu adolah) kalebihan (dari apo nang diperlukan).” Macam tulah Allah manerangkan ayat-ayat-Nyo supayo kamu bapikir
-
-[^64]: Khamar adolah sagala sasuatu nang mangandung unsur nang mamabukkan.
 
 ## 2:220
 
@@ -1049,13 +921,9 @@ Janganlah kamu manikahi perempuan musyrik sampe orang-orang tu baiman! Sungguh, 
 
 Orang-orang tu batanyo kapadomu (Nabi Muhammad) tentang haid. Katokanlah, “Haid tu adolah kotoran.” [^65] Mako, jauhilah paro bini (dari mangerjokan hubungan intim) pado waktu haid dan jangan kamu dekati orang-orang tu (untuk mangerjokan hubungan intim) sampe orang-orang tu suci (selesai maso haid). Apobilo orang-orang tu sudah benar-benar suci (sasudah mandi wajib), gaulilah orang-orang tu sasuai dengan (katentuan) nang diperentahkan Allah kapadomu. Sasungguhnyo Allah manyukoi orang-orang nang bataubat dan manyukoi orang-orang nang manyucikan diri.
 
-[^65]: Haid adolah darah nang kaluar basama jaringan nang diparsiapkan untuk pambuahan di rahim perempuan. Kaluarnya secaro periodik, sasuai dengan periode palepasan sel telur ka rahim. Kondisi seperti tu nang dianggap kotor manjadikan perempuan idak suci secaro syar‘i, tamasuk idak suci untuk digauli suaminyo.
-
 ## 2:223
 
 Bini-binimu adolah ladang bagimu. [^66] Mako, datangilah ladangmu tu (bacampurlah dengan benar dan wajar) kapan dan bagaimano nang kamu sukoi. Utamokanlah (hal nang tabaik) untuk dirimu. Batakwalah kamu kapado Allah dan ketauilah bahwa kamu (kagi) bakal manghadap kapado-Nyo. Bagihlah kabar gembiro kapado orang-orang mukmin.
-
-[^66]: Bini diumpamokan sebagai ladang, tempat mananam benih. Mako tanamlah benih tu sasuai waktu nang disukoi.
 
 ## 2:224
 
@@ -1064,8 +932,6 @@ Janganlah kamu basumpah atas (namo) Allah dalam sumpahmu sabagai panghalang dari
 ## 2:225
 
 Allah idak manghukummu kareno sumpahmu nang idak kamu sengajo, tapi Dio manghukummu kareno sumpah nang diniatkan oleh hatimu. Allah Maha Pangampun lagi Maha Panyantun. [^67]
-
-[^67]: ‘Allah Swt. Maha Panyantun (halīm)’ bararti idak segero manyikso orang nang babuat doso.
 
 ## 2:226
 
@@ -1083,8 +949,6 @@ Paro bini nang diceraikan (wajib) manahan diri dewek (manunggu) sampe tigo qurū
 
 Talak (nang dapat dirujuk) tu duo kali. (Sasudah tu suami boleh) manahan (rujuk) dengan caro nang patut atau malepaskan (manceraikan) dengan caro nang baik. Idak halal bagi kamu mangngambik balik sasuatu (mahar) nang sudah kamu bagihkan kapado orang-orang tu, kacuali kaduonyo (suami dan bini) kuatir idak dapat manjalankan batas-batas katentuan Allah. Kalu kamu (wali) kuatir bahwao kaduonyo idak mampu manjalankan batas-batas (katentuan) Allah, mako kaduonya idak badoso atas bayaran nang (harus) dibagihkan oleh (bini) untuk manebus dirinyo. [^68] Tulah batas-batas (katentuan) Allah, janganlah kamu malanggarnyo. Siapo nang malanggar batas-batas (katentuan) Allah, orang-orang tulah orang-orang nang aniayo.
 
-[^68]: Ayat iko manjadi dasar hukum khulu‘ dan panerimaan ‘iwaḍ. Khulu‘ yaitu hak bini untuk bacerai dari suaminyo dengan mambayar ‘iwaḍ (uang tebusan) malalui pangadilan.
-
 ## 2:230
 
 Kalau dio manceraikannyo (sasudah talak kaduo), perempuan (bini) tu idak halal lagi baginyo sampe dio manikah dengan orang jantan nang lain. Kalu (suami nang lain tu) sudah manceraikannyo, idak ado doso bagi kaduonyo (suami patamo dan bekas bini) untuk manikah balik kalu kaduonyo manyangko bakal dapat manjalankan katentuan-katentuan Allah. Tulah katentuan-katentuan Allah nang diterangkan-Nyo kapado orang-orang nang (mau) mangetaui.
@@ -1093,13 +957,9 @@ Kalau dio manceraikannyo (sasudah talak kaduo), perempuan (bini) tu idak halal l
 
 Apobilo kamu manceraikan bini(-mu), sampe (hampir) baakhir maso idahnyo, [^69] tahanlah (rujuk) orang-orang tu dengan caro nang patut atau ceraikanlah orang-orang tu dengan caro nang patut (pulak). Janganlah kamu Manahan (rujuk) orang-orang tu untuk mambagih kamadaratan (kaburukan samape malampau batas. Siapo nang babuat macam tu, dio benar-benar lah manganiayo dirinyo dewek. Janganlah kamu jadikan ayat-ayat (hukum-hukum) Allah sabagai bahan olok-olokan. Ingatlah nikmat Allah kapadomu dan apo nang sudah diturunkan Allah kapadomu, yaitu Kitab (Al-Qur'an) dan Hikmah (Sunah), untuk mambagih palajaran kapadomu. Batakwalah kapado Allah dan katauilah bahwa Allah Maha Mangetaui atas sagalo sasuatu.
 
-[^69]: ‘Idah’ iolah ‘maso manunggu (idak boleh manikah) bagi perempuan kareno paceraian atau kamatian suaminyo’.
-
 ## 2:232
 
 Apobilo kamu (sudah) manceraikan bini(-mu) lalu lah sampe (habis) maso idahnyo, janganlah kamu manghalangi orang-orang tu manikah dengan (bakal) suaminyo [^70] apobilo sudah tadapat karelaan di antaro orang-orang tu dengan caro nang patut. Tulah nang dinasihatkan kapado orang-orang di antara kami nang baiman kapado Allah dan hari Kemudian. Macam tu lebih bersih bagi (jiwa)-mu dan lebih suci (bagi kahormatanmu). Allah mangetaui, sedangkan kamu idak mangetaui.
-
-[^70]: Maksudnyo adolah manikah lagi, baik dengan bekas suaminyo maupun orang jantan nang lain.
 
 ## 2:233
 
@@ -1109,31 +969,21 @@ Emak-emak hendaklah manyusui anak-anaknyo selamo duo tahun penuh, bagi nang ingi
 
 Orang-orang nang mati di antaro kamu dan maninggalkan bini-bini hendaklah orang-orang tu (bini-bini) mananggu dirinyo (baidah) empat bulan sepuluh hari. Kemudian, apobilo lah sampe (akhir) idah orang-orang tu, idak ado doso bagimu (wali) mangenai apo nang orang-orang tu kerjokan btahadap diri orang-orang tu dewek [^71] dengan caro nang patut. Dan Allah bakal mambagih tau kapadomu mangenai apo-apo nang kamu buat.
 
-[^71]: Satelah salesai masa idah, perempuan boleh bahias, bapegian, atau manerimo pinangan.
-
 ## 2:235
 
 Idak ado doso bagimu atas kato sindiran untuk maminang orang-perempuan [^72] tu atau (kainginan manikah) nang kamu singitkan dalam hati. Allah mangetaui bahwa kamu bakal manyebut-nyebut orang-orang tu. Tapi, janganlah kamu bajanji secaro rahasio untuk (manikahi) orang-orang tu, kacuali sekadar mangucapkan kato-kato nang patut (sindiran). Jangan pula kamu manetapkan akad nikah sabelum habis maso idah. Katauilah bahwa Allah mangetaui apo nang ado dalam hatimu. Mako, takutlah kapado-Nyo. Katauilah bahwa Allah Maha Pangampun lagi Maha Panyantun.
-
-[^72]: Perempuan nang boleh dipinang secaro sindiran iolah perempuan nang dalam masa idah kareno ditinggal mati oleh suaminyo atau kareno talak bā’in, sedangkan perempuan nang dalam idah talak raj‘iy (biso dirujuk) idak boleh dipinang walaupun dengan sindiran.
 
 ## 2:236
 
 Idak ado doso bagimu (untuk idak mambayar mahar) kalu jamu manceraikan bini-binimu nang belaum kamu sentuh (campuri) atau belum kamu tentukan maharnyo. Berilah orang-orang tu mut’ah, [^73] bagi nang kayo sasuai dengan kamampuannyo dan bagi nang miskin sasuai dengan kamampuannyo pula, sabagai pamberian dengan caro nang patut dan katentuan bagi orang-orang nang babuat kabajikan
 
-[^73]: ‘Mut‘ah’ nang dimaksud adolah pamberian suami kapado istri nang diceraikannyo sebagai palipur di samping nafkah nang wajib ditunaikannyo sasuai dengan kamampuannyo.
-
 ## 2:237
 
 Kalu kamu manceraikan orang-orang tu sabelum kamu sentuh (campuri), padohal kamu sudah manentukan maharnyo, mako (bayarlah) saparo dari apo nang sudah kamu tentukan, kacuali kalu orang-orang tu atau pihak nang mamiliki kawenangan nikah (suami atau wali) mambebaskannyo. [^74] Pambebasnmu tu lebih dekat pado katakwaan. Janganlah malupokan kabaikan di antaro kamu. Sasungguhnyo Allah Maha Mangimak apo nang kamu kerjokan.
 
-[^74]: Nang dimaksud dengan ‘orang nang memiliki kawenangan nikah’ adolah suami atau wali. Kalu nang mambebaskan mahar adolah wali, suami dibebaskan dari kawajiban mambayar separo mahar. Apobilo suami nang mambebaskannyo, dalam arti bakomitmen untuk mambayar semuo mahar nang disebutkan, dia harus mambayar mahar sagalohnya. Dengan syarat bahwa wali tasebut adolah wali mujbir, yaitu wali nang berhak mamakso anak gadis untuk manikah, seperti ayah atau kakek kandung.
-
 ## 2:238
 
 Jagolah semuo sembahyang (fardhu) dan sembahyang Wusṭā. [^75] Kerjokanlah kareno Allah (dalam sembahyang) dengan khusyuk.
-
-[^75]: Menurut pendapat nang masyhur, sembahyang Wusṭā adolah sembahyang Asar.
 
 ## 2:239
 
@@ -1163,13 +1013,9 @@ Baperanglah kamu di jalan Allah dan katauilah bahwa Allah Maha Manganing lagi Ma
 
 Siapokah nang mau mamberi pinjaman nang baik kapado Allah? [^76] Dio bakal malipatgandokan (pambayaran atas pinjaman tu) baginyo bakali-kali lipat. Allah manyempitkan dan malapangkan (rezki). Kapado-Nyolah kamu dibalikkan.
 
-[^76]: Maksud mambagih pinjaman kapado Allah Swt. adolah manginfakkan harto di jalan-Nyo.
-
 ## 2:246
 
 Idakkah kamu mamperatikan paro pamuko-pamuko Bani Israil sasudah Musa wafat, (Yaitu) katiko orang-orang tu bakato kapado seorang nabinyo, “Angkatlah saorang rajo untuk kami, niscayo kami baperang di jalan Allah.” Dio manjawab, “Jangan-jangan bilo diwajibankan atasmu baperang, kamu idak bakal baperang jugo.” Orang-orang tu manjawab, “Mangapo kami idak bakal baperang di jalan Allah, sedangkan sungguh kami lah diusir dari dari kampung halaman kami dan (dipisahkan dari) anak-anak kami?” [^77] Tapi, katiko perang diwajibkan atas paro pamuko Bani Israil tu, orang-orang tu bapaling, kacuali sabagian kecil dari orang-orang tu. Allah Maha Mangetaui orang-orang aniayo.
-
-[^77]: Orang-orang tu diusir dari kampung halaman dan anak-anak orang-orang tu ditawan.
 
 ## 2:247
 
@@ -1178,8 +1024,6 @@ Nabi orang-orang tu bakato kapado orang-orang tu, “Sasungguhnyo Allah lah mang
 ## 2:248
 
 Nabi orang-orang tu bakato kapado orang-orang tu, “Sasungguhnyo tando karajoannyo iolah datangnyo Tabut [^78] kapadomu nang di dalamnyo tadapat katenangan dari Tuhanmu dan siso dari apo nang ditinggalkan oleh kaluargo Musa dan kaluargo Harun nang dibawak oleh malaikat. Sasungguhnyo pado nang macam tu benar-benar tadapat tando (kabesaran Allah) bagimu kalu kamu orang-orang mukmin.
-
-[^78]: Tabut iolah peti genah manyimpan Taurat.
 
 ## 2:249
 
@@ -1213,8 +1057,6 @@ Allah, idak ado Tuhan selain Dio. Nang Maha Hidup lagi terus-manerus ngurus (mak
 
 Idak ado paksoan dalam (manganut) ugamo (Islam). Sungguh, lah jelas jalan nang benar dari jalan nang sesat. Siapo nang engkar kapado Tagut [^79] dan baiman kapado Allah sungguh lah bapegang teguh pado tali nang sangat kuat nang idak bakal putus. Allah Maha Menganing lagi Maha Mangetaui.
 
-[^79]: Kata ‘tagut’ disebutkan untuk satiap nang malampaui batas dalam kaburukan. Oleh kareno tu, setan, dajal, penyihir, panetap hukum nang batentangan dengan hukum Allah Swt., dan penguaso nang tirani dinamokan tagut.
-
 ## 2:257
 
 Allah adolah palindung orang nang baiman. Dio mangeluarkan orang-orang tu dari macam-macam kagelapan manjuju cahayo (iman). Adopun orang-orang nang kapur, palindung-palindun orang-orang tu adolah tagut. Tagut tu mangeluarkan orang-orang tu (orang-orang kafir tu) dari cahayo manuju kagelapan. Orang-orang tulah adolah paro panghuni nerako. Orang-orang tu kekal di dalamnyo.
@@ -1227,13 +1069,9 @@ Idakkah kamu mamperhatikan orang nang mandebat Ibrahim mangenai Tuhannyo, kareno
 
 Atau, macam orang nang melewati suatu negeri nang (bangunan-bangunannyo) lah roboh menutupi (raruntuhannyo) atap-atapnyo. Dio bakato, “Macam mano Allah manghidupkan balik (negeri) iko satelah kahancurannyo?” Lalu, Allah mamatikannyo selamo seratus tahun, kemudian manghidupkannyo (balik). Dio (Allah) batanyo, “Berapo lamo kamu tinggal (di siko)?” Dio manjawab, “Aku tinggal (di siko) sahari atau satengah hari.” Allah bafirman, “Sabenarnyo kamu lah tinggal selamo seratus tahun. Imaklah makanan dan minumanmu nang belum baubah, (tapi) imaklah keledaimu (nang lah manjadi tulang-balulang) dan Kami bakal manjadikanmu sabagai tando (kekuasoan Kami) bagih manusio. Tengoklah tulang-belulang (keledai tu), macam mano Kami manyusunnyo balik, kemudian Kami mambalutnyo dengan daging (sahinggo hidup balik).” Mako, katiko lah nyato baginyo, dio pun bakato, “Sayo mangetaui bahwa Allah Maha Kuaso atas sagalo sasuatu.” [^80]
 
-[^80]: Sains idak biso manjelaskan mukjizat iko. Orang nang ditidukkan seratus tahun dan makanannyo dijago tetap utuh, sementaro keledainyo lah manjadi tulang-belulang. Lalu tulang-belulang keledai dikumpulkan dan Allah Swt. tunjukkan kakuasoan-Nya dengan manghidupkan balik keledainyo.
-
 ## 2:260
 
 (Ingatlah) katiko Ibrahim bakato, “Ya Tuhan-ku, imakkanlah kapadoku bagaimano Engkau manghidupkan orang-orang mati.” Dio (Allah) bafirman, “Belum pecayokah engkau?” Dio (Ibrahim) manjawab, “Sayo pecayo, tapi supayo hatiku tenang,” Dio (Allah) bakato, “Kalau macam tu ambeklah empat ekor burung, lalu dekatkanlah kapadomu (potong-potonglah). Kemudian, taruklah di atas masing-masing bukit sikok bagian dari masing-masing burung. Kemudian, pangggilah burung-burung tu, niscayo burung-burung tu tibo kapadomu dengan cepat.” Katauilah bahwa Allah Maha Perkaso lagi Maha Bijaksano. [^81]
-
-[^81]: Sains idak biso manjelaskan mukjizat iko. Burung nang sudah dipotong-potong dan ditempatkan tapisah jauh, dapat dihidupkan oleh Allah Swt.
 
 ## 2:261
 
@@ -1254,8 +1092,6 @@ Oi orang-orang nang baiman, janganlah mambatalkan (pahalo) sedekahmu dengan many
 ## 2:265
 
 Paumpamoan orang nang membelanjokan hartonyo untuk mencari rido Allah dan menguatkan jiwo orang-orang tu adolah macam sabuah kebun nang taletak di dataran tinggi nang disiram oleh hujan lebat, kemudian io (kebun tu) menghasilkan buah-buahan duo kali lipat. Kalu hujan lebat idak manyiraminyo, hujan gerimis (pun mancukupi). [^82] Allah Maha Mangimak apo nang kamu kerjokan.
-
-[^82]: Diumpamokan dengan ‘dataran tinggi’ kareno dataran tinggi nang lebih dingin bapotensi mandapatkan awan hujan lebih banyak daripado dataran rendah sahinggo tanamannyo lebih subur. Kalu pun idak ado hujan lebat, gerimis pun biso mambasahi tanahnyo.
 
 ## 2:266
 
@@ -1365,15 +1201,9 @@ Sasungguhnya bagi Allah idak ado sasuatu pun nang tasingitkan di bumi dan idak p
 
 Diolah (Allah) nang mambentuk kamu dalam rahim manurut nang Dio kendaki. [^83] Idak ado Tuhan selain Dio. Nang Mahaperkaso lagi Mahabijaksano.
 
-[^83]: Patumbuhan janin dari sel telur nang dibuahi lalu secaro batahap mambentuk organ-organ tubuh di dalam rahim.
-
 ## 3:7
 
 Diolah (Allah) nang menurunkan Kitab (Al-Qur’an) kapadomu (Nabi Muhammad). Di antaro ayat-ayatnyo ado nang muhkamat, [^84] tulah pokok-pokok isi Kitab (Al-Qur’an) dan nang lain mutasyabihat. [^85] Adopun orang nang dalam hatinyo ado kacenderungan pado kasesatan, orang-orang tu mangikuti ayat-ayat nang mutasyabihat untuk manimbulkan fitnah (kakacauan dan karaguan) dan untuk mancari-cari takwilnyo. Padohal, idak ado nang mangataui takwilnyo kacuali Allah. Orang-orang nang ilmunyo mandalam bakato, “Kami baiman kapadonyo (Al-Qur’an), sagalonyo dari Tuhan kami.” Idak ado nang dapat mangambek pelajaran, kacuali orang nang baakal sehat.
-
-[^84]: ‘Ayat Muhkamat’ iolah ayat nang maksudnyo terang, tegas, dan dapat dipahami dengan mudah.
-
-[^85]: ‘Ayat mutasyabihat’ iolah aya nang mengandung baberapo maksud, sulit dipahami atau hanyo Allah nang Mengetahui.
 
 ## 3:8
 
@@ -1398,8 +1228,6 @@ Katokanlah (Nabi Muhammad) kapado orang-orang nang kufur, “Kamu (pasti) bakal 
 ## 3:13
 
 Sungguh, lah ado tando (bukti) bagimu pado duo golongan nang batemu (dalam patempuran). [^86] Sikok golongan baperang di jalan Allah dan (golongan) nang lain kafir nang manengok dengan mato kepalo bahwa orang-orang tu (golongan Muslim) duo kali lipat jumlahnyo. Allah manguatkan siapo nang Dio kendaki dengan patolongan-Nyo. Sasungguhnya pado nang macam tu benr-benar tadapat pelajaran bagi orang-orang nang mampunyai pangliatan (mato hati).
-
-[^86]: Patemuan antaro duo golongan nang dimaksud oleh ayat ini tajadi antaro kaum Muslimin dan kaum musyrikin pado Perang Badar tahun ke-2 Hijriyah di barat daya Madinah.
 
 ## 3:14
 
@@ -1428,8 +1256,6 @@ Sasungguhnyo ugamo (nang diridai) di sisi Allah iolah Islam. Orang-orang nang di
 ## 3:20
 
 Kalu orang-orang tu mandebat kamu (Nabi Muhammad) katokanlah, “Aku beserah diri kapado Allah dan (demikian pulak) orang-orang nang mengikutiku” Katokanlah kapado orang-orang (Yahudi dan Nasrani) nang lah dibagih Kitab (tauran dan Injil) dan kapado orang-orang nang umi, [^87] “Sudahkah kamu masuk Islam?” Kalu orang-orang tu lah masuk Islam, sungguh orang-orang tu lah mendapat petunjuk. Tapi, kalu orang-orang tu bapaling, sasungguhnya kewajibanmu hanyolah menyampaikan. Allah Maha mangimak hambo-hambo-Nyo.
-
-[^87]: Kata ‘umi’ nang dimaksud dalam ayat ini iolah orang nang idak mandapat kitab suci.
 
 ## 3:21
 
@@ -1463,8 +1289,6 @@ Engkau masukkan malam ka dalam siang dan Engkau masukkan siang ka dalam malam. E
 
 Janganlah orang-orang nang baiman menjadikan orang kafir sabagai paro wali [^88] dengan mangasampinkan orang-orang mukmin. Siapo nang babuat macam tu, hal tu samo sakali bukan dari (ajaran) Allah, kacuali untuk manjago diri dari sesuatu nang kamu takuti dari orang-orang tu. Allah mamperingatkan tentang diri-Nyo (sikso-Nyo). Hanyo kapado Allah genah balik.
 
-[^88]: Kata ‘auliyā’’ adolah bentuk jamak dari kato ‘waliy’. Secaro harfiah kato ko baarti dekat sahingga manunjukkan makno teman dekat, teman akrab, teman setio, kakasih, panolong, sakutu, palindung, pambela, dan pamimpin. Kato ‘waliy’ dan ‘auliya’’ dalam Al-Qur’an diulang 41 kali. Maknonyo babeda-beda sasuai dengan konteks ayat.
-
 ## 3:29
 
 Katokanlah (Nabi Muhammad), “Kalu kamu manyingitkan apo nang ado dalam hatimu atau kamu manampakkannyo, Allah pasti mangetauinyo.” Dio mangetaui apo nang ado di langit dan apo nang ado di bumi. Allah Maha Kuaso atas sagalo sasuatu.
@@ -1493,8 +1317,6 @@ Sasungguhnyo Allah lah mamilih Adam, Nuh, keluargo Ibrahim, dan keluargo Imran a
 
 (Ingatlah) katiko bini Imran [^89] bakato, “Wahai Tuhan-ku, sasungguhnyo sayo manazarkan kapado-Mu apo nang ado di dalam kandunganku murni untuk-Mu (bakhidmat di Baitulmaqdis). Mako, terimolah (nazar tu) dariku. Sasungguhnyo Engkaulah Nang Maha Manganing lagi Maha Mangetaui.
 
-[^89]: Bini Imran nang marupokan mamak Maryam adolah Hanna binti Faqud. Nabi Zakaria a.s. manikahi saudaro perempuan Hanna sahinggo Maryam adolah kaponakannyo.
-
 ## 3:36
 
 Katiko malahirkannyo, dio bakato, “Wahai Tuhan-ku, sayo lah malahirkan anak perempuan.” Padohal, Allah lebih tau apo nang dio (istri Imran) lahirkan. “Anak laki-laki idak samo dengan anak perempuan. Aku mamberinyo namo Maryam serto mamohon palindungan-Mu untuknyo dan anak cucunyo dari setan nang terkutuk.”
@@ -1510,8 +1332,6 @@ Di sanolah Zakaria badoa kapado Tuhan-nyo. Dio bakato, “Wahai Tuhan-ku, karuni
 ## 3:39
 
 Lalu, malaikat (Jibril) mamanggilnyo katiko dio tegak malaksanokan sembahyang di mihrab, “Allah manyampaikan berito gembiro kapadomu dengan (kalahiran) Yahya nang mambenarkan kalimat dari Allah, [^90] (manjadi) anutan, manahan diri (dari hawo nafsu), dan saorang nabi di antaro orang-orang saleh.”
-
-[^90]: Mambenarkan kadatangan saorang nabi nang diciptokan dengan kata ‘kun’ (jadilah) tanpo ayah yaitu Nabi Isa a.s.
 
 ## 3:40
 
@@ -1533,8 +1353,6 @@ Oi Maryam, taatlah kapado Tuhan-mu, sujudlah, dan rukuklah basamo orang-orang na
 
 Tulah sabagian dari berito-berito gaib nang Kami wahyukan kapadomu (Nabi Muhammad). Padohal, kamu idak basamo orang-orang tu katiko orang-orang tu malemparkan pena [^91] orang-orang tu (untuk mangundi) siapo di antaro orang-orang tu nang bakal mameliharo Maryam dan kamu idak basamo orang-orang tu katiko orang-orang tu basengketo.
 
-[^91]: Maksudnyo adolah bahwa kaluarga Maryam mangundi siapo nang bakal mangurus Maryam dengan malemparkan pena nang biaso orang-orang tu gunokan untuk manulis Taurat atau dengan malempar anak panah.
-
 ## 3:45
 
 (Ingatlah), katiko malaikat bakato, “Oi Maryam, sasungguhnyo Allah manyampaikan berito gembiro kapadomu tentang (kalahiran anak nang diciptokan) dengan kalimat dari-Nyo, namonyo Isa Almasih anak laki-laki Maryam, saorang takemuko di dunio dan di akherat serto tamasuk orang-orang nang didekatkan (kapado Allah).
@@ -1550,10 +1368,6 @@ Dio (Maryam) bakato, “Wahai Tuhan-ku, bagaimano mungkin sayo bakal mampunyoi a
 ## 3:48
 
 Dio (Allah) mangajarkan kapadonyo (Isa) kitab, [^92] Hikmah, [^93] Taurat, dan Injil
-
-[^92]: Maksud ‘kitab’ di siko adolah manulis dengan tangan.
-
-[^93]: Lihat catatan kaki surah al-Baqarah/2: 129.
 
 ## 3:49
 
@@ -1607,8 +1421,6 @@ Kabenaran tu dari Tuhanmu. Kareno tu, janganlah kamu (Nabi Muhammad) tamasuk ora
 
 Siapo nang membantahmu dalam hal iko sasudah datang ilmu kapadomu, mako katokanlah (Nabi Muhammad), “Marilah kito panggil anak-anak kami dan anak-anak kamu, bini-bini kami dan bini-bini kamu, diri kami dan diri kamu, kemudian marilah kito bamubahalah [^94] supayo laknat Allah ditimpokan kapado paro pandusto.”
 
-[^94]: ‘Mubāhalah’ baarti satiap pihak nang baselisih badoa dengan sungguh-sungguh supayo Allah Swt. manimpokan laknat kapada pihak nang badusto. Nabi Muhammad saw. mangajak utusan Nasrani Najran ber-mubāhalah, tapi orang-orang tu idak berani. Hal ko manjadi bukti kabenaran akidah Islam tentang Isa a.s.
-
 ## 3:62
 
 Sasungguhnyo iko benar-benar kisah nang benar. Idak ado Tuhan selain Allah, dan sasungguhnyo Allahlah nang benar-benar Maha Perkaso lagi Maha Bijaksano.
@@ -1625,21 +1437,13 @@ Katokanlah (Nabi Muhammad), “Oi Ahlulkitab, ayolah (kito) menuju kapado sikok 
 
 Oi Ahlulkitab, ngapo kamu babantah-bantahan [^95] tentang Ibrahim ? Padohal, Taurat dan Injil idak diturunkan sasudah, kacuali sasudah dio (Ibrahim). Apokah idak mangerti?
 
-[^95]: Orang Yahudi dan Nasrani masing-masing manganggap Nabi Ibrahim a.s. tu dari golongannyo. Lalu Allah Swt. membantah orang-orang tu dengan alasan bahwa Nabi Ibrahim a.s. tu datang sabelum orang-orang tu.
-
 ## 3:66
 
 Macam tulah kamu. Kamu babantah-bantah tentang apo nang kamu kataui, [^96] tapi ngapo kamu babantah-bantahan (jugo) tentang apo nang idak kamu kataui ? [^97] Allah mangetaui sedang kamu idak mangetaui.
 
-[^96]: Perkaro nang idak dikataui oleh Ahlulkitab adolah tentang Nabi Musa a.s. Nabi Isa a.s. dan Nabi Muhammad SAW.
-
-[^97]: Perkaro nang idak dikataui oleh Ahlulkitab tentang Nabi Ibrahim a.s.
-
 ## 3:67
 
 Ibrahim bukanlah saorang Yahudi dan bukan pulak saorang Nasrani, malainkan dio adolah seorang nang hanif, [^98] lagi baserah diri (muslim). Dio bukan pulak tamasuk (golongan) orang-orang musyrik.
-
-[^98]: ‘Hanif’ baarti jauh dari syirik (mampersukutukan Allah Swt.) dan jauh dari kasesatan.
 
 ## 3:68
 
@@ -1653,15 +1457,9 @@ Sagolongan Ahlulkitab ingin manyesatkan kamu. Padohal, orang-orang tu idak manye
 
 Oi Ahlulkitab! ngapo kamu mengengkari ayat-ayat Allah [^99] padohal kamu mangetaui (kabenarannyo) ?
 
-[^99]: Maksudnyo adolah ayat-ayat Allah Swt. Nang nang turunkan kapado Nabi Muhammad Saw.
-
 ## 3:71
 
 Oi Ahlulkitab! ngapo kamu mancampur-adukkan nang hak dengan nang batil [^100] dan kamu manyingitkan kabenaran, [^101] padohal kamu mangetaui?
-
-[^100]: ‘Mancampuradukkan antaro hak dan batil’ maksudnyo adolah mancampuradukkan antaro ayat-ayat Tuhan nang disampaikan oleh paro nabi dengan takwilan-takwilan batil nang diberikan oleh paro pamuko ugamo orang-orang tu.
-
-[^101]: Nang dimaksud dengan ‘manyingitkan kabenaran’ adolah manutupi firman Tuhan nang dibawak oleh paro nabi, barupo tauhid dan berito gembiro tentang bakal datangnyo Nabi Muhammad Saw. Nang disebut dalam Taurat jugo Injil.
 
 ## 3:72
 
@@ -1671,8 +1469,6 @@ Sagolongan Ahlulkitab bakato (kapado sasamonyo), “Baimanlah kamu kapado apo na
 
 Janganlah kamu pacayo selain kapado orang nang mengikuti ugamomu.” [^102] Katokanlah (Nabi Muhammad), “Sasungguhnyo petunjuk (nang sempurno) tu hanyolah petunjuk Allah. (Janganlah kamu pecayo) bahwa saseorang bakal dibagih seperti apo nang dibagihkan kapado kamu atau orang-orang tu bakal manyanggah kamu di hadapan Tuhanmu.” Katokanlah (Nabi Muhammad), “Sasungguhnyo karunio itu di tangan Allah. Dio mambagihkannyo kapado siapo nang Dio kendaki, Allah Mahaluas lagi Maha Mangetaui.
 
-[^102]: Kapado orang nang saugamo dengan kamu (Yahudi atau Nasrani) supayo orang-orang tu idak jadi masuk Islam atau kapado orang-orang Islam nang barasal dari ugamomu supayo guncang iman orang-orang tu dan balik kapado kekafiran.
-
 ## 3:74
 
 Dio manentukan rahmat-Nyo kapado siapo nang Dio kendaki dan Allah mamiliki karunio nang besak.
@@ -1680,8 +1476,6 @@ Dio manentukan rahmat-Nyo kapado siapo nang Dio kendaki dan Allah mamiliki karun
 ## 3:75
 
 Di antaro Ahlulkitab ado orang nang kalu kamu pecayokan kapadonyo harta nang banyak, niscayo dio mangembalikannyo kapadomu. Tapi, ado (pulak) di antaro orang-orang tu nang kalu jamu pecayokan kapadonyo sikok dinar, dio idak mangembalikannyo kapadomu, kacuali kalu kamu selalu menagihnyo. Nang macam tu disebabkan orang-orang tu bakato, “Idak ado doso bagi kami tahadap orang-orang umi.” [^103] Orang-orang tu mengatokan hal nang dusto tahadap Allah, padohal orang-orang tu mangetaui.
-
-[^103]: Pangertian ‘umi’ dapat diliat pado catatan kaki ayat ke-20. Orang-orang tu baanggapan bahwa orang-orang tu boleh mamperoleh harto dengan cara manipu orang-orang nang idak saugamo dengan orang-orang tu. Menurut orang-orang tu, idak badoso malakukannyo kareno Allah Swt. mambolehkannyo, padohal manipu adolah pabuatan nang idak dibenarkan di dalam ugamo.
 
 ## 3:76
 
@@ -1706,8 +1500,6 @@ Idak (sapatutnyo) pulak dio manyuruh kamu manjadikan paro malaikat dan paro nabi
 ## 3:81
 
 (Ingatlah) katiko Allah mengambek pajanjian dari paro nabi, “Katiko Aku mambagihkan kitab dan hikmah kapadomu, lalu datang kapado kamu saorang rasul nang mambenarkan apo nang ado pado kamu, niscayo kamu bakal benar-benar baiman kapadonyo dan manolongnyo.” [^104] Allah bafirman, “Apokah kamu mangakui dan manerimo pajanjian dengan-Ku atas nang macam tu?” Orang-orang tu manjawab, “Kami mangakui.” Allah bafirman, “Kalu bagitu, basaksilah kamu (para Nabi) dan Aku manjadi saksi (pulak) basamo kamu.”
-
-[^104]: paro Nabi bajanji kapado Allah Swt. bahwa apobilo datang saorang Rasul banamo Muhammad, orang-orang tu bakal baiman kapadonyo dan menolongnyo. Pajanjian paro nabi ko mangikat pulak umatnyo.
 
 ## 3:82
 
@@ -1757,13 +1549,9 @@ Kamu sekali-kali idak bakal mamperoleh kabajikan (nnang sempurno) sabelum kamu m
 
 Sagalo makanan adolah halal bagi Bani Israil kacuali makanan nang diharamkan oleh Israil (Ya´qub) untuk dirinyo dewek sabelum Taurat diturunkan. [^105] Katokanlah (Nabi Muhammad), “Bawaklah Taurat lalu baco, kalu kamu orang-orang nang benar."
 
-[^105]: Sasudah Taurat diturunkan, ado baberapo makanan nang diharamkan bagi Bani Israil sabagai hukuman. Imak Surah Annisa/4: 160 dan Surah Al An’am/6: 146.
-
 ## 3:94
 
 Mako, siapo nang mangado-adokan kabohongan tahadap Allah [^106] sasudah tu, orang-orang tulah orang-orang aniayo.
-
-[^106]: Kabohongan tahadap Allah Swt. iolah pernyatoan bahwa sabelum Taurat diturunkan, Allah Swt. lah mangharamkan babarapo makanan kapado Bani Israil.
 
 ## 3:95
 
@@ -1773,15 +1561,9 @@ Katokanlah (Nabi Muhammad), “Mahabenar Allah (dalam firman-Nyo).” Mako, ikut
 
 Sasungguhnyo rumah (ibadah) pertamo dibangun untuk manusio iolah (Baitullah) nang (barado) di Bakkah (Makkah) [^107] nang dibarokahi dan menjadi patunjuk bagi sagalo alam.
 
-[^107]: Ahlulkitab mengatokan bahwa rumah ibadah nang pertamo di bangun adolah nang berado di Baitulmaqdis. Kareno tu, Allah Swt. mambantahnyo kareno nang benar adolah nang ado di Makkah.
-
 ## 3:97
 
 Di dalamnyo tadapat tando-tando nang nyato, (di antaronyo) maqom Ibrohim. [^108] Siapo mamasukinyo (Baitullah), mako amanlah dio. (Di antaro) kawajiban manusio tahadap Allah iolah mangerjokan haji ke Baitullah, (yaitu bagi) orang nang sanggup [^109]  mangadokan perjalanan ka sano. Siapo nang mangengkari (kawajiban haji), mako katauilah bahwa Allah Mahakayo (idak mamerlukan sasuatu) dari sagalo alam.
-
-[^108]: Lihat catatan kaki Surah Albaqoroh/2: 125.
-
-[^109]: Kriteria mampu adolah sanggup mandapatkan perbekalan, alat transportasi, sehat jasmani, perjalanan aman, dan kaluarga nang ditinggalkan tajamin kahidupannyo.
 
 ## 3:98
 
@@ -1790,8 +1572,6 @@ Katokanlah (Nabi Muhammad), “Oi Ahlulkitab, mangapo kamu terus-manerus mengeng
 ## 3:99
 
 Katokanlah (Nabi Muhammad), “Oi Ahlulkitab, mangapo kamu terus-menerus manghalang-halangi orang-orang nang baiman dari jalan Allah? Kamu (memang) mangendakinyo (jalan Allah tu) manjadi bengkok, sedangkan kamu manyaksikan.” [^110]
-
-[^110]: Maksud ‘manyaksikan’ adolah mangetaui bahwasanyo ugamo nang diridoi Allah Swt. adolah ugamo Islam.
 
 ## 3:100
 
@@ -1812,8 +1592,6 @@ Bapegang teguhlah kamu sagalonyo pado tali (ugamo) Allah, janganlah kamu bacerai
 ## 3:104
 
 Hendaklah ado di antaro kamu sagolongan orang nang manyeru kapado kabajikan, manyuruh (babuat) nang ma´ruf, dan mancegah dari nang mungkar. [^111] Orang-orang tu lah orang-orang nang bauntung.
-
-[^111]: ‘Ma’ruf’ adolah sagalo kabaikan nang diperentahkan di dalam ugamo serto berfaedah untuk kebaikan diri dewek dan masyarakat. Mungkar adolah satiap kaburukan nang dilarang ugamo dan marusak kahidupan diri dewek dan masyarakat.
 
 ## 3:105
 
@@ -1851,8 +1629,6 @@ Kahinoan ditimpokan kapado orang-orang tu di mano bae orang-orang tu barado, kac
 
 Orang-orang tu idak samo. Di antaro Ahlulkitab tu ado golongan nang balaku lurus. [^112] Orang-orang tu mambaco ayat-ayat Allah pado babarapo waktu di malam hari dalam keadaan basujud (sembahyang).
 
-[^112]: Golongan Ahlulkitab nang dimaksudkan di siko adolah orang-orang nang sudah mameluk ugamo Islam.
-
 ## 3:114
 
 Orang-orang tu baiman kapado Allah dan hari akhir, manyuruh (babuat) nang makruf, mancegah dari nang mungkar dan basegero (mangerjokan) babagai kabajikan. Orang-orang tu tamasuk orang-orang soleh.
@@ -1885,19 +1661,13 @@ Kalu kamu mamperoleh kabaikan, (niscayo) orang-orang tu basedih hati. Adopun kal
 
 (Ingatlah), katiko kamu (Nabi Muhammad) barangkat pado pagi hari maninggalkan keluargomu untuk mangatur orang-orang mukmin pado pos-pos baperangan. [^113] Allah Maha Manganing lagi Maha Mangetaui.
 
-[^113]: Peristiwa ko tajadi pado Perang Uhud pado tahun ke-3 Hijriah.
-
 ## 3:122
 
 (Ingatlah) katiko duo golongan dari pihakmu [^114] ingin (mundur) kareno takut, padohal Allah adolah panolong orang-orang tu. Kareno tu, hendaklah kapado Allah bae orang-orang mukmin batawakal.
 
-[^114]: Nang dimaksud dengan ‘dua golongan’ adolah Bani Salamah dari suku Khazraj dan Bani Harisah dari suku Aus. Kaduanyo marupokan bagian dari barisan kaum muslim.
-
 ## 3:123
 
 Sungguh, Allah benar-benar lah manolong kamu dalam Perang Badar, padohal kamu (pado saat tu) adolah orang-orang lemah. [^115] Kareno tu, batakwalah kapado Allah supayo kamu bansyukur.
-
-[^115]: Perang Badar tajadi katiko umat Islam jumlahnyo sadikit dan palengkapan perangnyo kurang.
 
 ## 3:124
 
@@ -1915,13 +1685,9 @@ Allah idak manjadikannyo (patolongan tu) kacuali hanyo sabagai khabar gembira ba
 
 (Hal tu dikerjokan) untuk mambinasokan sagolongan orang nang kufur [^116] atau untuk manjadikan orang-orang tu hino sahinggo orang-orang tu balik tanpo mamperoleh apo-apo.
 
-[^116]: Maksudnyo adolah bahwa tujuh puluh pamimpin kafir tabunuh dan tujuh puluh orang lainnyo ditawan.
-
 ## 3:128
 
 Hal tu samo sekali bukan urusanmu (Nabi Muhammad), [^117] apokah Allah manerimo tobat orang-orang tu atau mangazabnyo kareno sasungguhnyo orang-orang tu orang-orang aniayo.
-
-[^117]: Menurut riwayat al-Bukhari, ayat ko turun kareno Nabi Muhammad saw. badoa kapado Allah Swt. supayo manyelamatkan sabagian pamuka musyrikin dan mambinasakan sabagian lainnyo.
 
 ## 3:129
 
@@ -1930,8 +1696,6 @@ Kapunyoan Allahlah sagalo nang ado di langit dan sagalo nang ado di bumi. Dio ma
 ## 3:130
 
 Oi orang-orang nang baiman, janganlah kamu mamakan riba dengan balipat gando [^118] dan batakwalah kamu kapado Allah supayo kamu bauntung.
-
-[^118]: Riba dalam ayat ko dimaksudkan sabagai utang-piutang nang katika idak biso dibayar pado waktu jatuh tempo, dio dibagihan tengat waktu untuk mambayar utangnyo, tapi dengan panambahan jumlah nang harus dibayarkan. Manurut paro ulama, riba nasiah ko haram walaupun jumlah panambahannyo idak balipat gando.
 
 ## 3:131
 
@@ -1953,8 +1717,6 @@ Basegerolah kamu kapado ampunan dari Tuhanmu dan surgo (nang) luasnyo (macam) la
 
 Dan (jugo) orang-orang nang apobilo mangerjokan perbuatan keji atau manganiayo diri dewek, [^119] orang-orang tu (segero) maingat Allah lalu mamohon ampunan atas doso-dosonyo. Siapo (lagi) nang dapat mangampuni doso-doso selain Allah? Orang-orang tu idak maneruskan apo nang orang-orang tu kerjokan (perbuatan doso tu) dan orang-orang tu mangetaui(-nyo).
 
-[^119]: ‘Perbuatan keji (fāḥisyah)’ adolah dosa besar nang akibatnyo idak hanyo manimpa diri dewek, tapi jugo manimpa orang lain seperti zina dan riba. Mananiayo diri dewek adolah pabuatan dosa nang akibatnyo hanyo manimpa diri dewek, baik besak maupun kecik.
-
 ## 3:136
 
 Orang-orang tu balasannyo adolah ampunan dari Tuhan orang-orang tu dan surgo-surgo nang mangalir di bawahnyo sungei-sungei, Orang-orang tu kekal di dalamnyo. (Tulah) sabaik-baik pahalo bagi orang-orang nang mangerjokan amal-amal saleh.
@@ -1962,8 +1724,6 @@ Orang-orang tu balasannyo adolah ampunan dari Tuhan orang-orang tu dan surgo-sur
 ## 3:137
 
 Sungguh, lah balalu sabelum kamu sunnah-sunnah (Allah). [^120] Kareno tu, bajalanlah kamu di (sagenap panjuru) bumi dan peratikanlah bagaimano kasudahan paro pandusto (rasul-rasul).
-
-[^120]: Nang dimaksud dengan ‘sunah Allah Swt.’ di siko adolah kendak dan hukum Allah Swt. nang balaku dalam kahidupan manusio.
 
 ## 3:138
 
@@ -1985,8 +1745,6 @@ Kalu kamu (pado perang Uhud) mandapat luko, mako orang-orang tu pun (pado perang
 
 Apokah kamu mangiro bakal masuk surgo, padohal belum nyato bagi Allah orang-orang nang bajihad [^121] di antaro kamu dan belum nyato orang-orang nang sabar.
 
-[^121]: Imak catatan kaki surah al-Baqarah/2: 218.
-
 ## 3:143
 
 Sungguh, kamu benar-benar mangarapkan mati (syahid) sabelum kamu mangadapinyo (paperangan). Mako, (sekarang) kamu sungguh lah mangimak (paperangan tu) dan manyaksikan (kamatian).
@@ -1994,8 +1752,6 @@ Sungguh, kamu benar-benar mangarapkan mati (syahid) sabelum kamu mangadapinyo (p
 ## 3:144
 
 (Nabi) Muhammad hanyolah saorang rasul. Sabelumnyo lah balalu babarapo rasul. [^122] Apokah kalu dio wafat atau dibunuh, kamu babalik ka belakang (murtad)? Siapo nang babalik ka balakang, mako io idak bakal mandatangkan mudorot kapado Allah sadikit pun. Allah bakal mamberi balasan kapado orang-orang nang basyukur.
-
-[^122]: Nabi Muhammad saw. adolah salah saorang utusan Allah Swt. paro rasul sabelumnya lah wafat. Kareno tu, Nabi Muhammad saw. jugo bakal wafat seperti halnyo paro rasul tadahulu. Pado waktu perang Uhud bakecamuk, tasiar berito bahwa Nabi Muhammad saw. Wafat tabunuh. Berito ni mangacaukan umat Islam sahingga ado nang ingin maminta palindungan Abu Sufyan (pamimpin kaum Quraisy). Sementara tu, orang-orang munafik mangatokan bahwa kalu Muhammad saw. itu benar saorang Nabi, tentu idak bakal wafat tabunuh. Mako, Allah Swt. manurunkan ayat ko untuk manenteramkan kaum muslim dan mambantah pakatoan orang munafik (sahih Bukhari, bab Jihad).
 
 ## 3:145
 
@@ -2009,13 +1765,9 @@ Batapo banyak nabi nang baperang didampingi sajumlah besak dari pangikut(nyo) na
 
 Idak ado ucapan orang-orang tu kacuali doa, “Wahai Tuhan kami, ampunilah doso-doso kami dan tindakan-tindakan kami nang balebih-lebihan dalam urusan kami, [^123] tetapkanlah pandirian kami, dan tolonglah kami tahadap kaum nang kafir.”
 
-[^123]: Tindakan nang balebihan adolah sikap malampaui batas-batas hukum nang lah ditetapkan Allah Swt.
-
 ## 3:148
 
 Mako, Allah manganugerahi orang-orang tu pahalo (di) dunio [^124] dan pahalo nang baik (di) akherat. Allah mancintoi orang-orang nang babuat kabaikan.
-
-[^124]: Pahalo dunio dapat barupo kamenangan, harto rampasan, pujian dan lain-lain.
 
 ## 3:149
 
@@ -2033,33 +1785,17 @@ Kami bakal mamasukkan raso takut ka dalam hati orang-orang nang kufur kareno ora
 
 Sungguh, Allah benar-benar lah mamenuhi janji-Nyo kapadomu katiko kamu mambunuh orang-orang tu dengan izin-Nyo sampai pado saat kamu (dalam kaadoan) lemah, baselisih dalam urusan tu, [^125] dan mangabaikan (perentah Rasul) sasudah Allah mamperlihakan kapadomu apo nang kamu sukoi. [^126] Di antaro kamu ado orang nang mangendaki dunio dan di antaro kamu ado (pulak) orang nang mangendaki akherat. Kemudian, Allah mamalingkan kamu dari orang-orang tu [^127] untuk mangujimu. Sunguh, Dio benar-benar lah mamaafkan kamu. Allah mampunyoi karunio (nang dibagihkan) kapado orang orang mukmin.
 
-[^125]: Baselisih dalam urusan Nabi baarti malaksanokan perentah Nabi Muhammad saw. supayo regu pamanah tetap batahan pado genah nang lah ditunjukkan dalam kaadoan bagaimanopun.
-
-[^126]: Yakni kamenangan dan harto rampasan.
-
-[^127]: Maksudnyo adolah bahwa kaum muslimin idak bahasil mangalahkan orang-orang tu.
-
 ## 3:153
 
 (Ingatlah) katiko kamu lari dan idak mengelih kapado saorang pun, sedangkan Rasul (Muhammad) mamanggilmu dari belakang. Kareno tu, Allah manimpokan kapadomu kasedihan demi kasedihan [^128] supayo kamu idak basedih hati (lagi) tahadap apo nang luput dari kamu dan tahadap apo nang manimpomu. Allah Mahateliti apo nang kamu karjokan.
-
-[^128]: Kasedihan kaum muslim disebabkan bahwa orang-orang tu idak manaati perentah Rasul nang mangakibatkan kakalahan bagi orang-orang tu.
 
 ## 3:154
 
 Sasudah kamu ditimpo kasedihan, kemudian Dio manurunkan raso aman kapadomu (barupo) kantuk nang maliputi sagolongan dari kamu, [^129] sedangkan sagolongan lagi [^130] lah mancemaskan diri orang-orang tu dewek. Orang-orang tu baprasangko nang idak benar tahadap Allah seperti sangkoan jahiliah. [^131] Orang-orang tu bakato, “Adokah sasuatu nang dapat kito perbuat dalam urusan ko?” Katokanlah (Nabi Muhammad), “Sasungguhnyo sagalo urusan tu di tangan Allah.” Orang-orang tu manyingitkan dalam hatinyo apo nang idak orang-orang tu terangkan kapadomu. Orang-orang tu bakato, “Sakiranyo ado sasuatu nang kami perbuat dalam urusan ko, niscayo kami idak bakal dibunuh (dikalahkan) di siko.” Katokanlah (Nabi Muhammad), “Sekironyo kamu ado di rumahmu, niscayo orang-orang nang lah ditetapkan bakal mati tabunuh tu kaluar (jugo) ka tempat orang-orang tu tabunuh.” Allah (babuat macam tu) untuk manguji nang ado dalam dadomu dan untuk mambersihkan nang ado dalam hatimu. Allah Maha Mangetaui sagalo isi hati.
 
-[^129]: Maksudnyo adolah orang-orang Islam nang kuat kayakinannyo.
-
-[^130]: Maksudnyo adolah orang-orang Islam nang masih ragu-ragu.
-
-[^131]: Sangkaan jahiliah tu manganggap bahwa apobilo Nabi Muhammad saw. tu benar-benar utusan Allah Swt., tentu idak bakal takalahkan atau tabunuh dalam paperangan.
-
 ## 3:155
 
 Sasungguhnyo orang-orang nang bapaling di antaro kamu pado hari katiko duo pasukan batemu, [^132] sasungguhnyo orang-orang tu digelincirkan oleh setan disebabkan sabagian kasalahan (dosa) nang lah orang-orang tu perbuat. Allah benar-benar lah mamaafkan orang-orang tu. Sasungguhnyo Allah Maha Pengampun lagi Maha Panyantun.
-
-[^132]: Duo pasukan tu adolah pasukan kaum muslim dan pasukan kaum musyrik dalam Perang Uhud.
 
 ## 3:156
 
@@ -2068,8 +1804,6 @@ Oi orang-orang nang baiman, janganlah kamu macam orang-orang nang kufur dan babi
 ## 3:157
 
 Sungguh, kalu kamu gugur di jalan Allah atau mati, [^133] pastilah ampunan Allah dan rahmat-Nyo lebih baik (bagimu) daripado apo (harto rampasan) nang orang-orang tu kumpulkan.
-
-[^133]: Maksudnyo adolah maninggal dunio di jalan Allah Swt. bukan kareno paperangan.
 
 ## 3:158
 
@@ -2119,13 +1853,9 @@ dan mangetaui orang-orang nang munafik. Dikatokan kapado orang-orang tu, “Mari
 
 Janganlah sekali-kali kamu manyangko bahwa orang-orang nang gugur di jalan Allah tu mati. Sabenarnyo, orang-orang tu tu hidup dan dianugerahi rezeki di sisi Tuhannyo. [^134]
 
-[^134]: Maksudnyo adolah hidup di alam nang lain, bukan di alam dunia. Orang-orang tu mandapatkan babagai kanikmatan di sisi Allah Swt. Hanyo Allah Swt. lah nang mangataui bagaimano kaadoan hidup di alam lain tu.
-
 ## 3:170
 
 Orang-orang tu bergembira dengan karunio nang Allah anugerahkan kapadonyo dan basenang hati atas (kaadoan) orang-orang nang barado di balakang nang belum manyusul orang-orang tu, [^135] yaitu bahwa idak ado raso takut pado orang-orang tu dan orang-orang tu idak basedih hati.
-
-[^135]: Maksudnyo adolah kanti-kantinyo nang masih hidup dan tetap bajihad di jalan Allah Swt.
 
 ## 3:171
 
@@ -2147,8 +1877,6 @@ Orang-orang balik dengan nikmat dan karunio dari Allah. Orang-orang tu idak diti
 
 Sasungguhnyo orang-orang tu hanyolah setan nang manakut-nakuti (kamu) dengan kanti-kanti setionyp. [^136] Oleh kareno tu, janganlah kamu takut kapado orang-orang tu, tapi takutlah kapado-Ku, kalu kamu benar-benar orang mukmin.
 
-[^136]: Lihat catatan kaki surah Āli ‘Imrān/3: 28.
-
 ## 3:176
 
 Janganlah kamu (Nabi Muhammad) dirisaukan oleh orang-orang nang dengan cepat mangerjokan kakufuran. Sasungguhnyo sadikit pun orang-orang tu idak marugikan Allah sadikitpun. Allah idak bakal mambagih bagian (pahalo) kapado orang-orang tu di akherat dan orang-orang tu bakal mandapat azab nang besak nian.
@@ -2161,19 +1889,9 @@ Sasungguhnyo orang-orang nang mambeli kakufuran dengan iman sadikit pun idak mar
 
 Jangan sekali-kali orang-orang kafir manyangko bahwa sasungguhnya tengat waktu nang Kami bagihkan kapadonyo [^137] baik bagi dirinyo. Sasungguhnyo Kami mambagihnya tengat waktu hanyo supayo doso orang-orang tu batambah dan orang-orang tu bakal mandapat azab nang manghinokan.
 
-[^137]: Maksudnyo adolah jangan manyangko bahwa usio nang panjang bagi orang kafir tu baik. Kalu idak digunokan untuk baamal saleh, samakin panjang usio, samakin buruk baginyo.
-
 ## 3:179
 
 Allah idak bakal mambiarkan orang-orang mukmin dalam kaadoan sabagimana kamu sakarang ko, [^138] (tapi Allah bakam mangujinyo) sehinggo Dio mambedokan nang buruk dari nang baik. [^139] Allah idak bakal mamparliatkan kapado kamu hal-hal nang gaib, [^140] tapi Allah mamilih siapo nang Dio kendaki di antaro rasul-rasul-Nyo. [^141] Kareno tu, baimanlah kapado Allah dan rasul-rasul-Nyo. Kalu kamu baiman dan batakwa, kamu bakam mandapat pahalo nang besar nian.
-
-[^138]: Maksudnyo adolah kaadoan kaum muslim bacampur baur dengan kaum munafik.
-
-[^139]: Dalam Perang Uhud, Allah Swt. mambedakan antaro orang baik (umat Islam) dan orang nang buruk (kaum munafik).
-
-[^140]: Di antaro nang gaib adolah pangetahuan tentang kaimanan dan kamunafikan saseorang.
-
-[^141]: Di antara orang nang dikendaki Allah Swt. untuk mangetaui kamunafikan di dalam hati manusio adolah Nabi Muhammad saw.
 
 ## 3:180
 
@@ -2194,8 +1912,6 @@ Nang macam tu disebabkan oleh perbuatan tanganmu (dewek) dan sasungguhnya Allah 
 ## 3:184
 
 Mako, kalu orang-orang tu mandustokanmu (Nabi Muhammad), sungguh rasul-rasul sabelummu pun lah didustokan. Orang-orang tu datang dengan (mambawak) mukjizat-mukjizat nang nyato, zubur, [^142] dan Alkitab nang mamberi panjelasan nang sempurno.
-
-[^142]: Nang dimaksud dengan ‘zubur’ iolah lembaran-lembaran kalam suci saperti suhuf Nabi Ibrahim a.s. dan Nabi Musa a.s.
 
 ## 3:185
 
@@ -2265,8 +1981,6 @@ Oi orang-orang nang baiman, basabarlah kamu, kuatkanlah kasabaranmu, tetaplah ba
 
 Oi sakalian manusio, batakwalah kapado Tuhan-mu nang lah manciptokan kamu dari diri nang sikok (Adam) dan Dio manciptokan darinyo pasangannyo (Hawa). Dari kaduo-nyo Allah mamparkembangbiakkan laki-laki dan perempuan nang banyak. [^143] Batakwalah kapado Allah nang dengan namo-Nyo kamu saling maminta dan (peliharolah) hubungan kakeluargoan. Sasungguhnyo Allah selalu manjago dan mangawasimu.
 
-[^143]: Ayat ko manegaskan, bahwa Nabi Adam a.s. dan Hawa idak diciptokan malalui proses evolusi hayati seperti makhluk hidup lainnyo, tapi diciptokan secaro khusus saorang diri, lalu diciptokan pasangannyo dari dirinyo. Caronyo idak dapat dijelaskan secaro sains. Barulah anak-anaknyo lahir dari proses biologis secaro bapasang-pasangan sesuai kendak-Nyo.
-
 ## 4:2
 
 Bagihlah kapado anak-anak yatim (nang sudah balig) hartonyo. Janganlah kamu manukar nang baik dengan nang buruk dan jangan kamu makan harto anak-anak yatim tu basamo hartomu. Sasungguhnyo (tindakan manukar dan mamakan) tu adolah doso nang besar.
@@ -2295,10 +2009,6 @@ Bagi anak laki-laki ado hak bagian dari harto paninggalan kaduo orang tuo dan ke
 
 Apobilo (katiko) pambagian tu hadir baberapi kerabat, [^144] anak-anak yatim, dan orang-orang miskin, bagihlah orang-orang tu sabagian dari harto tu [^145] dan ucapkanlah kapado orang-orang tu pakatoan nang baik.
 
-[^144]: Maksudnyo adolah karabat nang idak mampunyoi hak warisan dari harto warisan.
-
-[^145]: Pambagihan sakedarnyo tu idak boleh lebih dari sepertigo harto warisan.
-
 ## 4:9
 
 Hendaklah maraso takut orang-orang nang saandainyo (mati) maninggalkan satelah orang-orang tu, katurunan nang lemah (nang) orang-orang tu khawatir tahadapnyo. Mako, batakwalah kapado Allah dan babicarolah dengan pakatoan nang benar (dalam hal manjago hak-hak katurunannyo).
@@ -2311,13 +2021,9 @@ Sasungguhnyo orang-orang nang mamakan harto anak yatim secaro aniayo, sabenarnyo
 
 Allah mansyariatkan (mawajibkan) kapadomu tentang (pambagian warisan untuk) anak-anakmu, (Yaitu) bagian saorang anak laki-laki samo dengan bagian duo orang anak perempuan. [^146] Kalu anak tu sagalonyo perempuan nang jumlahnyo lebih dari duo, bagian orang-orang tu duo pertigo dari harto nang ditinggalkan. Kalu dio (anak perempuan) tu saorang bae, dio mamperoleh separo (harto nang ditinggalkan). Untuk kaduo orang tuo, bagian masing-masing seperenam dari harto nang ditinggalkan, kalu dio (nang maninggal dunio) tu mampunyai anak. Kalu dio (nang maninggal) idak mampunyoi anak dan dio diwarisi oleh kaduo orang tuonyo (bae), mamaknyo mandapat sepertigo. Kalu dio (nang maninggal dunio) mampunyoi babarapo saudaro, mamaknyo mandapat seperenam. (Warisan tasebut di bagih) sasudah (dipenuhi) wasiat nang dibuatnyo atau (dan dilunasi) utangnyo. (Tentang) orang tuomu dan anak-anakmu, kamu idak mangetahui siapo di antaro orang-orang tu nang lebih banyak manfaatnyo bagimu. Ko adolah katetapan Allah. Sasungguhnyo Allah Maha Mangetaui lagi Maha Bijaksano.
 
-[^146]: Bagian anak laki-laki adolah duo kali bagian anak perempuan adolah kareno kawajiban anak laki-laki lebih berat dari anak perempuan seperti kawajiban mambayar maskawin dan mambagih nafkah (Imak surahan-Nisā’/4: 34).
-
 ## 4:12
 
 Bagianmu (suami-suami) adolah seperduo dari harto nang ditinggalkan oleh bini-binimu, kalu orang-orang tu idak mampunyoi anak. Kalu orang-orang tu (bini-binimu) tu mampunyoi anak, kamu mandapat seperempat dari harto nang ditinggalkannyo sasudah (dipenuhi) wasiat nang orang-orang tu buat atau (dan sasudah dibayar) utangnyo. paro bini mamparoleh seperempat harto nang kamu tinggalkan kalu kamu idak mampunyoi anak. Kalu kamu mampunyoi anak, paro bini mamparoleh seperdelapan dari harto nang kamu tinggalkan sasudah (dipenuhi) wasiat nang kamu buat atau (dan sesudah dibayar) utang-utangmu. Kalu sasaorang maninggal dunio, baik laki-laki maupun perempuan nang idak maninggalkan bapak dan idak maninggalkan anak, tapi mampunyoi seorang saudaro laki-laki (saibu) atau saorang saudaro perempuan (saibu), bagi masing-masing dari kaduo jenis saudaro tu seperenam harto. Tapi, kalu saudara-saudara saibu tu lebih dari saorang, orang-orang tu basamo-samo dalam bagian nang sepertigo itu, sasudah dipenuhi wasiat nang dibuatnyo atau (dan sasudah dibayar) utangnyo dengan idak manyusahkan (ahli waris). [^147] Macam tu katentuan Allah. Allah Maha Mangetahui lagi Maha Panyantun.
-
-[^147]: Manyusahkan ahli waris dapat tajadi dengan mangerjokan pabuatan-pabuatan seperti (a) mawasiatkan lebih dari sepertigo harto paninggalan (b) mambagihkan wasiat dengan maksud mangurangi harto warisan meskipun kurang dari sepertigo harto warisan.
 
 ## 4:13
 
@@ -2330,10 +2036,6 @@ Siapo bae nang mandurhakoi Allah dan Rasul-Nyo serto malanggar batas-batas keten
 ## 4:15
 
 Para perempuan nang mangerjokan pabuatan keji [^148] di antaro perempuan-perempuan kamu, mako mintaklah kasaksian atas (pabuatan keji)-nyo dari empat orang di antaro kamu. Apobilo orang-orang tu lah mambagih kasaksian, kurunglah orang-orang tu (perempuan-perempuan tu) dalam rumah sampai orang-orang tu manemui ajalnyo atau sampai Allah mamberi jalan (nang lain) kapadonyo. [^149]
-
-[^148]: Kato keji dalam ayat ko baarti pabuatan zina. Tapi, manurut pandapat lain tamasuk pabuatan mesum lain, seperti hubungan sajenis dan nang samisalnyo.
-
-[^149]: Nang dimaksud dengan ‘jalan nang lain’ adolah dengan turunnyo surah an-Nūr/24: 2 tentang hukum cambuk.
 
 ## 4:16
 
@@ -2351,8 +2053,6 @@ Idaklah tobat tu (diterimo Allah) bagi orang-orang nang mangerjokan kaburukan sa
 
 Oi orang-orang nang baiman, idak halal bagi kamu mawarisi perempuan dengan jalan pakso. [^150] Janganlah kamu manyusahkan orang-orang tu kareno hendak mangambik balik sabagian dari apo nang lah kamu bagihkan kapadonyo, kacuali apobilo orang-orang tu malakukan pabuatan keji nang nyato. Pagauillah dengan orang-orang tu dengan caro nang patut. Kalu kamu idak manyukoi orang-orang tu, (basabarlah) kareno bolah jadi kamu idak manyukoi sasuatu, padohal Allah manjadikan kabaikan nang nang banyak di dalamnyo.
 
-[^150]: Ayat ko idak mangandung arti kabolehan manjadikan bini sabagai warisan seperti harto meskipun idak dengan paksoan. Manurut tradisi jahiliah, anak tatuo atau anggota kaluarganyo nang lain dapat mawarisi jando nang ditinggal wafat ayahnyo.
-
 ## 4:20
 
 Kalu kamu ingin mangganti binimu dengan bini nang lain, sementaro kamu lah mambagihkan kapado sasaorang di antaro orang-orang tu harto nang banyak (sabagai maskawin), janganlah kamu mangambiknya sadikit pun. Apokah kamu bakal mangambiknyo balik dengan caro dusto dan doso nang nyato.
@@ -2369,15 +2069,9 @@ Janganlah kamu mangawini perempuan-perempuan nang lah dikawini oleh bapakmu, kac
 
 Diharamkan atas kamu (mangawini) mamak-mamakmu, anak-anakmu nang perempuan, saudaro-saudaromu nang perempuan, saudaro-saudaro perempuan dari bapakmu, saudaro-saudaro perempuan dari mamakmu, anak-anak perempuan dari saudaro laki-lakimu, anak-anak perempuan dari saudaro-saudaromu nang perempuan; mamak nang manyusuimu, saudaro-saudaro perempuan sasusuan; mamak dari bini-binimu (mertuo), anak-anak perempuan dari binimu (anak tiri) nang dalam pameliharoanmu [^151] dari bini nang lah kamu campuri, tapi kalu kamu belum bacampur dengan binimu tu (dan sudah kamu ceraikan), idak badoso kamu (mangawininyo), (dan diharamkan bagimu) bini-bini anak kandungmu (manantu), dan (diharapkan pulak) manghimpunkan (dalam pakawinan) duo perempuan nan basaudaro, kacuali nan lah tajadi pado maso lampau. Sasungguhnyo Allah Maha Pengampun lagi Maha Panyayang.
 
-[^151]: Nang dimaksud dengan ‘mamak’ pado awal ayat ko adolah mamak, nenek, dan saterusnyo ka atas, sedangkan ‘anak perempuan’ adolah anak perempuan, cucu perempuan, dan saterusnyo ka bawah. Nang dimaksud dengan ‘anak-anak binimu nang dalam pameliharoanmu’, manurut sabagian besar ulama, mancakup anak tiri nang idak dalam pameliharoannyo.
-
 ## 4:24
 
 (Diharamkan jugo atas kamu mangawini)– perempuan-perempuan nang lah balaki, kacuali hambo sahayo perempuan (tawanan perang) nang kamu punyoi [^152] sabagai katetapan Allah atas kamu. Dihalalkan bagi kamu salain (perempuan-perempuan) nang macam tu, yaitu kamu mancari (bini) dengan harto kamu (maskawin) untuk mengawininyo, idak untuk bazina. Kareno kenikmatan nang lah kamu dapatkan dari orang-orang tu, bagihkanlah kapado orang-orang tu imbalannyo (maskawinnyo) sabagai suatu kawajiban. Idak ado doso bagi kamu tahadap sasuatu nang kamu lah saling marelokannyo sasudah manentukan kawajiban (tu). [^153] Sasungguhnyo Allah Maha Mengetaui lagi Maha Bijaksano.
-
-[^152]: Maksudnyo adolah hambo sahayo perempuan nang dimiliki kareno tatawan. Sementaro tu, lakinyo idak ikut tatawan basamonya. Imak surahan-Nisā’/4: 3.
-
-[^153]: Maksudnyo adolah bahwa bini boleh idak manuntut suaminyo untuk mambayar sabagian atau kaseluruhan maskawin nang lah ditetapkan atau suami mambayar lebih dari maskawin nang lah ditetapkannyo.
 
 ## 4:25
 
@@ -2419,10 +2113,6 @@ Bagi setiap (laki-laki dan perempuan) Kami lah manetapkan paro ahli waris atas a
 
 Laki-laki (suami) adolah pananggung jawab [^154] bagi paro perempuan (bini) kareno Allah lah malebihkan sabagian orang-orang tu (laki-laki) atas sabagian nang lain (orang-perempuan) dan kareno laki-lakai tulah manafkahkan sabagian dari hartonyo. Orang-perempuan nang soleh iyolah orang-orang nang taat (kapado Allah) dan manjago diri katiko (lakinyo) idak ado kareno Allah lah manjago (orang-orang tu). Orang-perempuan nang kamu khawatirkan bakal nusyuz, [^155] nasihatilah orang-orang tu, tinggalkanlah orang-orang tu di tempat tidur (pisah ranjang), dan (kalu perlu), pukullah orang-orang tu (dengan caro nang idak manyakitkan). Tatapi, kalu orang-orang tu manaatimu, janganlah kamu mancari-cari jalan untuk manyusahkan orang-orang tu. Sasungguh Allah Maha Tinggi lagi Maha Besak.
 
-[^154]: Sabagai kepala keluarga, suami batanggung jawab untuk malindungi, mangayomi, mangurusi, dan mangupayokan kamaslahatan kaluargo.
-
-[^155]: Maksud ‘nusyuz’ adolah pabuatan saorang istri maninggalkan kawajibannyo, seperti maninggalkan rumah tanpo ridho lakinya.
-
 ## 4:35
 
 Kalu kamu (para wali) khawatir tajadi pasengketoan di antaro kaduonyo, utuslah saorang juru damai dari pihak kaluargo laki-laki dan saorang juru damai dari kaluargo perempuan. Kalu kaduonyo bamaksud badamai, niscayo Allah pasti mambagih petunjuk kapado keduonya. Sasungguhnyo Allah Maha Mangataui lagi Maha Teliti.
@@ -2459,8 +2149,6 @@ Di hari tu orang-orang nang kafir dan mandurhakoi Rasul (Nabi Muhammad) barharap
 
 Oi orang-orang nang baiman, janganlah mandekati sembahyang, sadangkan kamu dalam kaadaan mabuk sampai kamu ngerti bakal apo nang kamu katokan dan jangan (pulo mandekati masjid katiko kamu dalam kaadaan junub, kacuali sakedar nempuh (be) sahinggo kamu mandi (junub). Kalu kamu sakit, sedang dalam pajalanan, saorang di antaro kamu balik dari genah buang aek, atau kamu lah manyentuh perempuan, [^156] sedangkan kamu idak mandapati aek, mako batayamumlah kamu dengan debu nang baik (suci). Usaplah muko dan tanganmu (dengan debu tadi). Sasungguhnyo Allah Maha Pamaaf lagi Maha Pangampun.
 
-[^156]: Menurut jumhur, kato ‘manyentuh’ pado ayat ko adolah basentuhan kulit, sedangkan sabagian mufasir mangartikannyo ‘bacampur sabagai laki-bini’.
-
 ## 4:44
 
 Idakkah kamu mamperatikan orang-orang nang lah dibagih bagian (pangatauan) dari Kitab (Taurat)? Orang-orang tu mambeli kasesatan dan bamaksud supayo kamu tasesat dari jalan (nang benar).
@@ -2472,8 +2160,6 @@ Allah lebih tau (daripado kamu) tentang musuh-musuhmu. Cukuplah Allah manjadi pa
 ## 4:46
 
 Di antaro orang-orang Yahudi ado nang mangubah perkatoan dari genah-genahnyo. Orang-orang tu bakato, “Kami manganing, tatapi kami idak mau ikut.” (Orang-orang tu mangatokan pulok), “Aninglah,” sedangkan (kamu Nabi Muhammad sabenanyo) idak manganing apo pun. (Orang-orang tu mangatokan), “Rā´inā [^157] dengan mambelit lidahnyo dan mancelo ugamo. Sakironyo orang-orang tu mangatokan, “Kami mangnganing dan patuh. Nganinglah, dan pratikanlah kami,” tentulah tu lebih baik bagi orang-orang tu dan lebih tepat. Tatapi, Allah mangutuk orang-orang tu kareno kakafirannyo. Orang-orang tu idak baiman, kacuali sadikit nian.
-
-[^157]: Lihat catatan kaki surah al-Baqarah/2: 104.
 
 ## 4:47
 
@@ -2494,8 +2180,6 @@ Peratikanlah batapo orang-orang tu mangagado-adokan dusto tahadap Allah. Cukupla
 ## 4:51
 
 Idakkah kamu mamperatikan orang-orang (Yahudi) nang lah diberi bagian (pangetauan) dari Kitab (Taurat), betapo orang-orang tu pacayo kapado jibt dan tagut [^158] jugo mangatokan kapado orang-orang kafir (musyrik Makkah) bahwa orang-orang tu lebih bena jalannyo daripado orang-orang nang baiman.
-
-[^158]: Jibt’ adolah setan dan apo bae nang disembah selain Allah Swt., sedangkan ‘tagut’ biasanyo disebutkan untuk orang nang malampaui batas dalam kaburukan. Lihat catatan kaki surah al-Baqarah/2: 256.
 
 ## 4:52
 
@@ -2613,8 +2297,6 @@ Kabaikan (nikmat) apo bae nang kamu paoleh (barasal) dari Allah, sedangkan kabur
 
 Siapo nang mantaati Rasul (Muhammad), mako sasungguhnyo lah mantaati Allah. Siapo nang bapaling, mako Kami idak mangutusmu kamu (Nabi Muhammad) sabagai pamaliharo [^159] orang-orang tu.
 
-[^159]: Rasul idak batanggung jawab tahadap perbuatan-perbuatan orang-orang tu dan idak majamin supayo orang-orang tu idak babuat kasalahan.
-
 ## 4:81
 
 Orang-orang munafik bakato, “(Kawajiban kami hanyolah) taat.” Tapi, kalulah orang-orang tu sudah pegi darimu (Nabi Muhammad), sabagian orang-orang tu mangatur siasat pado malam hari (mangambil kaputusan) berbeda dari nang lah orang-orang tu katokan. Allah manulis siasat nang orang-orang tu atur di malam hari tu. Bapalinglah kamu dari orang-orang tu dan batawakallah kapado Allah. Cukuplah Allah sabagai palindung.
@@ -2651,8 +2333,6 @@ Mangapo kamu (oi orang-orang mukmin) tapecah manjadi duo golongan dalam (manghad
 
 Orang-orang tu manginginkan supayo kamu manjadi kufur samacam mano orang-orang tu sudah manjadi kufur sahinggo kamu samo (dengan orang-orang tu). Janganlah kamu jadikan siapo bae di antaro orang-orang tu sabagai kanti setio [^160] sabelum orang-orang tu bapindah pado jalan Allah. Kalu orang-orang tu bapaling, tawan dan bunuhlah orang-orang tu di mano bae kamu temukan orang-orang tu. Janganlah kamu jadikan saorang pun di antaro orang-orang tu sabagai kanti setio dan jangan pulak sabagai penolong.
 
-[^160]: Lihat catatan kaki surah Āli ‘Imrān/3: 28.
-
 ## 4:90
 
 Kacuali, orang-orang nang manjalin hubung-an dengan suatu kaum nang antaro kamu dan kaum tu ado pajanjian (damai, orang-orang tu jangan dibunuh atau jangan ditawan). (Demikian jugo) orang-orang nang datang kapadomu, sedangkan hati orang-orang tu condong untuk mamerangi kamu dan mamerangi kaumnyo. Sakironyo Allah mangendaki, niscayo Dio bagih kakuasaan kapado orang-orang tu untuk tahadap kamu sahinggo orang-orang tu mamerangimu. Tapi, kalu orang-orang tu mambiarkanmu (idak mangganggumu), idak mamerangimu, dan manawarkan perdamaian kapadomu (manyerah), Allah idak mambagih jalan bagimu (untuk manawan dan mambunuh) orang-orang tu.
@@ -2685,8 +2365,6 @@ Idaklah samo antaro mukmin nang duduk (idak ikut baperang) tanpo mampunyoi uzur 
 
 Sasungguhnyo orang-orang nang dicabut nyawonyo oleh malaikat dalam kaadoan manganiayo diri dewek, [^161] paro malaikat tu batanyo, “Bagaimano kamu ko?” Orang-orang tu manjawab, “Kami adolah orang-orang nang tatindas di bumi (Makkah).” Paro malaikat batanyo, “Idakkah bumi Allah tu luas sahinggo kamu dapat bahijrah di sano?” Mako, genah orang-orang tu (nerako) Jahannam dan tulah saburuk-buruk genah balik.
 
-[^161]: Ayat ko diturunkan bakenaan dengan baberapo orang muslim nang idak ikut hijrah ke Madinah dan tapakso ikut dalam Perang Badar di pihak pasukan musyrik kemudian orang-orang tu tabunuh dalam perang tu. (Hadis riwayatal-Bukhari).
-
 ## 4:98
 
 Kacuali, orang-orang nang tatindas dari (kalangan) laki-laki, perempuan, dan anak-anak nang idak ado badayo dan idak mangetaui jalan (untuk bahijrah).
@@ -2707,10 +2385,6 @@ Apobilo kamu bapegian di bumi, mako idak doso bagimu untuk mangqasar sembahyang 
 
 Apobilo kamu (Nabi Muhammad) barado di tengah-tengah orang-orang tu (sahabatmu dan dalam kaadoan takut diserang), lalu kamu hendak malaksanokan sembahyang basamo orang-orang tu, hendaklah sagolongan dari orang-orang tu badiri (sembahyang) basamomu dengan manyandang sanjatonyo. Apobilo orang-orang tu (nang sembahyang besamomu) lah sujud (manyempurnokan sikok rakaat), hendaklah orang-orang tu pindah dari belakangmu (untuk mangadapi musuh). Lalu, hendaklah datang sagolongan nang lain nang belum sembahyang supayo orang-orang tu basembahyang basamomu [^162] dan hendaklah orang-orang tu basiap siago dan manyandang sanjatonyo. Orang-orang nang kufur ingin supayo kamu lengah tahadap sanjato dan harto bendomu, lalu orang-orang tuh manyerbu secaro tibo-tibo. Idak ado doso bagimu maletakkan sanjato kalu kamu mandapat suatu kasusahan kareno, baik kareno hujan maupun kareno sakit dan ba siap siagolah kamu. [^163] Sasungguhnyo Allah lah manyediakan azab nang manghinokan bagi orang-orang kafir.
 
-[^162]: Salah sikok caro sembahyang khauf adolah jamaah dibagih manjadi duo kelompok. Apobilo imam lah manyelesaikan sikok rakaat basamo kelompok pertamo, kelompok kadua malakukan rakaat tu dan imam dalam kondisi manunggu. Macam tu salanjutnyo secaro bagantian hinggo sagalo kelompok malakukan salam basamo-samo dengan imam.
-
-[^163]: Tata caro sembahyang khauf nang dijelaskan pado ayat ko dilakukan dalam kaadoan masih mamungkinkan untuk mangerjokan sembahyang. Apobilo idak mamungkinkan, sembahyang dikerjokan sadapat-dapatnyo.
-
 ## 4:103
 
 Apobilo kamu lah manyelesaikan sembahyang, bazikirlah kapado Allah (mangingat dan manyebut-Nyo), baik katiko tegak, waktu, maupun babaring. Apobilo kamu lah maraso aman, dirikanlah sembahyang tu (dengan sempurno). Sasungguhnyo sembahyang tu merupokan kawajiban nang waktunyo lah ditentukan atas orang-orang mukmin.
@@ -2722,8 +2396,6 @@ Janganlah kamu meraso lemah dalam mangejar kaum tu (musuhmu). Kalu kamu manderit
 ## 4:105
 
 Sasungguhnyo Kami lah manurunkan kitab (Al-Qur’an) kapadomu (Nabi Muhammad) dengan hak supayo kamu mamutuskan (perkaro) antaro manusio dengan apo nang lah Allah ajarkan kapadomu. Janganlah kamu manjadi penantang (orang nang idak basalah) kareno (mambelo) paro pengkhianat. [^164]
-
-[^164]: Ayat ko diturunkan takait dengan kasus pancurian nang dilakukan oleh Tu’mah. Dio manyingitkan barang curiannyo di rumah saorang Yahudi dan manuduh orang tulah nang lah mancurinyo. Katiko kerabat-kerabat Tu’mah maminta agar Nabi Muhammad saw. mambela Tu’mah dan manghukum orang Yahudi, Nabi saw. hampir mambela Tu’mah, tapi Allah Swt. manurunkan ayat ko dan malarang untuk mambela pangkhianat.
 
 ## 4:106
 
@@ -2777,15 +2449,9 @@ Orang-orang tu idak manyembah selain Dio, kacuali berhalo dan orang-orang tu jug
 
 Allah malaknatnyo. Dio (setan) bakato, “Sayo benar-benar bakal mangambil bagian tatentu dari hambo-hambo-Mu. [^165]
 
-[^165]: Maksudnyo setan bakal barusaho manyesatkan manusio kacuali orang-orang mukmin pilihan Allah Swt. (Surah al-Ḥijr/15: 40; surah Saba’/34: 20).
-
 ## 4:119
 
 Sayo benar-benar bakal manyesatkan orang-orang tu, mambangkitkan angan-angan kosong orang-orang tu, manyuruh orang-orang tu (untuk mamotong kuping-kuping binatang ternaknyo) hinggo orang-orang tu benar-benar mamotongnyo, [^166] dan manyuruh orang-orang tu (mangubah ciptoan Allah) hinggo benar-benar mangubahnyo. [^167] Siapo nang manjadikan setan sabagai palindung selain Allah sungguh lah manderito karugian nang nyato.
-
-[^166]: Maksudnyo setan benar-benar bakal manyesatkan manusio dengan mangharamkan binatang ternak nang dihalalkan Allah Swt. atau manghalalkan nang diharamkan Allah Swt., seperti dalam kapercayaan Arab Jahiliah tentang baḥirah, sā’ibah, waṣīlah, dan ḥām (Imak surahal-Mā’idah/5: 103).
-
-[^167]: Mangubah ciptoan Allah Swt. biso baarti mangubah fisik seperti mangganti jenis kelamin atau mangubah ciptoan dalam batin manusio seperti maubah fitrah (Islam) dengan manganut ugamo lain.
 
 ## 4:120
 
@@ -2803,8 +2469,6 @@ Orang-orang nang baiman dan mangerjokan amal saleh bakal Kami masukkan ka dalam 
 
 (Pahalo dari Allah) bukanlah (manurut) angan-anganmu [^168] dan bukan (pulak manurut) angan-angan Ahlulkitab. Siapo nang mangerjokan kajahatan niscayo bakal dibalas sesuai dengan (kajahatan tu) dan dio idak bakal manemukan untuknyo palindung serto panolong selain Allah.
 
-[^168]: Kato ‘angan-anganmu’ dalam ayat ko menurut sabagian ahli tafsir marujuk kapado umat Islam, tapi ado nang marujuknyo kapada kaum musyrikin. Maksudnyo adolah bahwa pahalo di akherat idak manurut angan-angan orang-orang tu, tapi sesuai dengan katentuan ugamo.
-
 ## 4:124
 
 Siapo nang baamal saleh, baik laki-laki maupun perempuan, sedangkan dio baiman, bakal masuk ka dalam surgo dan idak dianiayo sadikit pun.
@@ -2821,19 +2485,9 @@ Hanyo kapunyoan Allah apo nang ado di langit dan apo nang ado di bumi. Allah Mah
 
 (Nabi Muhammad) tentang perempuan. Katokanlah, “Allah mambagih fatwa kapadomu tentang orang-orang tu, [^169] dan apo nang dibacokan kapadomu dalam Al-Qur’an tentang paro perempuan yatim nang kamu idak bagihkan sasuatu (maskawin) nang ditetapkan untuk orang-orang tu, sedang kamu bakainginan mangawini orang-orang tu [^170] serto   tentang   anak-anak   nang   idak   badayo (lemah). (Allah jugo mamberi fatwa kapadomu)   untuk   mangurus   anak-anak   yatim  sacaro  adil.  Kabajiain  apo  bae  nang  kamu kerjokan, sasungguhnyo Allah adolah Maha Mangetauinyo.
 
-[^169]: Imak surahan-Nisā’/4: 2 dan 3.
-
-[^170]: Menurut adat Arab Jahiliah, saorang wali bakuaso atas perempuan yatim nang dalam asuhannyo dan bakuaso atas  hartonyo.  Kalu  perempuan  yatim  tu  elok  rupo,  io  dinikahi  dan  diambek  hartonya.  Kalu  perempuan  yatim tu buruk ruponyo, dihalanginyo nikah dengan laki-laki lain agar dio tetap dapat manguasai hartonyo. Ayat ko malarang kabiasaan tu.
-
 ## 4:128
 
 Kalu saorang anak perempuan khawatir lakinyo bakal nusyuz [^171]  atau basikap idak acuh, kaduonyo dapat mangadokan perdamaian nang sabenarnyo. [^172]  Perdamaian tu lebih baik (bagi orang-orang tu), walaupun manusio tu manurut tabiatnyo kikir. [^173]  Kalu kamu babuat kabaikan dan mameliharo dirimu (dari nusyuz dan sikap idak acuh) sasungguhnyo Allah adolah Mahateliti tahadap apo nang kamu kerjokan.
-
-[^171]: Lihat arti ‘nusyuz’ bagi pihak bini dalam catatan kaki surah an-Nisā’/4: 34. ‘Nusyuz’ dari pihak suami iolah basikap keras tahadap bininya, idak mau manggaulinyo, dan idak mau mambagihkan haknyo.
-
-[^172]: Perdamaian nang sesungguhnyo adolah seperti bini basedio untuk dikurangi baberapa haknyo asal suami mau balik babaik-baik dengannyo.
-
-[^173]: Tabiat  manusio  tu  idak  mau  malepaskan  sabagian  haknyo  kapado  orang  lain  dengan  seikhlas  hatinyo.  Meskipun macam tu, kalu bini malepaskan sabagian haknyo, mako boleh suami manerimonyo.
 
 ## 4:129
 
@@ -2879,8 +2533,6 @@ Bagihlah berito ‘gembira’ kapado orang-orang munafik bahwa sasungguhnya bagi
 
 (Yaitu) orang-orang nang manjadikan orang-orang kafir sabagai palindung [^174] dengan maninggalkan orang-orang mukmin. Apokah orang-orang tu mancari kakuatan di sisi orang kafir tu? (Katauilah) sasungguhnyo sagalo kamulioan tu kapunyoan Allah.
 
-[^174]: Lihat catatan kaki surah Āli ‘Imrān/3: 28.
-
 ## 4:140
 
 Sungguh, Allah lah manurunkan (katentuan) bagimu dalam Kitab (Al-Qur’an) bahwa apobilo kamu manganing ayat-ayat Allah diengkari dan diperolok-olok (oleh orang-orang kafir), janganlah kamu duduk basamo orang-orang tu hinggo orang-orang tu mamasuki pecakapan nang lain. Sasungguhnyo kamu (apobilo tetap babuat macam tu) tentulah kamu sarupo dengan orang-orang tu. Sasungguhnyo Allah bakal mangumpulkan sagalo orang munafik dan orang kafir di (nerako) Jahannam.
@@ -2901,8 +2553,6 @@ Orang-orang munafik tu dalam kaadoan ragu antaro nang macam tu (iman atau kafir)
 
 Oi orang-orang nang baiman, janganlah kamu manjadikan orang-orang kafir sabagai kanti setio [^175] salain orang-orang mukmin. Apokah kamu ingin mambagih alasan nang nyato bagi Allah (untuk manghukummu).
 
-[^175]: Lihat catatan kaki surah Āli ‘Imrān/3: 28.
-
 ## 4:145
 
 Sasungguhnyo orang-orang munafik tu (digenahkan) di tingkat paling bawah dari nerako. Kamu idak bakal mandapat saorang penolong pun bagi orang-orang tu.
@@ -2911,19 +2561,13 @@ Sasungguhnyo orang-orang munafik tu (digenahkan) di tingkat paling bawah dari ne
 
 Kacuali, orang-orang nang batobat, mamperbaiki diri, [^176]  bapegang teguh pado (ugamo) Allah, dan dengan ikhlas (manjalankan) ugamo orang-orang tu kareno Allah, orang-orang tu basamo orang-orang mukmin. Kagi Allah bakal mambagihkan pahalo nang besak kapado orang-orang mukmin.
 
-[^176]: Tengok catatan kaki surah al-Baqarah/2: 160
-
 ## 4:147
 
 Allah idak bakal manyiksomu jiko kamu basyukur dan baiman. Allah Maha Mansyukuri [^177] lagi Maha Mangetaui.
 
-[^177]: Allah  Maha Mansyukuri baarti mambagih pahalo tahadap amal hambo-Nyo, mamaafkan kasalahannyo, manambah nikmat-Nyo, dan lain-lain.
-
 ## 4:148
 
 Allah idak manyukoi perkatoan buruk (nang diucapkan) secaro terus terang, kacuali oleh orang nang dianiayo. [^178]  Allah Maha Mandengar lagi Maha Mangetaui.
-
-[^178]: Orang nang dianiayo boleh mangemukokan kapado hakim atau panguaso tentang kaburukan-kaburukan orang nang mananiayonyo.
 
 ## 4:149
 
@@ -2932,8 +2576,6 @@ Jiko kamu manampakkan atau manyembunyikan suatu kabaikan atau mamaafkan suatu ka
 ## 4:150
 
 Sasungguhnyo orang-orang nang kufur kapado Allah dan rasul-rasul-Nya dan bamaksud mambeda-bedakan [^179] antaro (kaimanan kapado) Allah dan rasul-rasul-Nyo dengan mangatokan, “Kami baiman kapado sabagian dan kami mangingkari sabagian (nang lain),” serto bamaksud mangambik jalan tengah antaro tu (kaimanan atau kakufuran),
-
-[^179]: Maksud ‘mambeda-bedakan’ dalam ayat ni adolah hanyo baiman kapado Allah Swt., tapi idak baiman kapado rasul-rasul-Nyo.
 
 ## 4:151
 
@@ -2947,21 +2589,13 @@ Adopun orang-orang nang baiman kapado Allah dan rasul-rasul-Nyo dan idak mambeda
 
 Ahlulkitab [^180] mamintak kapadomu (Nabi Muhammad) supayo engkau manurunkan sabuah kitab dari langit kapado orang-orang tu. Sungguh, ahlulkitab tu lah mamintak kapado Musa nang lebih besak daripado tu. Orang-orang tu bakato, “Tunjukkanlah  Allah  kapado  kami  sacaro  nyato.” Mako, petir manyambar orang-orang tu  kareno  kazalimannyo.  Lalu,  ahlulkitab  tu  manjadikan anak sapi [^181] (sabagai sembahan), (padohal)  lah  tibo  kapado  orang-orang  tu  bukti-bukti  (ketauhidan)  nang  nyato,  lalu  Kami mamaafkan nang macam tu. Kami lah manganugerahkan kapado Musa kakuasoan nang nyato.
 
-[^180]: Ahlulkitab nang dimaksud pado ayat ni adolah orang-orang Yahudi.
-
-[^181]: Patung anak jawi tu dibuat oleh orang-orang tu dari emas untuk disembah.
-
 ## 4:154
 
 Kami pun lah mangangkat gunung (Sinai) di atas orang-orang tu untuk (manguatkan) perjanjian orang-orang tu. [^182] Kami perintahkan kapado orang-orang tu, “Masuklah pintu gerbang (Baitulmaqdis) tu sambil basujud”. Kami perintahkan (pulo) kapado ahlulkitab tu, “Janganlah malanggar (peraturan) pado hari Sabat.” Kami lah mangambik dari orang-orang tu perjanjian nang kokoh.
 
-[^182]: Ayat ni baarti bahwa ancaman Allah Swt. kapado Bani Israil supayo mamatuhi perjanjian, yaitu malaksanokan ajaran Taurat.
-
 ## 4:155
 
 Mako, (Kami hukum ahlulkitab tu) [^183] kareno orang-orang tu malanggar perjanjian tu, kafir tahadap katerangan-katerangan Allah, mambunuh nabi-nabi tanpo hak (alasan nang benar), dan mangatokan, “Hati kami tatutup.” Sabenarnyo Allah lah mangunci hati orang-orang tu kareno kakafirannyo. Mako, orang-orang tu idak baiman kacuali hanyo sabagian kecik (dari orang-orang tu).
-
-[^183]: Orang-orang tu disambar petir, dikutuk jadi kero, dan sabagainyo.
 
 ## 4:156
 
@@ -2971,19 +2605,13 @@ Mako, (Kami hukum ahlulkitab tu) [^183] kareno orang-orang tu malanggar perjanji
 
 (Kami manghukum pulak orang-orang tu) kareno ucapan orang-orang tu, “Sasungguhnyo kami lah mambunuh Almasih, Isa putra Maryam, Rasul Allah,” [^184]  padohal orang-orang tu idak mambunuhnyo dan idak (pulak) manyalibnyo, tapi (nang orang-orang tu bunuh adolah) orang nang menurut orang-orang tu manyerupoi (Isa). Sasungguhnyo orang-orang tu nang baselisih pendapat tentangnyo (pambunuhan Isa), selalu dalam karagu-raguan  terhadapnyo.  Orang-orang tu benar-benar idak mangetaui (siapo sabenarnyo nang dibunuh tu), kacuali mangikut persangkoan belako. (Jadi,) orang-orang tu idak yakin lah mambunuhnyo.
 
-[^184]: Ayat ni marupokan bantahan tahadap anggapan Ahlulkitab bahwa Nabi Isa a.s. ninggal di tiang salib.
-
 ## 4:158
 
 Tapi, Allah lah mangangkatnyo (Isa) ka hadirat-Nyo. [^185]  Allah Maha Perkaso lagi Maha Bijaksano.
 
-[^185]: Ayat ni sabagai bantahan tahadap anggapan orang Yahudi bahwa orang-orang tu lah mambunuh Nabi Isa a.s.
-
 ## 4:159
 
 Idak ado saorang pun di antaro Ahlulkitab, kacuali baiman kapadonya (Isa) manjelang kamatiannyo. [^186] Pado hari Kiamat dio (Isa) bakal manjadi saksi orang-orang tu.
-
-[^186]: Menurut ayat ni, satiap orang Yahudi dan Nasrani katiko bakal manemui ajalnyo, orang-orang tu bakal baiman bahwa Nabi Isa a.s. adolah utusan Allah Swt. dan bukan anak Allah, tapi kaimanannyo lah idak baguno lagi.
 
 ## 4:160
 
@@ -3004,8 +2632,6 @@ Sasungguhnyo Kami lah mawahyukan kapadomu (Nabi Muhammad) samacam mano Kami lah 
 ## 4:164
 
 Ada baberapo rasul nang lah Kami ceritokan (kisah) tentang paro rasul tu kapadomu sabelumnyo dan ado (pulak) baberapo rasul (lain) nang idak Kami ceritokan (kisah) tentang paro rasul tu kapadomu. Allah lah benar-benar bacakap kapado Musa (sacaro langsung). [^187]
-
-[^187]: Di antaro kaistimewaan Nabi Musa a.s. adolah dapat bacakap dengan Allah Swt. sacaro langsung sahinggo disebut kalīmullāh. Samuo nabi nang lain mandapatkan firman Allah Swt. malalui parantaroan Jibril, kacuali Nabi Muhammad saw. dapat bacakap langsung dengan Allah Swt. pado waktu mikraj.
 
 ## 4:165
 
@@ -3035,12 +2661,6 @@ Oi manusio, sungguh lah tibo Rasul (Nabi Muhammad) kapadomu dengan (mambawak) ka
 
 Oi Ahlulkitab, janganlah kamu balebih-lebihan dalam (manjalankan) ugamo kamu [^188]  dan janganlah kamu mangatokan tahadap Allah kacuali nang benar. Sasungguhnyo Almasih, Isa putra Maryam, hanyolah utusan Allah dan (makhluk nang diciptokan dengan) kalimat-Nyo [^189]  nang Dio sampaikan kapado Maryam dan (dengan tiupan) roh dari-Nyo. [^190]  Mako, baimanlah kapado Allah dan rasul-rasul-Nyo dan janganlah kamu mangatokan, “(Tuhan tu) tigo.” Sudahlah (dari ucapan tu). (Tu) lebih baik bagimu. Sasungguhnyo hanyo Allahlah Tuhan Nang Maha So. Mahasuci Dio dari (sangkoan) mampunyoi anak. Milik-Nyolah apo nang ado di langit dan apo nang ado di bumi. Cukuplah Allah sabagai palindung.
 
-[^188]: Tamasuk berlebihan adalah mengatakan bahwa Nabi Isa a.s. itu tuhan samacam mano dikatakan oleh orang Nasrani.
-
-[^189]: Maksud ‘kalimat’ adalah ‘kun’(jadilah) sahinggo Nabi Isa a.s. diciptakan tanpa bapak.
-
-[^190]: Disebut ‘tiupan dari Allah’ karena tiupan itu berasal dari perintah Allah Swt..
-
 ## 4:172
 
 Almasih idak bakal pernah enggan jadi hambo Allah dan macam tu pulak paro malaikat nang dekat (kapado Allah). Siapo nang enggan manyembah-Nyo dan manyombongkan diri, mako Allah bakal mangumpulkan orang-orang tu sagalonyo kapado-Nyo.
@@ -3061,43 +2681,21 @@ Adopun orang-orang nang baiman kapado Allah dan bapegang teguh kapado (ugamo)-Ny
 
 Orang-orang tu mamintak fatwa kapadomu (tentang kalālah). [^191]  Katokanlah, “Allah mambagih fatwa kapadomu tentang kalālah(yaitu,) jiko saseorang ninggal dan dio idak mampunyoi anak, tapi mampunyoi saorang saudaro perempuan, bagiannyo (saudaro perempuannyo tu) seperduo dari harto nang ditinggalkannyo. Adopun saudaro laki-lakinyo mawarisi (saluruh harto saudaro perempuan) jiko dio idak mampunyoi anak. Tapi, jiko saudaro perempuan tu duo orang, bagi kaduonya duo pertigo dari harto nang ditinggalkan. Jiko orang-orang tu (ahli waris tu ado) baberapo saudaro laki-laki dan perempuan, bagian saorang saudaro laki-laki samo dengan bagian duo orang saudaro perempuan. Allah manerangkan (hukum ni) kapadomu supayo kamu idak tasesat. Allah Maha Mangetaui sagalo sasuatu.”
 
-[^191]: ‘Kalālah’ iolah orang mati nang idak maninggalkan bapak dan anak.
-
 ## 5:1
 
 Oi orang-orang nang baiman, penuhilah janji-janji! [^192] Dihalalkan bagimu binatang ternak, kacuali nang bakal disebutkan kapadomu (kaharomannnyo) dengan idak manghalalkan baburu katiko kamu sedang baihram (haji atau umrah). Sasungguhnya Allah manetapkan hukum sesuai dengan nang Dio kendaki.
-
-[^192]: Maksud ‘janji’ di siko adolah janji dengan Allah Swt., artinyo mangikuti ajaran Allah Swt. dan janji kapado manusio dalam muamalah.
 
 ## 5:2
 
 Oi orang-orang nang bariman, janganlah kamu melanggar syiar-syiar (kasucian) Allah, [^193]  dan jangan (malanggar kahormatan) bulan-bulan haram, [^194]  jangan mangganggu hadyu (binatang-binatang kurban) [^195]  dan qalā’id (binatang-binatang kurban nang dibagih tando), [^196]  dan jangan (pulak mangganggu) paro pangunjung Baitulharam sedangkan orang-orang tu mancari karunio dan ridho Tuhannyo. [^197]  Apobilo kamu lah batahalul (manyelesaikan ihram), baburulah (jiko mau). Janganlah sakali-kali kabencian(-mu) kapado suatu kaum, kareno orang-orang tu mangalang-alangimu dari Masjid Haram, mandorongmu babuat  malampaui  batas  (kapado  orang-orang tu). Tolong-manolonglah kamu dalam (mangerjokan)  kabajikan  dan  takwa,  dan  janganlah  tolong  manolong  dalam  babuat  doso  dan  pamusuhan.  Batakwalah  kapado  Allah, sunguh, Allah berat nian sikso-Nyo.
 
-[^193]: Syiar-syiar kasucian Allah Swt.’ iolah sagalo amalan nang dilakukan dalam rangka ibadah haji seperti tato caro malakukan tawaf dan sa’i, serto genah-genah mangerjokannyo, seperti Ka‘bah, Safa dan Marwah.
-
-[^194]: Bulan haram iolah Zulkaidah, Zulhijah, Muharam dan Rajab. Pado bulan-bulan tu dilarang malakukan paperangan.
-
-[^195]: ‘Hadyu’ iolah binatang nang disembelih sabagai pengganti (dam) pekerjoan wajib nang ditinggalkan, atau sabagai dendo kareno malanggar hal-hal nang talarang di dalam ibadah haji.
-
-[^196]: ‘Qalā’id’ iolah binatang hadyu nang diberi kalung supayo dikataui orang bahwa binatang tu lah ditetapkan untuk dibawak ka Ka‘bah.
-
-[^197]: Nang dimaksud dengan karunio di siko iolah kauntungan nang dibagihkan Allah Swt. dalam perjalanan ibadah haji, sedangkan keridoan Allah Swt. iolah pahalo amalan haji.
-
 ## 5:3
 
 Diharamkan bagimu (mamakan) bangkai, darah, daging babi, dan (daging binatang) nang disembelih bukan atas (namo) Allah, nang tacekik, nang dipukul, nang jatuh, nang ditanduk dan nang diterkam binatang buas, kacuali nang (sempat) kamu sembelih. [^198]  (Diharamkan pulak) nang disembelih untuk berhalo. (Macam tu pulak) mangundi nasib dengan azlām (anak panah), [^199]  (kareno) tu suatu perbuatan fasik. Pado hari ko [^200]  orang-orang kafir lah putus aso untuk (mangalahkan) ugamomu. Sebab tu, janganlah kamu takut kapado orang-orang tu, tapi takutlah kapado-Ku. Pado hari ko lah Aku sempurnokan ugamomu untukmu, lah aku cukupkan nikmat-Ku bagimu, dan lah aku ridoi Islam sabagai ugamomu. Mako, siapo nang tapakso kareno lapar, bukan kareno ingin babuat doso, sungguh Allah Maha Pangampun lagi Maha Panyayang.
 
-[^198]: biantang nang tacekik, dipukul, jatuh, ditanduk, dan diterkam binatang buas hukumnyo halal, kalu sempat disembelih sabelum mati.
-
-[^199]: ‘Al-Azlām’ artinyo anak panah nang idak mamakai bulu. Orang Arab Jahiliah manggunokannyo untuk mangundi apokah malakukan suatu perbuatan atau idak. Caronyo, mengambik tigo buah anak panah, nang pertamo ditulis “kerjokanlah”, kadua “jangan kerjokan”, dan katigo idak ditulisi apo-apo. Anak-anak panah tu diletakkan dalam sabuah genah dan disimpan di dalam Ka‘bah. Bilo hendak malakukan suatu perbuatan, orang-orang tu maminta juru kunci Ka‘bah untuk mangambik sabuah anak panah. Orang-orang tu bakal mangerjokan atau idak mangerjokannyo sesuai dengan tulisan anak panah nang diambiknyo, tapi jiko nang taambik adolah anak panah nang idak ada tulisannyo, undian diulangi sakali lagi.
-
-[^200]: Maksud kato ‘hari ko’ adolah pado waktu haji wada’.
-
 ## 5:4
 
 Orang-orang tu batanyo kapadomu (Nabi Muhammad), “Apakah nang dihalalkan bagi orang-orang tu?” Katokanlah, “Nang dihalalkan bagimu adolah (makanan-makanan) nang baik dan (buruan nang ditangkap) oleh binatang pamburu nang sudah kamu latih untuk baburu, nang kamu latih manurut apo nang lah diajarkan Allah kapadomu. Mako, makanlah apo nang ditangkapnyo untukmu [^201] dan sebutlah namo Allah (waktu melepaskannyo). Batakwalah kapado Allah. Sasungguhnyo Allah amat cepat perhitungan-Nyo.
-
-[^201]: Maksudnyo adolah binatang buruan nang ditangkap oleh binatang pamburu nang sengajo dilepas oleh pamiliknya untuk baburu dan ia idak mamakannyo.
 
 ## 5:5
 
@@ -3107,15 +2705,9 @@ Pado hari ko dihalalkan bagimu sagalo (makanan) nang baik. Makanan (sembelihan) 
 
 Oi orang-orang nang baiman, apobilo kamu nak malaksanokan sembahyang, mako basuhlah mukomu dan tanganmu sampai ka siku serto usaplah kepalomu dan (basuh) kaduo kakimu sampai kaduo mato kaki. Jiko kamu dalam kaadoan junub, mandilah. Jiko kamu sakit, [^202]  dalam perjalanan, balik dari tempat buang aek (kakus), atau manyentuh [^203]  perempuan, lalu idak manemukan aek, batayamunlah dengan debu nang baik (suci); usaplah mukomu dan tanganmu dengan (debu) tu. Allah idak ingin manjadikan bagimu sadikitpun kasulitkan, tapi Dio hendak mambersihkan kamu dan manyempurnokan nikmat-Nyo bagimu supayo kamu basyukur.
 
-[^202]: Maksudnyo, sakit nang mambuatnyo idak boleh takeno aek.
-
-[^203]: Imak catatan kaki surah an-Nisā’/4: 43.
-
 ## 5:7
 
 Ingatlah nikmat Allah kapadomu dan perjanjian-Nyo [^204] nang lah Dio ikatkan kapadomu katiko kamu mangatokan, “Kami nganing dan kami mantaati.” Batakwalah kapado   Allah.   Sasungguhnyo   Allah   Maha   Mangetaui sagalo isi hati.
-
-[^204]: Maksudnyo, perjanjian untuk manganing dan taat kapado Nabi Muhammad saw. dalam kaadoan apo pun nang diikrarkan pado waktu baiat (sumpah setio).
 
 ## 5:8
 
@@ -3137,13 +2729,9 @@ Oi orang-orang nang baiman, ingatlah nikmat Allah (nang dibagihkan) kapadomu kat
 
 Sungguh, Allah benar-benar lah mangambik perjanjian dari Bani Israil dan kami lah mangangkat duo belas orang pemimpin di antaro orang-orang tu. Allah bafirman, “Aku basamomu. Sungguh, jiko kamu malaksanokan sembahyang, manunaikan zakat, baiman kapado rasul-rasul-Ku dan mambantu orang-orang tu, serto maminjamkan kapado Allah pinjaman nang baik, [^205]  pasti bakal Aku apus kasalahan-kasalahanmu dan bakal Aku masukkan kamu ka dalam surgo nang mangalir di bawahnyo sungei-sungei. Mako, siapo nang kufur di antaromu sasudah tu, sungguh dio lah tasesat dari jalan nang lurus.”
 
-[^205]: ‘Pinjaman nang baik kapado Allah Swt.’ maksudnyo manginfakkan harto di jalan Allah Swt., baik infak wajib maupun infak sunah.
-
 ## 5:13
 
 (Namun), kareno orang-orang tu malanggar janjinyo, kami malaknat orang-orang tu dan kami manjadikan hati orang-orang tu keras mambatu. Orang-orang tu suko mangubah firman-firman (Allah) dari genah-genahnyo [^206] dan orang-orang tu (sengajo) malupokan sabagian pesan nang lah diperingatkan kapado orang-orang tu. Kamu (Nabi Muhammad) senantiaso bakal mangimak pangkhianatan dari orang-orang tu, kacuali sakelompok kecik di antaro orang-orang tu (nang idak bakhianat). Mako, maafkanlah orang-orang tu dan biakkanlah. Sasungguhnyo Allah manyukoi orang-orang nang babuat baik (muhsin).
-
-[^206]: Mangubah firman Allah Swt. dari genahnya dengan mangubah teks ayat, dengan mandahulukan, mangakherkan, manambahkan, atau mangurangi; dan mamalingkan makno kalimat dari pamahaman nang sasungguhnyo.
 
 ## 5:14
 
@@ -3152,8 +2740,6 @@ Dari orang-orang nang mangatokan, “Sasungguhnyo kami adolah orang Nasrani,” 
 ## 5:15
 
 Oi Ahlulkitab, sungguh rasul Kami lah tibo kapadomu untuk manjelaskan banyak hal dari (isi) kitab suci nang kamu singitkan dan mambiakkan (idak manjelaskan) banyak hal (pulak). Sungguh, lah tibo kapadomu cahayo dari Allah dan kitab suci [^207] nang jelas.
-
-[^207]: Cahayo dari Allah Swt. maksudnyo adolah Nabi Muhammad saw., sedangkan kitab maksudnyo adolah Al-Qur’an.
 
 ## 5:16
 
@@ -3178,8 +2764,6 @@ Ingatlah) katiko Musa bakato kapado kaumnyo, “Oi Kaumku, ingatlah nikmat Allah
 ## 5:21
 
 Oi kaumku, masuklah ka tanah suci (Baitulmaqdis) nang lah Allah tentukan bagimu [^208]  dan  janganlah  kamu  babalik  ka  belakang   (kareno   takut   kapado   musuh),   kagi kamu manjadi orang nang rugi.”
-
-[^208]: Maksudnyo, tanah Palestina ditentukan Allah Swt. bagi kaum Yahudi salama orang-orang tu baiman dan taat kapado Allah Swt. Katiko Nabi Muhammad saw. sudah diutus Allah Swt., sementaro orang-orang tu manolak untuk baiman kapadonya, katentuan tu pupus bagi orang Yahudi.
 
 ## 5:22
 
@@ -3217,25 +2801,17 @@ Sasungguhnyo aku ingin kamu balik (kapado-Nyo) dengan (membawak) dosomu (kareno 
 
 Kemudian, hawo nafsu (Qabil) mandorong dio untuk membunuh saudaronyo. [^209]  Mako, dio pun (benar-benar) membunuhnyo sahinggo dio tamasuk orang nang rugi.
 
-[^209]: Sif at-sifat manusio nang dikhawatirkan malaikat (surah al-Baqarah/2: 30) mulai muncul pado anak Adam.
-
 ## 5:31
 
 Kemudian, Allah mangirim saeokor burung gagak untuk manggali tanah supayo Dio mamperliatkan kapadonyo (Qabil) bagaimano caro manguburkan mayat saudaronyo. [^210]  Qabil bakato, “Cilakolah sayo! Mangapo sayo idak mampu babuat samacam mano gagak ni sahinggo sayo dapat mangubur mayat saudaroku?” Mako, jadilah dio tamasuk orang-orang nang manyesal.
-
-[^210]: Allah Swt. mangajarkan kapado manusio ilmu dan kamampuan untuk mangembangkan kahidupannyo malalui prilaku binatang, tumbuhan, dan fenomena alam lainnyo.
 
 ## 5:32
 
 Kareno tu, Kami matetapkan (suatu hukum) bagi Bani Israil bahwa siapo nang membunuh saorang manusio kareno (orang nang dibunuh tu) lah mambunuh orang lain atau kareno lah babuat karusakan di bumi, mako saakan-akan dio lah mambunuh manusio sagalonyo. [^211] Sabaliknyo, siapo nang memeliharo kahidupan saorang manusio, dio  saakan-akan  lah  memeliharo  manusio  sagalonyo. Sungguh rasul-rasul Kami benar-benar lah tibo kapado orang-orang tu dengan (membawak) katerangan-katerangan nang jelas. Kemudian, sasungguhnyo di antaro banyak di antaro orang-orang tu sesudah tu melampaui batas di bumi.
 
-[^211]: Maksudnyo, orang nang mambunuh saorang manusio, samo dengan manghalalkan pambunuhan tahadap sagalo manusio. Sabaliknyo, mameliharo kahormatan saorang jiwo, samo dengan mameliharo kahormatan sagalo manusio.
-
 ## 5:33
 
 Balasan bagi orang-orang nang memerangi Allah dan Rasulnyo serto mambuat karusakan di bumi hanyolah dibunuh, disalib, dipotong tangan dan kaki orang-orang tu secaro timbal balik atau dikucilkan dari genah kadiamannyo. Nang demikian tu merupokan kahinoan untuk orang-orang tu di dunio dan di akherat (kagi) orang-orang tu mandapat siksaan nang berat, [^212]
-
-[^212]: Ayat ko bakenaan dengan panjelasan Allah Swt. tentang ḥirābah. ‘Ḥirābah’ adolah tindakan kakerasan sacaro terang-terangan untuk mangambik harto, mambunuh, dan manimbulkan raso takut seperti parampokan.
 
 ## 5:34
 
@@ -3281,8 +2857,6 @@ Bagimano orang-orang tu manjadikanmu sabagai hakim orang-orang tu, padohal orang
 
 Sasungguhnyo Kami lah manurunkan Taurat. Di dalamnyo ado patunjuk dan cahayo. Dengannyo paro nabi, nang baserah diri kapado Allah, mambagih kaputusan atas perkaro orang Yahudi. Macam tu jugo paro rabid an ulama-ulama orang-orang tu (jugo mambagih kaputusan) sebab orang-orang tu diperentahkan (oleh Allah untuk) mameliharo kitab Allah dan orang-orang tu marupokan saksi-saksi tahadapnyo. Kareno tu, janganlah kamu takut kapado manusio, (tapi) takutlah kapado-Ku. Janganlah kamu manukar ayat-ayat-Ku dengan hargo nang murah. Siapo nang idak mamutuskan (suatu urusan) manurut apo nang diturunkan Allah, mako orang-orang tu adolah orang-orang kafir. [^213]
 
-[^213]: Orang nang idak mamutuskan perkaro manurut hukum Allah Swt. ado tigo macam: a). kareno benci dan engkarnya kapado hukum Allah Swt., orang nang samacam ko kafir (surah al-Mā’idah/5: 44); b). kareno manuruti hawo nafsu dan marugikan orang lain dinamokan zalim (surah al-Mā’idah/5: 45); c). kareno fasik samacam mano tadapat dalam ayat 47 surah ko.
-
 ## 5:45
 
 Kami lah manetapkan bagi orang-orang tu (bani Israil) di dalomnyo (Taurat) bahwa jiwo (dibalas) dengan jiwo, mato dengan mato, hidung dengan hidung, telingo dengan telingo, gigi dengan gigi, dan luko-luko (pun) ado kisasnyo (balasan nang samo). Siapo nang malepaskan (hak kisasnyo), mako tu (manjadi) panebus doso baginyo. Siapo nang idak mamutuskan perkaro manurut apo nang diturunkan Allah, mako orang-orang tulah orang-orang aniayo.
@@ -3294,8 +2868,6 @@ Kami maruskan jejak orang-orang tu (paro nabi Bani Israil) dengan mangutus Isa a
 ## 5:47
 
 Hendaklah pangikut Injil mamutuskan (urusan) manurut apo nang diturunkan Allah di dalomnyo. [^214]  Siapo nang idak mamutuskan (suatu urusan) manurut katentuan nang diturunkan Allah, mako orang-orang tulah orang-orang fasik.
-
-[^214]: Hukum ko balaku sampai Allah Swt. mangutus Nabi Muhammad saw.
 
 ## 5:48
 
@@ -3312,8 +2884,6 @@ Apakah hukum jahiliyah nang orang-orang tu kendaki? (Hukum) siapokah nang lebih 
 ## 5:51
 
 Oi orang-orang nang baiman, janganlah kamu manjadikan orang Yahudi dan Nasrani sabagai kanti setio(-mu). [^215] Sabagian orang-orang tu manjadi kanti setio bagi sabagian nang lain. Siapo di antaro kamu nang manjadikan orang-orang tu kanti setio, mako sasungguhnyo dio tamasuk golongan orang-orang tu. Sasungguhnyo Allah idak mambagih patunjuk kapado orang-orang nang aniayo.
-
-[^215]: Imak catatan kaki surah Āli ‘Imrān/3: 28.
 
 ## 5:52
 
@@ -3339,8 +2909,6 @@ Siapo nang manjadikan Allah, Rasul-Nyo dan orang-orang nang baiman sabagai panol
 
 Oi orang-orang nang baiman, janganlah kamu manjadikan orang-orang nang manjadikan ugamomu bahan olok-olokan dan permainan, (Yaitu) di antaro orang-orang nang lah dibagih kitab suci sabelummu dan orang-orang kafir, sabagai kanti setio(-mu). [^216] Batakwalah kapado Allah jiko kamu orang-orang mukmin.
 
-[^216]: Imak catatan kaki surah Āli ‘Imrān/3: 28.
-
 ## 5:58
 
 Apobilo kamu manyeru untuk untuk malaksanokan sembahyang, orang-orang tu manjadikannyo bahan olok-olok dan permainan. Nang damikian tu adolah kareno sasungguhnya orang-orang tu adolah orang-orang nang idak mangerti.
@@ -3352,11 +2920,6 @@ Katokanlah, “Oi Ahlulkitab, apokah kamu mamandang kami salah hanyo kareno kami
 ## 5:60
 
 Katokanlah (Nabi Muhammad), “Apokah bakal aku beritokan kapadomu tentang sasuatu nang lebih buruk pambalasannyo daripado tu [^217] di sisi Allah? (Yaitu balasan) orang   nang   dilaknat   dan   dimurkai   Allah   (nang) di antaro orang-orang tu Dio jadikan kero  dan  babi  [^218]  (Di  antaro  orang-orang  tu  ado pulak nang) manyembah Tagut.” Orang-orang  tu  lebih  buruk  genahnyo  dan  lebih  tasesat dari jalan nang lurus.
-
-[^217]: Hal nang lebih buruk pambalasannyo adolah manganggap salah kaimanan kapado Allah Swt., Al-Qur’an, dan
-    kitab suci nang diturunkan sabelumnyo.
-
-[^218]: Laknat ko ditimpokan kapado orang-orang Yahudi nang malanggar kahormatan hari Sabat (imak surah al- Baqarah/2: 65).
 
 ## 5:61
 
@@ -3382,13 +2945,9 @@ Sakironyo Ahlulkitab tu baiman dan batakwa, niscayo Kami hapus kasalahan-kasalah
 
 Sakironyo orang-orang tu manegakkan (hukum) Taurat, injil, dan (Al-Qur’an nang diturunkan kapado orang-orang tu dari Tuhan orang-orang tu, niscayo orang-orang tu bakal mandapat makanan dari atas orang-orang tu dan dari bawah kaki orang-orang tu. [^219] Di antaro orang-orang tu ado umat nang manempuh jalan nang lurus. Sementaro tu, banyak di antaro orang-orang tu amat buruk apo nang orang-orang tu kerjokan
 
-[^219]: Sabagai pahalonya, Allah Swt. bakal mambagihkan rahmat-Nyo dari langit dengan manurunkan hujan dan manumbuhkan tumbuh-tumbuhan nang buahnyo malimpah ruah.
-
 ## 5:67
 
 Oi Rasul, sampaikanlah apo nang diturunkan Tuhanmu kapadomu. Jiko idak kamu lakukan (apo nang diperentahkan tu), baarti engkau idak manyampaikan risalah-Nyo. Allah mameliharo kamu dari (gangguan) manusio. [^220] Sasungguhnyo Allah idak mambagih patunjuk kapado kaum nang kafir.
-
-[^220]: Maksudnyo, idak saorang pun nang dapat mambunuh Nabi Muhammad saw.
 
 ## 5:68
 
@@ -3401,8 +2960,6 @@ Sasungguhnyo orang-orang nang baiman, orang-orang Yahudi, sābi’īn, dan orang
 ## 5:70
 
 Sungguh, Kami benar-benar lah mangambik perjanjian dari Bani Israil dan lah mangutus rasul-rasul kapado orang-orang tu. [^221]  Tapi setiap rasul tibo kapado orang-orang tu dengan mambawak apo nang idak sasuai dengan kainginan orang-orang tu, mako sabagian dari rasul tu orang-orang tu dustokan dan sabagiannyo orang-orang tu bunuh.
-
-[^221]: Perjanjian tu iolah orang-orang tu baiman kapado Allah Swt. dan rasul-rasul-Nyo.
 
 ## 5:71
 
@@ -3447,8 +3004,6 @@ Kamu mangimak banyak di antaro orang-orang tu tolong basekutu dengan orang-orang
 ## 5:81
 
 Sekironyo orang-orang tu baiman kapado Allah, Nabi (Muhammad), dan apo nang diturunkan kapadonyo, niscayo orang-orang tu idak bakal manjadikan orang musyrik tu sabagai sekutu. [^222] Tapi, banyak di antaro orang-orang tu adolah orang-orang nang fasik.
-
-[^222]: Imak catatan kaki surah Āli ‘Imrān/3: 28.
 
 ## 5:82
 
@@ -3506,27 +3061,13 @@ Oi orang-orang nang baiman, sungguh Allah pasti bakal manguji kamu dengan sasuat
 
 Oi orang-orang nang baiman, janganlah kamu mambunuh binatang buruan [^223], katiko kamu sedang baihrom (haji atau umroh). Siapo di antaro kamu mambunuhnyo dengan sangajo, dendonyo (iolah manggantinyo) dengan binatang ternak nang sepadan dengan(binatang buruan) nang dibunuhnyo manurut putusan duo orang nang adil di antaro kamu sabagai hadyu (binatang korban) nang (dibawak) sampai ka Ka’bah [^224] atau (membayar) kafarot dengan mambagih makan orang-orang miskin [^225] atau bapuaso, saimbang dengan makanan nang dikeluarkan tu [^226], supayo dio marasokan akibat buruk dari perbuatannyo. Allah lah mamaafkan apo nang lah lalu [^227]. Siapo nang kambali mangerjokannyo, pasti Allah bakal manyiksonyo. Allah Maha Perkaso lagi Maha Mampunyoi (kakuasoan) untuk mambalas.
 
-[^223]: Nang dimaksud binatang buruan pado ayat ko adolah binatang nang boleh dimakan maupun idak, kacuali burung gagak, burung elang, kalajengking, tikus, dan anjing buas. Dalam suatu riwayat tamasuk jugo ular.
-
-[^224]: Maksud ‘sampai ke Ka‘bah’ pada ayat ko adolah nang dibawak sampe ka daerah haram untuk disambelih di sano dan dagingnyo dibagikan kapado fakir miskin.
-
-[^225]: Mambayar kafarat harus sapadan dengan hargo binatang ternak pangganti binatang nang dibunuh tu.
-
-[^226]: Puaso nang dilakukan samo jumlah harinyo dengan jumlah mud nang dibagihkan kapado fakir miskin, yaitu sahargo binatang nang dibunuh, dengan catatan, saorang fakir miskin mandapat sikok mud (lebih kurang 6,5 ons).
-
-[^227]: Maksud ‘perbuatan nang lah lalu’ dalam ayat ko adolah mambunuh binatang sabelum turun ayat nang mangharamkannyo.
-
 ## 5:96
 
 Dihalalkan bagimu binatang buruan laut [^228] dan makanan (nang barasal) dari laut sabagai kasenangan bagimu, dan bagi orang-orang nang dalam pajalanan; dan diharamkan atasmu (manangkap) binatang buruan darat, salamo kamu dalam kaadaan ihrom. Batakwalah kapado Allah nang kapado-Nyo-lah kamu bakal dikumpulkan.
 
-[^228]: Hewan buruan laut nang dihalalkan adolah nang diparoleh dengan jalan usaho saperti mangail dan mamukat. Tamasuk jugo dalam pangertian laut di siko adolah sungei, danau, kolam dan sabagainyo.
-
 ## 5:97
 
 Allah lah manjadikan Ka’bah, rumah suci tu sabagai pusat kagiatan (paribadatan dan urusan dunio) [^229] bagi manusio, dan (demikian pulak) bulan haram, hadyu (hewan korban) dan qalaid (hewan korban nang dibagih kalung), Nang macam tu supayo kamu tau, bahwa sabenarnyo-benarnyo Allah mangetaui apo pun nang ado di langit dan apo nang ado di bumi dan bahwa sabenarnyo-benarnyo Allah Maha Mengetaui sagalo sasuatu.
-
-[^229]: Ka‘bah dan sakitarnyo manjadi genah nang aman bagi manusio untuk mangerjokan urusan-urusan nang bahubungan dengan dunio dan akherat sarto manjadi pusat ibadah haji.
 
 ## 5:98
 
@@ -3552,14 +3093,6 @@ Sabenarnyo lah ado segolongan manusio sabelum kamu sudah mananyokan hal-hal nan 
 
 Allah sakali-kali idak pernah manetapkan sadikitpun (aturan) manyangkut bahiirah, [^230] saibah, [^231] wasilah, [^232] dan ham. [^233] tapi , orang-orang kafir mambuat-buat kadustoan tahadap Allah, dan kabanyakan orang-orang tu idak mangerti.
 
-[^230]: ‘Baḥīrah’ adolah unto batino nang lah baranak limo kali dan anak nang kalimo tu jantan. Lalu, unta batino tu dibelah talingonyo, dilepaskan, idak boleh ditunggangi lagi, dan idak boleh diambil aek susunyo.
-
-[^231]: ‘Sā’ibah’ adolah unto batino nang dibiarkan pergi ka mano be kareno suatu nazar. Misalnyo, jiko orang Arab Jahiliah bakal malakukan sasuatu atau parjalanan nang berat, dio biaso banazar bakal manjadikan untonyo sā’ibah kalu maksud atau pajalanannyo barhasil dan selamat.
-
-[^232]: ‘Waṣīlah’ adolah saekor domba batino nang malahirkan anak kembar nang tardiri atas jantan dan batino. Unto jantan disebut waṣīlah, idak boleh disembelih dan diserahkan kapado barhalo.
-
-[^233]: ‘Ḥām’ adolah unto jantan nang idak boleh diganggu-ganggu lagi kareno lah dapat mambuntingkan unto batino sapuluh kali. Parlakuan tahadap baḥīrah, sā’ibah, waṣīlah, dan ḥām ko adolah kapercayoan Arab Jahiliah.
-
 ## 5:104
 
 Apabilo dikatokan kapado orang-orang tu, “Marilah mangikuti sasuatu nang Allah turunkan dan (mangikuti) rasul,” Orang-orang tu manjawab, “Cukuplah bagi kami apo nang kami dapati pado nenek moyang kami,” Apokah (orang-orang tu bakal mangikuti nenek moyang mareko) walaupun orang-orang tu idak mangetaui sasuatu pun dan idak (pulo) mandapat patunjuk?
@@ -3576,13 +3109,9 @@ Oi orang-orang nang baiman, persaksian di antaro kamu, apobilo lah datang kapado
 
 Kalu tabukti kaduo saksi tu mambuat doso, [^234]  mako duo orang nang lain manggantikan kadudukannyo, yaitu diantaro ahli waris nang barhak dan lebih dekat kapado orang nang maninggal, lalu kaduonyo basumpah dengan namo Allah, “Sungguh kasaksian kami lebih layak diterimo daripado kasaksian kaduo saksi tu, dan kami idak malanggar batas. Sasungguhnyo kalu (babuat) macam tu, tentu kami tamasuk orang-orang nang zolim.”
 
-[^234]: ‘Babuat doso’ di siko maksudnyo adolah malakukan kacurangan dalam parsaksiannyo nang diketaui satelah dio basumpah.
-
 ## 5:108
 
 Hal tu lebih dekat untuk mambuat orang-orang tu mambagihkan kasaksian nang sabenarnyo, atau orang-orang tu maraso takut bakal dibalikkan sumpahnyo (kapado ahli waris) sasudah orang-orang tu basumpah [^235]. Batakwalah kapado Allah dan dengarkanlah (perintah-Nyo). Allah idak mambagih patunjuk kapado Kaum nang fasik.
-
-[^235]: Maksud ungkapan ko adolah bahwa sumpah saksi-saksi nang balainan ugamo tu ditolak dengan sumpah saksi-saksi nang barasal dari kerabat, atau biso jugo bararti bahwa orang-orang nang basumpah tu bakal mandapat balasan di dunio dan akherat kareno malakukan sumpah palsu.
 
 ## 5:109
 
@@ -3648,8 +3177,6 @@ Diolah Allah (nang disembah) di langit dan di bumi. Dio mangetaui apo be nang ka
 
 Idaklah datang kapado orang-orang tu sikok ayat pun dari ayat-ayat [^236] Tuhan orang-orang tu, kacuali orang-orang tu (pasti) bapaling darinyo.
 
-[^236]: ‘Ayat’ di siko bararti mukjizat, ayat Al-Qur’an, atau peristiwo-peristiwo nang tajadi di alam nang manunjukkan kekuasoan Allah Swt.
-
 ## 6:5
 
 Sungguh, orang-orang tu lah mandustokan kabenaran (Al-Qur’an) katiko sampe kapado orang-orang tu. Mako, kagi bakal sampe kapado orang-orang tu berito-berito (tentang kabenaran) sasuatu nang selalu orang-orang tu perolok-olokkan.
@@ -3666,13 +3193,9 @@ Saandainyo Kami turunkan kapadomu (Nabi Muhammad) kitab (barupo tulisan) pado ke
 
 Orang-orang tu bakato, “Mangapo idak diturunkan malaikat kapadonyo (Nabi Muhammad)” [^237] Andaikato Kami turunkan malaikat, niscayo selesailah urusan (orang-orang tu dibinasokan kareno pangingkaran) kemudian orang-orang tu idak lagi ditangguhkan (sedikit pun untuk batobat).
 
-[^237]: Ungkapan ko adolah untuk manerangkan bahwa Nabi Muhammad saw tu adolah saorang nabi.
-
 ## 6:9
 
 Saandainyo Kami jadikan dio (rasul) tu (dari) malaikat, tentu Kami jadikan dio (bawujud) laki-laki, dan pasti Kami buat orang-orang tu tetap ragu samacam mano kini orang-orang tu ragu. [^238]
-
-[^238]: Kalau Allah Swt mangutus malaikat sabagai rasul, tentu Allah Swt mangutusnyo dalam bentuk manusio. Hal tu kareno manusio idak dapat mangimak malaikat dan tentu orang-orang tu bakal bakato, “Ko bukanlah malaikat, tapi hanyo manusio samacam mano kami jugo.” Jadi, orang-orang tu bakal tetap ragu-ragu.
 
 ## 6:10
 
@@ -3685,8 +3208,6 @@ Katokanlah (Nabi Muhammad), “Jelajahilah bumi, kamudian perhatikanlah bagaiman
 ## 6:12
 
 Katokanlah (Muhammad), “Milik siapokah apo nang di langit dan di bumi?” Katokanlah, “Milik Allah.” Dio lah manetapkan (sifat) kasih sayang pado diri- Nyo. [^239]  Sungguh, Dio pasti bakal mangumpulkan kamu pado hari Kiamat nang idak ado karaguan padonyo. Orang-orang nang marugikan dirinyo, orang-orang tu idak baiman.
-
-[^239]: Allah Swt lah bajanji, sabagai tando kamurahan-Nyo, bahwa Dio bakal malimpahkan rahmat kapado makhlukNyo.
 
 ## 6:13
 
@@ -3777,8 +3298,6 @@ Sungguh, Kami mangetaui bahwa sasungguhnyo apa nang orang-orang tu katokan itu b
 
 Sungguh rasul-rasul sabelum engkau pun lah didustokan, lalu orang-orang tu sabar tahadap pandustoan dan panganiayoan (nang dilakukan) tahadap orang-orang tu sampe datang pertolongan Kami kapado orang-orang tu. Idak ado nang dapat mangubah kalimāt Allah. [^240] Sungguh, lah datang kapadomu sabagian berito rasul-rasul tu.
 
-[^240]: Nang dimaksud dengan ‘kalimāt Allah Swt.’ adolah katetapan-katetapan Allah Swt nang sudah tatulis di Lauh mahfuz. Di antaronyo adolah bahwa orang-orang tu nang mandustokannyo pasti bakal hancur dan orang nang mangimaninyo bakal menang.
-
 ## 6:35
 
 Kalu kaberpalingan orang-orang tu taraso berat bagimu (Nabi Muhammad), andaikan engkau dapat mambuat lubang di bumi atau tanggo ka langit lalu engkau dapat mandatangkan bukti (mukjizat) kapado orang-orang tu, (mako buatlah). Saandainyo Allah manghendaki, tentu Dio bakal manjadikan orang-orang tu sagalonyo mangikuti patunjuk. Oleh kareno tu, janganlah sakali-kali engkau tamasuk orang-orang nang bodoh.
@@ -3786,8 +3305,6 @@ Kalu kaberpalingan orang-orang tu taraso berat bagimu (Nabi Muhammad), andaikan 
 ## 6:36
 
 Hanyo orang-orang nang manyimak (ayat-ayat Allah) sajolah nang mamatuhi (seruan-Nyo). Adapun orang-orang nang mati [^241] kagi bakal dibangkitkan oleh Allah, kamudian kapado-Nyo orang-orang tu dibalikan.
-
-[^241]: Orang-orang kafir diserupokan dengan orang-orang nang mati kareno orang-orang tu idak mau manganing seruan Allah Swt.
 
 ## 6:37
 
@@ -3797,15 +3314,9 @@ Orang-orang tu (orang-orang musyrik) bakato, “Mangapo idak diturunkan kapadony
 
 Idak katek saekor hewan pun (nang barado) di bumi dan burung-burung nang terbang dengan kaduo sayapnyo, malainkan sagalonyo marupokan umat (jugo) saperti kamu. [^242]  Idak ado sasuatu pun nang Kami luputkan di dalam kitab, [^243]  kamudian kapado Tuhannyo orang-orang tu dikumpulkan.
 
-[^242]: Sabagai makhluk hidup, binatang mampunyoi kamiripan biologis dengan manusio, bahkan sabagian mampunyoi sistem sosial saperti masyarakat manusio dengan kepemimpinannyo.
-
-[^243]: Sabagian mufasir manafsirkan ‘kitab’ itu dengan Lauh Mahfuz nang bararti bahwa nasib sagalo makhluk tu sudah dituliskan (ditetapkan) di dalamnyo. Ado pulak nang manafsirkannyo dengan Al-Qur’an dengan pangertian bahwa di dalam Al-Qur’an tu lah ado pokok-pokok ugamo, norma, hukum, hikmah, dan tuntunan untuk kabahagioan manusio di dunio dan akherat.
-
 ## 6:39
 
 Orang-orang nang mandustokan ayat-ayat Kami (saperti orang nang) tuli dan bisu, serto barado dalam babagai kagelapan. Siapo nang dikahendaki Allah (dalam kasesatan), niscayo disesatkan- Nyo. Siapo nang dikahendaki Allah (dalam patunjuk), niscayo Dio manjadikannyo barado di atas jalan nang lurus. [^244]
-
-[^244]: Orang-orang nang disesatkan oleh Allah Swt. memang mamilih jalan kekafiran, sedangkan orang-orang nang dibagih patunjuk memang mamilih jalan patunjuk.
 
 ## 6:40
 
@@ -3859,8 +3370,6 @@ Paringatkanlah dengannyo (Al-Qur’an) orang-orang nang takut bakal dikumpulkan 
 
 Janganlah engkau (Nabi Muhammad) mangusir orang-orang nang manyeru Tuhannyo pado pagi dan petang hari, sedangkan orang-orang tu mangharapkan karidoan-Nyo. Engkau idak mamikul tanggung jawab sadikit pun tahadap perbuatan orang-orang tu dan orang-orang tu (pun) idak mamikul tanggung jawab sadikit pun tahadap perbuatanmu, sahinggo engkau (idak barhak) mangusir orang-orang tu. (Kalu dilakukan,) engkau tamasuk orang-orang nang aniayo. [^245]
 
-[^245]: Katiko Rasulullah saw. sedang duduk-duduk basamo baberapo orang mukmin nang dianggap rendah dan miskin oleh kaum Quraisy, datanglah baberapo pamuka Quraisy hendak babicaro dengan Rasulullah. Orang-orang tu enggan duduk basamo dengan orang mukmin tu dan mangusulkan supayo orang-orang mukmin tu diusir be supayo orang-orang tu dapat babicaro dengan Rasulullah. Ayat ko turun sabagai teguran tahadap sikap tasebut.
-
 ## 6:53
 
 Macam tulah Kami lah manguji sabagian orang-orang tu (nang kayo dan bakuaso) dengan sabagian nang lain (nang miskin dan manderito), sahinggo orang-orang tu (nang kayo dan kufur tu) bakato, “Orang-orang samacam kokah (nang status sosialnyo rendah) di antaro kito nang dibagih anugerah oleh Allah?” (Allah bafirman), “Idakkah Allah lebih mangetaui tentang orang-orang nang basyukur (kapado-Nyo)?”
@@ -3913,15 +3422,9 @@ Katokanlah (Nabi Muhammad), “Allah nang manyelamatkanmu darinyo (bencano tu) d
 
 Katokanlah (Nabi Muhammad), “Diolah Nang Mahakuaso mangirimkan azab kapadomu, dari atas atau dari bawah kakimu [^246]  atau Dio mamecah belah kamu manjadi golongan-golongan (nang saling batentangan) dan marasokan kapado sabagian kamu kaganasan sabagian nang lain.” Perhatikanlah, bagaimano Kami manjelaskan baulang-ulang tando-tando (kakuasoan Kami) supayo orang-orang tu mamahami(-nyo). [^247]
 
-[^246]: Azab nang datang dari atas adolah hujan batu, sambaran petir, dan lain-lain. Adopun nang datang dari bawah adolah saperti gempa bumi dan banjir.
-
-[^247]: Allah Swt manjelaskan tando-tando kakuasoan-Nyo dalam babagai rupo dengan cara nang babeda-beda. Sabagian ulama manafsirkannyo dengan ayat-ayat nang barupo peringatan, kisah, hukum dan lain-lain.
-
 ## 6:66
 
 Kaummu mandustokannyo (azab) [^248] padohal (azab) tu benar adonyo. Katokanlah (Nabi Muhammad), “Aku ko bukanlah penanggung jawab kamu.”
-
-[^248]: Sabagian mufasir mangatokan bahwa nang didustokan tu adolah Al-Qur’an
 
 ## 6:67
 
@@ -3955,8 +3458,6 @@ Diolah nang manciptokan langit dan bumi dengan hak (benar). (Sungguh benar katet
 
 (Ingatlah) katiko Ibrahim bakato kapado ayahnyo, [^249]  Azar, “Apokah (pantas) engkau manjadikan berhalo-berhalo tu sabagai tuhan? Sasungguhnyo aku mangimak engkau dan kaummu dalam kasesatan nang nyato.”
 
-[^249]: Di antaro mufasir ado nang bapendapat bahwa nang dimaksud dengan ‘abīhi (ayahnyo)’ adolah ‘pamannyo’.
-
 ## 6:75
 
 Macam tulah Kami mamperliatkan kapado Ibrahim kakuasoan (Kami nang tadapat) di langit dan bumi dan supayo dio tamasuk orang-orang nang yakin.
@@ -3964,8 +3465,6 @@ Macam tulah Kami mamperliatkan kapado Ibrahim kakuasoan (Kami nang tadapat) di l
 ## 6:76
 
 Katiko malam lah manjadi gelap, dio (Ibrahim) mangimak sabuah bintang (lalu) dio bakato, “Ikolah Tuhanku.” Mako, katiko bintang tu tabenam dio bakato, “Aku idak suko kapado nang tabenam.” [^250]
-
-[^250]: Peristiwo ko tajadi dalam rangko mananamkan akidah tauhid kapado kaumnyo, bukan dalam rangko mancari tuhan.
 
 ## 6:77
 
@@ -3986,8 +3485,6 @@ Kaumnyo mambantah. Dio (Ibrahim) bakato, “Apokah kamu hendak mambantahku tenta
 ## 6:81
 
 Bagaimano mungkin aku takut kapado nang kamu sakutukan (dengan Allah), padohal kamu idak takut manyekutukan sasuatu dengan Allah nang Dio (dewek) idak pernah manurunkan kapadomu alasan apo pun. Mako, golongan nang manokah dari kaduonyo nang lebih barhak mandapat kaamanan (dari malapetako) kalu kamu mangetaui?” [^251]
-
-[^251]: Satelah Allah Swt mamperliatkan tando-tando kaaagungan-Nyo kapado Nabi Ibrahim a.s. dan dengan tu teguhlah imannyo kapado Allah Swt. (ayat 75), Nabi Ibrahim a.s. mamimpin kaumnyo kapado tauhid dengan mangikuti alam pikiran orang-orang tu.
 
 ## 6:82
 
@@ -4029,8 +3526,6 @@ Orang-orang tulah (para nabi) nang lah dibagih patunjuk oleh Allah. Mako, ikutil
 
 Orang-orang tu (Bani Israil) idak mangagungkan Allah samacam mano mastinyo katiko orang-orang tu bakato, “Allah idak manurunkan sasuatu pun kapado manusio.” Katokanlah (Nabi Muhammad), “Siapokah nang manurunkan kitab suci (Taurat) nang dibawak Musa sabagai cahayo dan patunjuk bagi manusio? Kamu (Bani Israil) manjadikannyo lembaran-lembaran lepas. Kamu mamperliatkan (sabagiannyo) dan banyak nang kamu sembunyikan, padohal lah diajarkan kapadomu apo nang idak diketaui baik olehmu maupun oleh nenek moyangmu.” Katokanlah, “Allah.” Kamudian, biarkanlah orang-orang tu bamain-main dalam kasesatannyo. [^252]
 
-[^252]: Kalimat ko diucapkan sabagai sindiran kapado orang-orang nang saakan-akan orang-orang tu dipandang sabagai kanak-kanak nang belum barakal.
-
 ## 6:92
 
 Ko (Al-Qur’an) adolah kitab suci nang lah Kami turunkan lagi diberkahi nang mambenarkan kitab-kitab nang (diturunkan) sabelumnyo dan supayo engkau mambagih peringatan kapado (penduduk) Ummul Qura (Makkah) dan orang-orang nang ado di sekitarnyo. Orang-orang nang baiman kapado (kahidupan) akherat (tentu) baiman kapadonyo (Al-Qur’an) dan orang-orang tu selalu mameliharo sembahyangnyo.
@@ -4059,8 +3554,6 @@ Diolah nang manjadikan bagimu bintang-bintang supayo kamu manjadikannyo patunjuk
 
 Diolah nang manciptokanmu dari diri nang sikok (Adam), mako (bagimu) ado genah manetap dan genah manyimpan. [^253] Sungguh, Kami lah mamerinci tando-tando (kakuasoan Kami) kapado kaum nang mamahami.
 
-[^253]: Di antaro mufasir ado nang bapendapat bahwa nang dimaksud ‘genah manetap’ adolah tulang sulbi bapak dan ‘genah manyimpan’ adolah rahim ibu. Ado pulak nang bapendapat bahwa ‘genah manetap’ adolah permukaan bumi pado waktu manusio masih hidup dan ‘genah manyimpan’ adolah perut bumi (kuburan) pado waktu manusio lah mati.
-
 ## 6:99
 
 Diolah nang manurunkan aek dari langit lalu dengannyo Kami manumbuhkan sagalo macam tumbuhan. Mako, darinyo Kami mangeluarkan tanaman nang manghijau. Darinyo Kami mangeluarkan butir nang batumpuk (banyak). Dari mayang kurmo (mangurai) tangkai-tangkai nang manjuntai. (Kami manumbuhkan) kebun-kebun anggur. (Kami manumbuhkan pulak) zaitun dan delimo nang sarupo dan nang idak sarupo. Perhatikanlah buahnyo pado waktu babuah dan manjadi masak. Sasungguhnyo pado nang macam tu benar-benar tadapat tando-tando (kakuasoan Allah) bagi kaum nang baiman.
@@ -4068,8 +3561,6 @@ Diolah nang manurunkan aek dari langit lalu dengannyo Kami manumbuhkan sagalo ma
 ## 6:100
 
 Orang-orang tu (orang-orang musyrik) manjadikan jin sekutu-sekutu bagi Allah, padohal Dio nang manciptokannyo (jin-jin itu). Orang-orang tu babohong tahadap-Nyo (dengan mangatokan bahwa Allah mampunyoi) anak laki-laki dan anak perempuan, tanpa (dasar) pangetauan. [^254] Mahasuci dan Mahatinggi Dio dari sifat-sifat nang orang-orang tu gambarkan.
-
-[^254]: Orang-orang tu mangatokan bahwa Allah Swt mampunyoi anak, saperti orang Yahudi mangatokan Uzair adalah putra Allah Swt, dan orang-orang musyrik mangatokan bahwa malaikat marupokan anak-anak perempuan Allah Swt. Orang-orang tu mangatokan macam tu kareno kabodohannyo.
 
 ## 6:101
 
@@ -4086,8 +3577,6 @@ Dio idak dapat dijangkau oleh pangliatan mato, sedangkan Dio dapat manjangkau sa
 ## 6:104
 
 Sungguh, lah datang kapadomu bukti-bukti nang nyato dari Tuhanmu. Siapo nang mangimak (bukti-bukti tu), [^255] mako (manfaatnyo) bagi dirinyo dewek dan siapo nang buto (idak mangimak bukti-bukti tu), mako (akibat buruknyo) bagi dirinyo dewek, sedangkan aku (Nabi Muhammad) bukanlah pengawas(-mu).
-
-[^255]: Siapo nang mangetaui kabenaran dan mangerjokan kabajikan serto mamperoleh patunjuk, dio lah mancapai puncak kabahagioan.
 
 ## 6:105
 
@@ -4108,8 +3597,6 @@ Janganlah kamu mamaki (sasembahan) nang orang-orang tu sembah salain Allah karen
 ## 6:109
 
 Orang-orang tu basumpah dengan (namo) Allah dengan sabenar-benarnyo sumpah (bahwa) kalu datang suatu bukti (mukjizat) kepada orang-orang tu, pasti lah orang-orang tu bakal baiman kepadanyo. Katokanlah (Muhammad), “Sasungguhnyo bukti-bukti tu hanyo ado pado sisi Allah.” Kamu idak bakal mangiro bahwa kalu bukti (mukjizat) tu datang, orang-orang tu idak jugo bakal baiman. [^256]
-
-[^256]: Orang musyrik basumpah bahwa kalu datang mukjizat dari Allah Swt., orang-orang tu bakal baiman. Kareno tu, orang mukmin mangharap kapado Nabi supayo Allah Swt. manurunkan mukjizat nang dimaksud. Mako, Allah Swt. manolak pangharapan orang-orang mukmin tu dengan ayat ko.
 
 ## 6:110
 
@@ -4159,8 +3646,6 @@ Tinggalkanlah doso nang taliat dan nang tasambunyi. Sasungguhnyo orang nang mang
 
 Janganlah kamu mambakal dari apo (daging hewan) nang (katiko disembelih) idak disebut namo Allah. Perbuatan tu benar-benar suatu kefasikan. Sasungguhnyo paro setan selalu mambisikkan kawan-kawannyo [^257] supayo orang-orang tu mambantah kamu. Dan kalu kamu manuruti orang-orang tu, tentulah kamu benar-benar musyrik.
 
-[^257]: Liat catatan kaki surah Āli ‘Imrān/3: 28.
-
 ## 6:122
 
 Apokah orang nang sudah mati, lalu Kami hidupkan dan Kami bagih dio cahayo nang mambuatnyo dapat bajalan di tengah-tengah orang banyak, samo dengan orang nang baado dalam kegelapan sahinggo dio idak dapat kaluar dari sano? Macam tulah, dijadikan taraso indah bagi orang-orang kafir apo nang orang-orang tu kerjokan.
@@ -4168,8 +3653,6 @@ Apokah orang nang sudah mati, lalu Kami hidupkan dan Kami bagih dio cahayo nang 
 ## 6:123
 
 Demikian pulak pado satiap negeri Kami jadikan orang-orang jahatnyo [^258] sabagai pambesar agar malakukan tipu dayo di sano. Padohal, orang-orang tu hanyo manipu sendiri tanpo manyadarinyo.
-
-[^258]: Menurut sabagian mufasir, ‘akābira mujrimīhā’ artinyo adolah paro panjahat-panjahat besak.
 
 ## 6:124
 
@@ -4190,10 +3673,6 @@ Bagi orang-orang tu (disediokan) tempat nang damai (surgo) di sisi Tuhannyo. Dan
 ## 6:128
 
 (Ingatlah) pado hari katiko Dio mangum-pulkan orang-orang tu samuo (dan Allah bafirman), “Hoi golongan jin, kamu sudah seringkali (manyesatkan) manusio”. Kawan-kawan [^259] orang-orang tu dari golongan manusio bakato, “Ya Tuhan, kami lah saling mandapatkan kasenangan [^260] dan kami lah sampai pado waktu nang lah Engkau tentukan buat”. Allah bafirman, “Nerako lah tempat kamu salamo lamonyo, kacuali kalu Allah manghendaki lain”. Sabenahyo Tuhanmu, Maha Bijaksano lagi Maha Mangetahui.
-
-[^259]: Tentang makna kato ‘waliy’ dan ‘auliyā’ silakan liat catatan kaki surah Āli ‘Imrān/3: 28.
-
-[^260]: Masing-masing lah marasokan kanikmatan dari pihak lain. Pihak jin setan mandapatkan kanikmatan kareno hasil manyesatkan manusio, sedangkan manusio mandapatkan kanikmatan kareno meraso senang mangikuti bujukan jin dan laluaso manikmati kalezatan di dunio.
 
 ## 6:129
 
@@ -4227,13 +3706,9 @@ Katokanlah (Nabi Muhammad), “Oi kaumku! Babuatlah manurut kadudukanmu, akupun 
 
 Orang-orang tu manyediokan sabagian dari sasuatu nang Allah ciptokan, yaitu hasil tanaman dan hewan untuk Allah, sambil bakato manurut persangkoan orang-orang tu, “Ini untuk Allah dan nang ko untuk berhalo-berhalo kami.” Bagian nang (disediokan) untuk berhalo-berhalo orang-orang tu idak bakal sampai kapado Allah, sedangkan bagian nang (disediokan) untuk Allah bakal sampai kapado berhalo-berhalo orang-orang tu. [^261] Sangat buruk ketetapan orang-orang tu.
 
-[^261]: Hasil tanaman dan ternak orang-orang tu dibagih manjadi tigo bagian, yaitu sikok bagian untuk orang-orang tu dewek, sikok bagian untuk Allah Swt., dan sikok bagian untuk berhalo orang-orang tu. Kalu bagian untuk berhalo tasebut manguntungkan, orang-orang tu idak mambagihkannyo untuk Allah Swt. Sabaliknyo, jiko bagian nang untuk Allah Swt. manguntungkan, orang-orang tu bakal mangambilnya untuk berhalo.
-
 ## 6:137
 
 Macam tulah berhalo-berhalo orang-orang tu (setan) manjadikan teraso indah bagi banyak orang musyrik mambunuh anak anak orang-orang tu, untuk mambinasokan orang-orang tu dan mangacaukan ugamo orang-orang tu dewek. [^262] Kalu Allah bakahendak, niscayo orang-orang tu idak mangerjokannyo. Biarkanlah orang-orang tu basamo apo (kebohongan) nang orang-orang tu ado-adokan.
-
-[^262]: Sabagian orang Arab adolah panganut syariat Ibrahim. Nabi Ibrahim a.s. pernah diperintah Allah Swt. Swt. untuk mangurbankan anaknyo Ismail. Kemudian, pamimpin-pemimpin ugama orang-orang tu mangaburkan pangertian bakurban tu, sahinggo dapat mananamkan raso mamandang baik mambunuh anak-anak orang-orang tu dengan alasan mandekatkan diri kapado Allah Swt. Padohal, alasan nang sasungguhnya adolah kareno takut miskin dan takut tanoda.
 
 ## 6:138
 
@@ -4263,8 +3738,6 @@ Ado delapan hewan ternak nang bapasangan (empat pasang, yaitu) sapasang domba da
 
 (Duo pasang lagi adalah) sapasang unto dan sapasang sapi. Katokanlah, “Apokah nang diharamkan duo nang jantan, duo nang betino, atau nang ado dalam kandungan kaduo batinonyo, Apokah kamu manjadi saksi katiko Allah manetapkan ko bagimu. Siapokah nang lebih aniayo daripado orang-orang nang mangado-ngado kebohongan terhadap Allah untuk manyesatkan orang-orang tanpo pangetauan?” [^263] Sabenanyo Allah idak bakal mamberi patunjuk kapado orang-orang nang aniayo.
 
-[^263]: Maksud kato ‘diharamkan’ pada ayat 143 dan 144 ko adolah bahwa hewan-hewan tu diharamkan kareno bakal dipersembahkan kapado berhalo-berhalo orang-orang tu.
-
 ## 6:145
 
 Katokanlah, “Idak ku dapati di dalam apo nang diwahyukan kapadoku, sasuatu nang diharamkan mambakalnyo bagi orang nang ingin mamambakalnyo, kacuali daging hewan nang mati (bangkai), darah nang mangalir, daging babi kareno io najis atau nang disembelih secaro fasik, (Yaitu) dengan manyebut namo selain Allah. Bakal tetapi, siapopun nang tapakso, bukan kareno manginginkannyo dan idak malebihi (batas darurat), mako Sasungguhnyo Tuhanmu Maha Pangampun lagi Maha Panyayang.”
@@ -4272,8 +3745,6 @@ Katokanlah, “Idak ku dapati di dalam apo nang diwahyukan kapadoku, sasuatu nan
 ## 6:146
 
 Atas orang-orang Yahudi, Kami haramkan sagalo (hewan) nang bakuku. [^264] Kami mangharamkan pulak atas orang-orang tu lemak jawi dan domba, kacuali nang malekat di punggungnyo, nang ado dalam isi perutnyo atau nang bacampur dengan tulang. Macam tulah Kami manghukum orang-orang tu kareno kedurhakoannyo. Dan Sasungguhnyo Kami Maha Benar.
-
-[^264]: Nang dimaksud “hewan bakuku” di siko adolah hewan nang jari-jarinyo idak tapisah antaro nang sikok dengan nang lain, seperti unto, itik, dan angso. Sabagian mufassir mangartikannyo dengan hewan nang bakuku tunggal, seperti kudo dan keledai.
 
 ## 6:147
 
@@ -4294,8 +3765,6 @@ Katokanlah (Nabi Muhammad), “Bawaklah saksi-saksimu nang dapat mambuktikan bah
 ## 6:151
 
 Katokanlah (Nabi Muhammad), “Kemarilah! aku bakal mambacokan apo nang diharamkan Tuhanmu kapadomu, (Yaitu) janganlah mampersekutukan-Nyo dengan apo pun, babuat baiklah terhadap kaduo orangtuo, janganlah mambunuh anak-anakmu kareno kamiskinanmu. (Allah bafirman), “Kamilah nang mambagih rezki kapadomu dan kapado orang-orang tu.” Janganlah pulak kamu mandekati perbuatan keji, baik nang nampak ataupun nang tasembunyi. Janganlah kamu mambunuh orang nang diharamkan Allah, kacuali dengan alasan nang benar.” [^265] Demikian Dio mamerintahkan kapadomu supayo kamu mangerti.
-
-[^265]: Nang dibenarkan oleh syariat adolah seperti kisas, hukuman mati bagi orang murtad, dan rajam.
 
 ## 6:152
 
@@ -4364,8 +3833,6 @@ Alif Lām Mīm Ṣād.
 ## 7:3
 
 Ikutilah apo nang diturunkan kapadomu dari Tuhanmu, dan janganlah kamu ikuti palindung [^266] salain Dio. Sadikit nian kamu mangambik palajaran.
-
-[^266]: Lihat catatan kaki surah Āli ‘Imrān/3: 28.
 
 ## 7:4
 
@@ -4463,13 +3930,9 @@ Oi anak cucu Adam! Sunguh Kami lah manurunkan kapadomu pakaian untuk manutupi au
 
 Oi anak cucu Adam! Janganlah sakali kali kamu tatipu oleh setan samacam mano io (setan) lah mangaluarkan ibu bapakmu dari surgo, dengan mananggalkan pakaian kaduonyo untuk mampalihatkan kapado kaduonyo aurat orang-orang tu baduo. Sasungguhnyo io (setan) dan pangikut-pangikutnyo nyo dapat malihat kamu dari suatu tempat nang kamu idak (biso) malihat orang-orang tu. Sasungguhnyo Kami tlah manjadikan setan-setan tu (sabagai) panolong [^267] bagi orang-orang nang idak baiman.
 
-[^267]: Lihat catatan kaki surah Āli ‘Imrān/3: 28.
-
 ## 7:28
 
 Apobilo orang-orang tu malakukan perbuatan keji, orang-orang tu bakato, “Kami mandapati nenek moyang kami malakukan nang macam tu, dan Allah manyuruh kami mangerjokannyo.” Katokanlah (Nabi Muhammad), “Sasungguhnyo Allah idak mamerintahkan kakejian. [^268] Pantaskah kamu mangatokan tentang Allah apo nang idak kamu tau?”
-
-[^268]: Maksud kata “melakukan kekejian” di sini adalah syirik, tawaf bertelanjang di sekeliling Ka‘bah, dan sabagainya.
 
 ## 7:29
 
@@ -4478,8 +3941,6 @@ Katokanlah (Nabi Muhammad), “Tuhanku manyuruhku balaku adil.” Hadapkanlah wa
 ## 7:30
 
 Sakelompok (manusio) lah dibagih-Nyo patunjuk dan sakelompok (lainnyo) lah pasti kasesatan atas orang-orang tu. Orang-orang tu manjadikan setan-setan sabagai palindung [^269] salain Allah. Orang-orang tu mangiro bahwo orang-orang tu adolah orang-orang nang mandapat patunjuk.
-
-[^269]: Lihat catatan kaki surah Āli ‘Imrān/3: 28.
 
 ## 7:31
 
@@ -4521,10 +3982,6 @@ Orang-orang nang (masuk) talebih dahulu bakato kapado nang (masuk) belakangan, �
 
 Sasungguhnyo (bagi) orang-orang nang mandustokan ayat-ayat Kami dan manyombongkan diri tahadapnyo, idak bakal dibukokan bagi orang-orang tu pintu-pintu langit [^270] dan orang-orang tu idak bakal masuk surgo sabelum unto masuk ke lubang jarum. [^271] Macam tulah Kami membagih balasan kapado orang-orang nang babuat durhako.
 
-[^270]: Artinya doa dan amal orang-orang tu idak diterima oleh Allah Swt.
-
-[^271]: Kalimat ko berarti orang-orang tu idak mungkin masuk surga samacam mano idak mungkinnya unta masuk ke dalam lubang jarum.
-
 ## 7:41
 
 Bagi orang-orang tu (disediokan) alas tidur dari (api nerako) Jahannam dan di atas orang-orang tu ado selimut (dari api nerako). Macam tulah Kami membagih balasan kapado orang-orang nang zolim.
@@ -4548,8 +4005,6 @@ Dan panghuni surgo manyeru paro panghuni nerako, “Sungguh, kami lah mandapati 
 ## 7:46
 
 Di antaro kaduonyo (panghuni surgo dan nerako) ado batas pamisah dan di atas tempat nang tatinggi (Al-A’raf) [^272] ado orang-orang nang saling mangenal, masing-masing dengan tando-tando nyo masing-masing. Orang-orang tu manyeru paro panghuni surgo, “Salâmun ‘alaikum” (samoga kaselamatan tacurah kapadomu). Orang-orang tu belum dapat mamasukinyo, padohal orang-orang tu sangat ingin (mamasukinyo).
-
-[^272]: Kata ‘a‘rāf’ adalah bentuk jamak dari ‘urf nang berarti ‘sesuatu nang tinggi’ atau ‘sesuatu nang terhormat’. Pembatas antara surga dan neraka disebut dengan a‘rāf karena posisinya nang tinggi.
 
 ## 7:47
 
@@ -4582,10 +4037,6 @@ Idakkah orang-orang tu manunggu kacuali takwilnyo (tawujudnyo kabenaran Al-Qur'a
 ## 7:54
 
 Sasungguhnyo, Tuhanmu (adolah) Allah nang lah manyiptokan langit dan bumi dalam enam maso, [^273] kamudian Dio basemayam di atas ‘Arsy. [^274] Dio manutupkan malam kapado siang nang mangikutinyo dengan cepat. (Dio ciptokan) matahari, bulan dan bintang-bintang tunduk kapado perintah-Nyo. Ingatlah! Hanyo milik-Nyo lah sagalo penciptaan dan urusan. Maha Melimpah Anugrah Allah, Tuhan semesto alam.
-
-[^273]: Allah Swt. menciptakan alam semesta dalam enam masa nang prosesnya sepanjang sejarah alam semesta, seperti nang dijelaskan di dalam surah an-Nāzi‘āt/79: 27-33.
-
-[^274]: “Bersemayam di atas ʻArasy” adalah sikok sifat Allah Swt. nang wajib diimani sesuai dengan keagungan Allah Swt. dan kesucian-Nya.
 
 ## 7:55
 
@@ -4710,10 +4161,6 @@ Kami hujani orang-orang tu hujan (batu). Peratikanlah bagaimana kasudahan paro p
 ## 7:85
 
 Kapado penduduk Madyan, [^275] Kami (utus) saudaro orang-orang tu, Syu’aib. Dio bakato, “Oi kaumku, sembahlah Allah. Idak ado bagimu tuhan (nang disembah) selain Dio. Sungguh, lah datang kapadomu bukti nan nyato dari Tuhanmu. Sempurnokanlah takaran dan timbangan, dan jangan kamu marugikan (hak-hak) orang lain meski sadikit. Jangan (pulak) babuat karusakan di bumi sasudah perbaikannyo. [^276] Tulah lebih baik bagimu, kalu kamu baiman.”
-
-[^275]: Madyan’ pado mulonya adolah namo putra Nabi Ibrahim a.s. dari istri beliau nang ketigo nang banama Qatura. Dio manikah dengan Nabi Lut a.s. Salanjutnya, kata ‘Madyan’ dipakai untuk namo sikok suku nang berasal katurunan Madyan. Lokasinya di pantai Laut Merah sabelah tenggara Gurun Sinai, yaitu antaro Hijaz, tepatnya Tabuk Saudi Arabia dan Teluk Aqabah
-
-[^276]: Perbaikan nang dimaksud adolah malalui syariat dan aturan nang dibawak oleh para nabi dan dilanjutkan oleh para panerusnya.
 
 ## 7:86
 
@@ -4855,8 +4302,6 @@ Orang-orang tu dikalahkan di genah tu dan jadilah orang-orang tu orang-orang nan
 
 Para panyihir tu tasungkur dalam kaadaan sujud. [^277]
 
-[^277]: Orang-orang tu langsung basujud kapado Allah Swt. kareno mayakini kabenaran seruan Nabi Musa a.s. dan bukan sihir sabagai nang orang-orang tu dugo samulo.
-
 ## 7:121
 
 Orang-orang tu bakato, “Kami baiman kapado Tuhan semesta alam,
@@ -4925,10 +4370,6 @@ Mako, Kami mambalas orang-orang tu (dengan sikso nang lebih berat). Kami tenggel
 
 Kami wariskan kapado kaum nang salalu tertindas tu, bumi bagian timur dan bagian baratnyo [^278] nang lah Kami berkahi. (Dengan demikian), lah sempurnolah firman Tuhanmu nang baik tu (sabagai janji) untuk Bani Israil disebabkan kasabaran orang-orang tu. Kami hancurkan apo pun nang lah dibuat Fir’aun dan kaumnyo serto apo pun nang lah orang-orang tu bangun. [^279]
 
-[^278]: Negeri Syam, Mesir dan negeri-negeri sakitar kaduonyo nang pernah dikuasoi Fir’aun dulu, sasudah kerajaan Fir’aun runtuh negeri-negeri tu diwarisi oleh Bani Israil.
-
-[^279]: Nang dimaksud dengan bangunan-bangunan Fir’aun nang dihancurkan Allah Swt. adolah bangunan-bangunan nang orang-orang tu dirikan dengan manindas Bani Israil, seperti kota Ramses, menara nang dibangun Haman atas perentah Fir’aun.
-
 ## 7:138
 
 Kami manyeberangkan Bani Israil (malintasi) laut tu (dengan selamat). Katiko orang-orang tu sampai kapado suatu kaum nang masih tetap manyembah berhalo, orang-orang tu (Bani Israil) bakato, “Oi Musa, buatlah untuk kami tuhan (barupo berhalo) samacam mano tuhan-tuhan orang-orang tu.” (Musa) manjawab, “Sasungguhnyo kamu adolah kaum nang bodoh.”
@@ -4953,8 +4394,6 @@ Kami lah manjanjikan Musa (untuk mambagihkan kitab Taurat sasudah bamunajat sala
 
 Katiko Musa datang untuk (bamunajat) pado waktu nang lah Kami tentukan (salamo empat puluh ari) dan Tuhan lah bafirman (langsung) kapadonyo, (Musa) bakato, “wahai Tuhanku, tampakkanlah (diri-Mu) kapadoku agar aku dapat maliat Engkau.” (Allah) bafirman, “Engkau idak bakal (sanggup) maliat-Ku, namun liatlah ka gunung tu. kalu io tetap di genahnyo (seperti sadiokalo), niscayo engkau dapat maliat-Ku.” Mako, katiko Tuhannyo manampakkan (keagungan-Nyo) kapado gunung tu, [^280] gunung tu hancur luluh dan Musa pun jatuh pingsan. Sasudah Musa sadar, dio bakato, “Mahasuci Engkau. Aku batobat kapado-Mu dan aku adolah orang nang pertamo-tamo baiman.”
 
-[^280]: Para mufasir ado nang bapendapat bahwa apo nang ditampakkan tersebut adolah kabesaran dan kakuasaan Allah Swt. Ado pula nang manafsirkan bahwa nang tampak tu adolah cahayo Allah Swt. Bagaimanopun jugo tampaknyo Allah Swt. tu bukanlah seperti tampaknyo makhluk, hanyo tampak nang sasuai dengan sifat-sifat Allah Swt. nang idak dapat diukur dengan ukuran manusio.
-
 ## 7:144
 
 (Allah) bafirman, “Oi Musa, sasungguhnyo Aku mamilih (malebihkan) engkau dari manusio (nang lain) untuk mambawak risalah dan ngomong (langsung) dengan-Ku. Mako, bapegang teguhlah kapado apo nang Aku bagihkan kapadomu dan jadilah kamu tamasuk orang-orang nang basyukur.”
@@ -4962,12 +4401,6 @@ Katiko Musa datang untuk (bamunajat) pado waktu nang lah Kami tentukan (salamo e
 ## 7:145
 
 Kami lah manuliskan untuk Musa pado lauh-lauh (Taurat) [^281] sagalo sasuatu sabagai palajaran dan panjelasan untuk sagalo hal. Lalu, (Kami bafirman kapadonyo), “Bapegang teguhlah kapadonyo dengan sungguh-sungguh dan suruhlah kaummu bapegang kapadonyo dengan sabaik-baiknyo. [^282] Aku bakal mampaliatkan kapadomu (kahancuran) negeri orang-orang fasik.” [^283]
-
-[^281]: ‘Lauh’ adolah kepingan dari batu atau kayu nang batuliskan kitab Taurat nang diterimo Nabi Musa a.s. sasudah munajat di Gunung Sinai.
-
-[^282]: Utamokanlah hal-hal nang wajib dulu daripado nang sunah dan mubah.
-
-[^283]: Allah Swt. bakal mampaliatkan negeri orang-orang fasik seperti Fir’aun, ‘Ad, dan Samud nang hancur basamo orang-orang tu akibat akhir kajahatan dan kafasikan orang-orang tu.
 
 ## 7:146
 
@@ -4981,8 +4414,6 @@ Orang-orang nang mandustokan tando-tando (kakuasoan) Kami dan adonyo pertemuan a
 
 Kaum Musa, sasudah kapergian (Musa ka Gunung Sinai), mambuat (sembahan barupo) patung anak jawi nang batubuh dan dapat malenguh (basuaro) [^284] dari perhiasan emas orang-orang tu. Apokah orang-orang tu idak mangetaui bahwa (patung) anak jawi tu idak dapat ngomong dengan orang-orang tu dan idak dapat (pulo) manunjukkan jalan (kabaikan) kapado orang-orang tu? (Bahkan), orang-orang tu manjadikannyo (sabagai sembahan). Orang-orang tu adolah orang-orang aniayo.
 
-[^284]: Orang-orang tu mambuat patung anak jawi dari emas. Sabagian mufasir bapendapat bahwa suaro nang mirip suaro jawi tu hanyolah disebabkan oleh angin nang masuk ka dalam rongga patung tu dengan teknik nang dikenal oleh Samiri waktu tu. Sabagian lagi ado nang manafsirkan bahwa patung nang dibuat tu kemudian menjadi tubuh nang banyawo dan mangeluarkan suaro sapi.
-
 ## 7:149
 
 Sasudah orang-orang tu (sangat) manyesali perbuatannyo dan mangetaui bahwa orang-orang tu betul-betul sesat, orang-orang tu bakato, “Sungguh, kalu Tuhan kami idak mambagih rahmat kapado kami dan idak mangampuni kami, pastilah kami manjadi orang-orang nang marugi.”
@@ -4990,8 +4421,6 @@ Sasudah orang-orang tu (sangat) manyesali perbuatannyo dan mangetaui bahwa orang
 ## 7:150
 
 Katiko Musa balik kapado kaumnyo dalam kaadaan marah lagi sedih, dio bakato, “Alangkah buruknyo perbuatan nang kamu kerjokan salamo kapergianku! Apokah kamu hendak mandului janji Tuhanmu?”  [^285] Musa pun malemparkan lauh-lauh (Taurat) tu dan mamegang kepalak (manjambak) saudaronyo (Harun) sambil manariknyo ka arahnyo. (Harun) bakato, “Oi anak ibuku, kaum iko lah manganggapku lemah dan hampir be orang-orang tu mambunuhku. Oleh kareno tu, janganlah engkau manjadikan musuh-musuh manyorakiku (kareno maliat palakuan kasarmu tahadapku). Janganlah engkau manjadikanku (dalam pandanganmu) basamo kaum nang aniayo.”
-
-[^285]: Maksud pertanyoan iko adolah mampatanyokan katidaksabaran manantik kadatangan Nabi Musa a.s. balik sasudah bamunajat kapado Tuhan, sahinggo kaumnyo mambuat patung anak jawi untuk disembah samacam mano manyembah Allah Swt.
 
 ## 7:151
 
@@ -5013,8 +4442,6 @@ Sasudah amarah Musa mareda, dio mangambik (balik) lauh-lauh (Taurat) tu. Di dala
 
 Musa mamilih tujuh puluh orang dari kaumnyo untuk (mamohon tobat kapado Kami) pado waktu nang lah Kami tentukan. Katiko orang-orang tu ditimpo gempo bumi, Musa bakato, “Wahai Tuhanku, kalu Engkau kendaki, tentulah Engkau mambinasokan orang-orang tu dan aku sabelum iko. Apokah Engkau bakal mambinasokan kami kareno perbuatan orang-orang nang kurang akal di antaro kami? (Panyembahan tahadap patung anak sapi) tu hanyolah cobaan dari-Mu. Engkau manyesatkan siapo nang Engkau kendaki dengan cobaan tu dan Engkau mambagih patunjuk siapo nang Engkau kendaki. [^286] Engkaulah Palindung kami. Mako, ampunilah kami dan bagihlah kami rahmat. Engkaulah sabaik-baik Pambagih ampun.”
 
-[^286]: Perbuatan orang-orang tu mambuat patung anak jawi dan manyembahnyo tu adolah suatu cobaan dari Allah Swt. untuk manguji orang-orang tu, siapo nang sabenarnyo kuat imannyo dan siapo nang masih ragu-ragu. Orang nang lemah imannyo tulah nang mangikuti Samiri dan manyembah patung anak jawi tu. bakal tetapi, orang nang kuat imannyo bakal tetap dalam kaimanannyo.
-
 ## 7:156
 
 Tetapkanlah untuk kami kabaikan di dunio iko dan di akherat. Sasungguhnyo kami balik (batobat) kapado Engkau. (Allah) bafirman, “Sikso-Ku bakal Aku timpokan kapado siapo nang Aku kendaki dan rahmat-Ku maliputi sagalo sasuatu. Bakal Aku tetapkan rahmat-Ku bagi orang-orang nang batakwa dan manunaikan zakat serto bagi orang-orang nang baiman kapado ayat-ayat Kami.”
@@ -5022,8 +4449,6 @@ Tetapkanlah untuk kami kabaikan di dunio iko dan di akherat. Sasungguhnyo kami b
 ## 7:157
 
 (Yaitu), orang-orang nang mangikuti Rosul (Muhammad), Nabi nang umi (dak biso baco tulis) nang (namonyo) orang-orang tu temukan tatulis di dalam Taurat dan Injil nang ado pado orang-orang tu. Dio manyuruh orang-orang tu kapado nang makruf, mancegah dari nang mungkar, manghalalkan sagalo nang baik bagi orang-orang tu, mangharamkan sagalo nang buruk bagi orang-orang tu, dan mambebaskan beban-beban serto belenggu-belenggu nang ado pado orang-orang tu. [^287] Adopun orang-orang nang baiman kapadonyo, mamuliokannyo, manolongnyo, dan mangikuti cahayo terang nang diturunkan basamonyo (Al-Qur’an), orang-orang tulah orang-orang baruntung.
-
-[^287]: Dalam syariat nang dibawak oleh Nabi Muhammad saw. tu idak ado lagi beban nang berat nang dipikulkan kapado Bani Israil, seperti mansyariatkan mambunuh diri untuk sahnyo tobat, wajib kisas pado pambunuhan, baik nang disengajo maupun dak, tanpa boleh mambayar diat (ganti rugi), mamotong anggota badan nang malakukan kasalahan, dan mambuang atau manggunting kain nang keno najis.
 
 ## 7:158
 
@@ -5033,13 +4458,9 @@ Katokanlah (Nabi Muhammad), “Oi manusio, sasungguhnyo aku iko utusan Allah bag
 
 Di antaro kaum Musa tadapat suatu umat nang mambagih patunjuk (kapado manusio) dengan (dasar) kabenaran dan dengan tu (pulo) orang-orang tu balaku adil. [^288]
 
-[^288]: Orang-orang tu mambagih patunjuk dan manuntun dengan bapadoman kapado patunjuk dan tuntunan nang datang dari Allah Swt. Dalam hal mangadili pakaro, orang-orang tu salalu mencari kaadilan dengan bapadoman kapado patunjuk dan tuntunan Allah Swt.
-
 ## 7:160
 
 Kami mambagi orang-orang tu (Bani Israil) manjadi dua belas suku nang tiap-tiap orang-orang tu bajumlah besak. Kami wahyukan kapado Musa katiko kaumnyo maminta aek kapadonyo, “Pukullah batu tu dengan tongkatmu!” Mako, mamancarlah dari (batu) tu dua belas mato aek. Sungguh, setiap suku lah mangetaui genah minumnyo masing-masing. Kami naungi orang-orang tu dengan awan dan Kami turunkan kapado orang-orang tu manna dan salwa. [^289] (Kami bafirman), “Makanlah nang baik-baik dari rezeki nang lah Kami anugerahkan kapadomu.” Orang-orang tu idak mananiayo Kami, tapi orang-orang tulah nang salalu mananiayo dirinyo dewek.
-
-[^289]: Lihat catatan kaki surah al-Baqarah/2: 57.
 
 ## 7:161
 
@@ -5049,21 +4470,13 @@ Kami mambagi orang-orang tu (Bani Israil) manjadi dua belas suku nang tiap-tiap 
 
 Mako, orang-orang nang aniayo di antaro orang-orang tu mangganti (omongan tu) dengan omongan nang idak diperintahkan kapado orang-orang tu. [^290] Lalu, Kami timpokan kapado orang-orang tu azab dari langit kareno orang-orang tu salalu babuat aniayo.
 
-[^290]: Orang-orang tu diperentah untuk mangucap, ‘ḥiṭṭatun’ (nang artinyo ‘mohon dilepaskan dari doso’), tapi orang-orang tu mangubah sambil mancemooh dan mangucapkannyo menjadi ‘ḥinṭatun fī sya‘īrah’ (nang artinyo ‘gandum’).
-
 ## 7:163
 
 Tanyokanlah kapado orang-orang tu tentang negeri [^291] nang taletak di dekat laut katiko orang-orang tu malanggar aturan pado ari Sabat, [^292] (Yaitu) katiko datang kapado orang-orang tu ikan-ikan (nang barado di sakitar) orang-orang tu bamunculan di permukaan aek. Padohal, pado ari-ari nang bukan Sabat ikan-ikan tu idak datang kapado orang-orang tu. Macam tulah Kami manguji orang-orang tu kareno orang-orang tu salalu balaku fasik.
 
-[^291]: ‘Negeri dekat laut’ di siko adolah kota Eilah nang taletak di pantai Laut Merah, antara kota Madyan danGunung Sinai.
-
-[^292]: Manurut aturan, orang-orang tu idak boleh bakerjo pado ari Sabat, kareno ari Sabat tu dikhususkan hanyo untuk baibadah. Aturan iko ditetapkan oleh Allah Swt. kapado orang-orang Yahudi sasuai dengan parmintaan orang-orang tu. Orang-orang tu dilarang mangail ikan pado ari tu, tapi sabagian dari orang-orang tu melanggar dengan caro nang licik. Orang-orang tu idak mangail tapi mambendung ikan dengan manggali kolam, sahinggo air masuk basamo ikan ka dalam kolam tu, dan orang-orang tu kemudian manangkapnyo di ari nang lain.
-
 ## 7:164
 
 (Ingatlah) katiko salah sikok golongan di antaro orang-orang tu bakato, “Mangapo kamu manasihati kaum nang bakal dibinasokan atau diazab Allah dengan azab nang sangat keras?” Orang-orang tu manjawab, “Agar kami mampunyoi alasan (lepas tanggung jawab) kapado Tuhanmu [^293] dan agar orang-orang tu batakwa.”
-
-[^293]: Alasan orang-orang tu adolah bahwa orang-orang tu sudah melaksanakan perentah Allah Swt. untuk mambagih peringatan
 
 ## 7:165
 
@@ -5101,8 +4514,6 @@ Orang-orang nang bapegang teguh pado kitab suci (Taurat) dan malaksanokan salat,
 
 (Hal tu biso jugo) agar kamu (dak) manga-tokan, “Sasungguhnyo nenek moyang kami lah mampasakutukan (Tuhan) sejak dulu, sedang kami adolah katurunan nang (datang) sasudah orang-orang tu. Mako, apokah Engkau bakal manyikso kami kareno perbuatan para pelaku kabatilan?” [^294]
 
-[^294]: Supaya orang-orang musyrik tu jangan mangatokan bahwa nenek moyang orang-orang tu dulu lah mampasakutukan Tuhan, sedangkan orang-orang tu idak tahu-menahu bahwa mampasakutukan Tuhan tu salah. Idak ado jalan lagi bagi orang-orang tu, hanyo meniru nenek moyang orang-orang tu nang mampasakutukan Tuhan. Oleh kareno tu, orang-orang tu manganggap orang-orang tu idak patut disikso kareno kasalahan nenek moyang orang-orang tu.
-
 ## 7:174
 
 Macam tulah Kami manjelaskan secaro taperinci ayat-ayat tu dan agar orang-orang tu balik (kapado kabenaran).
@@ -5131,8 +4542,6 @@ Sungguh, Kami betul-betul lah manciptokan banyak dari kalangan jin dan manusio u
 
 Allah mamiliki Asmaulhusna (namo-namo nang tabaik). Mako, bamohonlah kapado-Nyo dengan manyebut (Asmaulhusna) tu dan tinggalkanlah orang-orang nang manyalahartikan namo-namo-Nyo. [^295] Orang-orang tu kagi bakal mandapat balasan tahadap apo nang lah orang-orang tu kerjokan.
 
-[^295]: Jangan dihiraukan orang-orang nang manyembah Allah Swt. dengan manyebut namo-namo nang idak sasuai dengan sifat-sifat kaagungan Allah Swt., atau dengan memakai Asmaulhusna, tapi dengan maksud manodai namo Allah Swt. atau mampagunokan Asmaulhusna untuk namo-namo salain Allah Swt.
-
 ## 7:181
 
 Di antaro orang-orang nang lah Kami ciptokan ado umat nang mambagih patunjuk dengan (dasar) kabenaran dan dengan tu (pulo) orang-orang tu balaku adil.
@@ -5140,8 +4549,6 @@ Di antaro orang-orang nang lah Kami ciptokan ado umat nang mambagih patunjuk den
 ## 7:182
 
 Orang-orang nang mandustokan ayat-ayat Kami bakal Kami biakkan orang-orang tu baangsur-angsur (manuju kabinasoan) dari arah nang idak orang-orang tu ketaui. [^296]
-
-[^296]: Pembiaran tersebut dicontohkan seperti orang nang babuat maksiat, tapi hidupnyo kaliatan makin sukses, sahinggo dio makin berani babuat maksiat. Dio idak sadar bahwa apo nang dio lakukan manuntunnyo manuju kabinasoan.
 
 ## 7:183
 
@@ -5159,8 +4566,6 @@ Apokah orang-orang tu idak mampahatikan kerajaan langit dan bumi dan sagalo apo 
 
 Siapo be nang Allah sesatkan, idak ado nang mampu mambagihnyo patunjuk. Allah mambiakkannyo taombang-ambing dalam kasesatan. [^297]
 
-[^297]: Lihat catatan kaki surah al-Baqarah/2: 26.
-
 ## 7:187
 
 Orang-orang tu mananyokan kapadomu (Nabi Muhammad) tentang kiamat, “Kapan tajadi?” Katokanlah, “Sasungguhnyo pangetauan tentang kiamat tu hanyo ado pado Tuhanku. Idak ado (saorang pun) nang dapat manjelaskan waktu tajadinyo salain Dio. (Kiamat) tu sangat berat (huru-haranyo bagi makhluk nang) di langit dan di bumi. Io idak bakal datang kapadomu kacuali secaro tibo-tibo.” Orang-orang tu batanyo kapadomu seakan-akan engkau mangetauinyo. Katokanlah (Nabi Muhammad), “Sasungguhnyo pangetauan tentang (ari Kiamat) tu hanyo ado pado Allah, tapi kabanyakan manusio idak mangetaui.”
@@ -5173,13 +4578,9 @@ Katokanlah (Nabi Muhammad), “Aku idak kuaso mandatangkan manfaat maupun manola
 
 Diolah nang manciptokan kamu dari jiwo nang sikok (Adam) dan darinyo Dio manjadikan pasangannyo agar dio cenderung dan maraso tenteram kapadonyo. Kemudian, sasudah io mancampurinyo, dio (istrinyo) mangandung dengan ringan. Mako, io pun malewatinyo dengan mudah. Kemudian, katiko dio maraso berat, kaduanyo (suami istri) mamohon kapado Allah, Tuhan orang-orang tu, “Sungguh, kalu Engkau mambagih kami anak nang saleh, pasti kami tamasuk orang-orang nang basyukur.”  [^298]
 
-[^298]: Peristiwa iko idak bakenaan dengan Nabi Adam a.s., melainkan dengan sabagian katurunannyo.
-
 ## 7:190
 
 Kemudian, sasudah Dio mambagih kaduanyo saorang anak nang saleh, orang-orang tu manjadikan sekutu bagi Allah [^299] dalam (penciptoan) anak nang lah Dio anugerahkan. Mako, Maha Tinggi Allah dari apo nang orang-orang tu persekutukan.
-
-[^299]: Dalam pandangan orang musyrik, kalahiran anak orang-orang tu bukan semato-mato karunia Allah Swt., tapi jugo atas berkat berhalo-berhalo nang orang-orang tu sembah. Oleh kareno tulah, orang-orang tu manamokan anak-anak orang-orang tu dengan Abdul Uzza, Abdu Manat, Abdus Syams, dan sabagainyo.
 
 ## 7:191
 
@@ -5201,8 +4602,6 @@ Sasungguhnyo berhalo-berhalo nang kamu seru salain Allah adolah makhluk (nang le
 
 Apokah io (berhalo) mampunyoi kaki untuk bajalan, mampunyoi tangan untuk mamegang dengan keras, [^300] mampunyoi mato untuk maliat, atau mampunyoi kuping untuk manganing? Katokanlah (Nabi Muhammad), “Imbaulah (berhalo-berhalomu) nang kamu anggap sekutu Allah Kemudian lakukanlah tipu dayo (untuk mancelakokan)-ku dan jangan kamu tunda lagi.
 
-[^300]: Kato yabṭisyūn di siko bamakna ‘keras’, maksudnyo manampar, marusak, memukul dengan kasar, dan sabagainyo.
-
 ## 7:196
 
 Sasungguhnyo perlindungku adolah Allah nang lah manurunkan kitab suci (Al-Qur’an). Dio malindungi orang-orang saleh.
@@ -5222,8 +4621,6 @@ Jadilah pemaaf, perintahlah (orang-orang) kapado nang makruf, dan bapalinglah da
 ## 7:200
 
 Jiko setan betul-betul manggodamu dengan halus, balindunglah kapado Allah. [^301] Sasungguhnyo Dio Maha Manganing lagi Maha Mangetaui.
-
-[^301]: Balindung dengan mambaco aʻużu billāhi minasy syaiṭānir rajīm.
 
 ## 7:201
 
@@ -5249,8 +4646,6 @@ Ingatlah Tuhanmu dalam hatimu dengan rendah hati dan raso takut pado waktu pagi 
 
 Sasungguhnyo malaikat nang ado di sisi Tuhanmu idak manyombongkan diri dari ibadah kapado Allah dan orang-orang tu manyucikan-Nyo. Hanyo kapado-Nyo orang-orang tu basujud. [^302]
 
-[^302]: Ko adolah salah sikok ayat sajadah nang disunahkan bagi kito untuk basujud sasudah pambacaannyo atau manganingnyo baik di dalam sembahyang maupun di luar sembahyang. Sujud ko dinamokan sujud tilawah.
-
 ## 8:1
 
 Orang-orang tu batanyo kapadomu (Nabi Muhammad) tentang (pambagian) harto rampasan perang. Katokanlah, “Harto rampasan perang tu milik Allah dan Rasul (manurut katentuan Allah dan Rasul-Nyo). Mako, batakwalah kapado Allah dan pabaikilah hubungan di antaro sasamomu dan taatlah kapado Allah dan Rasul-Nyo kalu kamu orang-orang mukmin.”
@@ -5258,8 +4653,6 @@ Orang-orang tu batanyo kapadomu (Nabi Muhammad) tentang (pambagian) harto rampas
 ## 8:2
 
 Sasungguhnyo orang-orang mukmin adolah orang-orang nang kalu disebut namo Allah [^303] gemetar hatinyo kalu dibacokan ayat-ayat-Nyo kapado orang-orang tu batambah (kuat) imannyo dan hanyo kapado Tuhannyo orang-orang tu batawakal,
-
-[^303]: Manyebut namo Allah Swt. di siko baarti manyebut sifat-sifat nang mangagungkan dan mamuliokan-Nyo.
 
 ## 8:3
 
@@ -5273,8 +4666,6 @@ Orang-orang tu lah orang-orang nang benar-benar baiman. Bagi orang-orang tu dera
 
 (Peristiwa tu) [^304] samacam mano Tuhanmu manyuruhmu pegi dari rumahmu dengan (badasar) kabenaran meskipun sasungguh-nyo sabagian orang-orang nang baiman tu dak manyukoinyo.
 
-[^304]: Sabagian sahabat Nabi kaberatan dengan katentuan pambagian harto rampasan perang, samacam mano orang-orang tu kaberatan dengan perentah Allah Swt. untuk melaksanokan Perang Badar.
-
 ## 8:6
 
 Orang-orang tu mambantahmu (Nabi Muhammad) tentang kabenaran (Perang Badar) satelah nyato (bahwa orang-orang tu pasti menang) seakan-akan orang-orang tu dihalau kapado kamatian dan Mangimak (sebab kamatian tu ).
@@ -5282,8 +4673,6 @@ Orang-orang tu mambantahmu (Nabi Muhammad) tentang kabenaran (Perang Badar) sate
 ## 8:7
 
 (Ingatlah) katiko Allah manjanjikan kapadomu bahwa salah sikok dari duo golongan [^305] (nang kamu hadapi) adolah milikmu, sedangkan kamu manginginkan bahwa nang dak mampunyoi kakuatan senjatolah milikmu. Tapi, Allah hendak manetapkan nang benar (Islam) dengan katentuan-Nyo dan mamusnahkan orang-orang kafir sampai ka akar-akarnyo,
-
-[^305]: Duo golongan tasebut adolah kafilah Abū Sufyān nang mambawak dagangan dari Syam dan pasukan basanjato nang datang dari Makkah di bawah pimpinan ‘Utbah bin Rabi‘ah basamo Abū Jahal.
 
 ## 8:8
 
@@ -5305,8 +4694,6 @@ Allah dak manjadikannyo (bala bantuan tu), malainkan sabagai kabar gembira dan a
 
 (Ingatlah) katiko Tuhanmu mawahyukan kapado para malaikat, “Sasungguhnyo Aku basamomu. Mako, teguhkanlah (pendirian) orang-orang nang lah baiman. Kagi Aku bakal manimpokan raso takut ka dalam hati orang-orang kafir. Mako, tebaslah bagian atas leher orang-orang tu dan potonglah tiap-tiap ujung jari orang-orang tu. [^306]
 
-[^306]: ko tajadi dalam peperangan. Sasaran nang mamatikan adolah leher. Tapi, apobilo lawan mamakai baju besi sahinggo sulit dikalahkan, tangannyolah nang dilumpuhkan agar dak dapat mamegang senjato supayo mudah ditawan.
-
 ## 8:13
 
 (Katentuan) nang macam tu adolah kareno sasungguhnyo orang-orang tu manentang Allah dan Rasul-Nyo. Siapo nang manentang Allah dan Rasul-Nyo, sasungguhnyo Allah sangat keras hukuman-Nyo.
@@ -5326,8 +4713,6 @@ Siapo nang mundur pado waktu tu, kacuali babelok untuk (siasat) perang atau hend
 ## 8:17
 
 Mako, (sabenarnyo) bukan kamu nang mambunuh orang-orang tu, malainkan Allah nang mambunuh orang-orang tu dan bukan engkau nang malempar katiko engkau malempar, malainkan Allah nang malempar. (Allah babuat macam tu untuk mambinasokan orang-orang tu) dan untuk mambagih kamenangan kapado orang-orang mukmin dengan kamenangan nang baik. [^307] Sasungguhnyo Allah Maha Manganing lagi Maha Mangetaui.
-
-[^307]: Peristiwa ko takait Perang Badar samacam mano diriwayatkan oleh Ibnu Abbas. Dio bacarito bahwa katiko Perang Badar bakacamuk, Nabi Muhammad saw. bakato kapado Ali, “Ambikkan aku sagenggam pasir!” Ali sagero mengambik pasir tasebut dan manyerahkannyo kapado beliau. Lalu, beliau malemparkan pasir tu ka muko para musuh sahinggo dak seorang pun nang matonyo luput darinyo. Oleh kareno tu, hancurlah orang-orang tu.” (Hadis riwayat Ṭabrani).
 
 ## 8:18
 
@@ -5353,15 +4738,9 @@ Sasungguhnyo saburuk-buruk makhluk nang bagerak di atas bumi dalam pandangan All
 
 Seandainyo Allah mangetaui ado kabaikan pado diri orang-orang tu, pasti Dio jadikan orang-orang tu dapat manganing. [^308] Seandainyo Allah manjadikan orang-orang tu dapat manganing, niscayo orang-orang tu bapaling dan memang memalingkan diri.
 
-[^308]: Pangandaian dalam ayat ko bukan baarti Allah Swt. dak tau, tapi Allah Swt. Mahatau bahwa pado orang-orang tu dak ado kabaikan.
-
 ## 8:24
 
 Oi orang-orang nang baiman, penuhilah seruan Allah dan Rasul (Nabi Muhammad) apobilo dio manyerumu kapado sesuatu nang mambagih kahidupan kapadomu! [^309]  Ketauilah bahwa sasungguhnyo Allah mambatasi antaro manusio dengan hatinyo [^310]  dan sasungguhnyo kapado-Nyolah kamu bakal dikumpulkan.
-
-[^309]: Seruan tasebut barupo seruan untuk baperang demi meninggikan kalimat Allah Swt. serto manghidupkan Islam dan muslimin. Hal tu jugo baarti manyeru kapado iman, patunjuk, jihad, dan sagalo nang ado hubungannyo dengan kebahagiaan hidup di dunio dan di akherat.
-
-[^310]: Allah Swt. manguasoi hati manusio dan mangarahkannyo sasuaii kendak-Nyo. Mako, Allah Swt. manghalangi katiko hati tu condong untuk manuruti hawa nafsu dan mambimbing manusio manuju jalan nang lurus.
 
 ## 8:25
 
@@ -5431,17 +4810,9 @@ Jiko orang-orang tu bapaling, ketauilah bahwa sasungguhnyo Allah palindungmu. Di
 
 Katauilah, sasungguhnyo apo bae nang dapat kamu peroleh sabagai rampasan perang, [^311] mako saperlimo untuk Allah, Rosul, dulur Rosul, anak-anak yatim, orang-orang miskin dan ibnussabil, [^312] kalu kamu baiman kapado Allah dan kapado apo nang kami turunkan kapado hamba Kami (Nabi Muhammad) di hari Furqaan (pambeda), yaitu di hari batemunyo duo pasukan. [^313] Dan Allah Maha Kuaso atas sagalo sasuatu.
 
-[^311]: Nang dimaksud dengan ‘rampasan perang’ di siko adolah harto nang diparoleh dari orang-orang kafir malalui pertempuran. Adopun harto nang diparoleh tanpa malalui pertempuran disebut fai’. Pambagian dalam ayat ko hanyo bakaitan dengan ganimah be.
-
-[^312]: Saperlimo dari ganimah tu dibagih kapado : 1) Allah swt dan Rosul-Nyo, 2) kerabat Rosul (Bani Hasyim dan Bani Muttalib), 3) anak yatim, 4) orang miskin, 5) ibnu sabil, yaitu orang nang sedang dalam perjalanan, sedangkan empatperlimo dari ganimah tu dibagih kapado orang-orang nang ikut batempur.
-
-[^313]: Hari batemunyo duo pasukan pado Perang Badar, hari Jum’at 17 Ramadan tahun kaduo Hijriah. Sabagian mufasir bapendapat bahwa ayat ko mangisyaratkan kapado bamulo turunnyo Al-Qur’an pado malam 17 Ramadan.
-
 ## 8:42
 
 (Yaitu di hari) katiko kamu barado di tepi lembah nang dekat (kota Madinah) dan orang-orang tu barado di tepi lembah nang jauh (dari kota Madinah) sedang kafilah tu barado di bawah kamu (manelusuri pantai). [^314] Sakironyo kamu mangadokan persetujuan (untuk manentukan hari pertempuran), pastilah kamu idak sapendapat dalam manentukan hari pertempuran tu, tapi (pertempuran tu tajadi) supayo Allah manggawe suatu urusan nang masti dilaksanokan, yaitu agar orang nang binaso tu binasonyo dengan katerangan nang nyato dan agar orang nang hidup tu hidupnyo dengan katerangan nang nyato (pulak). Sasungguhnyo Allah Maha Manganing lagi Maha Mangetaui.
-
-[^314]: Kaum muslim waktu tu barado di tepi lembah nang dekat ka Madinah, dan orang-orang kafir barado di tepi lembah nang jauh dari Madinah. Sedang kafilah nang dipimpin oleh Abu Sufyan barado di tepi pantai kiro-kiro 5 mil dari Badar.
 
 ## 8:43
 
@@ -5535,8 +4906,6 @@ Oi Nabi (Muhammad), cukuplah Allah (manjadi Palindung) bagimu dan bagi orang-ora
 
 Oi Nabi (Muhammad), kobarkanlah sema-ngat para mukmin untuk baperang. Kalu ado duo puluh orang nang sabar di antaro kamu, niscayo orang-orang tu bakal dapat mangalahkan duo ratus (orang musuh); dan kalu ado seratus orang (nang sabar) di antaro kamu, niscayo orang-orang tu bakal dapat mangalahkan saribu dari pado orang kafir, disebabkan orang-orang kafir tu kaum nang idak mangerti. [^315]
 
-[^315]: Orang-orang tu idak mangerti bahwa baperang tu haruslah untuk mambela keyakinan dan manaati perentah Allah Swt. Orang-orang tu baperang hanyo nak mampertahankan tradisi jahiliah dan maksud-maksud duniawi lainnyo.
-
 ## 8:66
 
 Kiniko (saat turunnyo ayat ko) Allah lah maringankan kamu kareno Dio lah mangetaui bahwa sasungguhnyo padomu ado kalemahan. Mako kalu ado di antaro kamu seratus orang nang sabar, niscayo orang-orang tu bakal dapat mangalahkan duo ratus (orang musuh) dan kalu di antaro kamu ado saribu orang (nang sabar), niscayo orang-orang tu bakal dapat mangalahkan duo ribu orang, dengan seizin Allah. Dan Allah baserto orang-orang nang sabar.
@@ -5548,8 +4917,6 @@ Tidaklah (sapatutnyo) bagi saorang Nabi mampunyoi tawanan sabelum dio dapat malu
 ## 8:68
 
 Kalau sekironyo idak ado katetapan nang tadalu dari Allah, [^316] niscayo kamu ditimpo siksoan nang besak kareno (tebusan) nang kamu ambik.
-
-[^316]: Bahwa Allah idak bakal manjatuhkan sikso sabelum tajadi pelanggaran atas katentuan nang jelas.
 
 ## 8:69
 
@@ -5566,8 +4933,6 @@ Tapi kalu orang-orang tu (tawanan-tawanan tu) bamaksud nak bakhianat kapadomu (N
 ## 8:72
 
 Sasungguhnyo orang-orang nang baiman dan bahijrah serto bajihad dengan harto dan jiwanyo di jalan Allah dan orang-orang nang mambagihkan genah kediaman dan pertolongan (kapado orang-orang muhajirin), orang-orang tu sikok samo lain lindung-malindungi. [^317] Dan (tahadap) orang-orang nang baiman, tapi belum bahijrah, mako idak ado kewajiban sadikitpun atasmu malindungi orang-orang tu, sabelum orang-orang tu bahijrah. ( bakal tetapi) kalu orang-orang tu maminta pertolongan kapadomu dalam (urusan pembelaan) ugamo, mako kamu wajib mambagihkan pertolongan salain tahadap kaum nang lah ado perjanjian antaro kamu dengan orang-orang tu. Dan Allah Maha Mangimak apo nang kamu gawe.
-
-[^317]: Imak catatan kaki surah Ali ‘Imran/2: 28
 
 ## 8:73
 
@@ -5593,8 +4958,6 @@ Bajalanlah kamu (kaum musyrik) di muko bumi salamo empat bulan dan katauilah bah
 
 Suatu maklumat dari Allah dan Rosul-Nyo kapado umat manusio pado hari haji akbar [^318] bahwa sasungguhnyo Allah dan Rosul-Nyo balepas diri dari orang-orang musyrik. Kalu kamu (kaum musyrik) bataubat, mako bataubat tu lebih baik bagimu; dan kalu kamu bapaling, katauilah bahwa sasungguhnyo kamu idak dapat malemahkan Allah. Dan baritokanlah kapado orang-orang kafir (bahwa orang-orang tu bakal mandapat) sikso nang pedih.
 
-[^318]: Paro mufasir babeda pandapat tentang pangertian haji akbar pado ayat ko. Ado nang mangatokannyo hari nahar, ado nang mangatokannyo hari Arafah. Nang dimaksud dengan ‘haji akbar’ di siko adolah haji nang tajadi pado tahun ke-9 Hijriah.
-
 ## 9:4
 
 (Katetapan tu balaku), kacuali orangorang musyrik nang lah mangadokan perjanjian dengan kamu dan orang-orang tu sadikitpun idak mangurangi (isi perjanjian) dan idak (pulo) orang-orang tu mambantu sasaorangpun nang mamusuhi kamu. Mako, tahadap orang-orang tu penuhilah janjinyo sampe batas waktunyo. Sasungguhnyo Allah manyukoi orang-orang nang batakwa.
@@ -5602,8 +4965,6 @@ Suatu maklumat dari Allah dan Rosul-Nyo kapado umat manusio pado hari haji akbar
 ## 9:5
 
 Apobilo bulan-bulan Haram la balalu, [^319]  bunuhlah (dalam paperangan) orang-orang musyrik (nang salamo ko manganiayo kamu) dimano be kamu temui. Tangkap dan kepunglah orang-orang tu sarto intailah di genah pangintaian. Kalu orangorang tu bataubat dan manegakkan sholat dan manunaikan zakat, mako bagihlah kabebasan. Sasungguhnyo Allah Maha Pangampun lagi maha Panyayang.
-
-[^319]: Nang dimaksud dengan bulan haram di siko adolah maso empat bulan nang dibagih tenggang waktu kapado kaum musyrik pado waktu tu, yaitu mulai 10 Zulhijah (hari turunnyo ayat iko), sampe dengan 10 Rabiulakhir.
 
 ## 9:6
 
@@ -5677,8 +5038,6 @@ Orang-orang tu kekal di dalamnyo salamolamonyo. Sasungguhnyo di sisi Allah-lah p
 
 Oi orang-orang baiman, janganlah kamu jadikan bapak-bapakmu dan dulur-dulurmu sabagai palindung, [^320] kalu orang-orang tu lebih mancintai kakafiran atas kaimanan. Siapo be di antaro kamu nang manjadikan orang-orang tu palindung, mako orang-orang tulah orang-orang nang aniayo.
 
-[^320]: Imak catatan kaki surah Ali ‘Imran/3:28.
-
 ## 9:24
 
 Katokanlah (Nabi Muhammad): “kalu bapak-bapakmu, anak-anakmu, saudaro-saudaromu, bini-binimu, kaum dulurmu, hartokakayaan nang kamu usahokan, perniagaan nang kamu khawatiri karugiannyo, serto genah tinggal nang kamu sukoi adolah lebih kamu cintoi daripado Allah dan Rosul-Nyo dan daripado bajihad di jalan-Nyo, mako tunggulah sampe Allah mandatangkan kaputusan-Nyo,” Dan Allah idak mambagih patunjuk kapado orang-orang nang fasik.
@@ -5699,15 +5058,9 @@ Sasudah tu Allah manerimo taubat dari orang-orang nang dikenaki-Nyo. Allah Maha 
 
 Oi orang-orang nang baiman, sasungguhnyo orang-orang nang musyrik tu najis (kotor jiwanyo). Oleh kareno tu, janganlah orang-orang tu mandekati Masjidilharam sasudah tahun ko. [^321] Kalu kamu khawatir manjadi miskin (karno orang kafir idak datang), Allah kagek bakal mambagihkan kakayoan kapadomu dari karunia-Nyo, kalu Dio mangnaki. Sasungguhnyo Allah Maha Mangetaui lagi Maha Bijaksano.
 
-[^321]: Satelah tahun 9 H orang-orang musyrik idak dibolehkan mangerjokan haji dan umroh, atau mamasuki mesjid dan daerah haram manurut pandapat nang lain, baik untuk kaperluan haji dan umroh maupun untuk kaperluan nang lain.
-
 ## 9:29
 
 Perangilah orang-orang nang idak baiman kapado Allah dan hari kemudian, idak mangharamkan (manjauhi) apo nang lah diharamkan (oleh) Allah dan Rosul-Nyo, dan idak mangikuti ugamo nang benar (Islam), yaitu orang-orang nang dibagihkan Al-Kitab (Yahudi dan Nasrani) sampe orang-orang tu mambayar jizyah [^322]  dengan patuh dan orang-orang tu tunduk. [^323]
-
-[^322]: Jizyah adolah imbalan atau balasan atas raso aman dan fasilitas nang diparoleh penganut ugamo Yahudi, Nasrani, dan lainnyo dalam masyarakat Islam.
-
-[^323]: Ayat ko dan ayat-ayat nang senada balaku dalam situasi perang ugamo bukan dalam situasi normal
 
 ## 9:30
 
@@ -5716,8 +5069,6 @@ Orang-orang Yahudi bakato, “Uzair tu putera Allah” dan orang-orang Nasrani b
 ## 9:31
 
 Orang-orang tu manjadikan para rabi (Yahudi) dan para rahib (Nasrani) sabagai tuhan-tuhan salain Allah [^324]  serto (Nasrani mampatuhankan) Al Masih putera Maryam. Padohal, orang-orang tu idak diperintah, kacuali untuk manyembah Tuhan nang Esa, idak katek Tuhan salain Dio. Mahasuci Allah Dio dari apo nang orang-orang tu persekutukan.
-
-[^324]: Maksud kalimat tasebut adolah bahwa orang-orang tu mamatuhi ajaran nang lah ditetapkan oleh para rabi dan rahib, mekipun batentangan dengan ajaran Allah SWT.
 
 ## 9:32
 
@@ -5738,8 +5089,6 @@ Oi orang-orang nang baiman, sasungguhnyo banyak dari para rabi dan rahib benar-b
 ## 9:36
 
 Sasungguhnyo bilangan bulan pado sisi Allah adolah duo belas bulan, [^325] (sabagaimano) dalam katetapan Allah (di Lauh Mahfuz) pado waktu Dio manciptokan langit dan bumi, di antaronyo ado empat bulan haram. Tulah (katetapan) ugamo nang lurus, mako janganlah kamu mananiayo dirimu padonyo (empat bulan tu), dan perangilah kaum musyrik tu sagalonyo samacam mano orang-orang tupun mamerangi kamu sagalonyo. Katauilah bahwasanyo Allah baserto orangorang nang batakwa.
-
-[^325]: Allah manetapkan periode orbit bumi mangitari matahari salamo satahun nang setara dengan duo belas bulan, yaitu duo belas kalikatampakan bulan sabit akibat bulan mangitari bumi. Kateraturan priode waktu ko nang dimanfaatkan untuk pahitungan waktu.
 
 ## 9:37
 
@@ -5764,8 +5113,6 @@ Berangkatlah kamu (untuk baperang), baik dengan raso ringan maupun raso berat, d
 ## 9:42
 
 Sakironyo (nang kamu serukan kapado orang-orang tu) adolah kauntungan nang mudah diparoleh dan perjalanan nang idak saberapo jauh, pastilah orang-orang tu mangikutimu. Tapi, (orang-orang tu enggan karno) genah nang dituju tu jauh nian taraso bagi orang-orang tu. Orang-orang tu bakal basumpah dengan (namo) Allah, “Jikalu kami telap tentulah kami barangkat basamosamo kamu,” Orang-orang tu mambinasokan dirinyo dewek [^326] dan Allah mangetaui bahwa sasungguhnyo orang-orang tu benar-benar orang-orang nang badusto.
-
-[^326]: Maksud dari ‘mambinasokan diri dewek’ dalam ayat ko adolah bahwa orang-orang tu bakal binaso disebabkan sumpah palsu dan kabohongan orang-orang tu.
 
 ## 9:43
 
@@ -5883,8 +5230,6 @@ Apokah idak sampe kapado orang-orang tu barito penting (tentang) orang-orang nan
 
 Orang-orang nang baiman, laki-laki dan perempuan, sabagiannyo (adolah) manjadi penolong bagi sabahagian nang lain. [^327] Orang-orang tu manyuruh (babuat) nang ma’ruf, mancegah (babuat) nang munkar, manegakkan shalat, manunaikan zakat dan taat kapado Allah dan Rosul-Nyo. Orangorang tu bakal dibagih rahmat oleh Allah. Sasungguhnyo Allah Maha Perkaso lagi Maha Bijaksano.
 
-[^327]: Imak catatan kaki surah Ali ‘Imran/3 : 28.
-
 ## 9:72
 
 Allah lah manjanjikan kapado orangorang mukmin, jantan dan batino, surgo nang dibawahnyo mangalir sungei-sungei, kekal orang-orang tu di dalamnyo, dan (mandapat) genah-genah nang bagus di surgo ‘Adn. Ridho Allah adolah lebih besak. Tu adolah kamenangan nang agung.
@@ -5896,8 +5241,6 @@ Oi Nabi, bajihadlah (malawan) orang-orang kafir dan orang-orang munafik dan basi
 ## 9:74
 
 Orang-orang tu (orang-orang munafik) basumpah dengan (namo) Allah bahwa orang-orang tu idak mangatokan (sasuatu nang manyakiti Nabi Muhammad). Sungguh, orang-orang tu benar-benar lah mangucapkan perkatoan kakafiran (dengan mangejek Nabi Muhammad) dan (karnonyo) manjadi kafir sasudah masuk Islam. Orangorang tu manginginkan apo nang dio idak dapat mancapainyo. [^328] Orang-orang tu idak mancela malainkan kareno Allah dan Rosul-Nyo lah malimpahkan karunia-Nyo kapadonyo. Mako kalu orang-orang tu batobat, tu adolah lebih baik baginyo. Kalu orang-orang tu bapaling, niscayo Allah bakal mangazabnyo dengan azab nang pedih di dunio dan akherat. Orang-orang tu sakalikali idak katek palindung dan idak (pulo) panolong di muko bumi.
-
-[^328]: Orang-orang tu ingin mambunuh Nabi Muhammad SAW
 
 ## 9:75
 
@@ -5950,8 +5293,6 @@ Apobilo diturunkan suatu surat (nang mamerintahkan orang-orang munafik), “Baim
 ## 9:87
 
 Orang-orang tu rela barado basamo orangorang nang idak pegi baperang. [^329] Hati orangorang tu lah dikunci mati sahinggo orangorang tu idak mangetaui.
-
-[^329]: Orang nang idak pegi baperang dalam ayat ko adolah perempuan, anak-anak, orang nang lemah, sakit dan sudah tuo.
 
 ## 9:88
 
@@ -6009,8 +5350,6 @@ Orang-orang nang tadahulu lagi pertamotamo (masuk islam) di antaro orang-orang M
 
 Di antaro orang-orang Arab Badui nang (tinggal) di sakelilingmu ado orang-orang munafik. (Demikian pulak) di antaro penduduk Madinah (ada jugo orang-orang munafik), orang-orang tu katerlaluan dalam kamunafikannyo. Kamu (Nabi Muhammad) idak mangetaui orang-orang tu, tapi Kami mangetauinyo. Orang-orang tu bakal disikso duo kali, [^330] kemudian orang-orang tu bakal dibalikkan kapado sikso nang besak.
 
-[^330]: Kali pertamo, orang-orang tu kalah dari Nabi Muhammad saw. dan umat Islam; dan kali keduo, kemunafikan orang-orang tu diungkap oleh Allah Swt. Bisa jugo diartikan, bahwa azab nang pertamo adolah azab dunio dan nang kaduo adolah azab kubur, kareno ayat ko ditutup dengan panegasan adonyo azab akherat (ṡumma yuraddūna ilā ‘ażābin ‘aẓīm).
-
 ## 9:102
 
 (Ado pulak) orang-orang lain nang mangngakui doso-dosonyo. Orang-orang tu mancampuradukkan amal nang baik dan amal nang buruk. Mudah-mudahan Allah manerimo tobatnyo. Sasungguhnyo Allah Maha Pangampun lagi Maha Panyayang.
@@ -6018,8 +5357,6 @@ Di antaro orang-orang Arab Badui nang (tinggal) di sakelilingmu ado orang-orang 
 ## 9:103
 
 Ambiklah zakat dari harto orang-orang tu (guno) manyucikan [^331] dan mambersihkan orang-orang tu, dan doakanlah orang-orang tu kareno sasungguhnyo doamu adolah katenteraman bagi orang-orang tu. Allah Maha Manganing lagi Maha Mangetaui.
-
-[^331]: Zakat mambersihkan orang-orang tu dari kabakhilan dan cinto nang balebihan tahadap harto.
 
 ## 9:104
 
@@ -6037,8 +5374,6 @@ Ado (pulak) orang-orang lain nang ditangguhkan (balasannyo) manunggu kaputusan A
 
 (Di antaro orang-orang munafik tu) ado nang mamabangun mesjid untuk manimbulkan bencano (pado orang-orang nang baiman), (manyebabkan) kekafiran, mamecah belah di antaro orang-orang mukmin, dan manunggu kadatangan orangorang nang sabelumnyo lah mamerangi Allah dan Rosul-Nyo. [^332] Orang-orang tu dengan pasti basumpah, “Kami hanyo mangendaki kabaikan.” Allah basaksi bahwa sasungguhnyo orang-orang tu benar-benar pandusto (dalam sumpahnyo).
 
-[^332]: Nang dimaksud dengan ‘orang nang sabelumnyo lah mamerangi Allah Swt. dan Rosul-Nyo’ adolah saorang pendeta Nasrani banamo Abu ‘Amir nang orang-orang tu tunggu-tunggu kadatangannyo dari Syam untuk malaksanokan sembahyang di mesjid nang orang-orang tu bangun, serto membawak tentara Romawi nang bakal mamerangi kaum Muslim. Tapi, Abu ‘Amir ko idak jadi datang kareno ia mati di Syam. Mesjid nang dibangun kaum munafik tu diruntuhkan atas perentah Rosulullah saw. badasarkan wahyu nang diterimanyo sasudah balik dari Perang Tabuk.
-
 ## 9:108
 
 Janganlah kamu sembahyang di dalamnyo (mesjid tu) salamo-lamonyo. Sungguh, mesjid nang dibuat atas dasar takwa sejak hari pertamo lebih berhak kamu malaksanakan sembahyang di dalamnyo. Di dalamnyo ado orang-orang nang gemar mambersihkan diri. Allah manyukoi orangorang nang mambersihkan diri.
@@ -6051,8 +5386,6 @@ Mako, apokah orang-orang nang mambuat bangunannyo (mesjid) atas dasar takwa kapa
 
 Bangunan nang orang-orang tu buat senantiasa manjadi panyebab (kamunafikan) dalam hati orang-orang tu sampai hati orang-orang tu tapotong-potong. [^333] Allah Maha Mangetaui lagi Maha Bijaksano.
 
-[^333]: Maksud ‘tapotong-potong’ pado ayat ko adolah sampai orang-orang tu mati. Ado pulak nang manafsirkan, apobilo orang-orang tu idak dapat batobat lagi.
-
 ## 9:111
 
 Sasungguhnyo Allah mambeli dari orangorang mukmin diri dan harto orang-orang tu dengan surgo nang Allah peruntukkan bagi orang-orang tu. Orang-orang tu baperang di jalan Allah sahinggo orangorang tu mambunuh atau tabunuh. (Macam ko adolah) janji nang benar dari Allah di dalam Taurat, Injil, dan Al-Qur’an. Siapokah nang lebih manepati janjinyo daripado Allah? Mako, bagembirolah dengan jual beli nang lah kamu kerjokan tu. Macam tulah kamenangan nang agung.
@@ -6060,8 +5393,6 @@ Sasungguhnyo Allah mambeli dari orangorang mukmin diri dan harto orang-orang tu 
 ## 9:112
 
 Orang-orang tulah orang-orang nang batobat, baibadah, mamuji (Allah), mangembara (demi ilmu dan ugamo), [^334] rukuk dan sujud, manyuruh babuat kabaikan dan mancegah babuat munkar, serto mameliharo hukum-hukum Allah. Sampaikanlah kabar gembiro kapado orangorang nang baiman.
-
-[^334]: Ado pulak nang menafsirkan nang tergolong ka dalam orang-orang ko adolah orang-orang nang bapuaso.
 
 ## 9:113
 
@@ -6071,13 +5402,9 @@ Idaklah ado hak bagi Nabi dan orang-orang nang baiman untuk mamohonkan ampunan (
 
 Adopun pamohonan ampunan Ibrahim (kapado Allah) untuk bapaknyo, [^335] idak lain hanyolah kareno suatu janji nang lah dio ikrarkan kapadonyo. Mako, katiko jelas baginyo (Ibrahim) bahwa dio (bapaknyo) adolah musuh Allah, dia (Ibrahim) balepas diri darinyo. Sasungguhnyo Ibrahim benarbenar saorang nang sangat lembut hatinyo lagi panyantun.
 
-[^335]: Permohonan ampunan Nabi Ibrahim a.s. untuk bapaknya antaro lain tadapat dalam surah Ibrāhīm/14: 41 dan surah Maryam/19: 47.
-
 ## 9:115
 
 Allah sekali-kali idak bakal manyesatkan suatu kaum sesudah Dio mambagihnyo patunjuk hinggo Dio manjelaskan kapadonyo apo nang harus orang-orang tu jauhi. [^336] Sasungguhnyo Allah Maha Mangetaui sagalo sasuatu.
-
-[^336]: Saorang hambo idak bakal diazab oleh Allah Swt. semato-mato karena kasesatannyo, kacuali kalu hambo tu malanggar perentah-perentah nang sudah dijelaskan
 
 ## 9:116
 
@@ -6090,8 +5417,6 @@ Sungguh, Allah benar-benar lah manerimo tobat Nabi serto orang-orang Muhajirin d
 ## 9:118
 
 Tahadap tigo orang [^337]  nang ditinggalkan (dan ditangguhkan panerimoan tobatnyo) hinggo katiko bumi taraso sempit bagi orang-orang tu, padohal bumi tu luas, dan jiwo orangorang tu pun (taraso) sempit bagi orangorang tu, serto orang-orang tu mangetaui lah idak ado genah lari dari (siksoan) Allah malainkan kapado-Nyoa bae, kemudian (sasudah tu galo) Allah manerimo tobat orang-orang tu supayo orang-orang tu tetap dalam tobatnyo. Sasungguhyo Allah Maha Panerimo Tobat lagi Maha Panyayang.
-
-[^337]: Ketiga orang itu adolah Ka‘ab bin Malik, Hilal bin Umayyah, dan Mararah bin Rabi‘. Orang-orang tu disalahkan kareno idak mau ikut baperang dalam perang Tabuk.
 
 ## 9:119
 
@@ -6113,8 +5438,6 @@ Idak sapatutnyo orang-orang nang mukmin pegi sagalonyo (ka medan perang). Mangap
 
 Oi orang-orang nang baiman, perangilah orang-orang kafir [^338] di sakelilingmu dan hendaklah orang-orang tu marasokan sikap tegas darimu. Katauilah bahwa Allah baserto orang-orang nang batakwa.
 
-[^338]: Islam idak mangajarkan kapado umat muslim untuk mamerangi orang kafir kareno kakafirannyo, tapi mambolehkannyo untuk manghindarkan diri dari sagalo bentuk kezaliman (dengan maksud mambelo diri), seperti kalu orang Islam diserang.
-
 ## 9:124
 
 Apobilo diturunkan suatu surah, di antaro orang-orang munafik ado nang bakato, “Siapokah di antaro kamu nang batambah imannyo dengan (turunnyo) surah ko?” Adopun (bagi) orang-orang nang baiman, (surah nang turun) ko pasti manambah imannyo dan orang-orang tu maraso gembiro.
@@ -6122,8 +5445,6 @@ Apobilo diturunkan suatu surah, di antaro orang-orang munafik ado nang bakato, �
 ## 9:125
 
 Adopun (bagi) orang-orang nang di dalam hatinyo ado panyakit, [^339] (surah nang turun ko) bakal manambah kakafiran orang-orang nang lah ado ado dan orang-orang tu bakal mati dalam kaadoan kafir.
-
-[^339]: Penyakit batin pado ayat ko maliputi kakafiran, kemunafikan, karagu-raguan, dan sabagainyo.
 
 ## 9:126
 
@@ -6153,10 +5474,6 @@ Patutkah manjadi suatu kaheranan bagi manusio bahwo Kami mawahyukan kapado saora
 
 Sasungguhnyo Tuhanmu adolah Allah nang manciptokan langit dan bumi dalam enam maso, [^340] kemudian Dio basemayam di atas ‘Arasy [^341] (serayo) mangatur sagalo urusan. Idak ado saorangpun pambagih syafaat, kacuali sasudah (mandapat) izin-Nyo. Tulah Allah, Tuhanmu. Mako, sembahlah Dio ! Apokah kamu idak mangambik palajaran?
 
-[^340]: Lihat catatan kaki surah al-A‘rāf/7: 54.
-
-[^341]: Basemayam di atas ʻArasy sasuai dengan kaagungan dan kasucian-Nyo.
-
 ## 10:4
 
 Hanyo kapado-Nyolah kamu sagalonyo bakal balik. Tu marupokan janji Allah nang benar adonyo. Sasungguhnyo Diolah nang mamulai panciptoan (makhluk), kemudian mangembalikannyo (manghidupkannyo lagi) supayo Dio mambagih balasan dengan adil kapado orang-orang nang baiman dan baamal soleh. Adopun orang-orang nang kufur, untuk orang-orang tu (disediokan) minuman dari aek nang mandidih dan sikso nang amat pedih kareno orang-orang tu kufur.
@@ -6164,10 +5481,6 @@ Hanyo kapado-Nyolah kamu sagalonyo bakal balik. Tu marupokan janji Allah nang be
 ## 10:5
 
 Diolah nang manjadikan matohari basinar dan bulan bacahayo. [^342]  Diolah pulak nang manetapkan genah-genah orbitnyo supayo kamu mangetaui bilangan tahun dan perhitungan (waktu). [^343]  Allah idak maciptokan demikian tu kacuali dengan benar. Dio manerangkan tando-tando (kaagungan-Nyo) kapado orang-orang nang mangetaui.
-
-[^342]: Allah swt. manjadikan matohari dan bulan babeda sifat fisiknyo. Matohari basinar kareno mamancarkan cahayonyo dari proses reaksi nuklir di dalam intinyo. Sedangkan bulan bacahayo kareno mamantulkan cahayo matohari.
-
-[^343]: Pergerakan bulan mangitari bumi manyebabkan pamantulan cahayo matohari oleh bulan barubah-ubah bentuknyo, dari bentuk sabit sampe purnamo dan balik manjadi sabit lagi, sasuai dengan kadudukannyo. Kateraturan periode bulan mangitari bumi dijadikan sabagai pahitungan waktu bulanan. Duo belas bulan satara dengan sikok tahun (surah at-Taubah/9 :36).
 
 ## 10:6
 
@@ -6221,15 +5534,9 @@ Mako, siapokah orang nang lebih aniayo daripado orang nang mangadoadokan kabohon
 
 Orang-orang tu manyembah salain Allah apo-apo nang idak biso mandatangkan mudarat dan idak (pulak) mambagih manfaat bagi orang-orang tu. Orang-orang tu bakato “Orang-orang tu (sembahan) tu adolah lah panolong kami di sisi Allah.” [^344] Katokanlah, “Apokah kamu bakal mambagih tau kapado Allah sasutau nang ado di langit dan di bumi nang idak Dio kataui?”. [^345] Maha Suci dan Maha Tinggi Dio dari apo nang orang-orang tu parsekutukan.
 
-[^344]: Kalimat ko adolah ejekan tahadap panyembah barhalo nang manyangko bahwa berhalo-berhalo tu dapat mambagihnyo pertolongan di hadapan Allah swt.
-
-[^345]: Ayat ko idak manunjukkan katidaktauan Allah swt. atas sagalo sasuatu di langit dan di bumi, tapi manunjukkan kamustahilan adonyo sembahan salain Allah swt.
-
 ## 10:19
 
 Manusio tu dahulunyo adolah umat nang sikok (dalam katauhidan), lalu orang-orang tu baselisih. Sakironyo idak kareno suatu katetapan nang lah ado dari Tuhanmu, [^346] pastilah di antaro orang-orang tu sudah dibagih kaputusan (azab di dunio) tentang apo nang orang-orang tu parselisihkan tu.
-
-[^346]: Katetapan Allah swt iolah bahwa perselisihan manusio di dunio tu bakal diputuskan di akherat.
 
 ## 10:20
 
@@ -6250,8 +5557,6 @@ Namun, katiko Allah manyelamatkan orang-orang tu, sakatiko tu orang-orang tu bab
 ## 10:24
 
 Sasungguhnyo perumpamoan kahidupan dunio adolah ibarat nang Kami turunkan dari langit, lalu tumbuhlah karenonyo tanaman-tanaman di bumi nang (dapat) dimakan manusio dan binatang ternak. Hinggo bilomano bumi tu sudah sampurno eloknyo, tahiasi [^347] dan panduduk bumi tu lalu mangiro bahwa bumi tu dikuasainyo (mametik hasilnyo), datanglah kapadonyo azab Kami pado waktu malam ataupun siang. Lalu, Kami jadikan (tanaman)-nyo saperti tanaman nang sudah diketam, saakan-akan idak ado tumbuh sabelumnyo. Sarupo tulah Kami manerangkan sacaro taparinci ayat-ayat tu kapado kaum nang bapikir.
-
-[^347]: Maksudnyo adolah bahwa bumi tampak elok dengan gunung-gunung dan lembah-lembahnyo nang lah manghijau dengan tanam-tanamannyo.
 
 ## 10:25
 
@@ -6424,8 +5729,6 @@ Katauilah, sasungguhnyo punyo Allahlah siapo nang ado di langit dan siapo nang a
 ## 10:67
 
 Diolah nang manjadikan malam bagimu sakalian supayo kamu baistirahat padonyo dan manjadikan siang terang benderang. [^348] Sasungguhnyolah pado nang demikian tu benar-benar tadapat tando-tando (kaagungan Allah) bagi orang-orang nang (mau) manganing.
-
-[^348]: Allah swt. manjadikan siklus harian rotasi bumi manyebabkan kaberulangan malam dan siang. Saat malam, katiko matohari barado pado belahan bumi sabaliknyo, suasano gelap dan sejuk sangat nyaman untuk baistirahat. Samentaro pado siang hari nang terang sangat cocok untuk sagalo aktivitas kahidupan
 
 ## 10:68
 
@@ -6619,13 +5922,9 @@ Katauilah bahwa sasungguhnyo orangorang tu manutupi (apo nang ado dalam) dado or
 
 Idak sikok pun hewan nang bagerak di atas bumi malainkan dijamin rezekinyo oleh Allah. Dio mangetaui genah kadiamannyo dan genah panyimpanannyo. [^349] Sagalonyo (tatulis) dalam Kitab nang nyato (Lauh Mahfuz).
 
-[^349]: Manurut sabagian mufasir, nang dimaksud dengan ‘genah kediaman’ adolah dunio dan ‘genah penyimpanan’ adolah akherat. Manurut mufasir lain, maksud ‘genah kadiaman’ adolah rahim dan ‘geah penyimpanan’ adolah tulang sulbi.
-
 ## 11:7
 
 Diolah nang lah manciptokan langit dan bumi dalam enam maso [^350] serto (sabelum tu) ʻArasy-Nyo di atas aek. (Panciptoan tu dilakukan) untuk manguji kamu, siapokah di antaro kamu nang lebih baik amalnyo. Sungguh, kalu engkau (Nabi Muhammad) bakato, “Sasungguhnyo kamu bakal dibangkitkan satelah mati,” niscayo orangorang kafir bakal bakato, “Ko (Al-Qur’an) idak lain kacuali sihir nang nyato.”
-
-[^350]: Imak catatan kaki surah al-A‘rāf/7 : 54.
 
 ## 11:8
 
@@ -6667,25 +5966,17 @@ Orang-orang tulah orang-orang nang idak mandapat (sasuatu) di akherat kacuali ne
 
 Apokah orang nang lah mampunyoi bukti nang nyato (Al-Qur’an) dari Tuhannyo, diikuti saksi [^351] dari-Nyo, dan sabelumnyo lah ado pulo Kitab Musa nang jadi pedoman dan rahmat; orang-orang tu baiman kapadonyo (samo dengan orang kafir nang hanyo manginginkan kahidupan dunio)? Siapo nang mangengkarinyo (Al-Qur’an) dari golongan-golongan (penentang Rasulullah), nerakolah tempat baliknyo. Oleh kareno tu, janganlah engkau ragu tahadap Al-Qur’an. Sasungguhnyo io (Al-Qur’an) tu kabenaran dari Tuhanmu, tapi kabanyakan manusio idak baiman.
 
-[^351]: Ado yang menafsirkan saksi sabagai Jibril a.s., Al-Qur’an, atau Muhammad saw
-
 ## 11:18
 
 Siapokah nang lebih aniayo daripado orang nang mangado-adokan suatu kabohongan tahadap Allah? Orang-orang tu bakal dihadapkan kapado tuhan orang-orang tu dan paro saksi [^352] bakal bakato, “Orang-orang nilah nang lah babohong tahadap tuhannyo.” Ketauilah, laknat Allah (ditimpokan) kapado orang-orang nang aniayo.
-
-[^352]: Nang dimaksud paro saksi di siko adolah malaikat, nabi-nabi, dan anggota badannya dewek
 
 ## 11:19
 
 (Yaitu) orang-orang nang mangalangalangi dari jalan Allah dan mangendaki supayo jalan tu bengkok. [^353] Orang-orang tulah orang-orang nang engkar tahadap hari akhir.
 
-[^353]: Maksud ayat ko adolah bahwa orang-orang tu bausaho supayo orang lain mengengkari ugamo nang benar
-
 ## 11:20
 
 Orang-orang tu idak mampu mangalangi (siksoan Allah) di bumi dan idak bakal ado bagi orang-orang tu panolong [^354] salain Allah. Azab tu bakal dilipatgandokan kapado orang-orang tu (di akherat kelak). Orang-orang tu idak mampu mandengar (kabenaran) dan idak dapat mangimak (kakuasoan Allah).
-
-[^354]: Imak catatan kaki surah Āli ‘Imrān/3: 28.
 
 ## 11:21
 
@@ -6783,8 +6074,6 @@ Dio (anaknyo) manjawab, “Aku bakal balindung ka gunung nang biso manyelamatkan
 
 Difirmankan (oleh Allah), “Oi bumi, telanlah aekmu dan oi langit, barentilah (mancurahkan hujan).” Aek pun disurutkan dan urusan (pambinasaan paro pandurhako) pun diselesaikan dan (kapal tu pun) balabuh di atas gunung Judiy, [^355] dan dikatokan, “Kabinasoanlah orang orang nang aniayo.”
 
-[^355]: Gunung Judiy tu taletak di Armenia sabelah selatan dan babatasan dengan Mesopotamia.
-
 ## 11:45
 
 Nuh mamohon kapado Tuhannyo serayo bakato, “Oi Tuhanku, sasungguhnyo anakku adolah tamasuk keluargoku dan sasungguhnyo janji-Mu tu pasti benar. Engkau adolah hakim nang paling adil.”
@@ -6853,8 +6142,6 @@ Orang-orang tu salalu diikuti dengan laknat di dunio ko dan (macam tu pulak kagi
 
 Kapado (kaum) Samud (Kami utus) saudaro orang-orang tu, Saleh. Dio bakato, “Oi kaumku, sembahlah Allah! Sekali-kali idak ado Tuhan bagimu salain Dio. Dio lah manciptokanmu dari bumi (tanah) dan manjadikanmu pamakmurnyo. [^356] Kareno tu, mohonlah ampun kapadoNyo, kemudian batobatlah kapado-Nyo. Sasungguhnyo Tuhanku amat dekat lag Maha Mamperkenankan (doa hambo-Nyo).
 
-[^356]: Manusio dijadikan panghuni dunio untuk manguasoi dan mamakmurkannyo.
-
 ## 11:62
 
 Orang-orang tu (kaum Samud) bakato, “Oi Saleh, sabelum ko kamu benar-benar marupokan orang nang diharapkan di tengah-tengah kami. Apokah kamu malarang kami manyembah apo nang disembah nenek moyang kami? Sasungguhnyo kami benar-benar dalam karaguan nang manggelisahkan tahadap apo (ugamo) nang kamu serukan kapado kami.”
@@ -6871,8 +6158,6 @@ Oi kaumku, kolah unto batino dari Allah sabagai mu’jizat untukmu. Kareno tu, b
 
 Orang-orang tu lalu manyembeleh unto tu. Mako, dio (Saleh) bakato, “Basenangsenanglah kamu sakalian di rumahmu salamo tigo hari [^357] . Tu adolah janji nang idak dapat didustokan.”
 
-[^357]: Perbuatan orang-orang tu mambunuh unto tu adolah sasuatu pelanggaran tahadap larangan Nabi Saleh a.s. Kareno tu, Allah Swt manjatuhkan kapado orang-orang tu hukuman barupo membatasi hidup orang-orang tu hanyo dalam waktu tigo hari. Mako, sabagai ejekan orang-orang tu disuruh basuki rio salamo tiga hari tu.
-
 ## 11:66
 
 Katiko kaputusan Kami tibo, Kami manyelamatkan Saleh dan orang-orang nang baiman basamonyo berkat rahmat dari Kami serto (Kami manyelamatkannyo jugo) dari kahinoan pado hari tu, sasungguhnyo Tuhan kamu tu Maha Kuat dan Maha Perkaso.
@@ -6884,8 +6169,6 @@ Suaro nang manggelagar jugo manimpo orang-orang aniayo tu, sahinggo orangorang t
 ## 11:68
 
 (Negeri tu nampak tanpo bekas samo sakali) saolah-olah orang-orang tu belum pernah tinggal [^358] di sano. Ingatlah, sasungguhnyo (kaum) Samud lah mangengkari Tuhan orang-orang tu. Ingatlah, bahwa (kaum) Samud lah binaso.
-
-[^358]: Kareno demikian cepatnyo orang-orang tu dihancurkan oleh geledek tu, sahinggo orang-orang tu hancur lebur dak do babekas. Saolah-olah orang-orang tu idak pernah ado.
 
 ## 11:69
 
@@ -6922,8 +6205,6 @@ Sasungguhnyo Ibrahim benar-benar panyantun, pangibo, lagu suko balik kapado Alla
 ## 11:77
 
 Katiko paro utusan Kami (malaikat) tu datang kapado Lut, dio maraso gundah dan dadonyo taraso sempit kareno (kadatangan) orang-orang tu. Dio (Lut) bakato, “Ko hari nang amat sulit.” [^359]
-
-[^359]: Nabi Luth maraso gundah gulano dengan kedatangan malaikat utusan Allah Swt tu, karno malaikat tu barwujud jadi pemudo nang gagah, sedangkan kaum Nabi Luth adolah homoseks nang menyukoi pemudopemudo gagah. Dio maraso idak sanggup melindungi tamunyo tu bilo ado gangguan dari kaumnyo.
 
 ## 11:78
 
@@ -6964,8 +6245,6 @@ Sison ang halal (dari kauntungan nang halal) nang dianugerahkan Allah lebih baik
 ## 11:87
 
 Orang-orang tu bakato, “Oi Syu’aib, apokah sembahyangmu (ugamomu) nang manyuruhmu supayo kami maninggalkan apo nang disembah nenek moyang kami atau malarang kami mangelola harto manurut caro nang kami kahendaki? (Benarkah macam tu, padohal) sasungguhnyo kamu benar-benar orang nang amat panyantun lagi pandai?” [^360]
-
-[^360]: Ucapan ko orang-orang tu ucapkan untuk mangejek Nabi Syuʻaib a.s.
 
 ## 11:88
 
@@ -7047,8 +6326,6 @@ Adopun orang-orang nang sengsaro, mako (io barado) di dalam nerako. Di sano oran
 
 Orang-orang tu kekal di dalamnyo salamo masih ado langit dan bumi, [^361] kacuali kalu Tuhanmu mangendaki (nang lain). Sasungguhnyo Tuhanmu Maha Malaksanokan apo nang Dio kendaki.
 
-[^361]: Kalimat ko marupokan kiasan be nang manjelaskan keadaan orang nang kekal di dalam nerako salamolamonyo. Alam akherat jugo mampunyoi langit dan buminyo jugo.
-
 ## 11:108
 
 Adopun orang-orang nang bahagia, mako (io barado) di dalam surgo. Orang-orang tu kekal di dalamnyo salamo masih ado langit dan bumi, kacuali kalu Allah mangendaki (nang lain) sabagai karunio nang idak putus putus.
@@ -7061,8 +6338,6 @@ Mako, janganlah kamu (Nabi Muhammad) ragu-ragu tentang (kabatilan) apo nang oran
 
 Sungguh, Kami benar-benar lah manganugerahkan Kitab (Taurat) kapado Musa. Lalu io (kitab tu) diperselisihkan. Saandainyo idak ado katetapan nang tadahulu dari Tuhanmu (bahwa orangorang nang mandustokan Al-Qur’an bakal dibagih tengat waktu panyiksoannyo), niscayo lah dilaksanakan hukuman di antaro orang-orang tu. [^362] Sasungguhnya orang orang tu benar-benar dalam kabimbangan dan karaguan tahadapnyo.
 
-[^362]: Sakironyo idak ado katetapan penundoan azab tahadap orang-orang tu sampai hari Kiamat, tentulah orangorang tu dibinasokan waktu tu jugo.
-
 ## 11:111
 
 Sasungguhnyo kapado satiap nang baselisih tu) Tuhanmu pasti bakal mambagih balasan sacaro penuh atas perbuatan orang-orang tu buat, Sasungguhnyo Dio Maha Teliti tahadap apo nang orang-orang tu kerjokan.
@@ -7074,8 +6349,6 @@ Mako, tetaplah (di jalan nang benar), sabagimano kamu (Nabi Muhammad) lah dipere
 ## 11:113
 
 Janganlah kamu cenderung kapado orangorang nang aniayo sahinggo manyebabkan api nerako manyentuhmu, sadangkan kamu idak mampunyai saorang panolong [^363] pun salain Allah, kemudian kamu idak bakal dibagih pertolongan.
-
-[^363]: Imak catatan kaki surah Āli ‘Imrān/3: 28.
 
 ## 11:114
 
@@ -7149,8 +6422,6 @@ Sungguh, dalam (kisah) Yusuf serto saudaro-saudaronyo, benar-benar tadapat tando
 
 (Ingatlah) katiko orang-orang tu bakato, “Sasungguhnyo Yusuf dan saudaro (kandung)-nyo [^364] lebih dicintoi bapak daripado kito, padohal kito adolah kumpulan (nang banyak). Sasungguhnyo bapak kito dalam kakeliruan nang nyato.
 
-[^364]: Nang dimaksud saudaro kandung Nabi Yusuf tu adolah Bunyamin.
-
 ## 12:9
 
 Bunuhlah Yusuf atau buanglah dio ka suatu genah supayo perhatian bapak tatumpah kapadomu dan sasudah tu (batobatlah sahinggo) kamu bakl manjadi kaum nang saleh.”
@@ -7174,8 +6445,6 @@ Dio (Ya'qub) bakato, “Sasungguhnyo kapegian kamu basamo dio (Yusuf) amat manye
 ## 12:14
 
 Orang-orang tu bakato, “Sungguh, kalu serigalo mamangsonyo, padohal kami kelompok (nang kuat), kami benar-benar orang nang marugi.” [^365]
-
-[^365]: Maksudnyo adolah manjadi orang pangecut nang hidupnyo idak ado artinyo.
 
 ## 12:15
 
@@ -7201,13 +6470,9 @@ Datanglah sakelompok musafir. Orangorang tu manyuruh saorang pangambil aek, lalu
 
 Orang-orang tu manjualnyo (Yusuf) dengan hargo murah, (Yaitu) baberapo dirham bae sebab orang-orang tu idak tatarik padonyo. [^366]
 
-[^366]: Orang-orang tu khawatir bahwa Nabi Yusuf bakal ditemukan oleh keluargonyo dan bakal langsung diambik lagi dan orang-orang tu idak mandapatkan apo-apo. Makonyo, cepat-cepat dijual walaupun dengan hargo murah.
-
 ## 12:21
 
 Orang Mesir yang mambelinyo bakato kapado bininyo [^367] , “Bagilah untuknyo genah (dan layanan) nang baik. Mudah-mudahan dio bamanfaat bagi kito atau kito ambik dio sabagai anak.” Macam tulah, (kagi sasudah dewaso), Kami mambagihkan kadudukan nang baik kapado Yusuf di negeri (Mesir) dan supayo Kami mangajarkan kapadonyo takwil mimpi, Allah bakuaso atas sagalo urusan-Nyo, tapi kebanyakan manusio idak mangerti.
-
-[^367]: Orang dari Mesir nang mambeli Nabi Yusuf tu adolah seorang pambesar Mesir nang dikenal dengan namo Qitfir al-Aziz. Dalam sebagian kitab tafsir disebutkan namo bininyo, Rail. Ado jugo nang manyebutnya Zulaikha atau Zalikha. Namun, riwayat nang manyebutkan namo-namo tu idak dapat dipertanggungjawabkan.
 
 ## 12:22
 
@@ -7220,8 +6485,6 @@ Perempuan, nang dio (Yusuf) tinggal di rumahnyo, merayunyo. Dio manutup rapat sa
 ## 12:24
 
 Sungguh, perempuan tu benar-benar lah bakendak kapadonyo (Yusuf). Yusuf pun berkendak kapadonyo sakironyo dio idak mangimak tando (dari) Tuhannyo. [^368] Macam tulah, Kami mamalingkan darinyo kaburukan dan kakejian. Sasungguhnyo dio (Yusuf) tamasuk hambo-hambo Kami nang tapilih.
-
-[^368]: Ayat ko idak manunjukkan bahwa Nabi Yusuf mampunyoi kainginan nang buruk tahadap perempuan tu, tapi godaan perempuan tu demikian besaknyo sahinggo sakironyo dio idak dikuatkan dengan kaimanan kapada Allah, tentu dio bakal jatuh ka dalam kemaksiatan.
 
 ## 12:25
 
@@ -7270,8 +6533,6 @@ Kemudian timbul pikiran pado orang-orang tu sasudah mangimak tando-tando (kebena
 ## 12:36
 
 Basamo dio (Yusuf) masuk pulak duo orang pemudo ka dalam penjaro. [^369] Salah sikoknyo bakato, “Sasungguhnyo aku bamimpi mameras anggur,” dan nang lainnyo bakato, “Aku bamimpi mambawo roti di atas kepaloku. Sabagiannyo dimakan burung.” (Kaduonyo bakato,) “Jelaskanlah kapado kami takwilnyo! Sasungguhnyo kami mamandangmu tamasuk orang-orang nang babuat baik.”
-
-[^369]: Manurut suatu riwayat, duo pemudo tu adolah pelayan-pelayan rajo.
 
 ## 12:37
 
@@ -7333,8 +6594,6 @@ Rajo bakato, “Bawolah dio kapadoku!” Katiko utusan tu datang kapadonyo, dio 
 
 Dio (rajo) bakato (kapado perempuanperempuan tu), “Macam mano kaadoanmu katiko kamu manggoda Yusuf untuk manundukkan dirinyo?” [^370] Orang-orang tu menjawab, “Maha sempurno Allah, kami idak mangetaui sasuatu kaburukan darinyo.” Bini al-‘Aziz bakato, “Kini jelaslah kabenaran tu. Akulah nang manggodanyo dan sasungguhnyo dio tamasuk orang nang nang benar.”
 
-[^370]: Nang dimaksud dengan kaadoan di siko iolah pandapat perempuan-perempuan tu tentang Nabi Yusuf a.s. apokah dio tapengaruh godaan tu atau idak.
-
 ## 12:52
 
 (Yusuf bakato), “Nang demikian tu supayo dio (al-‘Aziz) mengetaui bahwa aku benar-benar idak mangkhianatinyo katiko dio idak ado (di rumah) dan bahwa sasungguhnyo Allah idak maridhoi tipu dayo orang-orang nang bakhianat.
@@ -7363,8 +6622,6 @@ Sungguh, pahalo akherat itu (pasti) lebih baik bagi orang-orang nang baiman dan 
 
 Saudaro-saudaro Yusuf tibo (ka Mesir) lalu orang-orang tu masuk ka (genah)-nyo. Mako, dio (Yusuf) mangenali orang-orang tu, sedangkan orang-orang tu benar-benar idak mangenalinyo. [^371]
 
-[^371]: Menurut catatan sejarah, lah tajadi musim paceklik di Mesir dan sekitarnyo. Mako, atas anjuran Nabi Ya‘qub a.s. saudaro-saudaro Nabi Yusuf a.s. tibo dari Kan‘an ka Mesir menghadap pambesar-pambesar Mesir untuk mandapatkan bahan makanan.
-
 ## 12:59
 
 Katiko dio (Yusuf) manyiapkan perbekalan (bahan makanan) untuk orang-orang tu, dio bakato, “Bawaklah kapadoku saudaromu nang saayah denganmu (Bunyamin). Idakkah kamu mangimak bahwa aku menyempurnokan takaran (gandum) dan aku adolah sabaik-baik panerimo tamu?
@@ -7380,10 +6637,6 @@ Orang-orang tu bakato, “Kami bakal membujuk bapaknyo supayo mangizinkan kami m
 ## 12:62
 
 Dio (Yusuf) bakato kapado paro pambantunyo, “Masukkanlah (balik) barang-barang orang-orang tu (nang orang-orang tu jadikan alat tukar) [^372] ka dalam karung-karung orang-orang tu. (Hal nang dilakukan tu) supayo orang-orang tu mangetauinyo apobilo lah balik kapado keluargo orang-orang tu. Mudah-mudahan orang-orang tu balik lagi.” [^373]
-
-[^372]: Menurut kabanyakan mufasir, barang-barang saudaro-saudaro Nabi Yusuf a.s. nang digunokan sabagai alat panukar bahan makanan tu ialah kulit atau terompah.
-
-[^373]: Tindakan ko diambil sabagai siasat dengan caro mananam budi kapado orang-orang tu supayo orang-orang tu nantinyo basedio balik lagi ka Mesir dengan mambawak Bunyamin
 
 ## 12:63
 
@@ -7417,8 +6670,6 @@ Katiko orang-orang tu masuk ka (genah) Yusuf, dio menempatkan saudaronyo (Bunyam
 
 Mako, katiko lah disiapkan bahan makanan untuk orang-orang tu, dio (Yusuf) mamasukkan cawan [^374] ka dalam karung saudaronyo (Bunyamin). Kemudian bateriaklah saorang panyeru. “Oi kafilah, sasungguhnyo kamu benar-benar paro maling.”
 
-[^374]: Cawan nang dimaksud adolah suatu wadah nang tabuat dari emas nang digunokan untuk minum dan dapat juga digunokan untuk menakar.
-
 ## 12:71
 
 Orang-orang tu batanyo, sambil menghadap kapado orang-orang tu (nang menuduh), “Apo nang hilang darimu?”
@@ -7438,8 +6689,6 @@ Orang-orang tu bakato, “Kalu macam tu, apo hukumannyo kalu kamu badusto?”
 ## 12:75
 
 Orang-orang tu (saudaro-saudaro Yusuf) menjawab, “Hukumannyo iolah siapo nang ditemukan dalam karungnyo (barang nang hilang tu), mako dio deweklah balasannyo (dijadikan hambo sahayo). [^375] Macam tulah Kami membagih hukuman kapado orang-orang aniayo.
-
-[^375]: Menurut Syari’at Nabi Ya‘qub a.s., hukuman bagi maling adolah dijadikan hambo sahayo salamo sikok tahun.
 
 ## 12:76
 
@@ -7593,13 +6842,9 @@ Alif Lām Mīm Rā. Tulah ayat-ayat Kitab (AlQur’an). (Kitab) nang diturunkan 
 
 Allah nang meninggikan langit tanpo tiang nang (dapat) kamu imak. Kemudian, Dio basemayam di atas ‘Arasy [^376] serto menundukkan matohari dan bulan. Masing-masing baredar manurut waktu nang lah ditentukan. Dio (Allah) mangatur urusan (makhluk-Nyo). Dio (Allah) marinci tando-tando (kaagungan-Nyo) supayo kamu mayakin pertemuan (kamu) dengan Tuhanmu.
 
-[^376]: Imak catatan kaki surah al-A‘rāf/7: 54.
-
 ## 13:3
 
 Diolah nang menghamparkan bumi dan manjadikan gunung-gunung dan sungeisungei padonyo. Dio manjadikan padonyo (sagalo) buah-buahan bapasang-pasangan (dan) manutupkan malam kapado siang. [^377] Sasungguhnyo pado nang demikian tu tadapat tando-tando (kaagungan Allah) bagi kaum nang bapikir.
-
-[^377]: Kaadoan daratan bumi barupo hamparan dan gunung-gunung. Di antaronya ada sungei-sungei. Daratan tulah genah tumbuhnyo buah-buahan nang panyerbukannyo dapat tajadi kareno struktur bunga nang bapasangan, jantan dan betino. Sagalonya mangalami siang dan malam kareno proses perputaran bumi.
 
 ## 13:4
 
@@ -7644,8 +6889,6 @@ Guruh bertasbih dengan mamuji-Nyo, (demikian pulak) para malaikat kareno takut k
 ## 13:14
 
 Hanyo bagi Allah seruan nang hak. [^378] (Sesembahan) nang orang-orang tu seru salain Dio, idak dapat mangabulkan apo pun bagi orang-orang tu, kacuali seperti orang nang mambukakan kaduo talapak tangannyo ka dalam aek supayo (aek) tu sampe ka mulutnyo, padohal (aek) tu idak bakal sampe ka mulutnyo. Idakkah seruan orang-orang kafir tu kacuali dalam kasiosioan.
-
-[^378]: ‘Seruan nang hak’ ditafsirkan oleh paro ulama sabagai pangakuan atas kandungan kalimat la ilāha illallāh dan juga ditafsirkan sabagai baibadah dan badoa.
 
 ## 13:15
 
@@ -7699,8 +6942,6 @@ Allah malapangkan rezeki bagih siapo nang Dio kendaki dan manyempitkan (bagi sia
 
 Orang-orang nang kufur bakato, “Mangapo idak diturunkan kapadonyo (Nabi Muhammad) tando (mukjizat) dari Tuhannyo?” Katokanlah (Nabi Muhammad). “Sasungguhnyo Allah menyesatkan [^379] siapo nang Dio kendaki dan membagih patunjuk ka (jalan)-Nyo bagi orang nang batobat.”
 
-[^379]: Allah Swt. manyesatkan sasaorang kareno nang basangkutan engkar kapado patunjuk-patunjuk-Nyo. Dio mambagih hidayah kapada sasaorang kareno kataatannyo tahadap patunjuk-patunjuk-Nyo.
-
 ## 13:28
 
 (Yaitu) orang-orang nang baiman dan hati orang-orang tu manjadi tenteram dengan mengingat Allah. Ingatlah, bahwa hanyo dengan mangingat Allah hati bakal salalu tenteram.
@@ -7737,8 +6978,6 @@ Perumpamoan surgo nang dijanjikan kapado orang nang batakwa (iolah seperti taman
 
 Orang-orang nang lah Kami bagih al-Kitab kapado orang-orang tu [^380] bagembiro dengan apo (kitab) nang diturunkan kapadomu (Nabi Muhammad). Di antaro golongan-golongan (Yahudi dan Nasrani) ado nang mengengkari sabagiannyo. Katokanlah, “Sasunggunyo aku hanyo diperentah untuk manyembah Allah dan idak mampersekutukan-Nyo. Hanyo kapado-Nyo aku seru (manusio) dan hanyo kapado-Nyo aku balik.”
 
-[^380]: Nang dimaksud dengan ‘Orang-orang tu’ adalah orang Yahudi dan Nasrani nang idak mengekari Allah Swt. dan idak mandustokan rasul-rasul-Nyo.
-
 ## 13:37
 
 Macam tulah Kami lah manurunkannyo (Al-Qur’an) sabagai panentu hukum nang babahaso Arab. Sungguh, jiko kamu mangikuti kainginan orang-orang tu sasudah tibo pangetahuan kapadomu, nisacayo kamu sakali-akli idak mampunyoi palindung dan idak (pulak) pameliharo dari (sikso) Allah.
@@ -7746,8 +6985,6 @@ Macam tulah Kami lah manurunkannyo (Al-Qur’an) sabagai panentu hukum nang baba
 ## 13:38
 
 Sungguh Kami benar-benar lah mangutus baberapo rasul sabelum kamu (Nabi Muhammad) dan Kami bagih kapado orangorang tu bini-bini dan katurunan. Idak mungkin bagi saorang rasul mandatangkan suatu bukti (mukjizat) malainkan dengan izin Allah. Untuk satiap maso ado katentuannyo). [^381]
-
-[^381]: Pado setiap maso ado hukum nang dibalakukan oleh Allah Swt. atas hambo-hambo-Nyo sasuai garis kabijakan-Nyo.
 
 ## 13:39
 
@@ -7769,8 +7006,6 @@ Sungguh, orang-orang sabelum orang-orang tu (kafir Makkah) lah mangadokan tipu d
 
 Orang-orang nang kufur bakato, “Kamu (Nabi Muhammad) bukanlah saorang Rasul.” Katokanlah, “Cukuplah Allah dan orang nang manguasoi ilmu al-Kitab [^382] manjadi saksi antaro aku dan kamu.”
 
-[^382]: Nang dimaksud ‘orang nang manguasoi ilmu al-Kitab’ adalah ulama Ahlulkitab nang mameluk Islam.
-
 ## 14:1
 
 Alif Lām Rā. (Ko adolah) Kitab (Alqur’an) nang Kami Turunkan kapadomu (Nabi Muhammad) supayo kamu mangeluarkan manusio dari kagelapan kapado cahayo terang-banderang dengan izin Tuhan, (Yaitu) manuju jalan Tuhan Nang Maha Perkaso lagi Maha Tapuji.
@@ -7790,8 +7025,6 @@ Kami idak mangutus saorang rasul pun, malainkan dengan bahaso kaumnyo, supayo di
 ## 14:5
 
 Sungguh Kami benar-benar lah mangutus Musa dengan (membawa) tando-tando (kakuasaoan) Kami (dan kami perentahkan kapadonyo). “Keluarkanlah kaummu dari babagai kagelapan kapado cahayo (terangbenderang) dan ingatkanlah orang-orang tu kapado hari-hari Allah. [^383] Sasungguhnyo pado nang demikian tu tadapat tando-tando (kakuasoan Allah) bagi satiap orang nang amat panyabar lagi banyak basyukur.
-
-[^383]: ‘Hari-hari Allah’ maksudnyo adolah peristiwo-peristiwo nang tajadi pado kaum-kaum tadahulu serto nikmat dan siksoan nang orang-orang tu alami.
 
 ## 14:6
 
@@ -7865,13 +7098,9 @@ Setan bakato katiko urusan (hisab) lah diselesaikan, “Sasungguhnyo Allah lah m
 
 Orang nang baiman dan baamal saleh dimasukkan ka dalam surgo-surgo nang mangalir di bawahnyo sungei-sungei. Orangorang tu kekal di dalamnyo dengan seizin Tuhannyo. Panghormatan orang-orang tu dalamnyo adolah (ucapan) salam. [^384]
 
-[^384]: Maksud ‘dalam’ adolah selamat dari sagalo bencano.
-
 ## 14:24
 
 Idakkah kamu mangimak bagaimano Allah lah membuat perumpamoan kalimah tayyibah? [^385] (Peremumpamoannyo) seperti pohon nang baik, akarnyo kuat, cabangnyo (menjulang) ka langit,
-
-[^385]: Nang temasuk ‘kalimat tayyibah’ iolah sagalo ucapan nang manyeru kapada kabajikan dan mancegah kamungkaran serto perbuatan baik, tamasuk di dalamnya adolah kalimat tauhid, yaitu ‘lā ilāha illallāh’.
 
 ## 14:25
 
@@ -7881,13 +7110,9 @@ Dan manghasilkan buahnyo pado satiap waktu dengan saizin Tuhannyo. Allah mambuat
 
 (Adopun) perumpamoan kalimah khabīsah [^386] seperti pohon nang buruk, akar-akarnyo lah dicabut dari permukoan bumi, (dan) idak dapat tetap (tegak) sadikit pun.
 
-[^386]: Nang tamasuk dalam ‘kalimah khabīṡah’ iolah ungkapan-ungkapan nang mangandung kakufuran, kamusyrikan, serto sagalo perkatoan nang idak benar dan idak baik.
-
 ## 14:27
 
 Allah meneguhkan orang-orang nang baiman dengan ucapan nang teguh [^387] dalam kahidupan di dunio dan di akherat. Allah manyesatkan orang-orang nang aniayo, dan Allah babuat apo nang Dio kendaki.
-
-[^387]: Nang dimaksud ‘ucapan-ucapan nang teguh’ di siko iolah ‘kalimah ṭayyibah’ nang disebut dalam ayat 24 di atas.
 
 ## 14:28
 
@@ -7912,8 +7137,6 @@ Allahlah nang lah manciptokan lagit dan bumi, manurunkan aek (hujan) dari langit
 ## 14:33
 
 Dio lah manundukkan bagimu matohari dan bulan bagihmu nang terus-menerus baedar (dalam orbitnyo) dan lah pulak manundukkan bagimu malam dan siang. [^388]
-
-[^388]: Allah Swt. manundukkan matohari dan bulan dengan hukum-hukum-Nyo di alam sahingga bumi terus mangitari matohari (nang tampak saolah matohari nang mangitari bumi) dan bulan terus mangitari bumi, serto bumi terus berotasi sahinggo manampakkan kajadian malam dan siang.
 
 ## 14:34
 
@@ -7943,8 +7166,6 @@ Sagalo puji bagi Allah nang lah manganugerahkan kapadoku di hari tuo(-ku) Ismail
 
 Ya Tuhanku, jadikanlah aku dan sabagian anak cucuku orang nang tetap malaksanokan sembahyang. Ya Tuhan kami, perkenankanlah doaku. [^389]
 
-[^389]: Nabi Ibrahim a.s. hanyo mandoakan sabagian anak cucunya kareno Allah Swt. lah mambagihtaunya bahwa sabagian anak cucunyo nang lain bakal manjadi orang-orang kafir.
-
 ## 14:41
 
 Ya Tuhan kami, ampunilah aku, kaduo ibu bapakku, dan orang-orang mukmin pado hari diadokan perhitungan (hari Kiamat).
@@ -7968,8 +7189,6 @@ Bagihlah (Nabi Muhammad) peringatan kapado manusio tentang hari (katiko) azab da
 ## 14:46
 
 Sungguh, orang-orang tu lah mambuat tipu dayo padohal Allah (mangetaui dan bakal mambalas) tipu dayo orang-orang tu. Sakalikali tipu dayo orang-orang tu idak bakal biso malenyapkan gunung-gunung. [^390]
-
-[^390]: Nang dimaksud dengan ‘gunung’ pado ayat ko adolah syariat Allah Swt. nang kukuh laksano gunung.
 
 ## 14:47
 
@@ -8019,8 +7238,6 @@ Idak katek sikok umatpun nang dapat manyagerokan ajalnyo dan idak (pulo) manangg
 
 Orang-orang tu bakato, “Oi orang nang kapadonyo diturunkan Al-Qur'an, sabenarnyo kamu (Nabi Muhammad) benar-benar orang gilo. [^391]
 
-[^391]: Kato-kato ko diucapkan oleh orang-orang kafir Mekah kapado Nabi Muhammad saw sabagai ejekan.
-
 ## 15:7
 
 Mangapo kamu idak mandatangkan malaikat kapado kami, kalu kamu tamasuk orang-orang nang benar?”
@@ -8032,8 +7249,6 @@ Kami idak manurunkan malaikat, malainkan dengan kabenaran. (Kalu orang-orang kaf
 ## 15:9
 
 Sasungguhnyo Kamilah nang manurunkan Al-Qur’an dan pasti Kami (pulo) nang mamaliharonyo [^392] .
-
-[^392]: Ayat ko mambagih jaminan tentang kasucian dan kamurnian Al-Qur’an salamo-lamonyo.
 
 ## 15:10
 
@@ -8050,8 +7265,6 @@ Demikianlah, Kami mamasukkannyo (olokolok tu) ka dalam hati orang-orang nang bad
 ## 15:13
 
 Orang-orang tu idak baiman kapadonyo (Al-Qur’an), padohal lah balalu sunnatullah [^393] tahadap orang-orang dahulu.
-
-[^393]: Sunnatullah disiko iolah mambinasokan orang-orang nang mandustokan rasul.
 
 ## 15:14
 
@@ -8085,13 +7298,9 @@ Kami lah manjadikan di sano sumbersumber kahidupan untukmu dan (manjadikan pulo)
 
 Idak ado sasuatu pun malainkan di sisi Kami-lah khazanahnyo; [^394] dan Kami idak manurunkannyo malainkan dengan ukuran nang tatentu.
 
-[^394]: Sagalo sasuatu tu sumbernyo dari Allah Swt.
-
 ## 15:22
 
 Kami lah maniupkan angin untuk mangawinkan. [^395] Mako, Kami manurunkan hujan dari langit lalu Kami bagih minum kamu dengan (aek) tu, sedangkan kamu bukanlah orang-orang nang manyimpannyo.
-
-[^395]: Maksudnyo adolah mangawinkan awan, tanaman dan sabagainyo.
 
 ## 15:23
 
@@ -8120,8 +7329,6 @@ Sabelumnyo Kami lah manciptokan jin dari api nang sangat panas.
 ## 15:29
 
 Mako, apobilo Aku lah manyempurnokan (kajadian)-nyo dan lah maniupkan ruh (ciptoan)-Ku ka dalamnyo, manyungkurlah kamu kapadonyo dengan basujud. [^396]
-
-[^396]: Sujud disiko bukan manyembah, malainkan manghormat saperti sujudnyo saudaro-saudaro Nabi Yusuf a.s kapadonyo..
 
 ## 15:30
 
@@ -8215,8 +7422,6 @@ Kabarkanlah (Nabi Muhammad) kapado orang-orang tu tentang tamu-tamu Ibrohim (mal
 
 Katiko orang-orang tu bakunjung ka (kadiaman)-nyo, lalu mangucapkan, “Salaam”. Dio (Ibrohim) bakato, “Sabenarbenarnyo kami maraso takut kapadomu”. [^397]
 
-[^397]: Panjelasan lebih lengkap, imak surah az-Zuriyat/51:27
-
 ## 15:53
 
 (Orang-orang tu) bakato, “Janganlah maraso takut (kareno) sabenar-benarnyo kami membagih kabar gembiro kapadomu dengan (kalahiran) anak jantan nang alim (Ishaq)”.
@@ -8277,8 +7482,6 @@ Lah Kami wahyukan kapadonyo (Luth) perkaro tu bahwa akhirnyo orang-orang tu baka
 
 Tibolah panduduk kota tu [^398] (ka rumah Luth) dengan gambiro (kareno kadatangan tamutamu tu).
 
-[^398]: Maksudnyo adolah kota Sodom nang taletak di dekat pantai Laut Tengah di sabelah timur Yordania sekarang
-
 ## 15:68
 
 Dio (Luth) bakato, “Sabenar-benarnyo orang-orang tu adolah tamuku. Mako, jangan mampamalukanku.
@@ -8291,8 +7494,6 @@ Batakwalah kapado Allah dan jangan mambuatku tahino”.
 
 Orang-orang tu bakato, “Bukankah kami lah malarangmu (manarimo) manusio (paro tamu)? [^399] “
 
-[^399]: Orang-orang tu ingin babuat homosexual dengan tamu-tamu tu. Orang-orang tu memang lah pernah mangancam Nabi Luth as agar idak manghalangi orang-orang tu babuat macam tu.
-
 ## 15:71
 
 Dio (Luth) bakato, “Orang-orang tulah anak jantan-anak batino (nageri)-ku. (kawinlah dengan orang-orang tu), kalu kamu hendak babuat (mamenuhi nafsu syahwatmu) “.
@@ -8300,8 +7501,6 @@ Dio (Luth) bakato, “Orang-orang tulah anak jantan-anak batino (nageri)-ku. (ka
 ## 15:72
 
 (Allah bafirman), “Demi umurmu [^400] (Nabi Muhammad), sabenar-benarnyo orang-orang tu taumbang-ambing di dalam kamabukan (demi malampiaskan hawa nafsu)”.
-
-[^400]: Orang Arab biaso basumpah dengan umur sasaorang. Disiko Allah basumpah dengan umur atau kahidupan Nabi Muhammad Saw untuk mamuliokan baliau.
 
 ## 15:73
 
@@ -8319,8 +7518,6 @@ Sasungguhnyo pado nang demikian tu benar-benar tadapat tando-tando (kakuasoan Al
 
 Sabenar-benarnyo (negeri) tu benar-benar taletak di jalan nang masih tetap (dilalui manusio). [^401]
 
-[^401]: Negeri nang dimaksud adolah kota Sodom. Orang Quraisy biaso malaluinyo dalam pajalanan orang-orang tu ka Syam.
-
 ## 15:77
 
 Sabenar-benarnyo pado nang demikian tu benar-benar tadapat tando-tando (kakuasoan Allah) untuk orang-orang nang baiman.
@@ -8329,21 +7526,13 @@ Sabenar-benarnyo pado nang demikian tu benar-benar tadapat tando-tando (kakuasoa
 
 Sabenar-benarnyo panduduk Aikah [^402] tu benar-benar kaum nang zolim,
 
-[^402]: Panduduk Aikah ko iolah kaum Nabi Syu’aib as. Aikah iolah kawasan nang bautan di daerah Madyan, Yordania.
-
 ## 15:79
 
 Mako, Kami mambinasokan orang-orang tu. Sasungguhnyo kadua (negeri) [^403] tu taletak di sikok jalur jalan umum.
 
-[^403]: Kaduo negeri nang dimaksud adolah Sodom dan Aikah
-
 ## 15:80
 
 Sabenar-benarnyo panduduk-panduduk kota Al-Hijr [^404] benar-benar lah mandustokan rasul-rasul (orang-orang tu). [^405]
-
-[^404]: Penduduk kota Al-Hijr iolah kaum Tsamud, kaum Nabi Saleh as. Al-Hijr marupokan namo sikok genah nang taletak di Wadi Quro antaro Madinah dan Syria.
-
-[^405]: nang dimaksud dengan rasul-rasul disiko iolah Nabi Saleh as. Mestinyo disiko disebut “rasul”, tapi disebut rasul-rasul (jama’) kareno mandustokan saorang rasul samolah halnyo dengan mandustokan samua rasulrasul.
 
 ## 15:81
 
@@ -8356,8 +7545,6 @@ Orang-orang tu mamahat gunung-gunung (batu) manjadi rumah-rumah (nang didiami) d
 ## 15:83
 
 Mako orang-orang tu dibinasokan oleh suaro keras nang manggalegar di waktu pagi hari, [^406]
-
-[^406]: Peristiwa tu tajadi pado ari nang kaempat sasudah datangnyo peringatan kapado orang-orang tu
 
 ## 15:84
 
@@ -8375,8 +7562,6 @@ Sabenar-benarnyo Tuhanmulah Nang Maha Panyipto lagi Maha Mangetaui.
 
 Sabenar-benarnyo, Kami benar-benar manganugrahkan kapadomu tujuh (ayat) nang (dibaco) baulang-ulang [^407] dan AlQur’an nang agung.
 
-[^407]: nang dimaksud dengan tujuh ayat nang dibaco baulang-ulang iolah surat Al Faatihah nang tadiri dari tujuh ayat. Sabagian ahli tafsir mangatokan tujuh surat-surat nang panjang yaitu Al Baqarah, Ali Imron, An-Nisaa’, Al A’Raaf, Al An’am sarto Al Anfaal nang digabung dengan At-Taubah.
-
 ## 15:88
 
 Janganlah sakali-kali kamu (Nabi Muhammad) manujukan pandanganmu (tagiur) kapado kanikmatan hidup nang lah Kami bagihkan kapado babarapo golongan di antaro orang-orang tu (orangorang kafir). Jangan kamu basedih hati atas (kasesatan) orang-orang tu dan barendah hatilah kamu tahadap orang-orang nang baiman.
@@ -8389,13 +7574,9 @@ Katokanlah (Nabi Muhammad), “Sabenarbenarnyo aku adolah pambagih peringatan na
 
 Samacam mano (Kami lah mambagih peringatan), Kami (jugo) lah manurunkan (azab) kapado orang-orang nang mamilahmilah (Kitab Allah). [^408]
 
-[^408]: Orang-orang tu adolah orang-orang nang manarimo sabagian isi Kitab dan manolak sabagian nang lain.
-
 ## 15:91
 
 (Yaitu) orang-orang nang lah manjadikan AlQur’an tu tabagi-bagi [^409] .
-
-[^409]: Orang-orang tu adolah orang Yahudi dan Nasroni nang mamilah-milah Al-Qur’an. Ado bagian nang orangorang tu percayo dan ado pulo bagian nang orang-orang tu mangingkarinyo.
 
 ## 15:92
 
@@ -8433,8 +7614,6 @@ Dan sembahlah Tuhanmu sampe tibo kapadomu kapastian (kamatian).
 
 Katetapan Allah [^410] pasti datang. Mako, janganlah kamu maminta agar dicepatkan (kadatangan)-nyo. Maha Suci dan Maha Tinggi Dio dari apo nang orang-orang tu persekutukan.
 
-[^410]: Katetapan Allah swt. Nang dimaksud adolah hari Kiamat nang lah diperingatkan kapado orang-orang musyrik.
-
 ## 16:2
 
 Dio manurunkan paro malaikat dengan mambawak wahyu dengan perentah-Nyo kapado siapo be nang Dio kahendaki di antaro hamba-hamba-Nyo, yaitu (dengan bafirman), “Peringatkanlah (hamba-hambaKu) bahwa dak katek Tuhan malainkan Aku. Mako, batakwalah kapado-Ku.”
@@ -8463,8 +7642,6 @@ Io mamikul beban-bebanmu ka suatu negri nang kamu idak sanggup mancapainyo, kacu
 
 (Dio lah manyiptokan) kudo, bagal [^411] dan kaledai untuk kamu tunggangi dan (manjadikannyo) perhiasan. Allah manciptokan apo nang kamu idak mangetauinyo.
 
-[^411]: Bagal adolah peranakan kudo dengan kaledai.
-
 ## 16:9
 
 Allahlah nang manerangkan jalan nang lurus dan di antaronyo ado (jalan) nang manyimpang. Kalu Dio mangendaki, tentulah Dio mambagih patunjuk kamu sagalonyo (ka jalan nang benar).
@@ -8488,8 +7665,6 @@ Dio manundukkan malam dan siang, matohari dan bulan untukmu, dan bintang-bintang
 ## 16:14
 
 Diolah nang manundukkan lautan [^412] (untukmu) agar kamu dapat mamakan daripadonyo daging nang segar (ikan) dan (dari lautan tu) kamu mangeluarkan perhiasan nang kamu pake. Kamu (jugo) mangimak kapal balayar padonyo, dan supayo kamu mancari sabagian karunio-Nyo, dan supayo kamu basyukur.
-
-[^412]: Nang dimaksud ‘lautan’ di siko adolah perairan nang luas, baik tawar maupun asin, tamasuk di dalamnyo laut, danau dan sungei nang luas.
 
 ## 16:15
 
@@ -8563,15 +7738,9 @@ Kemudian, dikatokan kapado orang-orang nang batakwa, “Apo nang lah diturunkan 
 
 (Yaitu) orang-orang nang diwafatkan oleh malaikat dalam kaadaan baik. [^413] Orang-orang tu (paro malaikat), mangatokan, “Salaamun ‘alaikum (samoga kaselamatan tacurah kapadomu). Masuklah kamu ka dalam surgo tu disebabkan apo nang lah kamu kerjokan.”
 
-[^413]: Maksudnyo adolah wafat dalam kaadaan suci dari kakafiran dan kama’siatan, atau dapat jugo baarti orang-orang tu mati dalam kaadaan senang kareno ado barito gembiro dari malaikat bahwa orang-orang tu bakal masuk surgo.
-
 ## 16:33
 
 Adokah nang orang-orang tu (orang kafir) tunggu salain dari tibonyo paro malaikat kapadonyo [^414]  atau tibonyo perentah Tuhanmu? [^415] . Demikianlah orang-orang (kafir) sabelumnyo babuat. Allah idak manganiayo orang-orang tu, justru orang-orang tulah nang (salalu) manganiayo diri orang-orang tu dewek.
-
-[^414]: Maksudnyo adolah kadatangan malaikat untuk manyabut nyawa orang-orang tu.
-
-[^415]: Maksudnyo adolah kadatangan azab dari Allah untuk mamusnahkan orang-orang tu.
 
 ## 16:34
 
@@ -8584,8 +7753,6 @@ Orang-orang nang musyrik bakato, “Kalu Allah mangendaki, niscayo kami dan nene
 ## 16:36
 
 Sabenar-benarnyo, Kami lah mangutus saorang rosul pado tiap-tiap umat (untuk manyerukan), “Sembahlah Allah dan jauhilah Thaghut! Di antaro orang-orang tu ado nang dibagih patunjuk oleh Allah dan ado pulo nang ditetapkan dalam kasesatan [^416] . Mako, bajalanlah kamu di muko bumi dan imaklah bagaimano kasudahan orang-orang nang mandustokan (Rosul-Rosul).
-
-[^416]: Liat catatan kaki surah al-Baqarah/2:26..
 
 ## 16:37
 
@@ -8615,8 +7782,6 @@ Orang nang bahijrah kareno Allah sasudah orang-orang tu dianiayo, pasti Kami bak
 
 Kami idak mangutus sabelum kamu (Nabi Muhammad), kacuali orang-orang bajantan nang Kami bagih wahyu kapadonyo. Mako, batanyolah kapodo orang-orang nang mampunyoi pangetauan [^417] kalu kamu idak mangetaui,
 
-[^417]: Yakni: orang-orang nang mampunyoi pangetauan tentang nabi dan kitab-kitab.
-
 ## 16:44
 
 (Kami mangutus orang-orang tu) dengan (mambawak) katerangan-katerangan nang jelas (mukjizat) dan kitab-kitab. Kami turunkan Az-Zikr (Al-Qur’an) kapadomu agar kamu manerangkan kapado umat manusio apo nang lah diturunkan kapado orang-orang tu dan supayo orang-orang tu mamikirkan.
@@ -8632,8 +7797,6 @@ Atau, Allah mangazab orang-orang tu di waktu orang-orang tu dalam perjalanan sah
 ## 16:47
 
 Atau, Allah mangazab orang-orang tu dengan kakurangan (sacaro barangsur-angsur sampe binaso). [^418] Sasungguhnyo Tuhanmu adolah Maha Pangasih lagi Maha Panyayang.
-
-[^418]: Kakurangan tu maliputi harto, jiwo, raga dan sabagainyo. Manurut sabagian ahli tafsir, “Takhawwul” baarti dalam kaadaan takut.
 
 ## 16:48
 
@@ -8674,8 +7837,6 @@ Orang-orang tu manyediokan sabahagian rezki nang lah kami anugerahkan kapa-do or
 ## 16:57
 
 Orang-orang tu manetapkan untuk Allah anak-anak batino; Mahasuci Dio, sedangkan untuk orang-orang tu dewek apo nang orang-orang tu sukoi (anak-anak jantan). [^419]
-
-[^419]: Perkatoan orang-orang tu bahwa Allah swt mampunyoi anak batino, yaitu nang bawujud paro malaikat, dipicu raso kabencian kapado anak batino samacam mano tasebut dalam ayat Al-Qur’an barikutnyo.
 
 ## 16:58
 
@@ -8837,8 +7998,6 @@ Apo nang ado di sisimu bakal lenyap dan apo nang ado di sisi Allah adolah kekal.
 
 Siapo be nang mangerjokan amal saleh, baik jantan maupun batino dalam kaadoan baiman, mako sasungguhnyo bakal Kami bagihkan kapadonyo kahidupan nang baik [^420] dan sasungguhnyo bakal Kami bagih balasan kapado orang-orang tu dengan pahalo nang lebih baik dari apo nang salalu orang-orang tu kerjokan.
 
-[^420]: Dalam ayat iko ditekankan bahwa bajantan dan batino mandapat pahalo nang samo samacam mano jugo ditekankan bahwa amal kabajikan harus disertoi iman.
-
 ## 16:98
 
 Apobilo kamu mambaco Al-Qur’an, hendaklah kamu mamintak palindungan kapado Allah dari setan nang takutuk
@@ -8899,8 +8058,6 @@ Kamudian, sasungguhnyo Tuhanmu (adolah palindung) untuk orang-orang nang bahijra
 
 Allah lah mambuat suatu paumpamoan sabuah negri nang dahulunyo aman lagi tentram nang rezkinyo datang kapadonyo malimpah ruah dari segenap genah, tapi (panduduk)nyo mangingkari nikmat-nikmat Allah. Oleh kareno tu, Allah manimpokan kapado orang-orang tu bencano kalaparan dan katakutan [^421] disebabkan apo nang selalu orang-orang tu pabuat.
 
-[^421]: Kalaparan dan katakutan tu maliputi orang-orang tu saperti halnyo pakaian maliputi tubuh orang-orang tu
-
 ## 16:113
 
 Sungguh, lah tibo kapado orang-orang tu saorang Rasul dari (kalangan) orangorang tu dewek, tapi orang-orang tu mandustokannyo. Oleh kareno tu, orangorang tu ditimpo azab dan orang-orang tu adolah orang-orang nang aniayo.
@@ -8949,13 +8106,9 @@ Kamudian, Kami wahyukan kapadomu (Nabi Muhammad), “Ikutilah ugamo Ibrohim saba
 
 Sasungguhnyo (mangagungkan) hari Sabtu hanyo diwajibkan atas orang-orang (Yahudi) nang baselisih padonyo. [^422]  Sasungguhnyo Tuhanmu benar-benar bakal mambagih kaputusan di antaro orang-orang tu di hari kiamat tahadap apo nang lah orang-orang tu perselisihkan.
 
-[^422]: Orang-orang Yahudi diperentahkan untuk mangkhuhsuskan hari Jum’at untuk baibadah, tapi orang-orang tu manolak dan manjadikan hari Sabtu sabagai panggantinyo
-
 ## 16:125
 
 Ajaklah (manusio) kapado jalan Tuhanmu dengan hikmah [^423] dan palajaran nang baik dan bantahlah orang-orang tu dengan caro nang baik. SasungguhnyoTuhanmu Diolah nang lebih tau siapo be nang tasesat dari jalan-Nyo dan Dio (pulo) nang lebih mangetaui siapo be nang mandapat patunjuk.
-
-[^423]: Hikmah iolah perkatoan nang tegas dan benar nang dapat mambedakan antaro nang hak dengan nang batil
 
 ## 16:126
 
@@ -8972,8 +8125,6 @@ Sasungguhnyo Allah baserto orang-orang nang batakwa dan orang-orang nang babuat 
 ## 17:1
 
 Maha suci (Allah) nang lah manjalankan hambo-Nyo (Nabi Muhammad) pado malam hari dari Masjidil Haram ka Masjidil Aqso nang lah Kami barkahi sakalilingnyo [^424] supayo Kami imakkan kapadonyo sabagian dari tando-tando (kaagungan) Kami. Sasungguhnyo Dio Maha Manganing lagi Maha Mangimak.
-
-[^424]: Masjidil Aqso dan daerah sakitarnyo mandapat barkat dari Allah dengan diturunkannyo nabi-nabi di negeri tu barikut kasuburan tanahnyo.
 
 ## 17:2
 
@@ -9063,8 +8214,6 @@ Janganlah kamu manjadikan Tuhan nang lain basamo Allah (sebab) kagi kamu manjadi
 
 Tuhanmu lah mamerentahkan supayo kamu jangan manyembah salain Dio dan hendaklah babuat baik kapado ibu bapak. Kalu salah saorang di antaro kaduonyo atau kaduo-duonyo sampai baumur lanjut dalam pamaliharoanmu, mako sakalikali janganlah kamu mangatokan kapado kaduonyo pakatoan “ah” dan janganlah kamu mambentak kaduonyo, serto ucapkanlah kapado kaduonyo pakatoan nang mulio [^425] .
 
-[^425]: Sakedar mangucapkan kato ‘ah’ (atau kato-kato kasar lainnyo) kapado orang tuo idak dibolehkan oleh ugamo apolagi mamperlakukan kaduonyo dengan lebih kasar dari pado tu.
-
 ## 17:24
 
 Rendahkanlah dirimu tahadop kaduonyo dengan penuh kasih sayang dan katokanlah, “Wahai Tuhanku, sayangilah kaduonyo samacam mano kaduonyo (manyayangiku katiko) mandidik aku pado waktu kecik.”
@@ -9105,10 +8254,6 @@ Janganlah kamu mandekati zino. Sasungguhnyo (zino) tu adolah suatu perbuatan nan
 
 Janganlah kamu mambunuh orang nang diharamkan Allah (mambunuhnyo), malainkan dengan suatu (alasan) nang benar. [^426]  Siapo nang dibunuh sacaro aniayo, sabenanyo Kami lah mambagih kakuasoan [^427] kapado walinyo. Tapi, janganlah dio (walinyo tu) malampaui batas dalam pambunuhan (kisas). Sasungguhnyo dio adolah orang nang mandapat patolongan.
 
-[^426]: Lihat catatan surah Al An’am /6: 151.
-
-[^427]: Kakuasoan di siko iolah kawenangan ahli waris orang nang tabunuh atau panguoso nang sah untuk manuntut kisas atau manerimo diat. (Imak surahal-Baqarah/2: 178 dan surah an-Nisa/4: 92).
-
 ## 17:34
 
 Janganlah kamu mandekati harto anak yatim, kacuali dengan (caro) nang tabaik (dengan mangembangkannyo) sampai dio dewaso dan penuhilah janji (kareno) sasungguhnyo janji tu pasti diminta pertanggungjawabannyo.
@@ -9128,8 +8273,6 @@ Janganlah kamu bajalan di muko bumi ko dengan sombong kareno sasungguhnyo kamu s
 ## 17:38
 
 Kajahatan dari sagalo (larangan) tu [^428]  dibenci di sisi Tuhanmu.
-
-[^428]: Sagalo larangan nang dimaksud adolah nang disebut dalam ayat: 22, 23, 26, 29, 31, 32, 33, 34, 36, dan 37 surat ko.
 
 ## 17:39
 
@@ -9203,13 +8346,9 @@ Tuhanmu lebih mangetaui siapo nang di langit dan di bumi. Sasungguhnyo lah Kami 
 
 Katokanlah (Nabi Muhammad) “Serulah orang-orang tu nang kamu anggap (tuhan) [^429] salain Dio. Orang-orang tu idak bakal mampu manghilangkan bahayo dari padomu dan idak (pulak) mampu mangalihkannyo.
 
-[^429]: Maksudnyo adolah apo nang diyakini orang-orang tu sabagai Tuhan, yaitu berhalo, malaikat, jin dan sabagainyo.
-
 ## 17:57
 
 Orang-orang nang orang-orang tu seru tu, orang-orang tu (sendiri) mancari jalan kapado Tuhan [^430]  (masing-masing baharap) siapo di antaro orang-orang tu nang lebih dekat (kapado Allah) dan mangharapkan rahmat-Nyo dan takut bakal azab-Nyo. Sasungguhnyo azab Tuhanmu adolah suatu nang (harus) ditakuti.
-
-[^430]: Nabi Isa a.s., paro Malaikat dan ‘Uzair nang orang-orang tu sembah salamo ko manyeru dan mancari jalan pandekatan diri kapado Allah swt.
 
 ## 17:58
 
@@ -9222,10 +8361,6 @@ Idak ado nang manghalangi Kami untuk mangirimkan (kapadomu) tando-tando (kakuaso
 ## 17:60
 
 (Ingatlah) katiko Kami bafirman kapadomu, “Sasungguhnyo Tuhanmu (dengan ilmu dan kakuasoan-Nyo) maliputi sagalo manusio.” Kami idak manjadikan ru’yā [^431]  nang lah Kami imakkan kapadomu, malainkan sabagai ujian bagi manusio dan (bagitu pulak) pohon nang takutuk [^432]  dalam Al-Qur'an. Kami manakut-nakuti orang-orang tu, tapi nang macam tu hanyolah manambah besak kadurhakoannyo.
-
-[^431]: Manurut sabagian mufasir, nang dimaksud ‘ru’yā’ disiko bakaitan dengan kajadian Isra’ Mi’raj sahinggo maknanyo adolah pangimakan Nabi katiko Isra’ Mi’raj. Adopun manurut sabagian mufasir lainnyo, ‘ru’yā’ ko bakaitan dengan Perang Badar. Mako, maknanyo adolah mimpi nang dialami Rasulullah sabelum peristiwo perang Badar .
-
-[^432]: Pohon takutuk adolah pohon zaqum (lihat surat as-Saffat/37: 62 dan surah ad-Dukhan/44: 43).
 
 ## 17:61
 
@@ -9291,21 +8426,13 @@ Kalu tajadi demikian, tentu bakal Kami rasokan kapadomu (siksoan) balipat gando 
 
 Sasungguhnyo orang-orang tu hampir mambuatmu (Nabi Muhammad) gelisah di negeri (Makkah) untuk mangusirmu dari negeri tu. Kalu tajadi macam tu, niscayo sapaninggalmu orang-orang tu idak bakal tinggal (batahan), malainkan sabantar bae [^433]
 
-[^433]: Kalu sampai tajadi Nabi Muhammad saw. diusir oleh penduduk Makkah, niscayo orang-orang tu idak bakal lamo hidup di dunio dan Allah segero bakal mambinasokan orang-orang tu. Hijrah Nabi Muhammad s.a.w. ka Madinah bukan kareno pangusiran kaum Quraisy, malainkan samato-mato kareno perentah Allah.
-
 ## 17:77
 
 (Nang macam tu) sabagai suatu katetapan (bagi) rasul-rasul Kami nang benar-benar Kami utus sabelum kamu [^434] dan idak bakal kamu dapati perobahan bagi katetapan Kami.
 
-[^434]: Maksudnyo adolah bahwa tiap-tiap umat nang mangusir rasul pasti bakal dibinasokan Allah swt. Macam tulah sunnah (katetapan) Allah swt.
-
 ## 17:78
 
 Dirikanlah sembahyang sejak matohari tagelincir sampe gelapnyo malam dan (dirikanlah pulak sembahyang) Subuh [^435]. Sasungguhnyo sembahyang Subuh tu disaksikan (oleh malaikat). [^436]
-
-[^435]: Ayat ko manerangkan waktu-waktu sembahyang nang limo. Tagelincir matohari untuk waktu sembahyang Zhuhur dan Ashar, gelap malam untuk waktu Magrib, Isya dan Subuh.
-
-[^436]: Dalam hadits riwayat Imam Ahmad disebutkan bahwa sembahyang Subuh disaksikan oleh paro malaikat nang batugas pado malam dan siang.
 
 ## 17:79
 
@@ -9314,8 +8441,6 @@ Pado sabagian malam lakukanlah sembahyang tahajud sabagai (suatu ibadah) tambaha
 ## 17:80
 
 Katokanlah (Nabi Muhammad), “Ya Tuhanku, masukkanlah (ka genah dan kaadoan apo bae) dengan caro masuk nang benar, kaluarkanlah (pulak) aku sacaro nang benar, dan bagihkanlah kapadoku dari sisiMu kakuasoan nang dapat manolong(-ku) [^437]
-
-[^437]: Maksud doa ko adolah mamohon kapado Allah swt. supayo kito mamasuki suatu ibadah dan salesai daripadonyo dengan niat nang baik dan panuh kaikhlasan serto bersih dari ria dan dari sasuatu nang marusakkan pahalo. Ayat ko jugo mangisyaratkan kapado Nabi supayo bahijrah dari Makkah ka Madinah. Ado juga nang manafsirkannyo dengan mamohon kapado Allah Swt. supayo kito mamasuki kubur dengan baik dan kaluar daripadonyo waktu hari-hari kabangkitan dengan baik pulak.
 
 ## 17:81
 
@@ -9385,8 +8510,6 @@ Katokanlah (Nabi Muhammad), “Cukuplah Allah manjadi saksi antaro aku dan kamu 
 
 Siapo nang dianugerahi patunjuk oleh Allah (kareno kacenderungan dan pilihannyo tahadap kabaikan) diolah nang mandapat patunjuk. Siapo nang Dio sesatkan, mako sakali-kali kamu idak bakal mandapat panolong-panolong [^438] bagi orang-orang tu salain dari Dio. Kami bakal mangumpulkan orang-orang tu pado hari Kiamat dengan muko tasungkur, dalam kaadoan buto, bisu dan pekak. Genah kadiaman orang-orang tu adolah (nerako) Jahannam. Tiap-tiap kali nyalo api Jahannam tu bakal padam, Kami tambah lagi nyalonyo bagi orang-orang tu
 
-[^438]: Lihat catatan kaki surah Ali Imran/3: 28.
-
 ## 17:98
 
 Tulah balasan bagi orang-orang tu kareno sasungguhnyo orang-orang tu kafir kapado ayat-ayat Kami dan (kareno orang-orang tu) bakato, “Apobilo kami lah manjadi tulang balulang dan bendo-bendo nang hancur, apokah kami benar-benar bakal dibangkitkan kambali sabagai makhluk baru?”
@@ -9403,8 +8526,6 @@ Katokanlah (Nabi Muhammad), “Kalau saandainyo kamu mamiliki khazanah rahmat Tu
 
 Sungguh, Kami lah mambagihkan kapado Musa sambilan buah mukjizat nang nyato [^439] . Mako, tanyokanlah kapado Bani Israil tatkalo Musa datang kapado orang-orang tu lalu Fir’aun bakato kapadonyo, “Sasungguhnyo aku benar-benar yakin bahwa kamu, oi Musa, takeno sihir
 
-[^439]: Mukjizat nang sambilan tu iolah: tongkat, tangan nang biso mamancarkan cahayo, balalang, kutu, katak, darah, topan, laut nang tabelah, dan gunung (Sinai).
-
 ## 17:102
 
 (Dio) Musa manjawab, “Sasungguhnyo, kamu benar-benar lah mangetaui bahwa tiado nang manurunkan (mukjizat-mukjizat) tu kacuali Tuhan langit dan bumi sabagai bukti-bukti nang nyato. Sasungguhnyo aku benar-benar yakin bahwa kamu, oi Fir’aun, talaknat.
@@ -9420,8 +8541,6 @@ Sasudah tu Kami bafirman kapado Bani Israil, “Tinggallah di negeri ko! Apobilo
 ## 17:105
 
 Kami turunkan (Al-Qur'an) dengan sasungguhnyo [^440] dan io (Al-Qur'an) turun dengan (mambawak) kabenaran. Kami mangutus kamu (Nabi Muhammad) malainkan sabagai pambawak berito gembiro dan pambagih peringatan.
-
-[^440]: Al-Qur’an benar-benar diturunkan oleh Allah swt, bukan oleh salain-Nyo.
 
 ## 17:106
 
@@ -9450,8 +8569,6 @@ Katokanlah, “Sagalo puji bagi Allah nang idak mangangkat saorang anak, idak ma
 ## 18:1
 
 Sagalo puji bagi Allah nang lah manurunkan Kitab Suci (Al-Qur’an) kapado hambo-Nyo dan Dio idak mambuat padonyo sadikitpun kabengkokan. [^441]
-
-[^441]: Idak ado dalam Al-Qur’an tu makna-makna nang saling balawananan dan idak ado panyimpangan dari kabenaran
 
 ## 18:2
 
@@ -9485,8 +8602,6 @@ Kami benar-benar bakal manjadikan (pulak) apo nang di atasnyo manjadi tanah nang
 
 Apokah kamu mangiro bahwa sasungguhnyo orang-orang nang mandiami guo dan (nang mampunyoi) raqīm [^442]  benar-benar marupokan kaajaiban di antaro tando-tando (kaagungan) Kami?
 
-[^442]: ‘Raqīm’, sabagian ahli tafsir mangartikan sabagai namo anjing dan sabagian nang lain mangartikannyo sabagai batu tulis barisi catatan tentang ugamo tauhid atau namo-namo orang-orang tu
-
 ## 18:10
 
 (Ingatlah) katiko paro pemudo tu balindung ka dalam guo lalu badoa, “Wahai Tuhan kami, bagihkanlah rahmat kapado Kami dari sisi-Mu dan mudahkanlah bagi kami patunjuk untuk sagalo urusan kami.”
@@ -9495,13 +8610,9 @@ Apokah kamu mangiro bahwa sasungguhnyo orang-orang nang mandiami guo dan (nang m
 
 Mako, Kami tutup telingo orang-orang tu di dalam guo tu [^443]  salamo batahun-tahun.
 
-[^443]: Allah swt manidurkan orang-orang tu salamo 309 tahun qomariah dalam guo tu (Lihat ayat 25 surah ko) sahinggo orang-orang tu tak dapat dibangunkan oleh suaro apopun.
-
 ## 18:12
 
 Kemudian Kami bangunkan orang-orang tu supayo Kami mangetaui manokah di antaro kaduo golongan tu [^444]  nang lebih tepat dalam manghitung barapo lamo orang-orang tu tinggal (dalam guo tu).
-
-[^444]: Kaduo golongan tu iolah pemudo-pemudo tu dewek nang baselisih tentang barapo lamonyo orang-orang tu tinggal dalam guo tu
 
 ## 18:13
 
@@ -9511,8 +8622,6 @@ Kami kisahkan kapadomu (Nabi Muhammad) cerito orang-orang tu dengan sabenarnyo. 
 
 Kami maneguhkan hati orang-orang tu katiko orang-orang tu badiri [^445]  lalu bakato, “Tuhan kami adolah Tuhan sagalo langit dan bumi. Kami sakali-kali idak manyeru Tuhan salain Dio. Sasungguhnyo, kalu kami babuat macam tu, kami lah mangucapkan perkatoan nang amat jauh dari kabenaran.
 
-[^445]: Bangun dan manghadap Rajo Dikyanus (Decius) nang zalim dan sombong
-
 ## 18:15
 
 (Salah saorang dari pemudo tu bakato kapado nang lain), “Orang-orang tu kaum kami nang lah manjadikan tuhan-tuhan (untuk disembah) salain Dio. Mangapo orang-orang tu idak mangemukokan alasan nang jelas (tentang kapercayoannyo)? Mako, siapokah nang lebih aniayo daripado orangorang nang mangado-adokan kabohongan tahadap Allah?
@@ -9520,8 +8629,6 @@ Kami maneguhkan hati orang-orang tu katiko orang-orang tu badiri [^445]  lalu ba
 ## 18:16
 
 Kareno kamu jugo lah maninggalkan orang-orang tu dan apo nang orang-orang tu sembah salain Allah, mako balindunglah ka dalam guo tu. (Dengan macam tu), niscayo Tuhanmu bakal malimpahkan sabagian rahmat-Nyo kapadomu dan manyediokan bagimu sasuatu nang baguno bagi urusanmu. [^446]
-
-[^446]: Perkatoan ko tajadi antaro orang-orang tu dewek nang timbulnyo kareno ilham dari Allah Swt.
 
 ## 18:17
 
@@ -9643,8 +8750,6 @@ Buatkanlah untuk orang-orang tu (umat manusio) perumpamoan kahidupan dunio ko, y
 
 Harto dan anak-anak adolah perhiasan kahidupan dunio, sedangkan amalan-amalan nang kekal (pahalonyo) [^447]  adolah lebih baik balasannyo di sisi Tuhanmu serto lebih baik untuk manjadi harapan.
 
-[^447]: Contoh amal kabajikan nang abadi pahalonyo antaro lain malaksanokan rukun Islam dengan benar, mambaco tasbih, tahmid, dan zikir-zikir lainnyo.
-
 ## 18:47
 
 (Ingatlah) pado hari (katiko) Kami pajalankan gunung-gunung (untuk dihancurkan) dan kamu bakal mangimak bumi tu datar. Kami kumpulkan orangorang tu (sagalo manusio) dan idak Kami tinggalkan saorang pun dari orang-orang tu.
@@ -9660,8 +8765,6 @@ Diletakkanlah Kitab (catatan amal pado satiap orang), lalu kamu bakal mangimak o
 ## 18:50
 
 (Ingatlah) katiko Kami bafirman kapado paro Malaikat, “Sujudlah kamu sagalonyo kapado Adam!” Orang-orang tu pun sujud kacuali iblis (enggan). Dio adolah tamasuk dari (golongan) jin, kemudian io mandurhakoi perentah Tuhannyo. Patutkah kamu manjadikan dio dan turanan-turunannyo sabagai panolong [^448]  salain Aku, padohal orang-orang tu adolah musuhmu? Dio (Iblis) saburuk-buruk pangganti (Allah) bagi orang-orang nang aniayo.
-
-[^448]: Lihat catatan kaki surah Ali Imran/3: 28
 
 ## 18:51
 
@@ -9683,8 +8786,6 @@ Sungguh, Kami lah manjelaskan sagalo perumpamoan dengan bamacam-macam caro dan b
 
 Idak ado sasuatu pun nang manghalangi manusio untuk baiman katiko patunjuk lah datang kapado orang-orang tu dan untuk mamohon ampunan kapado Tuhannyo, kacuali bakal datang kapado orang-orang tu katetapan (Allah nang lah balaku pado) umat-umat nang dalu atau datang kapado orang-orang tu azab nang nyato. [^449]
 
-[^449]: Di antaro bentuk siksoan Allah swt. adolah nang idak langsung dibagihkan kapado hamba-Nyo nang badoso, tapi ditundo sasuai kahendak Allah swt.
-
 ## 18:56
 
 Idaklah Kami mangutus rasul-rasul malainkan sabagai pambawak kabar gembiro dan sabagai pambagih paringatan. (Tapi), orang-orang nang kufur mambantah dengan (caro) nang batil supayo dengan demikian orang-orang tu dapat malenyapkan sasuatu nang hak (kabenaran). Orang-orang tu manjadikan ayat-ayat-Ku dan apo nang di peringatkan tahadap orang-orang tu sabagai olok-olokan.
@@ -9705,8 +8806,6 @@ Tuhanmu Maha Pangampun lagi Maha Pamilik Rahmat. Kalau Dio manyikso orang-orang 
 
 (Ingatlah) katiko Musa bakato kapado pambantunyo [^450], “Aku idak bakal bahenti (bajalan) sabelum sampe ka pertemuan duo buah lautan; atau aku bakal bajalan sampai batahun-tahun.”
 
-[^450]: Sabagian mufasir manyebutkan dio banamo Yusya’ bin Nun, salah sikok pambesar Bani Israil
-
 ## 18:61
 
 Katiko orang-orang tu sampe ka pertemuan duo buah laut, orang-orang tu lupo ikannyo, lalu (ikan orang-orang tu) malompat mangambil jalan ka laut tu.
@@ -9726,8 +8825,6 @@ Dio (Musa) bakato, “Tulah (genah) nang kito cari.” Lalu kaduonyo kambali dan
 ## 18:65
 
 Lalu, orang-orang tu batemu baduo dengan saorang hambo di antaro hambo-hambo Kami nang lah Kami anugerahi kapadonyo rahmat dari sisi Kami. Kami lah mangajarkan kapadonyo ilmu dari sisi Kami [^451]
-
-[^451]: Manurut ahli tafsir, badasarkan hadis, hambo di siko iolah Khidr, dan nang dimaksud dengan rahmat di siko iolah wahyu dan kanabian. Sedang nang dimaksud dengan ilmu iolah ilmu tentang nang ghaib saperti nang bakal diterangkan dengan ayat-ayat barikut.
 
 ## 18:66
 
@@ -9813,8 +8910,6 @@ Mako, dio manyusuri suatu jalan.
 
 Hinggo katiko lah sampai ka tempat Tabenamnyo matohari, [^452] dio mandapatinyo tabenam di dalam mato aek panas lagi balumpur itam. Di sano dio manemukan suatu kaum (nang idak mengenal ugamo). Kami bafirman, “Wahai Zulqarnain, kamu boleh manghukum atau babuat kebaikan kapado orang-orang tu (dengan mengajak orang-orang tu baiman).”
 
-[^452]: Sampe di pantai sabelah barat, tempat Zulqarnain manengok matohari sedang tabenam.
-
 ## 18:87
 
 Dio (Zulqarnain) bakato, “Adopun orang nang babuat aniayo bakal kami hukum. Lalu, dio bakal dibalikkan kapado Tuhannyo. Kemudian, Dio mengazabnyo dengan azab nang sangat keras.
@@ -9831,8 +8926,6 @@ Kemudian, dio mangikuti suatu jalan (nang lain).
 
 Nang katiko sampe di posisi terbitnyo matohari (arah timur), dio mandapatinyo terbit pado suatu kaum nang idak Kami buatkan suatu palindung bagi orang-orang tu dari (cahayo) matohari tu. [^453]
 
-[^453]: Manurut sabagian mufasir, golongan nang ditemui Zulqarnain tu adolah umat nang miskin
-
 ## 18:91
 
 Demikianlah (kisahnyo). Sungguh, Kami mangetaui sagalo sasuatu nang ado padonyo (Zulqarnain).
@@ -9845,13 +8938,9 @@ Kemudian, dio mangikuti suatu jalan (nang lain lagi).
 
 Hingga katiko sampai di antaro duo gunung, dio mandapati di balik kaduonyo (kaduo gunung tu) suatu kaum nang hampir idak memahami pembicaroan. [^454]
 
-[^454]: Orang-orang tu idak dapat mamahami bahaso orang lain kareno bahaso orang-orang tu sangat jauh bedonyo dari bahaso nang lain dan orang-orang tu pun idak dapat menerangkan maksud orang-orang tu dengan jelas kareno kekurangcerdasan orang-orang tu
-
 ## 18:94
 
 Orang-orang tu bakato, “Wahai Zulqarnain, sasungguhnyo Ya’juj dan Ma’juj [^455] adolah (bangso) pembuat kerusakan di bumi, bolehkah kami mambagihmu imbalan agar kamu mambuatkan tembok panghalang antaro kami dan orang-orang tu?”
-
-[^455]: Ya’juj dan Ma’juj iolah duo bangso nang babuat karusakan di bumi
 
 ## 18:95
 
@@ -9885,8 +8974,6 @@ Kami perlihatkan (nerako) Jahanam dengan jelas pado hari tu kapado orang-orang k
 
 Mako, apokah orang-orang nang kafir manyangko bahwa orang-orang tu (dapat) mangambik hambo-hambo-Ku manjadi panolong salain Aku? [^456] Sasungguhnyo Kami lah manyediokan (nerako) Jahanam sabagai tempat tinggal bagi orang-orang kafir.
 
-[^456]: Lihat catatan kaki surah Āli ‘Imrān/3: 28
-
 ## 18:103
 
 Katokanlah (Nabi Muhammad), “Apokah perlu kami bagih taukan orang-orang nang paling rugi perbuatannyo kapadomu?”
@@ -9898,8 +8985,6 @@ Katokanlah (Nabi Muhammad), “Apokah perlu kami bagih taukan orang-orang nang p
 ## 18:105
 
 Orang-orang tu adolah orang-orang nang kafir tahadap ayat-ayat Tuhannyo dan (kafir pulak tahadap) pertemuan denganNyo. [^457]  Mako, amal orang-orang tu sio-sio dan Kami idak mambagihkan panimbangan tahadap (amal) orang-orang tu pado hari Kiamat.
-
-[^457]: Idak baiman kapado hari Kiamat.
 
 ## 18:106
 
@@ -9957,8 +9042,6 @@ Dio (Zakaria) bakato, “Ya Tuhanku, bagaimano (mungkin) aku bakal mampunyoi ana
 
 Dio (Allah) bafirman, [^458]  “Macam tulah.” Tuhanmu bafirman, “Hal tu mudah bagi-Ku; sungguh, kamu lah aku ciptokan sabelum tu, padohal (waktu tu) kamu belum bawujud samo sakali.”
 
-[^458]: Sebagian mufasir bapendapat bahwa nang bakato di siko adolah Allah Swt. Sabagiannyo lagi bapendapat bahwa nang bakato di siko adolah Jibril.
-
 ## 19:10
 
 Dio (Zakaria) bakato, “Ya Tuhanku, bagilah aku suatu tando.” (Allah) bafirman, “Tandonyo bagimu adolah bahwa kamu idak dapat becakap-cakap dengan manusio salamo tigo malam, padohal kamu sehat.”
@@ -9970,10 +9053,6 @@ Lalu, (Zakaria) kaluar dari mihrab manuju kaumnyo lalu dio mambagih isyarat kapa
 ## 19:12
 
 (Allah bafirman), “Oi Yahya, ambiklah (palajarilah) [^459]  Kitab (Taurat) tu dengan sungguh-sungguh.” Kami manganugerahkan hikmah kapadonyo (Yahya) [^460]  salagi dio masih kanak-kanak.
-
-[^459]: Maksudnyo adolah, “Palajarilah Taurat tu, amalkan isinyo, dan sampaikan kapado umatmu!”
-
-[^460]: Maksudnyo adolah pamahaman Taurat dan pandalaman ugamo.
 
 ## 19:13
 
@@ -10087,8 +9166,6 @@ Bagihlah orang-orang tu peringatan tentang hari panyesalan katiko sagalo perkaro
 
 Sasungguhnyo Kamilah nang mawarisi bumi [^461]  baserto sagalo nang ado di atasnyo dan hanyo kapado Kamilah orang-orang tu dibalikkan.
 
-[^461]: Saluruh alam ko bakal hancur dan hanyo Allah Swt. nang kekal
-
 ## 19:41
 
 Ceritokanlah (Nabi Muhammad, kisah) Ibrahim di dalam Kitab (Al-Qur’an)! Sasungguhnyo dio adolah saorang nang amat benar dan mambenarkan lagi saorang nabi.
@@ -10148,8 +9225,6 @@ Ceritokanlah (Nabi Muhammad kisah) Ismail di dalam Kitab (Al-Qur’an). Sasunggu
 ## 19:55
 
 Dio salalu manyuruh keluargonyo [^462] untuk (manegakkan) sembahyang dan (manunaikan) zakat. Dio adolah orang nang diridai oleh Tuhannyo
-
-[^462]: Sabagian mufasir bapendapat bahwa nang dimaksud ‘ahlahu’ iolah keluargonyo, sedangkan sabagiannyo bapendapat umatnyo.
 
 ## 19:56
 
@@ -10231,8 +9306,6 @@ Betapo banyak umat (nang engkar) nang lah Kami binasokan sabelum orang-orang tu,
 
 Katokanlah (Nabi Muhammad), “Siapo nang barado dalam kasesatan, biaklah Tuhan nang Maha Pangasih mamperpanjang waktu baginyo. [^463]  Hinggo apobilo lah mangimak apo nang diancamkan kapado orang-orang tu, baik azab maupun Kiamat, orang-orang tu bakal mangetaui siapo nang lebih buruk kadudukannyo dan lebih lemah bala tentaronya.”
 
-[^463]: Maksudnya adolah mamanjangkan umur dan mambiakkan orang-orang tu hidup dalam kasenangan
-
 ## 19:76
 
 Allah bakal manambah patunjuk kapado orang-orang nang lah mandapat patunjuk. Amal kabajikan nang kekal tu lebih baik pahalo dan kasudahannyo di sisi Tuhanmu.
@@ -10280,8 +9353,6 @@ dan Kami manggiring paro pandurhako ka (nerako) Jahanam dalam kaadoan dahaga.
 ## 19:87
 
 Orang-orang tu idak punyo (hak mandapat atau mambagih) syafaat (pertolongan), kacuali orang nang lah mangadokan perjanjian di sisi (Allah) nang Maha Pangasih. [^464]
-
-[^464]: Mangadokan perjanjian dengan Allah Swt. maksudnyo baiman kapado Allah Swt., manjalankan perentah-Nyo, dan bertakwa kapado-Nyo.
 
 ## 19:88
 
@@ -10346,8 +9417,6 @@ Kami idak manurunkan Al-Qur’an ko kapadomu (Nabi Muhammad) supaya kamu manjadi
 ## 20:5
 
 (Diolah Allah) nang Maha Pangasih (dan) basemayam di atas ʻArasy [^465]
-
-[^465]: Imak catatan kaki surah al-A‘rāf/7: 54
 
 ## 20:6
 
@@ -10485,15 +9554,9 @@ Sungguh, Kami benar-benar lah mambagihkan nikmat kapadomu pado kasempatan nang l
 
 (Ilham tu adolah perentah Kami kapado emakmu), ‘Letakkanlah dio (Musa) di dalam peti, kemudian hanyutkanlah dio ka sungei (Nil). Mako, biaklah (arus) sungei tu mambawaknyo ka tepi. dio bakal diambil oleh (Fir‘aun) musuh-Ku dan musuhnya.’ Aku lah malimpahkan kapadomu kasih sayang dari-Ku [^466]  dan supayo kamu diasuh di bawah pangawasan-Ku.
 
-[^466]: Satiap orang nang mamandang Nabi Musa a.s. bakal marasokan cinto, kasih, dan sayang kapadonyo
-
 ## 20:40
 
 Katiko saudaro perempuanmu bajalan (untuk mangawasi dan mangetaui berito), dio bakato (kapado keluargo Fir‘aun), ‘Bolehkah saya manunjukkan kapadomu orang nang bakal mameliharonya?’ Mako, Kami mangembalikanmu kapado emakmu supayo senang hatinyo dan idak basedih. Kamu pernah mambunuh sasaorang (tanpo sengajo), [^467]  lalu Kami selamatkan kamu dari kasulitan (nang besar) dan Kami lah mancobamu dengan baberapo cobaan (nang berat). Lalu, kamu tinggal baberapo taun di antaro penduduk Madyan, [^468]  kemudian kamu, oi Musa, datang manurut waktu nang ditetapkan
-
-[^467]: Nang tabunuh adolah saorang bangsa Qibti nang sedang bakelahi dengan saorang Bani Israil samacam mano nang dikisahkan dalam surah al-Qaṣaṣ/28: 15.
-
-[^468]: Nabi Musa a.s. datang ka negeri Madyan untuk malarikan diri. Di sano dio dinikahkan oleh Syekh Madyan dengan salah saorang putrinyo dan manetap baberapo tahun lamonyo.
 
 ## 20:41
 
@@ -10523,8 +9586,6 @@ Dio (Allah) bafirman, “Janganlah kamu baduo khawatir! Sasungguhnyo Aku basamo 
 
 Mako, datanglah kamu baduo kapadonyo (Fir‘aun) dan katokanlah, ‘Sasungguhnya kami baduo adolah utusan Tuhanmu. Lepaskanlah Bani Israil basamo kami dan janganlah kamu manyikso orang-orang tu. [^469] Sungguh, kami datang kapadomu dengan mambawak bukti (atas karasulan kami) dari Tuhanmu. Keselamatan tu dilimpahkan kapado orang nang mangikuti patunjuk..
 
-[^469]: Bani Israil pada waktu di Mesir barado di bawah perbudakan Fir‘aun. Orang-orang tu dipekerjokan untuk mandirikan bangunan-bangunan nang besak dan kota-kota dengan caro kerjo pakso. Mako, Nabi Musa a.s. maminta kapado Fir‘aun supayo orang-orang tu dibebaskan
-
 ## 20:48
 
 Sasungguhnyo lah diwahyukan kapado kami bahwa sikso tu (ditimpokan) kapado siapo pun nang mandustokan (para rasul) dan bapaling (dari tuntunannyo).’”
@@ -10536,8 +9597,6 @@ Dio (Fir‘aun) bakato, “Siapokah Tuhanmu baduo, oi Musa?”
 ## 20:50
 
 Dio (Musa) manjawab, “Tuhan kami iolah (Tuhan) nang lah manganugerahkan kapado sagalo sasuatu bentuk pancipto470 annyo (nang layak), kemudian mambagihnyo patunjuk.” [^470]
-
-[^470]: Patunjuk di siko maksudnyo adolah akal, naluri, dan kodrat alamiah untuk kalanjutan hidupnyo masing-masing
 
 ## 20:51
 
@@ -10562,8 +9621,6 @@ Darinyo (tanah) tulah Kami manciptokanmu, kapadonyolah Kami bakal mangembalikanm
 ## 20:56
 
 Sungguh Kami benar-benar lah mamperliatkan kapadonyo (Fir‘aun) tando-tando (kaagungan) Kami sagalonya. [^471] Namun, dio mandustokan dan enggan (manerimo kabenaran).
-
-[^471]: Nang dimaksud dengan tando-tando di siko adolah tando-tando kanabian Nabi Musa a.s. Pado pertemuan Nabi Musa a.s. dengan Fir‘aun ko, mukjizat nang diperlihatkan baru duo, yaitu tongkat manjadi ular dan tangan Nabi Musa a.s. manjadi putih bercahayo.
 
 ## 20:57
 
@@ -10649,8 +9706,6 @@ Siapo nang datang kapado-Nyo dalam kaadoan baiman dan lah baamal saleh, orang-or
 
 Sungguh, lah Kami wahyukan kapado Musa, “Pegilah basamo hambo-hambo-Ku (Bani Israil) pado malam hari dan pukullah laut tu untuk manjadi jalan nang kering bagi orangorang tu [^472]  tanpa raso takut bakal tasusul dan tanpa raso khawatir (akan tenggelam).”
 
-[^472]: Mamukul laut tu dengan tongkat (imak surah asy-Syu‘arā’/26: 63).
-
 ## 20:78
 
 Fir‘aun dengan bala tentaronyo lalu mangejar orang-orang tu (Musa dan pengikutnya), tapi orang-orang tu (Fir‘aun dengan bala tentaronya) digulung ombak laut (nang dahsyat) sahinggo manenggelamkan orangorang tu.
@@ -10662,10 +9717,6 @@ Fir‘aun lah manyesatkan kaumnyo dan idak mambagih (orang-orang tu) patunjuk.
 ## 20:80
 
 Oi Bani Israil, sungguh Kami lah manyelamatkanmu dari musuhmu, mangadokan perjanjian denganmu (untuk bamunajat) di sebelah kanan gunung tu (gunung Sinai), dan manurunkan kapadomu [^473]  manna dan salwa. [^474]
-
-[^473]: Ayat ko ditujukan kapado orang Yahudi pado zaman Nabi Muhammad saw., sedangkan nang dimaksud ‘kamu’ pado ayat ko adolah nenek moyang orang-orang tu.
-
-[^474]: Imak panjelasan ‘manna’ dan ‘salwa’ pado catatan kaki surah al-Baqarah/2: 57
 
 ## 20:81
 
@@ -10695,15 +9746,9 @@ Lalu, Musa balik kapado kaumnyo dalam kaadoaan marah lagi sedih. Dio bakato, “
 
 Orang-orang tu bakato, “Kami idak melanggar perjanjian (dengan)-mu atas kamauan kami dewek. Tapi, kami harus mambawak beban berat [^475]  barupo perhiasan kaum (Fir‘aun) tu. Kami kemudian melemparkannyo (ka dalam perapian) dan demikian pula Samiri melemparkannya. [^476]
 
-[^475]: Beban berat’ nang disebutkan dalam ayat ko dapat baarti berat dalam makno fisik dan dapat pulak baarti beban doso kareno idak mangembalikan perhiasan nang orang-orang tu pinjam dari penduduk Mesir.
-
-[^476]: Orang-orang tu disuruh mambawak perhiasan dari emas milik orang-orang Mesir, lalu oleh Samiri dianjurkan supayo perhiasan tu dilemparkan ka dalam api nang lah dinyalokannyo dalam suatu lubang untuk dijadikan patung babentuk anak sapi. Kemudian orang-orang tu malemparkannyo dan diikuti pulak oleh Samiri.
-
 ## 20:88
 
 (Dari perapian tu) kemudian dio (Samiri) mangeluarkan untuk orang-orang tu patung bawujud anak jawi nang basuaro. [^477] Orangorang tu lalu bakato, “Nilah Tuhanmu dan Tuhan Musa, tapi dio (Musa) lah lupo (bahwa Tuhannyo di sini).”
-
-[^477]: Imak catatan kaki surah al-A‘rāf/7: 148.
 
 ## 20:89
 
@@ -10737,13 +9782,9 @@ Dio (Musa) bakato, “Apa nang mandorongmu (babuat macam tu), oi Samiri?”
 
 Dio (Samiri) manjawab, “Aku mangimak sasuatu nang idak orang-orang tu imak. Kemudian, aku ambil sagenggam (tanah) bekas jejak rasul (Jibril) lalu aku lemparkan (ka dalam mulut patung anak sapi). [^478] Macam tulah nafsuku mambujukku.”
 
-[^478]: Menurut jumhur ulama, nang dimaksud dengan ‘jejak rasul’ adolah jejak telapak kudo Jibril a.s. Pandapat kp manjelaskan bahwa Samiri mangambil sagumpal tanah dari jejak telapak kudo tu lalu malemparkannyo ka dalam logam nang sedang dihancurkan sahingga logam tu babentuk anak jawi nang mangeluarkan suaro. Adopun sabagian kecil mufasir bapendapat bahwa ‘jejak rasul’ di siko adolah ajaran-ajarannyo. Manurut paham ko Samiri mangambil sabagian ajaran Nabi Musa a.s. kemudian maninggalkan ajaran-ajaran tu sahingga dio menjadi sesat.
-
 ## 20:97
 
 Dio (Musa) bakato (kapado Samiri), “Pegilah kamu! Sasungguhnyo di dalam kahidupan (dunio) kamu (hanyo dapat) mangatokan, ‘Jangan sentuh (aku).’ [^479] Kamu pasti mandapat (hukuman) nang lah dijanjikan (di akherat) nang idak bakal dapat kamu hindari. Lihatlah tuhanmu tu nang tetap kamu sembah. Kami pasti bakal mambakarnyo, kemudian sungguh kami bakal manghamburkan (abu)-nyo ka laut.”
-
-[^479]: Larangan manyentuh Nabi Musa a.s. batujuan supayo Samiri hidup tapencil sabagai hukuman di dunio. Adopun sabagai hukuman di akherat, dio bakal ditempatkan di nerako
 
 ## 20:98
 
@@ -10765,8 +9806,6 @@ Orang-orang tu kekal di dalamnya. Amat buruklah beban (dosa) tu bagi orang-orang
 
 yaitu) pado hari katiko sangkakala ditiup. [^480] Pado hari tu Kami kumpulkan paro pandurhako dengan (wajah) pucat (penuh katakutan).
 
-[^480]: Tiupan sangkakala nang keduo adolah tiupan untuk mambangkitkan manusio dari kuburnyo atau manghidupkannyo balik.
-
 ## 20:103
 
 Orang-orang tu babisik sikok samo lain, “Kamu tinggal (di dunio) idak lebih dari sapuluh (hari).”
@@ -10774,8 +9813,6 @@ Orang-orang tu babisik sikok samo lain, “Kamu tinggal (di dunio) idak lebih da
 ## 20:104
 
 Kami lebih mangetaui apo nang bakal orangorang tu katokan, katiko orang nang paling lurus jalannyo [^481] mangatokan, “Kamu tinggal (di dunio) idak lebih dari sahari bae.”
-
-[^481]: Maksudnyo adolah orang nang lurus pikirannyo atau amalnyo di antaro orang nang badoso.
 
 ## 20:105
 
@@ -10817,13 +9854,9 @@ Macam tulah, Kami manurunkan AlQur’an dalam bahasa Arab dan Kami lah manjelask
 
 Mahatinggi Allah, Rajo nang sebenarbenarnya. Janganlah kamu (Nabi Muhammad) tagesa-gesa (mambaco) AlQur’an sabelum selesai pewahyuannyo kapadomu [^482] dan katokanlah, “Ya Tuhanku, tambahkanlah ilmu kapadoku.”
 
-[^482]: Nabi Muhammad saw. dilarang oleh Allah Swt. mangikuti bacoan Jibril kato demi kato sabelum Jibril salesai mambacokannyo supayo beliau manghafal dan mamahami betul-betul ayat nang diturunkan. Allah Swt. manjamin bahwa beliau bakal mampu manghafal ayat-ayat nang diturunkan kapadonyo.
-
 ## 20:115
 
 Sungguh lah Kami perentahkan [^483] Adam dahulu (agar idak mandekati pohon kaabadian), tapi dio lupo dan Kami idak mandapati padonyo tekad nang kuat (untuk manjauhi larangan).
-
-[^483]: Pesan Allah Swt. ko tasebut dalam surah al-Baqarah/2: 35.
 
 ## 20:116
 
@@ -10848,8 +9881,6 @@ Mako, setan mambisikkan (pikiran jahat) kapadonya. Io bakato, “Oi Adam, maukah
 ## 20:121
 
 Lalu, orang-orang tu baduo mamakannyo sahinggo tampaklah oleh kaduanyo aurat orang-orang tu dan mulailah kaduanyo manutupinyo dengan daun-daun (nang ado di) surgo. Adam lah malanggar (perentah) Tuhannyo dan khilaflah dio. [^484]
-
-[^484]: Nang dimaksud dengan ‘malanggar (perintah) Tuhannyo’ di siko iolah malanggar larangan Allah Swt. kareno lupo atau idak sengajo samacam mano disebutkan dalam ayat 115 surah ko. Adopun nang dimaksud ‘khilaf’ adolah mangikuti apo nang dibisikkan setan. Meskipun idak macam tu besak manurut ukuran manusio biaso, kasalahan Nabi Adam a.s. sudah dinamoi malanggar kareno tingginyo martabat Nabi Adam a.s. dan untuk manjadi taladan bagi orang besak dan pamimpin-pamimpin supayo manjaui perbuatan-perbuatan nang talarang saberapo pun keciknya.
 
 ## 20:122
 
@@ -10883,8 +9914,6 @@ Idakkah manjadi patunjuk bagi orangorang tu (orang-orang musyrik) tentang berapo
 
 Saandainyo idak ado suatu katetapan nang tadahulu dari Tuhanmu serto idak ado ajal nang lah ditentukan (bagi orang-orang tu), [^485] pastilah (siksoan tu langsung manimpo orang-orang tu).
 
-[^485]: Ajal nang ditentukan maksudnyo adolah waktu nang lah ditetapkan oleh Allah Swt. untuk manurunkan azab.
-
 ## 20:130
 
 Mako, basabarlah kamu (Nabi Muhammad) atas apo nang orang-orang tu katokan dan batasbihlah dengan mamuji Tuhanmu sabelum matohari terbit dan sabelum tabenam. Batasbihlah (pulak) pado waktu tengah malam dan di ujung siang hari supayo kamu maraso tenang.
@@ -10900,8 +9929,6 @@ Perentahkanlah keluargomu malaksanokan sembahyang dan basabarlah dengan sungguh-
 ## 20:133
 
 Orang-orang tu bakato, “Mangapo dio (Nabi Muhammad) idak mambawak tando (mukjizat) kapado kami dari Tuhannyo?” [^486] Bukankah lah datang kapado orang-orang tu bukti nyato nang tasebut di dalam kitabkitab tadahulu?
-
-[^486]: Imak surah al-Isrā’/17: 90-93.
 
 ## 20:134
 
@@ -10922,8 +9949,6 @@ Idaklah diturunkan kapado orang-orang tu peringatan nang baru dari Tuhan, kacual
 ## 21:3
 
 (Dan) hati orang-orang tu dalam kaadoan lalai. Orang-orang tu, orang-orang nang aniayo tu, marahasiokan pambicaroan (dengan saling babisik), “Bukankah (orang) ko (Nabi Muhammad) idak lain hanyolah saorang manusio seperti kamu? Apokah kamu mangikuti sihir tu [^487]  padohal kamu manyaksikannyo?
-
-[^487]: Nang orang-orang tu maksud dengan sihir di siko iolah ayat-ayat Al-Qur’an
 
 ## 21:4
 
@@ -10981,13 +10006,9 @@ Kami idak manciptokan langit dan bumi serto sagalo apo nang ado di antaro kaduon
 
 Sakironyo Kami nak mambuat sasuatu sabagai permainan, tentulah Kami bakal mambuatnyo dari sisi Kami, [^488]  jiko Kami benar-benar mangendaki babuat (macam tu).
 
-[^488]: ‘dari sisi Kami’ iolah nang sasuai dengan sifat-sifat Kami.
-
 ## 21:18
 
 Sabaliknyo, Kami malemparkan nang hak (kabenaran) kapado nang batil (idak benar) lalu (nang hak) tu manghancurkannyo. Mako, saketiko tu io (nang batil) lenyap. Celakolah kamu kareno kamu menyifati (Allah dengan sifat-sifat nang idak pantas bagi-Nyo). [^489]
-
-[^489]: Contoh panyifatan nang idak pantas adolah sangkoan bahwa Allah Swt. mampunyai bini dan anak
 
 ## 21:19
 
@@ -11229,13 +10250,9 @@ Kami manolongnyo dari orang-orang nang lah mandustokan ayat-ayat Kami. Sasungguh
 
 (Ingatlah) Daud dan Sulaiman katiko orang-orang tu mambagihkan kaputusan mengenai ladang nang dirusak pado malam hari oleh kambing-kambing milik kaumnyo. Kami manyaksikan keputusan (nang dibagihkan oleh) orang-orang tu. [^490]
 
-[^490]: Dalam peristiwa tu, Nabi Daud a.s. mambagih putusan bahwa kambing-kambing tu harus dibagihkan kapado pamilik ladang sabagai ganti karusakan ladangnyo. Tapi, Nabi Sulaiman a.s. mamutuskan bahwa pamilik kambing harus mananami ladang tu hinggo balik seperti samulo. Sementaro tu, io manyerahkan kambingnya untuk dimanfaatkan oleh pamilik ladang sampai tanaman tu tumbuh balik.
-
 ## 21:79
 
 Lalu, Kami mambagih pamahaman kapado Sulaiman (tentang kaputusan nang lebih tepat). [^491]  Kapado masing-masing (Daud dan Sulaiman) Kami bagihkan hikmah dan ilmu. Kami manundukkan gunung-gunung dan burung-burung untuk batasbih basamo Daud. Kamilah nang malakukannyo.
-
-[^491]: Menurut riwayat Ibnu Abbas, ado sakawanan kambing nang marusak tanaman pado waktu malam. Pamilik tanaman mangadukan hal ko kapado Nabi Daud a.s. Io mamutuskan bahwa kambing-kambing tu harus diserahkan kapada pamilik tanaman sabagai ganti tanaman nang rusak. Tapi Nabi Sulaiman a.s. mamutuskan agar kambing-kambing tu diserahkan sementaro kapado pamilik tanaman untuk diambil manfaatnya. Pamilik kambing diharuskan mangganti tanaman tu dengan tanaman nang baru. Apabilo tanaman nang baru lah dapat diambil hasilnyo, pamilik kambing tu boleh mangambil kambingnya balik. Putusan Nabi Sulaiman a.s. kolah nang lebih tepat.
 
 ## 21:80
 
@@ -11269,8 +10286,6 @@ Kami mamasukkan orang-orang tu ka dalam rahmat Kami. Sasungguhnyo orang-orang tu
 
 (Ingatlah pulak) Dzun Nun (Yunus) katiko io pegi dalam kaadoan marah, lalu io manyangko bahwa Kami idak bakal manyulitkannyo. Mako, io badoa dalam kagelapan nang balapis lapis, [^492]  “Idak ado Tuhan salain Engkau. Mahasuci Engkau. Sasungguhnyo aku tamasuk orang-orang aniayo.”
 
-[^492]: Maksudnya adolah kagelapan perut ikan, kagelapan laut nang dalam, dan kagelapan malam hari.
-
 ## 21:88
 
 Kami lalu mangabulkan (doa)-nyo dan Kami manyelamatkannyo dari kadukaan. Macam tulah Kami manyelamatkan orang-orang mukmin
@@ -11278,8 +10293,6 @@ Kami lalu mangabulkan (doa)-nyo dan Kami manyelamatkannyo dari kadukaan. Macam t
 ## 21:89
 
 (Ingatlah) Zakaria katiko io badoa kapado Tuhannyo, “Ya Tuhanku, janganlah Engkau biakkan aku hidup saorang diri (tanpo katurunan) sedang Engkau adolah sabaik baik waris. [^493]
-
-[^493]: Sakironya Allah Swt. idak mangabulkan doanyo, yakni mambagih katurunan, Nabi Zakaria a.s. bakal baserah diri kapado Allah Swt. kareno Allah Swt. adolah waris nang tabaik.
 
 ## 21:90
 
@@ -11308,8 +10321,6 @@ Mustahil bagi (penduduk) suatu negeri nanglah Kami binasokan bakal balik (ka dun
 ## 21:96
 
 Hinggo apobilo (tembok) Ya´juj dan Ma´juj dibuka, Orang-orang tu turun dengan cepat dari sagalo genah nang tinggi. [^494]
-
-[^494]: Yakni sampai hari Kiamat pun orang-orang tu mustahil balik ka dunio
 
 ## 21:97
 
@@ -11346,8 +10357,6 @@ Kejutan nang dahsyat (hari Kiamat) idak mambuat orang-orang tu sedih dan paro ma
 ## 21:105
 
 Sungguh, Kami lah manuliskannyo di dalam Zabur [^495]  sasudah (tatulis) di dalam Az-Zikr (Lauh Mahfuz), bahwasanyo bumi ko bakal diwarisi oleh hambo-hambo-Ku nang saleh.
-
-[^495]: Sabagian mufasir manyatokan bahwa Zabur adolah kitab nang diturunkan kapado Nabi Daud a.s., sedangkan Aż-Żikr adolah kitab Taurat. Manurut sabagian mufasir lain, Zabur adolah kitab-kitab nang diturunkan Allah Swt. kapada nabi-nabi satelah ditulis di Lauh Mahfuz.
 
 ## 21:106
 
@@ -11489,21 +10498,13 @@ Sasungguhnyo orang-orang nang kufur dan manghalangi (manusio) dari jalan Allah d
 
 (Orang-orang tu badatangan) supayo manyaksikan babagai manfaat untuk orangorang tu dan manyebut namo Allah pado hari-hari nang lah ditentukan [^496]  atas rezeki nang lah dibagihkan-Nyo kapado orangorang tu barupo binatang ternak. Makanlah sabagian darinyo dan (sabagian lagi) bagihlah makan orang-orang nang sengsaro lagi fakir
 
-[^496]: Hari rayo haji dan hari Tasyriq yaitu tanggal 10, 11, 12 dan 13 Zulhijah
-
 ## 22:29
 
 Kemudian, hendaklah orang-orang tu manghilangkan kotoran [^497]  nang ado pado badan orang-orang tu, manyempurnokan nazar-nazar orang-orang tu dan malakukan tawaf sakeliling Baitulatiq (Baitullah). [^498]
 
-[^497]: Nang dimaksud dengan “mangilangkan kotoran” di siko iolah mamotong rambut, mamotong kuku, dan sabagainyo.
-
-[^498]: Al-Bait al-‘Atīq’ adolah rumah tuo kareno marupokan rumah ibadah nang pertamo kali dibangun di muko bumi. ‘Al-‘Atīq’ bisa jugo bamakno nang dibebaskan dari ancaman paro pandurhako
-
 ## 22:30
 
 Macam tulah (patunjuk dan perentah Allah). Siapo nang mangagungkan apo nang tahormat di sisi Allah (hurumāt) [^499]  lebih baik baginyo di sisi Tuhannyo. Sagalo hewan ternak lah dihalalkan bagimu, kacuali nang diterangkan kapadomu (kaharomannyo). Mako jauhilah (panyembahan) berhaloberhalo nang najis tu dan jauhilah (pulak) perkatoan dusto.
-
-[^499]: Arti “nang tahormat (ḥurumāt)” pado ayat ko iolah bulan haram (Zulkaidah, Zulhijah, Muharam, Rajab), tanah haram dan maqam Ibrahim.
 
 ## 22:31
 
@@ -11513,15 +10514,9 @@ Macam tulah (patunjuk dan perentah Allah). Siapo nang mangagungkan apo nang taho
 
 Macam tulah (perentah Allah). Siapo nang mangagungkan syiar-syiar Allah [^500] sasungguhnyo hal tu tamasuk katakwaan hati.
 
-[^500]: Syiar Allah Swt. iolah sagalo amalan nang dikerjokan dalam rangka ibadah haji dan genah-genah mangerjokannyo
-
 ## 22:33
 
 Bagi kamu padonyo (hewan hadyu) [^501] ado baberapo manfaat, [^502]  sampe waktu nang ditentukan, kemudian genah panyembelihannyo barado di sekitar Baitul Atiq (tanah haram sagalonyo).
-
-[^501]: Imak surahal-Baqarah/2: 196.
-
-[^502]: Maksudnyo, binatang-binatang hadyu boleh kamu ambil manfaatnyo seperti dikendarai, diambik susunyo, dan sabagainyo, sampai hari nahar.
 
 ## 22:34
 
@@ -11534,8 +10529,6 @@ Bagi satiap umat lah Kami syariatkan panyembelihan (kurban) supayo orangorang tu
 ## 22:36
 
 Unto-unto tu Kami jadikan untukmu sabagai bagian dari syiar ugamo Allah. Bagimu tadapat kabaikan padonyo. Mako, sebutlah namo Allah (katiko kamu bakal manyembelihnyo, sedang unta itu,) dalam kaadoan badiri [^503]  (dan kaki-kaki lah taikat). Lalu, apobilo lah rebah (mati), makanlah sabagiannyo dan bagihlah makan orang nang maraso cukup dengan apo nang ado padonyo (idak maminta-minta) dan orang nang maminta-minta. Macam tulah Kami lah manundukkannyo (unto-unto) itu, supayo kamu basyukur
-
-[^503]: Lazimnya, unto disembelih dalam posisi badiri.
 
 ## 22:37
 
@@ -11600,8 +10593,6 @@ Adopun orang-orang nang bausaho manentang ayat-ayat Kami dengan maksud malemahka
 ## 22:52
 
 Kami idak mangutus saorang rasul dan idak (pulo) saorang nabi sabelum kamu (Nabi Muhammad), kacuali apobilo io mampunyoi suatu kainginan, [^504]  setan pun mamasukkan (godaan-godaan) ka dalam kainginannyo tu. Lalu, Allah manghapus apo nang dimasukkan setan tu, kemudian Allah mamantapkan ayatayat-Nyo (dalam hati orang-orang baiman). Allah Maha Mangetaui lagi Mahabijaksano.
-
-[^504]: Sabagian mufasir mangartikan ‘tamannā’ dengan ‘mambaco’ dan ‘umniyyatihi’ dengan ‘bacoannya.’ Yaitu apobilo Nabi saw. mambaco suatu ayat nang isinyo mamberikan peringatan kapado orang-orang kafir, orang-orang tu segero mangikuti bacoan Nabi saw. dengan tambahan kato-kato nang mambenarkan kayakinan orang-orang tu.
 
 ## 22:53
 
@@ -11731,8 +10722,6 @@ orang-orang nang manjago kahormatannyo
 
 Kacuali tahadap bini-bini orang-orang tu atau hambo sahayo nang orang-orang tu punyoi. [^505] Sasungguhyo orang-orang tu idak tacela (kareno manggaulinyo).
 
-[^505]: Hambo sahayo (budak-budak) nang didapat dalam paperangan dengan orang kafir, kenyok budak nang didapat di luar paperangan ugamo, nang sekarang sudah idak ado lagi.
-
 ## 23:7
 
 Mako, siapo nang mancari (palampiasan syahwat) salain tu, orang-orang tu nang malampaui batas.
@@ -11857,8 +10846,6 @@ Jauh, jauh sekali apo nang diancamkan kapadomu tu (dari kabenaran).
 
 Io (kahidupan tu) idak lain hanyolah kahidupan kito di dunio ko. (Di sanolah) kito mati, hidup, [^506]  dan idak bakal dibangkitkan (lagi).
 
-[^506]: Sabagian manusio mati, dan sabagian lagi dilahirkan
-
 ## 23:38
 
 Dio (Hud) idak lain hanyolah saorang lakilaki nang mangado-adokan kabohongan tahadap Allah dan kito idak bakal mampercayoinyo.”
@@ -11875,8 +10862,6 @@ Dio (Allah) bafirman, “Idak lamo lagi orangorang tu benar-benar bakal manyesal
 
 Lalu, orang-orang tu dimusnahkan oleh suaro nang manggelegar dengan sabenar-benarnyo dan Kami jadikan orang-orang tu (seperti) sampah nang dihanyutkan banjir. [^507] Mako, kabinasoanlah bagi kaum nang aniayo
 
-[^507]: Macam tu buruknyo akibat orang-orang tu, sampe orang-orang tu idak badayo sadikitpun, idak ubahnyo sabagai sampah nang dianyutkan banjir. Padohal orang-orang tu babadan besak dan kuat.
-
 ## 23:42
 
 Kemudian, Kami ciptokan sasudah orang-orang tu umat-umat nang lain.
@@ -11892,8 +10877,6 @@ Kemudian, Kami utus rasul-rasul Kami sacaro baturut-turut. Satiap kali saorang r
 ## 23:45
 
 Kemudian, Kami utus Musa dan saudaronyo, Harun, dengan mambawak tando-tando (kaagungan) Kami dan bukti nang nyato [^508]
-
-[^508]: Mukjizat Nabi Musa a.s. nang Sembilan macam.
 
 ## 23:46
 
@@ -12015,13 +10998,9 @@ Sasungguhnyo orang-orang nang idak baiman kapado akherat benar-benar lah manyimp
 
 Saandainyo Kami rahmati orang-orang tu dan Kami lenyapkan kamudaratan nang manimpo orang-orang tu, niscayo orang-orang tu [^509]  bakal terus taombang-ambing dalam kasesatannyo.
 
-[^509]: Bahayo kalaparan. Kaum musyrikin pernah mangalami kalaparan, kareno idak tibonya bahan makanan dari Yaman ke Mekkah, sedang Makkah dan sakitarnyo dalam keadaan paceklik, hinggo sangat malaratlah pado waktu tu.
-
 ## 23:76
 
 Sungguh, Kami benar-benar lah manimpokan siksoan kapado orangorang tu, [^510]  tapi orang-orang tu idak mau tunduk kapado Tuhan-nyo, dan (jugo) idak marendahkan diri.
-
-[^510]: Antaro lain kakalahan orang-orang tu pado Perang Badr, nang dalam paperangan tu orang-orang nang takemuko dari orang-orang tu banyak nang tabunuh atau ditawan, dan musim kering nang manimpo orang-orang tu, sehinggo orang-orang tu manderito kalaparan.
 
 ## 23:77
 
@@ -12050,8 +11029,6 @@ Orang-orang tu bakato: “Apokah apobilo kami lah mati serto manjadi tanah dan t
 ## 23:83
 
 Sungguh, nang demikian ko sudah dijanjikan kapado kami dan kapado nenek moyang kami dahulu. [^511]  Ko idak lain hanyolah dongeng orang-orang tadahulu!”
-
-[^511]: Diancam dengan hari kabangkitan.
 
 ## 23:84
 
@@ -12120,8 +11097,6 @@ dan aku balindung (pulak) kapado-Mu ya Tuhanku, dari kadatangan orang-orang tu k
 ## 23:100
 
 supayo aku dapat baamal saleh nang lah aku tinggalkan.” Sakali-kali idak! Sasungguhnyo tu adolah dalih nang diucapkan bae. Di hadapan orang-orang tu ado (alam) barzakh [^512]  sampe pado hari orang-orang tu dibangkitkan.
-
-[^512]: Barzakh yaitu tempat atau kaadoan orang sasudahh mati sampai dio dibangkitkan pado hari Kiamat
 
 ## 23:101
 
@@ -12223,8 +11198,6 @@ Orang-orang nang manuduh bininyo bazino, padohal orang-orang tu idak mampunyoi s
 
 (Sumpah) nang kalimo bahwa laknat Allah atasnyo jiko dio tamasuk orang-orang nang babohong. [^513]
 
-[^513]: Maksud ayat 6-7 iolah orang nang manuduh babuat zino dengan idak mangajukan empat orang saksi, haruslah basumpah, dengan namo Allah empat kali, bahwo dio adolah benar dalam tuduhannyo itu. Kemudian dio basumpah sakali lagi bahwo dio bakal keno laknat Allah jiko dio babohong. Masalah ko dalam fikih dikenal dengan Lian.
-
 ## 24:8
 
 Bini tu tahindar dari hukuman apobilo dio basumpah empat kali atas (namo) Allah bahwa dio (lakinyo) benar-benar tamasuk orang-orang nang babohong.
@@ -12240,8 +11213,6 @@ Sakironyo bukan kareno karunio Allah dan Rahmat-Nyo kapadomu dan (bukan kareno) 
 ## 24:11
 
 Sasungguhnyo orang-orang nang mambawak berito bohong tu adolah dari kelompok kamu (jugo). Janganlah kamu mangiro bahwa peristiwo tu buruk bagimu, Sabaliknyo tu baik bagimu. Satiap orang dari orang-orang tu bakal mandapat balasan dari doso nang diperbuatnyo. Adopun orang tu nang mangambik peran besak di antaro orang-orang tu, dio mandapat azab nang amat berat [^514]
-
-[^514]: Berito bohong ko mangenai bini Rasulullah saw. Aisyah r.a. ummul Mukminin, sasudah perang dengan Bani Musthaliq pado bulan Sya’ban 5 H. Paperangan tu diikuti oleh kaum munafik dan turut pulak ‘Aisyah r.a. dengan Nabi saw. Badasarkan undian nang diadokan di antaro bini-bini beliau. Dalam perjalanan balik dari paperangan, orang-orang tu barenti pado suatu genah, ‘Aisyah r.a. keluar dari sekedupnyo untuk suatu kaperluan, lalu balik, tibo-tibo io meraso kalungnyo ilang, lalu balik lagi mancarinyo. Sementaro tu, rombongan barangkat dengan manyangko bahwo ‘Aisyah r.a. masih di dalam sekedupnyo. Sasudah ‘Aisyah r.a. mangatui, sekedupnyo lah barangkat. Io duduk di genahnyo dan baharap sekedup tu bakal balik lagi manjemputnyo. Kebetulan lewat di genah tu, seorang sahabat Nabi, Shafwan bin Mu‘aththal. Dio nemui saorang lagi tiduk. Shafwan pun takejut, sarayo bakato : inna lilahi wa inna ilaihi rojiun, bini Rosul!.” ‘Aisyah tabangun. Lalu dipersilahkan oleh Shafwan mangendarai untonyo. Shafwan bajalan manuntun unto hinggo tibo di Madinah. Orang-orang nang maliat orang-orang tu mambicarokannyo manurut pandapat masingmasing. Mulai timbul desas-desus dan kaum munafik mambesak-besakannyo. Mako fitnah atas ‘Aisyah r.a. tu pun batambah luas, hinggo mambuat kaguncangan di kalangan kaum muslimin.
 
 ## 24:12
 
@@ -12291,8 +11262,6 @@ Janganlah orang-orang nang mampunyoi kalebihan dan kalapangan (rezeki) di antaro
 
 Sasungguhnyo orang-orang nang menuduh perempuan baik-baik, polos [^515]  dan baiman (dengan tuduhan bazino), orang-orang tu dilaknat di dunio dan di akherat, dan orang-orang tu bakal mandapat azab nang besak.
 
-[^515]: Nang dimaksud dengan perempuan-perempuan nang lengah iolah perempuan-perempuan nang idak pernah sakalipun taingat bakal perbuatan nang keji.
-
 ## 24:24
 
 Pado hari (katiko) lidah, tangan, dan kaki orang-orang tu manjadi saksi atas orangorang tu tahadap apo nang dahulu orangorang tu kerjokan.
@@ -12304,8 +11273,6 @@ Pado hari tu Allah manyempurnokan balasan nang Sabenarnyo bagi orang-orang tu, d
 ## 24:26
 
 Perempuan-perempuan nang keji untuk laki-laki nang keji, dan laki-laki nang keji untuk perempuan-perempuan nang keji (pulak), sedangkan perempuan-perempuan nang baik untuk laki-laki nang baik, dan laki-laki nang baik untuk perempuan-perempuan nang baik (pulak). Orang-orang (nang baik) tu bersih dari apo nang dituduhkan orang. Bagi orang-orang tu ampunan dan rezeki nang mulio. [^516]
-
-[^516]: Ayat ko manunjukkan kasucian ‘Aisyah r.a. dan Safwan dari sagalo tuduhan nang ditujukan kapado orang-orang tu. Rasulullah adolah orang nang paling baik. Mako, perempuan nang baik pulaklah nang manjadi bini beliau
 
 ## 24:27
 
@@ -12343,15 +11310,9 @@ Sungguh, Kami benar-benar lah manurunkan kapado kamu ayat-ayat nang mambagih pan
 
 Allah (Pambagih) cahayo (kapado) langit dan bumi. Perumpamoan cahayo-Nyo seperti sabuah lubang (pado dinding) nang idak tembus [^517]  nang di dalamnyo ado pelito besak. Pelito tu di dalam tabung kaco (dan) tabung kaco tu bagaikan bintang (nang bakilauan seperti) mutiaro nang dinyalokan dengan minyak dari batang kayu nang diberkahi, (Yaitu) batang kayu zaitun nang tumbuh idak di timur dan idak pulo di barat, [^518]  nang minyaknyo (sajo) hampirhampir manerangi walaupun idak disentuh api. Cahayo di atas cahayo (balapis-lapis). Allah mambagih patunjuk manuju cahayoNyo kepada orang nang Dio kendaki. Allah mambuat perumpamoan-perumpamoan bagi manusio. Allah Maha Mangetaui sagalo sesuatu.
 
-[^517]: “Lubang nang idak tembus”, (misykat), iolah suatu lubang di dinding rumah nang idak tembus sampai ke sabelahnyo, biasonyo digunokan untuk tempat lampu, atau barang-barang lain.
-
-[^518]: Batang kayu zaitun tu tumbuh di puncak bukit, io mandapat sinar matohari baik pado waktu matohari terbit maupun katiko bakal tabenam, sahinggo batang kayunyo subur dan buahnyo menghasilkan minyak nang baik.
-
 ## 24:36
 
 (Cahayo tu ado) di rumah-rumah nang Allah lah perentahkan untuk dimuliokan dan disebut di dalamnyo namo-Nyo. Di dalamnyo sanantiaso batasbih [^519]  kapado-Nyo pado waktu pagi dan petang.
-
-[^519]: Nang batasbih iolah orang nang disebut pado ayat 37
 
 ## 24:37
 
@@ -12364,8 +11325,6 @@ Orang-orang nang idak dilalaikan oleh perniagoan dan jual beli dari mangingat Al
 ## 24:39
 
 Orang-orang nang kufur, amal perbuatan orang-orang tu seperti bayang-bayang di tanah nang datar, orang-orang nang dahago, manyangkonyo aek, hinggo apobilo io mandatanginyo, io idak manjumpoi apo pun. (Sabaliknyo) io mandapat (katetapan) Allah (baginyo) di sano, lalu Dio mambagihkan kapadonyo peritungan (amal-amal) dengan sempurno. Allah amat cepat peritunganNyo. [^520]
-
-[^520]: Orang-orang kafir, kareno amal-amal orang-orang tu idak didasarkan atas iman, idaklah mandapat balasan dari Allah di akherat walaupun di dunio orang-orang tu mangiro bakal mandapat balasan atas amalnya.
 
 ## 24:40
 
@@ -12415,8 +11374,6 @@ Apokah (sikap orang-orang tu nang demikian kareno) dalam hati orang-orang tu ado
 
 Sasungguhnyo nang marupokan kato-kato orang mukmin, apobilo orang-orang tu diajak kapado Allah dan Rasul-Nyo agar io mamutuskan (perkaro) di antaro orangorang tu, [^521]   hanyolah, “Kami manganing dan kami taat.” Orang-orang tulah nang bauntung.
 
-[^521]: Di antaro sasamo kaum Muslimin dan antaro Muslimin dengan nang bukan Muslimin.
-
 ## 24:52
 
 Siapo nang taat kapado Allah dan RasulNyo serto takut kapado Allah dan batakwa kapado-Nyo, orang-orang tulah nang mandapat kamenangan.
@@ -12445,19 +11402,13 @@ Janganlah kamu manyangko bahwa orangorang nang kafir tu dapat malemahkan Allah d
 
 Oi orang-orang nang baiman, hendaklah hambo sahayo (laki-laki dan perempuan) nang kamu miliki, dan orang-orang nang belum balig (dewaso) di antaro kamu maminta izin kapado kamu tigo kali, yaitu sabelum sembahyang Subuh, katiko kamu malepaskan pakaian (luar)-mu di tengah hari, dan satelah sembahyang Isya. (Tu adolah) tigo (waktu nang biasonyo) aurat (tabukak) bagi kamu. [^522] Idak ado doso bagimu dan idak (pulak) bagi orang-orang tu salain dari (tigo waktu) tu. (Orang-orang tu) sering kaluar masuk manemuimu. Sabagian kamu (memang sering kaluar masuk) atas sabagian nang lain. Demikianlah Allah manjelaskan ayatayat kapadomu. Allah Maha Mangetaui lagi Mahabijaksano.
 
-[^522]: Tigo macam waktu nang biasonyo pado waktu-waktu tu badan banyak tabuka. Sebab tu, Allah malarang hambo sahayo dan budak-budak kecik di bawah umur untuk masuk ka kamar tiduk orang dewaso tanpa izin
-
 ## 24:59
 
 Apobilo anak-anak di antaromu lah sampe umur dewaso, mako hendaklah orang-orang tu maminta izin, seperti halnyo orang-orang nang (lah dewaso) sabelum orang-orang tu (jugo) maminta izin. [^523] Macam tulah Allah manjelaskan ayat-ayat-Nyo kapado-mu. Allah Maha Mangetaui lagi Mahabijaksano.
 
-[^523]: Anak-anak dari orang merdeka nang bukan mahrom nang lah balig, haruslah maminta izin talebih dahulu jiko bakal masuk ka kamar tiduk orang tuo, seperti caro orang-orang nang disebut dalam ayat 27 dan 28 surah ko.
-
 ## 24:60
 
 Paro perempuan tuo nang lah barenti (dari haid dan mangandung) nang idak lagi bahasrat manikah, idak ado doso bagi orangorang tu mananggalkan pakaian (luar) [^524] dengan idak (bamaksud) manampakkan perhiasan. Tapi mameliharo kahormatan (tetap mamakai pakaian luar) lebih baik bagi orang-orang tu. Allah Maha Manganing lagi Maha Mangetaui.
-
-[^524]: Pakaian luar nang kalu dibuka idak manampakkan aurat.
 
 ## 24:61
 
@@ -12527,8 +11478,6 @@ Apobilo io (nerako) maliat orang-orang tu dari genah nang jauh, orang-orang tu m
 
 Apobilo orang-orang tu dilemparkan ka genah nang sempit di nerako dalam kaadoan dibelenggu, orang-orang tu di sano mamekik mangharapkan kabinasoan. [^525]
 
-[^525]: Orang-orang tu mangharapkan kabinasoan supayo talepas dari sikso nang sangat besak, yaitu sikso di nerako nang sangat panas dengan dibelenggu di genah nang sangat sempit pulak, samacam mano nang digambarkan tu.
-
 ## 25:14
 
 (Bakal dikatokan kapado orang-orang tu), “Janganlah kamu mangharapkan pado hari ko mangharapkan sikok kabinasoan bae, tapi harapkanlah kabinasoan nang banyak.”
@@ -12549,8 +11498,6 @@ Bagi orang-orang tu sagalo nang orang-orang tu kendaki ado di dalamnyo (surgo). 
 
 Orang-orang tu (nang disembah itu) manjawab, “Mahasuci Engkau, isaklah pantas bagi kami mangambik palindung salain Engkau, [^526] tapi Engkaulah mambagih orang-orang tu dan nenek moyangnyo kanikmatan hidup sahinggo orang-orang tu malupokan peringatan dan orang-orang tu kaum nang binaso.”
 
-[^526]: Satelah orang-orang tu dikumpulkan basamo-samo dengan apo nang orang-orang tu sembah, yaitu malaikat, “Uzair, Nabi Isa.as. dan berhalo-halo, dan satelah Allah mananyokan kapado nang disembah itu, apokah orang-orang tu nang manyesatkan orang-orang itu ataukah orang-orang tu nang sesat dewek. Mako nang disembah itu manjawab bahwo daklah pantas bagi orang-orang tu untuk manyembah salain Allah, apolagi manyuruh orang lain manyembah salain Allah.
-
 ## 25:19
 
 Sungguh, orang-orang tu (nang disembah tu) lah mangengkari apo nang kamu katokan. Mako, kamu idak bakal dapat manolak (sikso) dan idak dapat (pulak) manolong (dirimu). Siapo di antaro kamu nang babuat aniayo, niscayo Kami timpokan kapadonyo azab nang besak.
@@ -12567,13 +11514,9 @@ Orang-orang nang idak mangharapkan partemuan dengan Kami (di akherat) bakato, �
 
 (Ingatlah) hari (katiko) orang-orang tu mangimak paro malaikat. Pado hari tu idak ado kabar gembiro bagi paro pandoso dan orang-orang tu (paro malaikat) bakato, “Sungguh talarang bagi kamu (kabar gembiro) .” [^527]
 
-[^527]: Ko adolah suatu ungkapan nang biaso disebut orang Arab di waktu manemui musuh atau bencaono nang idak dapat dielakkan. Ungkapan ko baarti “Semoga Allah manjauhkan bahayo ko dari sayo.”
-
 ## 25:23
 
 Kami imakkan sagalo amal [^528] nang orang-orang tu kerjokan, lalu Kami jadikan amal tu (bagaikan) debu nang baterbangan.
-
-[^528]: Amal-amal baik nang orang-orang tu kerjokan di dunio idak dibalas oleh Allah kareno orang-orang tu idak baiman
 
 ## 25:24
 
@@ -12595,8 +11538,6 @@ Kerajoan nang hak pado hari tu adolah punyo Tuhan Nang Maha Pamurah. Tu adolah h
 
 Oh, celako aku! Sakironyo aku (dahulu) idak manjadikan si fulan [^529] sabagai kanti setio.
 
-[^529]: Nang dimaksud dengan si fulan, iolah setan atau orang nang lah manyesatkannyo di dunio.
-
 ## 25:29
 
 Sungguh, dio benar-benar lah manyesatkanku dari peringatan (Al-Qur’an) katiko lah datang kapadoku. Setan tu adolah (makhluk) nang idak mau manolong manusio.
@@ -12612,8 +11553,6 @@ Macam tulah, bagi satiap nabi, lah Kami adokan musuh dari paro pandoso. Cukuplah
 ## 25:32
 
 Orang-orang nang kafir bakato, “Mangapo Al-Qur’an tu idak diturunkan kapadonyo sakali bae?” Macam tulah [^530] supayo Kami perkuat hatimu (Nabi Muhammad) dengannyo dan Kami mambacokannyo sacaro tartil (taratur, palahan dan banar).
-
-[^530]: Maksudnyo, Al-Qur’an tu idak diturunkan sakaligus, tapi diturunkan sacaro baangsur-angsur supayo dengan caro nang macam tu hati Nabi Muhammad s.a.w manjadi kuat dan mantap.
 
 ## 25:33
 
@@ -12638,8 +11577,6 @@ Kemudian Kami bafirman (kapado kaduonyo), “Pegilah kamu baduo kapado kaum nang
 ## 25:38
 
 (Kami lah mambinasokan) kaum ‘Ad dan Samud, penduduk Rass [^531] dan banyak (lagi) generasi di antaro (kaum-kaum) tu.
-
-[^531]: Rass adolah telago nang sudah kering aeknyo. Kato tasebut kemudian dijadikan namo suatu kaum, yaitu kaum Rass. Orang-orang tu manyembah patung, lalu Allah mangutus Nabi Syuaib a.s. kapadonyo.
 
 ## 25:39
 
@@ -12673,8 +11610,6 @@ Apokah kamu idak mamperatikan (panciptoan) Tuhanmu? Bagaimano Dio mamanjangkan (
 
 Kemudian, Kami manariknyo (bayang-bayang tu) ka (arah nang) Kami (kendaki) sadikit demi sadikit. [^532]
 
-[^532]: Maksud kalimat ko adolah bayang-bayang tu Kami hapuskan dengan palahan-lahan sasuai dengan perjalanan matohari manuju genah tabenamnyo.
-
 ## 25:47
 
 Diolah nang manjadikan untukmu malam (sabagai) pakaian dan tidur untuk istirahat. Dio manjadikan siang untuk bangkit bausaho.
@@ -12707,8 +11642,6 @@ Diolah nang mambiakkan duo laut nang mangalir (badampingan); nang ko tawar lagi 
 
 Diolah (pulo) nang manciptokan manusio dari aek (mani). Lalu, Dio manjadikannyo (manusio tu mampunyoi) keturunan dan mushāharah (pasamendaan). [^533] Tuhanmu adolah Mahakuaso.
 
-[^533]: Mushaharah (pasamendaan) artinyo hubungan kakeluargoan nang timbul dan ikatan perkawinan, separti manantu, ipar, martuo dan sabagainyo.
-
 ## 25:55
 
 Orang-orang tu manyembah salain Allah apo nang idak mambagihkan manfaat dan idak (pulak) mambagih mudarat kapado orang-orang tu. Orang kafir adolah panolong (bagi setan untuk babuat durhako) tahadap Tuhannyo.
@@ -12728,8 +11661,6 @@ Batawakkallah kapado (Allah) nang Mahahidup (kekal) nang idak mati dan batasbihl
 ## 25:59
 
 (Allah) nang manciptokan langit dan bumi sarto apo nang ado di antaro kaduonyo dalam enam maso. Kemudian, Dio basamayam di atas ‘Arsy [^534] . (Diolah) nang Maha Pengasih. Tanyokanlah (wahai Nabi Muhammad) tentang Dio (Allah) kapado Nang Maha Mangetaui (Allah).
-
-[^534]: Basamayam di atas ‘Arsy iolah sikok sifat Allah nang wajib kito imani, sasuai dengan kabesaran Allah dan kasucian-Nyo.
 
 ## 25:60
 
@@ -12855,13 +11786,9 @@ Dio (Musa) bakato, “Ya Tuhanku, sasun-gguhnyo aku takut bahwa orang-orang tu b
 
 Dadoku   taraso   sempit   dan   lidahku   kelu.   Mako, utuslah Harun (basamoku). [^535]
 
-[^535]: Nabi Musa as mamohon agar Harun tu diangkat manjadi rasul untuk mambantunyo.1
-
 ## 26:14
 
 Aku badoso tahadap orang-orang tu. [^536] Mako, aku takut orang-orang tu bakal mambunuhku.”
-
-[^536]: Nabi Musa a.s. maraso badoso tahadap orang-orang Masir kareno pernah mambunuh salah saorang di antaro orang Mesir tu dengan sangajo sabelum manjadi Nabi.
 
 ## 26:15
 
@@ -12878,8 +11805,6 @@ Lepaskanlah Bani Israil (pegi) basamo kami (manuju Baitulmaqdis).”
 ## 26:18
 
 Dio (Fir’aun) bakato, “Bukankah kami lah mangasuhmu dalam lingkungan (keluargo) kami, waktu kamu masih budak kecik dan kamu tinggal basamo kami baberapo tahun dari umurmu. [^537]
-
-[^537]: Musa a.s. tinggal basamo Fir’aun kurang lebih 18 taun, sejak kecik.
 
 ## 26:19
 
@@ -12989,8 +11914,6 @@ Lalu, orang-orang tu malemparkan tali temali dan tongkat-tongkatnyo serayo bakat
 
 Kemudian,    Musa    manjatuhkan    tongkatnyo,    mako  tibo-tibo  ia  (tongkatnyo  nang  sudah  manjadi  ular)  manelan  sagalo  nang  orang-orang tu ado-adokan. [^538]
 
-[^538]: Tali temali dan tongkat-tongkat nang dilemparkan panyihir tu nang tabenam saolah-olah manjadi ular, sagalonyo ditelan oleh tongkat Musa as.
-
 ## 26:46
 
 Mako, tasungkurlah paro panyihir tu (dalam kaadoan) basujud.
@@ -13043,13 +11966,9 @@ Kami kaluarkan orang-orang tu (Fir’aun dan kaumnyo) dari (negeri orang-orang t
 
 harto kakayoan dan genah tinggal nang elok. [^539]
 
-[^539]: Kareno mangejar Nabi Musa as. dan Bani Israil, Fir’aun dan bala tentaronyo lah kaluar dari negeri orang-orang tu dengan maninggalkan karajoan, keagungan, kamewahan dan sabagainyo.
-
 ## 26:59
 
 Macam tulah, dan Kami wariskan sagalonyo kapado Bani Israil [^540] .
-
-[^540]: Satelah Fir’aun dan bala tentaronyo binaso, Nabi Musa as. dan Bani Israil balik ka Mesir untuk mangambik harto kekayoan dan tentaronyo. Orang-orang tu lalu malanjutkan perjalanan ka Baitulmaqdis.
 
 ## 26:60
 
@@ -13070,8 +11989,6 @@ Lalu, Kami wahyukan kapado Musa, “Pukullah lautan tu dengan tongkatmu.” Mako
 ## 26:64
 
 Di sanolah Kami dekatkan golongan nang lain. [^541]
-
-[^541]: Nang dimaksud dengan ‘golongan nang lain’ iolah Fir’aun dan bala tentaronyo. Maksud ayat ko iolah di bagian nang tabelah tu Allah mandekatkan antaro Fir’aun dan balatentaronyo dengan Nabi Musa as. dan Bani Israil.
 
 ## 26:65
 
@@ -13717,8 +12634,6 @@ Para panyair-panyair tu diikuti oleh orang-orang nang sesat.
 
 Idakkah kamu mangimak bahwasanyo orang-orang tu mangembaro di tiap- tiap lembah kapalsuan. [^542]
 
-[^542]: Maksud ayat ko adolah bahwa sabagian panyair tu suko bamain kato-kato, idak mampunyoi tujuan nang baik, dan idak mampunyo pandirian.
-
 ## 26:226
 
 Dan bahwasanyo orang-orang tu mangatokan apo nang orang-orang tu dewek idak mangerjokan(-nyo)?
@@ -13775,8 +12690,6 @@ Kacuali orang nang balaku aniayo nang kemudian mangganti kaburukan(-nyo) dengan 
 
 Masukkanlah tanganmu ka leher bajumu, [^543] ia bakal ka luar (dalam kaadoan basinar) putih bukan kareno cacat. (Kaduo mukjizat iko) tamasuk sambilan macam mukjizat (nang bakal ditunjukkan) kapado Fir’aun dan kaumnyo. Sasungguhnyo orang-orang tu adolah kaum nang fasik.”
 
-[^543]: Nang diaksud adolah maletakkan tangan ka dado malalui leher baju.
-
 ## 27:13
 
 Katiko mukjizat-mukjizat Kami nang jelas tu sampai kapado orang-orang tu, orang-orang tu bakato, “Ko adolah sihir nang nyato.”
@@ -13792,8 +12705,6 @@ Sungguh, Kami benar-benar lah mambagih ilmu kapado Daud dan Sulaiman. Kaduonyo b
 ## 27:16
 
 Sulaiman lah mawarisi Daud [^544] dan dio (Sulaiman) bakato, “Oi manusio, kami lah diajari (untuk mamahami) bahasa burung dan kami dianugerahi sagalo sasuatu. Sasungguhnyo (sagalo) ko benar-benar suatu karunio nang nyato.”
-
-[^544]: Maksudnyo Nabi Sulaiman manggantikan kenabian dan kerajoan Nabi Daud a.s. serto mawarisi ilmu pangetahuannyo dan kitab Zabur nang diturunkan kapadonyo.
 
 ## 27:17
 
@@ -13811,8 +12722,6 @@ Dio (Sulaiman) tasanyum serayo katawo kareno (manganing) pakatoan semut tu. Dio 
 
 Dio (Sulaiman) mamerikso (pasukan) burung-burung, lalu bakato, “Mangapo aku idak mangimak Hudhud? [^545]  Ataukah io tamasuk nang idak hadir?
 
-[^545]: Hudhud adolah sajenis burung pelatuk nang bamahkota (bajambul).
-
 ## 27:21
 
 Pasti bakal kuhukum dengan hukuman nang berat atau kusembelih io, kacuali kalu io benar-benar datang kapadoku dengan alasan nang terang.”
@@ -13821,13 +12730,9 @@ Pasti bakal kuhukum dengan hukuman nang berat atau kusembelih io, kacuali kalu i
 
 Mako idak lamo kemudian (datanglah Hudhud), lalu io bakato, “Aku lah mangetaui sasuatu nang kamu balum mangetauinyo. Aku datang kapadomu dari negeri Saba [^546]  mambawak    suatu    berito    penting    nang    mayakinkan (kabenarannyo).
 
-[^546]: Saba’ adolah namo kerajaan di zaman tadalu, ibu kotanyo Ma’rib nang letaknyo dekat kota San’a ibu kota Yaman sakarang.
-
 ## 27:23
 
 Sasungguhnyo aku manjumpai saorang perempuan [^547] nang mamerentah orang-orang tu (penduduk negeri Saba’). Dio dianugerahi sagalo sasuatu serto mampunyoi singgasano nang besak.
-
-[^547]: Nang dimaksud dengan perempuan dalam ayat ko adolah ratu Balqis nang mamerentah kerajoan Saba’ di zaman Nabi Sulaiman a.s.
 
 ## 27:24
 
@@ -13836,8 +12741,6 @@ Aku (burung Hudhud) mandapati dio dan kaumnyo manyembah matohari, bukan Allah. S
 ## 27:25
 
 Orang-orang tu (jugo) idak manyembah Allah nang mangeluarkan apo nang tapendam di langit dan di bumi [^548] dan nang mangetaui apo nnag kamu singitkan dan apo nang kamu nyatokan.
-
-[^548]: Nang dimaksud dengan ‘mangeluarkan apo nang tapendam di langit dan di bumi adolah seperti manurunkan hujan dari langit, manumbuhkan tanam-tanaman, serto mangeluarkan logam dan barang tambang dari bumi.
 
 ## 27:26
 
@@ -13899,8 +12802,6 @@ Dio Sulaiman bakato, “Oi paro pambesak, siapokah di antaro kamu sakalian nang 
 
 Saorang nang mampunyai ilmu dari Kitab Suci [^549] bakato, “Aku bakal mandatangimu dengan mambawak (singgasano) tu sabelum matomu bakedip.” Katiko dio (Sulaiman) mangimak (singgasano) tu taletak di hadapannyo, iapun bakato, “Ko tamasuk karunio Tuhanku untuk mangujiku apokah aku basyukur atau mangengkari (nikmat-Nyo). Siapo bae nang basyukur, mako sasungguhnyo dio basyukur untuk (kabaikan) dirinyo dewek. Siapo bae nang kufur, mako sasungguhnyo Tuhanku Mahakaya lagi Mahamulia.”
 
-[^549]: Alkitab di siko maksudnyo iolah kitab nang diturunkan sabelum Nabi Sulaiman, yaitu Taurat dan Zabur.
-
 ## 27:41
 
 Dio (Sulaiman) bakato, “Robahlah baginyo singgasanonyo, kito bakal mangimak apokah dio (Balqis) mangenali(-nyo) atau idak mangenal(nyo).”
@@ -13908,8 +12809,6 @@ Dio (Sulaiman) bakato, “Robahlah baginyo singgasanonyo, kito bakal mangimak ap
 ## 27:42
 
 Katiko dio (Balqis) datang, ditanyokanlah (kapadonyo), “Sarupo kokah singgasanomu?” Dio (Balqis) manjawab, “Sapertinyo yo. Kami lah dibagih pangetahuan sabelumnyo [^550] dan kami adolah orang-orang nang baserah diri (kapado Allah).”
-
-[^550]: Balqis  lah  mangetaui  kenabian  Sulaiman  tu,  sabelum  dipindahkan  singgasanonyo  dari  negeri  Saba’  ke  Palestina  dalam sakejap mato.
 
 ## 27:43
 
@@ -13935,8 +12834,6 @@ Orang-orang tu manjawab, “Kami mandapat nasib nang malang, disebabkan kamu dan
 
 Di kota tu [^551] ado sambilan orang laki-laki nang mambuat karusakan di muko bumi. Orang-orang tu idak malakukan perbaikan.
 
-[^551]: Nang dimaksud dengan “kota” dalam ayat ko iolah kota kaum Samud, yaitu kota Al-Hijr.
-
 ## 27:49
 
 Orang-orang tu bakato, “Basumpahlah kamu masing-masing dengan (namo) Allah bahwa kito pasti bakal manyerangnyo (Saleh) baserto keluargonyo di malam hari. Kemudian, kito bakal mangatokan kapado ahli warisnyo (bahwa) kito idak manyaksikan kematian keluargonyo tu. Sasungguhnyo kito adolah orang-orang nang banar.”
@@ -13957,13 +12854,9 @@ Tulah rumah-rumah orang-orang tu nang kosong (sabagi bukti bahwa orang-orang tu 
 
 Kami manyelamatkan orang-orang nang baiman [^552] dan salalu batakwa.
 
-[^552]: Orang-orang tu adolah Nabi Shaleh a.s. dan pangikut-pangikutnyo.
-
 ## 27:54
 
 (Ingatlah kisah) Lut, katiko dio bakato kapado kaumnyo, “Mangapo kamu mangerjokan pabuatan keji [^553] padohal kamu mangetaui (kakejiannyo)?
-
-[^553]: Nang dimaksud dengan “pabuatan keji” pado ayat ko adolah panyimpangan seks, tamasuk hubungan sajenis.
 
 ## 27:55
 
@@ -13992,8 +12885,6 @@ Apokah (nang kamu sekutukan tu lebih baik ataukah) Zat nang lah manciptokan lang
 ## 27:61
 
 Apokah (nang kamu sekutukan tu lebih baik ataukah) Zat nang lah manjadikan bumi sabagai tempat badiam, manjadikan sungei-sungei di celah-celahnyo, manjadikan gunung-gunung untuk (mangukuhkan)-nyo, dan manjadikan suatu pemisah antaro duo laut? [^554] Apokah ado tuhan (lain) basamo Allah? Sabenarnyo kabanyakan orang-orang tu idak mangetaui.
-
-[^554]: Ungkapan ‘duo laut’ pado ayat ko marujuk pado laut nang asin dan sungei besak nang bamuaro di laut. Sungei nang tawar tu satelah tibo di muaro idak langsung menjadi asin.
 
 ## 27:62
 
@@ -14087,8 +12978,6 @@ Apobilo perkatoan (katentuan maso kahancuran alam) lah balaku atas orang-orang t
 
 Sahinggo, apobilo orang-orang tu tibo, Dia (Allah) bafirman, “Ngapo kamu mandustokan ayat-ayat-Ku, padohal kamu idak punyo pangetauan nang cukup tentang tu [^555] atau (jiko idak mandustokannyo), apo nang selalu kamu lakukan?”
 
-[^555]: Orang-orang musyrik Arab mandustokan ayat-ayat Allah Swt. tanpa mikirkannyo lebih dulu
-
 ## 27:85
 
 Balakulah perkatoan (kaputusan azab) atas orang-orang tu kareno kazalimannyo sahinggo orang-orang tu idak dapat bakato (untuk membela diri).
@@ -14149,8 +13038,6 @@ Kami bakendak untuk mambagih karunio kapado orang-orang nang tatindas di bumi (M
 
 Kami pun (bakendak untuk) maneguhkan kadudukan orang-orang tu (Bani Israil) di bumi dan mamperlihatkan kapado Firʻaun, Haman, dan bala tentaronyo apo nang selalu orang-orang tu takutkan dari Bani Israil. [^556]
 
-[^556]: Fir‘aun selalu takut bahwa karajaannyo bakal dihancurkan oleh Bani Israil. Oleh kareno tu, dio mambunuh anak laki-laki nang lahir di kalangan Bani Israil. Ayat ni manyatokan bahwa bakal tajadi apo nang ditakutkannyo tu.
-
 ## 28:7
 
 Kami mangilhamkan kapado emak Musa, “Susuilah dio (Musa). Jiko kamu khawatir atas (kaselamatan)-nyo, hanyutkanlah dio ka sungei (Nil dalam sabuah peti nang mangapung). Janganlah kamu takut dan janganlah (pulak) basedih. Sasungguhnyo Kami pasti mangembalikannyo kapadomu dan jadikannyo sabagai salah saorang rasul.”
@@ -14166,8 +13053,6 @@ Istri Firʻaun bakato (kapadonyo), “(Anak ko) adolah panyejuk hati bagiku dan 
 ## 28:10
 
 Hati emak Musa manjadi hampo. [^557] Sungguh, hampir bae dio mangungkapkan (bahwa bayi tu adolah anaknyo), saandainyo Kami idak maneguhkan hatinyo supayo dio tamasuk orang-orang nang baiman (kapado janji Allah).
-
-[^557]: Sasudah ibunda Nabi Musa a.s. manganyutkan Musa a.s. kecik di sungei Nil, dio manyesal dan sangsi kareno khawatir anaknyo  idak  bakal  selamat,  bahkan  hampir-hampir  bateriak  minta  tolong  kapado  orang  lain  untuk  mangambik  anaknyo tu balik. Hal tasebut dapat mangakibatkan tabukaknyo rahasio bahwa Musa a.s. adolah anaknyo dewek.
 
 ## 28:11
 
@@ -14188,8 +13073,6 @@ Sasudah dio (Musa) dewaso dan sempurno akalnyo, Kami manganugerahkan kapadonyo h
 ## 28:15
 
 Dio (Musa) masuk ke kota [^558] katiko penduduknyo sedang lengah. Dio mandapati di dalam kota tu duo orang laki-laki nang sedang bakelahi, saorang dari golongannyo (Bani Israil) dan saorang (lagi) dari golongan musuhnyo (kaum Firʻaun). Orang nang dari golongannyo maminta pertolongan kapadonyo untuk (mangalahkan) orang nang dari golongan musuhnyo. Musa lalu mamukulnyo dan (tanpo sengajo) mambunuhnyo. Dio bakato, “Ko tamasuk perbuatan setan. Sasungguhnyo dio adolah musuh nang jelas-jelas manyesatkan.”
-
-[^558]: Menurut sabagian mufasir, kota nang dimaksud pado ayat ni adolah Memphis, sebuah kota di Mesir bagian utaro.
 
 ## 28:16
 
@@ -14219,8 +13102,6 @@ Mako, kaluarlah dio (Musa) dari kota tu dengan raso takut dan waspada. Dio badoa
 
 Katiko manuju ka arah negeri Madyan, [^559] dio (Musa) badoa, “Semoga Tuhanku mambimbingku ka jalan nang benar.”
 
-[^559]: “Madyan” pado mulonyo adolah namo putra Nabi Ibrahim a.s. dari istri beliau nang katigo nang banamo Qatura. Dio nikah dengan Nabi Lut a.s. Lalu, kato “Madyan” dipakai untuk namo sikok suku nang barasal dari katurunan Madyan. Lokasinyo di pantai Laut Merah sabelah tenggara Gurun Sinai, yaitu antaro Hijaz, tepatnyo Tabuk Saudi Arabia dan Teluk Aqabah.
-
 ## 28:23
 
 Katiko tibo di sumber aek negeri Madyan, dio batemu di sano sakumpulan orang nang sedang mambagih minum (ternaknyo) dan dio batemu di belakang orang-orang tu ado duo orang perempuan sedang mangalau (ternaknyo dari sumber aek). Dio (Musa) bakato, “Apo maksudmu (babuat macam tu)?” Kaduo (perempuan) tu manjawab, “Kami idak dapat mambagih minum (ternak kami) sabelum panggembala-panggembala tu bawak balik (ternaknyo), sedangkan ayah kami adolah orang tua nang lah lanjut usio.”
@@ -14249,19 +13130,13 @@ Dio (Musa) bakato, “Tu (perjanjian) antaro aku dan kamu. Nang mano bae dari ka
 
 Mako, katiko Musa lah manyelesaikan waktu nang ditentukan tu dan barangkat dengan istrinyo, [^560] dio mangimak api di lereng gunung. Dio bakato kapado keluargonyo, “Tunggulah (di siko). Sasungguhnyo aku mangimak api. Mudah-mudahan aku dapat mambawak suatu berito kapadomu dari (tempat) api tu atau (mambawak) sapercik api supayo kamu dapat mangangatkan badan (dekat api).”
 
-[^560]: Sasudah Nabi Musa a.s. manyelesaikan hal nang dijanjikan kapado mertuonyo, Syekh Madyan, dio berangkat basamo istrinyo ka Mesir untuk manjumpai ibunyo.
-
 ## 28:30
 
 Mako, katiko dio (Musa) mandatangi (api) tu, dio dipanggil dari pinggir lembah di sabelah kanan (Musa) dari (arah) pohon di sabidang tanah nang diberkahi. “Oi Musa, sasungguhnyo Aku adolah Allah, Tuhan semesta alam. [^561]
 
-[^561]: Di tempat dan katiko tulah Nabi Musa a.s. diangkat sebagai rasul.
-
 ## 28:31
 
 Lemparkanlah tongkatmu!” Mako, katiko dio (Musa) mangimaknyo bagerak-gerak macam saekor ular kecik nang gesit, dio lari babalik ka belakang idak manoleh. (Allah bafirman), “Oi Musa, kemarilah dan jangan takut! Sasungguhnyo kamu tamasuk orang-orang nang aman. [^562]
-
-[^562]: Kisah sarupo ado dalam surah Ṭāhā/20 ayat 20.
 
 ## 28:32
 
@@ -14274,8 +13149,6 @@ Masukkan tanganmu ka leher bajumu, io bakal kaluar (dalam kaadoan bacahayo) puti
 ## 28:34
 
 Adopun saudaroku Harun, dio lebih fasih lidahnyo daripadoku. [^563] Mako, utuslah dio basamoku sabagai pambantuku untuk mambenarkan (perkatoan)-ku. Sasungguhnyo aku takut orang-orang tu bakal mandustokanku.”
-
-[^563]: Nabi Musa a.s. selain maraso takut kapado Fir‘aun jugo maraso kurang lancar bacakap. Mako, dio mamohon kapado Allah Swt. supayo mangutus Harun a.s. nang lebih lancar cakapnyo untuk menjadi nabi basamonyo.
 
 ## 28:35
 
@@ -14373,8 +13246,6 @@ Orang-orang tu bakato, “Jiko mangikut patunjuk basamo engkau, niscayo kami bak
 
 Batapo banyak (penduduk) negeri nang lah Kami binasokan kareno kasenangan idup mambuatnyo lalai. Mako, tulah tempat tinggal orang-orang tu nang idak didiami (lagi) satelah orang-orang tu, kacuali sabagian kecik. Kamilah nang mawarisinyo. [^564]
 
-[^564]: Satelah panduduknyo hancur, tempat tu manjadi kosong dan idak dimakmurkan lagi, sahinggo akhirnyo balik kapado pamiliknyo nang hakiki yaitu Allah Swt.
-
 ## 28:59
 
 Tuhanmu idak bakal mambinasokan negeri-negeri, sabelum Dio mangutus saorang rasul di ibukotanyo nang mambacokan ayat-ayat Kami kapado orang-orang tu. Idak pernah (pulak) Kami mambinasokan (panduduk) negeri-negeri, kacuali panduduknyo dalam keadaan aniayo.
@@ -14386,8 +13257,6 @@ Apo pun nang dianugerahkan (Allah) kapadomu, tu adolah kasenangan idup duniawi d
 ## 28:61
 
 Mako, apokah orang nang Kami janjikan kapadonyo janji nang baik (surgo) lalu dio mamperolehnyo samo dengan orang nang Kami bagihkan kapadonyo kasenangan idup duniawi [^565] kemudian pado hari Kiamat dio tamasuk orang-orang nang diseret (ka dalam nerako)?
-
-[^565]: Orang-orang tu adolah orang nang dibagih kanikmatan duniawi, tapi idak manggunokannyo untuk mancari kabahagiaan akherat. Di akherat kagi dio bakal diseret ka dalam nerako.
 
 ## 28:62
 
@@ -14445,13 +13314,9 @@ Berkat rahmat-Nyo, Dio jadikan untukmu malam dan siang supayo kamu baistirahat p
 
 Kami datangkan dari satiap umat saorang saksi, [^566] lalu Kami katokan, “Kamukokanlah bukti kabenaranmu!” Mako, taulah orang-orang tu bahwa nang hak tu milik Allah dan lenyaplah dari orang-orang tu apo nang dulu orang-orang tu ado-adokan.
 
-[^566]: “Saksi” di sini adolah rasul nang lah diutus kapado orang-orang tu katiko di dunio.
-
 ## 28:76
 
 Sasungguhnyo Qarun tamasuk kaum Musa, [^567] tapi dio balaku aniayo tahadap orang-orang tu. Kami lah manganugerahkan kapadonyo perbendaharoan harto nang kunci-kuncinyo sungguh berat dipikul oleh sajumlah orang nang kuat-kuat. (Ingatlah) katiko kaumnyo bakato kapadonyo, “Janganlah kamu bangga balebihan. Sasungguhnyo Allah idak manyukoi orang-orang nang balebihan mambanggakan diri.
-
-[^567]: Qarun adolah saudaro sepupu Nabi Musa a.s.
 
 ## 28:77
 
@@ -14488,8 +13353,6 @@ Siapo nang tibo dengan (mambawak) kabaikan, baginyo (pahalo) nang lebih baik dar
 ## 28:85
 
 Sasungguhnyo (Allah) nang mawajibkan kamu (Nabi Muhammad) untuk manyampaikan dan bapegang teguh pado) Al-Qur’an benar-benar bakal mangembalikanmu ka tempat balik. [^568]  Katokanlah (Nabi Muhammad), “Tuhanku paling mangetaui siapo nang mambawak patunjuk dan siapo nang barado dalam kasesatan nang nyato.”
-
-[^568]: Nang dimaksud dengan ‘tempat balik’ adolah kota Makkah. Nilah janji dari Allah Swt. bahwa Nabi Muhammad saw. bakal balik ka Makkah sabagai orang nang menang. Peristiwa ni tajadi pado tahun kadelapan Hijriah, pado waktu Nabi saw. manaklukkan Makkah. Nilah sabuah mukjizat Nabi Muhammad saw.
 
 ## 28:86
 
@@ -14542,8 +13405,6 @@ Orang-orang nang baiman dan baamal saleh pasti bakal Kami masukkan orang-orang t
 ## 29:10
 
 Di antaro manusio ado nang bakato, “Kami baiman kapado Allah,” tapi apobilo dio disakiti kareno (dio baiman kapado) Allah, dio manganggap cobaan manusio tu macam siksoan Allah. [^569] Tapi, jiko datang pertolongan dari Tuhanmu, pasti orang-orang tu bakal bakato, “Sasungguhnyo kami basamo kamu.” Bukankah Allah paling mangetaui apo nang ado di dalam dado semuo manusio?
-
-[^569]: Maksudnyo adolah bahwa orang tu manganggap dahsyatnyo kazaliman manusio samo macam dahsyatnyo azab Allah Swt., sahinggo dio maninggalkan imannyo.
 
 ## 29:11
 
@@ -14613,8 +13474,6 @@ Mako, Lut mambenarkan (kanabian Ibrahim). Dio (Ibrahim) pun bakato, “Sasungguh
 
 Kami anugerahkan kapadonyo (Ibrahim) Ishaq dan Ya‘qub. Kami jadikan pado katurunannyo kanabian dan kitab serto Kami bagihkan kapadonyo balasan di dunio. [^570] Sasungguhnyo di akherat dio benar-benar tamasuk orang-orang saleh.
 
-[^570]: “Balasan” nang dimaksud pado ayat ko adolah mambagihkan anak cucu nang baik, kanabian kapado katurunannyo, dan pujian.
-
 ## 29:28
 
 (Ingatlah) katiko Lut bakato kapado kaumnyo, “Sasungguhnyo kamu benar-benar malakukan perbuatan nang keji nian (homoseksual) nang idak pernah dilakukan oleh saorang pun sabelum kamu di alam semesta.
@@ -14622,8 +13481,6 @@ Kami anugerahkan kapadonyo (Ibrahim) Ishaq dan Ya‘qub. Kami jadikan pado katur
 ## 29:29
 
 Pantaskah kamu mandatangi laki-laki (untuk malampiaskan syahwat), manyamun, [^571] dan mangerjokan kamungkaran di tempat-tempat pertemuanmu?” Mako, jawaban kaumnyo idak lain hanyolah mangatokan, “Datangkanlah kapado kami azab Allah jiko kamu tamasuk orang-orang benar!”
-
-[^571]: Sabagian mufasir mangartikan “taqṭa‘ūnas-sabīl” dengan “malakukan perbuatan keji tahadap orang-orang nang dalam perjalanan” kareno sabagian besak kaum Nabi Lut tu malakukan homoseks dengan tamu-tamu nang datang ka kampungnyo. Ado lagi nang mangartikan dengan ‘mamutus jalur katurunan’ kareno orang-orang tu babuat homoseks.
 
 ## 29:30
 
@@ -14633,8 +13490,6 @@ Dio (Lut) badoa, “Oi Tuhanku, tolonglah aku (dengan manimpokan azab) atas kaum
 
 Katiko utusan-utusan Kami (para malaikat) tibo kapado Ibrahim mambawak kabar gembiro, [^572] paro utusan (malaikat) tu bakato, “Sasungguhnyo kami bakal mambinasokan panduduk negeri ni. Sasungguhnyo panduduk negeri ko adolah orang-orang aniayo.”
 
-[^572]: “Kabar gembiro” nang dimaksud adolah bahwa Nabi Ibrahim a.s. bakal mandapat anak laki-laki.
-
 ## 29:32
 
 Dio (Ibrahim) bakato, “Sasungguhnyo di kota tu ado Lut.” paro utusan (malaikat) tu bakato, “Kami lebih tau siapo nang ado di kota tu. Kami pasti bakal manyelamatkan dio dan pangikut-pangikutnyo, kacuali istrinyo. Dio tamasuk (orang-orang kafir) nang tatinggal.”
@@ -14643,8 +13498,6 @@ Dio (Ibrahim) bakato, “Sasungguhnyo di kota tu ado Lut.” paro utusan (malaik
 
 Katiko paro utusan Kami tibo kapado Lut, dio sedih kareno (kadatangan) paro utusan tu [^573] dan maraso idak punyo kakuatan untuk malindunginyo. paro utusan tu pun bakato, “Janganlah takut dan jangan sedih. Sasungguhnyo kami bakal manyelamatkan kamu dan pangikut-pangikutmu, kacuali istrimu. Dio tamasuk (orang-orang kafir) nang tatinggal.”
 
-[^573]: Nabi Lut a.s. maraso basedih bakal kadatangan utusan-utusan Allah Swt. tu kareno utusan-utusan tu adolah pemudo nang rupawan, sedangkan kaum Lut amat manyukoi pemudo-pemudo nang rupawan untuk diajak malakukan homoseks. Dio maraso idak sanggup malindungi utusan-utusan tu jiko ado gangguan dari kaumnyo.
-
 ## 29:34
 
 Sasungguhnyo Kami bakal manurunkan suatu azab dari langit kapado penduduk negeri ko kareno orang-orang tu selalu babuat fasik.
@@ -14652,8 +13505,6 @@ Sasungguhnyo Kami bakal manurunkan suatu azab dari langit kapado penduduk negeri
 ## 29:35
 
 Sungguh, benar-benar lah Kami tinggalkan darinyo suatu tando nang nyato [^574] bagi kaum nang bapikir.
-
-[^574]: “Tando nang nyato” adolah bekas-bekas runtuhan kota Sodom, negeri kaum Lut a.s.
 
 ## 29:36
 
@@ -14679,8 +13530,6 @@ Masing-masing (dari orang-orang tu) Kami azab kareno dosonyo. Di antaro orang-or
 
 Perumpamoan orang-orang nang manjadikan salain Allah sabagai palindung [^575] adolah macam laba-laba batino nang mambuat rumah. Sasungguhnyo rumah nang paling lemah iolah rumah laba-laba. Jiko orang-orang tu tau, (niscayo idak bakal manyembahnyo).
 
-[^575]: Imak catatan kaki surah Āli ‘Imrān/3: 28.
-
 ## 29:42
 
 Sasungguhnyo Allah mangetaui apo bae nang orang-orang tu sembah salain Dio. Diolah Nang Mahaperkaso lagi Mahabijaksano.
@@ -14692,8 +13541,6 @@ Perumpamoan-perumpamoan tu Kami buat untuk manusio. Namun, idak ado nang mamaham
 ## 29:44
 
 Allah manciptokan langit dan bumi dengan hak. [^576]  Sasungguhnyo pado nang macam tu benar-benar tadapat tando (kaagungan Allah) bagi orang-orang mukmin.
-
-[^576]: Allah Swt. manciptokan sagalo nang disebutkan tu bukan dengan percumo, malainkan dengan penuh hikmah.
 
 ## 29:45
 
@@ -14791,8 +13638,6 @@ Idakkah orang-orang tu mangimak bahwa Kami lah manjadikan (negeri orang-orang tu
 
 Siapokah nang lebih aniayo daripado orang nang mangado-adokan kabohongan kapado Allah atau orang nang mandustokan kabenaran [^577] katiko (kabenaran) tu tibo kapadonya? Bukankah dalam (nerako) Jahanam ado genah bagi orang-orang kafir?
 
-[^577]: Nang dimaksud dengan ‘mandustokan kabenaran’ di siko adolah macam mandustokan kanabian Muhammad saw.
-
 ## 29:69
 
 Orang-orang nang bausaho dengan sungguh-sungguh untuk (mancari karidaan) Kami benar-benar bakal Kami tunjukkan kapado orang-orang tu jalan-jalan Kami. Sasungguhnyo Allah benar-benar basamo orang-orang nang babuat kabaikan.
@@ -14805,21 +13650,13 @@ Alif Lām Mīm.
 
 Bangso Romawi lah dikalahkan, [^578]
 
-[^578]: ‘Bangso nang dikalahkan’ pado ayat ko maksudnyo adolah Romawi Timur nang bapusat di Konstantinopel.
-
 ## 30:3
 
 Di negeri nang tadekat [^579] dan orang-orang tu sasudah kakalahannyo tu bakal menang [^580]
 
-[^579]: Kato ‘tadekat’ maksudnyo negeri nang dekat negeri Arab, yaitu Suriah dan Palestina.
-
-[^580]: Bangso Romawi (pado saat ayat ko diturunkan) adolah suatu bangso nang baugamo Nasrani nang punyo Kitab Suci, sedangkan bangso Persia nang baugamo Majusi, manyembah api dan berhalo (musyrik). Kaduo bangso tu baperang. Katiko tasiar berito kakalahan bangso Romawi oleh bangso Persia, kaum musyrik Makkah manyambutnyo dengan penuh gembiro kareno bapihak kapado kaum musyrik Persia. Sabaliknyo, kaum muslim baduko karenonya. Ayat ko dan ayat sasudahnyo lalu turun untuk manerangkan bahwa sasudah kalah, bangso Romawi bakal menang dalam maso baberapo taun bae. Tu benar-benar tajadi. Baberapo taun sasudah tu menanglah bangso Romawi dan kalahlah bangso Persia. Dengan kajadian tu nyatolah kabenaran Nabi Muhammad saw. sabagai nabi dan rasul serto kabenaran Al-Qur’an sabagai firman Allah Swt.
-
 ## 30:4
 
 Dalam baberapo tahun (lagi). [^581]  Milik Allahlah urusan sabelum dan sasudah (orang-orang tu menang). Pado hari (kamenangan bangso Romawi) tu bagembirolah orang-orang mukmin.
-
-[^581]: Kata biḍ‘ manunjukkan bilangan antaro tigo sampe sembilan. Waktu antaro kakalahan bangso Romawi (taun 614-615) dengan kamenangannyo (taun 622 M) adolah sekitar tujuh tahun.
 
 ## 30:5
 
@@ -14857,8 +13694,6 @@ Pado hari (katiko) tajadi kiamat, paro pandurhako tadiam baputus aso.
 
 Idak mungkin ado pambagih syafaat (pertolongan) bagi orang-orang tu dari berhalo-berhalo nang orang-orang tu anggap sekutu Allah, bahkan orang-orang tu mangengkari berhalo-berhalonyo tu. [^582]
 
-[^582]: Manurut sabagian mufasir, ayat ko diartikan, ‘bahkan orang-orang tu manjadi kafir disebabkan oleh berhalo-berhalo.’
-
 ## 30:14
 
 Pado hari (katiko) tajadi kiamat, pado hari tu, manusio tapecah-pecah (dalam kelompok).
@@ -14878,8 +13713,6 @@ Batasbihlah kapado Allah katiko kamu barado pado waktu senjo dan waktu pagi.
 ## 30:18
 
 Sagalo puji hanyo bagi-Nyo di langit dan di bumi, pado waktu petang dan pado saat kamu barado pado waktu siang. [^583]
-
-[^583]: Manurut sabagian mufasir, maksud ‘batasbih’ pado ayat 17 adolah manegakkan sembahyang sebab di dalam sembahyang tadapat bacoan tasbih. Ayat 17 dan 18 manerangkan waktu sembahyang nang limo.
 
 ## 30:19
 
@@ -14921,21 +13754,13 @@ Diolah nang mamulai panciptoan, lalu mangembalikannyo (manghidupkannyo) balik (s
 
 Dio mambuat perumpamoan bagimu dari dirimu dewek. Apokah (kamu rela jiko) ado di antaro hambo sahayo nang kamu punyo manjadi sekutu bagimu dalam (kapemilikan) rezeki nang lah Kami anugerahkan kapadomu, sahinggo kamu manjadi setaro dengan orang-orang tu dalam hal ko? [^584] Kamu takut kapado orang-orang tu samacam mano kamu takut kapado sasamomu. [^585] macam tulah Kami manjelaskan tando-tando tu bagi kaum nang mengerti.
 
-[^584]: Parumpamoan tasebut manggambarkan bahwa idak pantas ado persekutuan dari unsur-unsur nang idak setaro, misalnyo antaro hambo sahayo dan pamiliknyo, apolagi antaro makhluk dengan Allah Swt. Tu tentu lebih idak pantas lagi.
-
-[^585]: Kamu meraso takut kareno idak biso manggunokan apo nang kamu punyo tanpo saizin hambo-hambo sahayo tu.
-
 ## 30:29
 
 Tapi, orang-orang nang aniayo mangikuti hawa nafsunyo tanpa (badasarkan) ilmu. Mako, siapokah nang dapat mambagih patunjuk kapado orang nang lah disesatkan Allah? [^586] Idak ado saorang penolong pun bagi orang-orang tu.
 
-[^586]: Imak cacatan kaki surah al-Baqarah/2: 26.
-
 ## 30:30
 
 Mako, hadapkanlah wajahmu dengan lurus kapado ugamo (Islam sesuai) fitrah (dari) Allah nang lah manciptokan manusio menurut (fitrah) tu. [^587]  Idak ado perubahan pado ciptoan Allah (tu). Tulah ugamo nang lurus, tapi kabanyakan manusio idak mangetaui.
-
-[^587]: Maksud ‘fitrah Allah’ pado ayat ko adolah ciptoan Allah Swt. Manusio diciptokan Allah Swt. dengan naluri baugamo, yaitu ugamo tauhid. Kalu ado manusio nang idak baugamo tauhid, baarti io lah manyimpang dari fitrahnyo.
 
 ## 30:31
 
@@ -14945,13 +13770,9 @@ Mako, hadapkanlah wajahmu dengan lurus kapado ugamo (Islam sesuai) fitrah (dari)
 
 (Yaitu) orang-orang nang mamecah belah ugamo orang-orang tu [^588] sahinggo manjadi baberapo golongan. Satiap golongan maraso bangga dengan apo nang ado pado orang-orang tu.
 
-[^588]: Maksud ‘mamecah belah ugamo orang-orang tu’ adolah maninggalkan ugamo tauhid dan manganut babagai kapercayoan manurut kainginan orang-orang tu.
-
 ## 30:33
 
 Apobilo manusio ditimpo oleh suatu bahayo, orang-orang tu manyeru Tuhannyo dengan balik (batobat) kapado-Nyo. Lalu, apobilo Dio mambagihkan sedikit rahmat-Nyo [^589] kapado orang-orang tu, tibo-tibo sabagian orang-orang tu mampersekutukan Tuhannyo.
-
-[^589]: Nang dimaksud dengan ‘rahmat’ pado ayat ko adolah lepas dari bahayo.
 
 ## 30:34
 
@@ -14993,8 +13814,6 @@ Katokanlah (Nabi Muhammad), “Bapegianlah di bumi, lalu tengoklah macam mano ka
 
 Kareno itu, hadapkanlah wajahmu kapado ugamo nang lurus (Islam) sabelum datang dari Allah suatu hari (kiamat) nang idak dapat ditolak. Pado hari tu orang-orang tu tapisah-pisah. [^590]
 
-[^590]: Nang dimaksud dengan ungkapan ‘orang-orang tu tapisah-pisah’ adolah sabagian barado di surgo, sedangkan sabagian lagi barado di nerako.
-
 ## 30:44
 
 Siapo nang kufur, mako Dio deweklah nang mananggung (akibat) kakufurannyo. Siapo nang mangerjokan kabajikan, mako orang-orang tu manyiapkan untuk dirinyo dewek (genah nang manyenangkan)
@@ -15007,13 +13826,9 @@ supayo Allah manganugerahkan balasan (pahalo) dari karunio-Nyo kapado orang-oran
 
 Di antaro tando-tando (kaagungan)-Nyo adolah bahwa Dio mangirimkan angin sabagai pambawak berito gembiro [^591] supayo kamu marasokan sabagian dari rahmat-Nyo, supayo kapal dapat balayar dengan perintah-Nyo, supayo kamu dapat mancari sabagian dari karunio-Nyo, dan supayo kamu basyukur.
 
-[^591]: Maksud ‘pambawak berito gembiro’ adolah awan tebal nang ditiup angin lalu manurunkan ujan, sahinggo dapat dirasokan rahmat Allah Swt. dengan tumbuhnya biji-bijian nang lah disemaikan dan manghijaunyo tanaman-tanaman serto babuahnyo tumbuh-tumbuhan.
-
 ## 30:47
 
 Sungguh, Kami benar-benar lah mangutus sabelum kamu (Nabi Muhammad) baberapo orang rasul kapado kaumnyo. Paro rasul tu datang kapado kaumnyo dengan mambawak katerangan-katerangan (nang cukup), lalu Kami malakukan pambalasan tahadap orang-orang nang durhako. [^592]  Adolah tanggung jawab Kami manolong orang-orang mukmin.
-
-[^592]: Katiko rasul-rasul tibo mambawak katerangan kapado kaumnyo, sabagian orang-orang tu mampercayoinyo, sedangkan sabagian nang lain mandustokannyo, bahkan ado nang manyakitinyo. Mako, Allah Swt. Mambalasnyo dengan manurunkan azab kapado orang nang badoso macam tu.
 
 ## 30:48
 
@@ -15035,8 +13850,6 @@ Sungguh, jiko Kami mangirimkan angin, lalu orang-orang tu mangimak (tumbuh-tumbu
 
 Sasungguhnyo kamu (Nabi Muhammad) idak bakal sanggup manjadikan orang-orang nang mati dan orang-orang nang tuli dapat mandengar seruan apobilo orang-orang tu bapaling ka belakang. [^593]
 
-[^593]: orang kafir tu disamakon oleh Allah Swt. dengan orang mati nang idak mungkin lagi manganing seruan kabenaran. Samo jugo macam orang pekak nang idak biso mandengar panggilan samo sakali apobilo orang-orang tu mambelakangi orang nang mamanggilnyo.
-
 ## 30:53
 
 Kamu bukanlah pambagih patunjuk bagi orang-orang nang buto (mato hatinyo) dari kasesatannyo. Kamu idak dapat manjadikan (saorang pun) mandengar, kacuali orang nang baiman pado ayat-ayat Kami dan orang-orang tu baserah diri.
@@ -15045,13 +13858,9 @@ Kamu bukanlah pambagih patunjuk bagi orang-orang nang buto (mato hatinyo) dari k
 
 Allah adolah Zat nang manciptokanmu dari kaadoan lemah, kemudian Dio manjadikan(-mu) kuat sasudah kaadoan lemah. Lalu, Dio manjadikan(-mu) lemah (balik) sasudah  kaadoan  kuat  dan  bauban. [^594]  Dio  manciptokan  apo  nang  Dio  kendaki.  Dio  Maha Mangetaui lagi Mahakuaso.
 
-[^594]: Kato ‘lemah’ nang pertamo baarti ‘maso katiko masih barupo nutfah’. Kato ‘lemah’ nang kaduo baarti ‘maso kanak-kanak’. Adopun kato ‘kuat’ baarti ‘maso mudo’.
-
 ## 30:55
 
 Pado hari (katiko) tajadi kiamat, paro pendurhako (kafir) basumpah bahwa orang-orang tu badiam (dalam kubur) hanyo sasaat (bae). [^595] Macam tulah dulu orang-orang tu dipalingkan (dari kabenaran).
-
-[^595]: Macam mano orang-orang tu badusto dalam perkatoannyo ko, macam tu pulaklah orang-orang tu selalu badusto di dunio.
 
 ## 30:56
 
@@ -15101,8 +13910,6 @@ Di antaro manusio ado orang nang mambeli percakapan kosong untuk manyesatkan (ma
 
 Apobilo dibacokan kapadonyo [^596] ayat-ayat Kami, Dio bapaling dengan manyombongkan diri saolah-olah Dio idak mandengarnyo, saolah-olah ado sumbatan di kaduo telingonyo. Mako, bagihlah kabar gembiro kapadonyo dengan azab nang pedih.
 
-[^596]: Pesan dari ayat ko ditujukan kapado orang nang mampergunokan percakapan kosong (sagalo hal nang mamalingkan hati dari kataatan kapado Allah Swt.) untuk manyesatkan manusio.
-
 ## 31:8
 
 Sasungguhnyo orang-orang nang baiman dan mangerjokan kebajikan, baginyo surgo-surgo nang penuh kenikmatan.
@@ -15131,8 +13938,6 @@ Sungguh, Kami benar-benar lah mambagihkan hikmah kapado Luqman, yaitu, “Basyuk
 
 Kami mawasiatkan kapado manusio (supayo babuat baik) kapado kaduo orang tuonyo. Emaknyo lah mangandungnyo dalam kaadoan lemah nang batambah-tambah dan manyapihnyo dalam duo tahun. [^597] (Wasiat Kami,) “Basyukurlah kapado-Ku dan kapado kaduo orang tuomu.” Hanyo kapado-Ku (kamu) balik.
 
-[^597]: Selambat-lambat waktu manyapih iolah sampe anak baumur 2 tahun.
-
 ## 31:15
 
 Jiko kaduonyo mamaksomu untuk mampersekutukan-Ku dengan sasuatu nang kamu idak punyo ilmu tentang tu, janganlah patuhi kaduonyo, (tapi) pergaulilah kaduonyo di dunio dengan baik dan ikutilah jalan orang nang balik kapado-Ku. Kemudian, hanyo kapado-Ku kamu balik, lalu Aku bagihtaukan kapadomu apo nang biaso kamu kerjokan.
@@ -15140,8 +13945,6 @@ Jiko kaduonyo mamaksomu untuk mampersekutukan-Ku dengan sasuatu nang kamu idak p
 ## 31:16
 
 (Luqman bakato,) “Oi anakku, sasungguhnyo jiko ado (suatu perbuatan) saberat biji sawi dan barado dalam batu, di langit, atau di bumi, niscayo Allah bakal manghadirkannyo (untuk dibagih balasan). Sasungguhnyo Allah Mahalembut [^598] lagi Mahateliti.
-
-[^598]: ‘Allah Mahahalus’ artinyo iolah ilmu Allah tu maliputi sagalo sasuatu macam manopun keciknyo.
 
 ## 31:17
 
@@ -15154,8 +13957,6 @@ Janganlah mamalingkan wajahmu dari manusio (kareno sombong) dan janganlah bajala
 ## 31:19
 
 Balakulah wajar dalam bajalan [^599] dan lembutkanlah suaromu. Sasungguhnyo saburuk-buruk suaro iolah suaro keledai.”
-
-[^599]: Katiko bajalan, janganlah talampau cepat dan jangan pulak talalu lambat.
 
 ## 31:20
 
@@ -15189,8 +13990,6 @@ Milik Allahlah apo nang di langit dan di bumi. Sasungguhnyo Allahlah Nang Mahaka
 
 Saandainyo pohon-pohon di bumi manjadi pena dan lautan (manjadi tinta) ditambah tujuh lautan lagi sasudah (kering)-nyo, niscayo idak bakal pernah habis kalimatullah [^600] (ditulis dengannyo). Sasungguhnyo Allah Mahaperkaso lagi Mahabijaksano.
 
-[^600]: Nang dimaksud dengan ‘kalimatullah’ pado ayat ko adolah ilmu dan hikmah-Nyo.
-
 ## 31:28
 
 Manciptokan dan mambangkitkan kamu (bagi Allah) hanyolah macam (mudahnyo manciptokan dan mambangkitkan) sikok jiwo bae. Sasungguhnyo Allah Maha Mandengar lagi Maha Mangimak.
@@ -15211,8 +14010,6 @@ Idakkah kamu mangimak bahwa sasungguhnyo kapal tu balayar di laut berkat nikmat 
 
 Apobilo orang-orang tu digulung ombak besak macam awan tebal, orang-orang tu manyeru kapado Allah dengan mamurnikan kataatan hanyo bagi-Nyo. Lalu, katiko Allah manyelamatkan orang-orang tu sampai di daratan, sabagian kecik (bae) di antaro orang-orang tu nang tetap manempuh jalan nang lurus. [^601] Idak ado nang mangingkari ayat-ayat Kami salain pangkhianat nang idak baterimo kasih.
 
-[^601]: Nang dimaksud ‘jalan nang lurus’ adalah mangakui kaesaan Allah Swt.
-
 ## 31:33
 
 Oi manusio, batakwalah kapado Tuhanmu dan takutlah pado hari nang (katiko tu) seorang bapak idak dapat mambelo anaknyo dan seorang anak idak dapat (pulak) mambelo bapaknyo sedikit pun! Sasungguhnyo janji Allah adolah benar, mako janganlah sakali-kali kamu dipedayo oleh kahidupan dunio dan jangan sampai kareno (kabaikan-kabaikan) Allah kamu diperdayo oleh panipu.
@@ -15220,8 +14017,6 @@ Oi manusio, batakwalah kapado Tuhanmu dan takutlah pado hari nang (katiko tu) se
 ## 31:34
 
 Sasungguhnyo Allah mamiliki pangetauan tentang hari Kiamat, manurunkan hujan, dan mangetahui apo nang ado dalam rahim. Idak ado saorang pun nang dapat mangetaui (dengan pasti) apo nang bakal dio kerjokan besok. [^602]  (Macam tu pulak,) idak ado saorang pun nang dapat mangetahui di bumi mano dio bakal mati. Sasungguhnyo Allah Maha Mangetaui lagi Mahateliti.
-
-[^602]: Manusio idak dapat mangetaui dengan pasti apo nang bakal dikerjokannya besok atau nang bakal didapatnyo, namun orang-orang tu diwajibkan bausaho.
 
 ## 32:1
 
@@ -15239,13 +14034,9 @@ Tapi, mangapo orang-orang tu (orang kafir) mangatokan, “Dio (Nabi Muhammad) la
 
 Allah adolah Zat nang manciptokan langit dan bumi serto apo nang ado di antaro kaduonyo dalam enam maso, kemudian Dio basemayam di atas ‘Arasy. [^603] Bagimu idak ado seorang pun pelindung dan pemberi syafaat selain Dio. Mako, apokah kamu idak mamperatikan?
 
-[^603]: Imak catatan kaki surah al-A‘rāf/7: 54.
-
 ## 32:5
 
 Dio mangatur sagalo urusan dari langit ka bumi, kemudian (sagalo urusan) tu naik kapado-Nyo [^604] pado hari nang kadarnyo (lamanyo) adolah seribu tahun manurut peritunganmu.
-
-[^604]: Nang dimaksud ‘urusan tu naik kapado-Nyo’ adolah beritonyo dibawak oleh malaikat. Ayat ko marupokan tamsil bagi kaagungan Allah Swt.
 
 ## 32:6
 
@@ -15266,8 +14057,6 @@ Kemudian, Dio manyempurnokannyo dan meniupkan roh (ciptoan)-Nyo ka dalam (tubuh)
 ## 32:10
 
 Orang-orang tu bakato, “Apokah apobila kami lah lenyap (hancur) di dalam tanah, kami bakal (balik) dalam ciptoan nang baru?” [^605] Bahkan (bukan hanyo tu), orang-orang tu pun mangengkari pertemuan dengan Tuhannyo.
-
-[^605]: Orang-orang tu dihidupkan balik untuk manerimo balasan Allah Swt. pado hari Kiamat.
 
 ## 32:11
 
@@ -15369,8 +14158,6 @@ Allah idak manjadikan bagi sasaorang duo hati dalam rongganyo, Dio idak manjadik
 
 Panggillah orang-orang tu (anak angkat itu) dengan (mamakai) namo bapak orang-orang tu. Tulah nang adil di sisi Allah. Jiko kamu idak mangetaui bapak orang-orang tu, (panggillah orang-orang tu sabagai) saudaro-saudaromu saugamo dan maula-maulamu. [^606] Idak ado doso atasmu jiko kamu khilaf tentang tu, tapi (nang ado dosonyo) apo nang disengajo oleh hatimu. Allah Maha Pangampun lagi Maha Panyayang.
 
-[^606]: Nang dimaksud dengan ‘maula’ dalam ayat ko adolah kanti dekat.
-
 ## 33:6
 
 Nabi tu lebih utamo bagi orang-orang mukmin dibandingkan diri orang-orang tu dewek dan istri-istrinyo adolah ibu-ibu orang-orang tu. Orang-orang nang mampunyoi hubungan darah sikok samo lain lebih berhak (saling mawarisi) di dalam Kitab Allah daripado orang-orang mukmin dan orang-orang Muhajirin, kacuali kalau kamu nak babuat baik kapado saudaro-saudaromu (saugamo). Macam tu lah tatulis dalam Kitab (Allah).
@@ -15379,25 +14166,17 @@ Nabi tu lebih utamo bagi orang-orang mukmin dibandingkan diri orang-orang tu dew
 
 (Ingatlah) katiko Kami mangambik perjanjian dari paro nabi, darimu (Nabi Muhammad), dari Nuh, Ibrahim, Musa, dan Isa anak laki-laki Maryam. Kami lah mangambik dari orang-orang tu perjanjian nang teguh, [^607]
 
-[^607]: Nang dimaksud dengan ‘perjanjian teguh nang Diambik dari paro nabi’ adolah kasanggupan paro nabi tu untuk manyampaikan ugamo kapado umatnyo masing-masing.
-
 ## 33:8
 
 Supayo Dio mananyokan kapado orang-orang nang benar tentang kabenaran orang-orang tu. [^608] Dio manyediokan azab nang pedih bagi orang-orang kafir.
-
-[^608]: Pado hari Kiamat Allah Swt. bakal mananyokan kapado paro rasul sampai di mano usaho orang-orang tu manyampaikan ajaran Allah Swt. kapado umatnyo dan sampai di mano umatnyo malaksanokan ajaran Allah Swt. tu.
 
 ## 33:9
 
 Oi orang-orang nang baiman, ingatlah nikmat Allah (nang lah dikaruniokan) kapadomu katiko bala tentaro tibo kapadomu, lalu Kami kirimkan kapado orang-orang tu angin topan dan bala tentaro (malaikat) nang idak dapat taimak olehmu. [^609] Allah Maha Mangimak apo nang kamu kerjokan.
 
-[^609]: ko manerangkan kisah bala tentaro kafir nang dikalahkan dalam Perang Khandaq (Ahzab).
-
 ## 33:10
 
 Katiko orang-orang tu tibo kapadomu dari arah atas dan bawahmu, katiko pangliatan(-mu) tapana, hatimu manyesak sampai ka tenggorokan, [^610] dan kamu baprasangko nang bukan-bukan tahadap Allah,
-
-[^610]: Ayat ko manggambarkan luar biaso hebatnyo parasoan takut dan gentar kaum mukmin pado waktu tu.
 
 ## 33:11
 
@@ -15414,8 +14193,6 @@ Di situlah orang-orang mukmin diuji dan diguncangkan (hatinyo) dengan guncangan 
 ## 33:14
 
 Saandainyo (Yasrib) diserang dari sagalo panjuru, lalu orang-orang tu diminta untuk malakukan fitnah, [^611] niscayo orang-orang tu mangerjokannyo. Orang-orang tu idak manundo permintaan tu, kacuali hanyo sebentar.
-
-[^611]: ‘Fitnah’ nang dimaksud dalam ayat ko adolah malakukan kakacauan, macam murtad dan mambantu pasukan musuh dalam paperangan.
 
 ## 33:15
 
@@ -15449,13 +14226,9 @@ Sungguh, pado (diri) Rasulullah benar-benar ado suri teladan nang baik bagimu, (
 
 Katiko orang-orang mukmin mangimak golongan-golongan (nang basekutu) tu, orang-orang tu bakato, “Kolah nang dijanjikan Allah dan Rasul-Nyo [^612] kapado kito.” Benarlah Allah dan Rasul-Nyo. Tu justru makin manambah kaimanan dan kaislaman orang-orang tu.
 
-[^612]: Nang dijanjikan Allah Swt. dan Rasul tu adolah kamenangan sasudah mangalami kasukaran.
-
 ## 33:23
 
 Di antaro orang-orang mukmin tu ado orang-orang nang manepati apo nang lah orang-orang tu janjikan kapado Allah. Di antaro orang-orang tu ada nang gugur dan di antaro orang-orang tu ado (pulo) nang manunggu-nunggu. [^613] Orang-orang tu sedikit pun idak mangubah (janjinyo),
-
-[^613]: Nang dimaksud dengan ‘manunggu’ pado ayat ko adolah manunggu salah sikok di antaro duo kabaikan, yakni menang atau mati syahid.
 
 ## 33:24
 
@@ -15465,19 +14238,13 @@ Supayo Allah mambagihkan balasan kapado orang-orang nang benar tu kareno kabenar
 
 Allah mangalau orang-orang kafir tu dalam kaadoan hati orang-orang tu penuh kajengkelan. Orang-orang tu idak mamperoleh kauntungan apo pun. Cukuplah Allah (nang manghindarkan) orang-orang mukmin dari paperangan. [^614] Allah Mahakuat lagi Mahaperkaso.
 
-[^614]: Dalam perang Khandaq, orang mukmin idak baperang sebab Allah Swt. lah mangalau musuh orang-orang tu dengan mengirimkan angin dan malaikat.
-
 ## 33:26
 
 Dio manurunkan orang-orang Ahlulkitab (Bani Quraizah) nang mambantu orang-orang tu (golongan-golongan nang basekutu) dari benteng-benteng orang-orang tu. Dio mamasukkan raso takut ka dalam hati orang-orang tu. Sabagian orang-orang tu kamu bunuh dan sebagian nang lain kamu tawan. [^615]
 
-[^615]: Sasudah golongan-golongan nang basekutu itu kocar-kacir, Allah Swt. mamerintahkan Nabi Muhammad saw. untuk manghukum Yahudi Bani Quraizah dan mangusir orang-orang tu dari benteng-benteng orang-orang tu. Sagalo laki-laki dewaso nang ikut baperang kemudian dibunuh, sedangkan perempuan dan anak-anak ditawan.
-
 ## 33:27
 
 Dio mawariskan kapadomu tanah-tanah, rumah-rumah, harto bendo orang-orang tu, dan tanah nang belum kamu pijak. [^616] Allah Mahakuaso tahadap sagalo sasuatu.
-
-[^616]: Ungkapan ‘tanah nang belum dipijak’ pado ayat ni adolah tanah nang bakal dimasuki oleh tentero Islam.
 
 ## 33:28
 
@@ -15575,8 +14342,6 @@ Oi Nabi (Muhammad), sasungguhyo Kami lah manghalalkan bagimu bini-binimu nang la
 
 Kamu (Nabi Muhammad) boleh manangguhkan (manggauli) siapo nang kamu kendaki di antaro orang-orang tu (bini-binimu) dan (boleh pulak) manggauli siapo (di antaro bini-binimu) nang kamu kendaki. Siapo nang kamu ingini untuk manggaulinyo balik dari bini-bini nang lah kamu sisihkan, mako idak ado doso bagimu. Nang macam tu adolah lebih dekat untuk manyenangkan hati bini-binimu, orang-orang tu idak maraso sedih dan sagalonyo rela dengan apo nang lah kamu berikan kapadonyo. Allah mangetaui apo nang (tasimpan) dalam hatimu. Allah Maha Mangetaui lagi Maha Panyantun. [^617]
 
-[^617]: Manurut riwayat, pado suatu katiko bini-bini Nabi Muhammad saw. ado nang cemburu dan ado pulak nang maminta tambahan belanjo. Mako, Nabi Muhammad saw. mamutuskan hubungan dengan bini-bininyo tu sampai sabulan lamonyo. Kareno takut diceraikan oleh Nabi, bini-bininyo tu datang kapado Nabi manyatokan kereloannyo atas apo bae nang bakal diperbuat Nabi tahadap bini-bininyo. Turunnyo ayat ko mambagihkan izin kapado Nabi untuk menggauli atau idak manggauli siapo nang dikendakinyo dari bini-bininyo, serto mambagih izin kapadonyo untuk rujuk kepada bini-bininyo, bilo lah ado nang diceraikannyo.
-
 ## 33:52
 
 Idak halal bagimu (Nabi Muhammad) mangawini perempuan-perempuan (lain) sasudah tu dan idak boleh (pulak) mangganti orang-orang tu dengan bini-bini (nang lain), meskipun kacantikannyo manarik hatimu kacuali perempuan-perempuan (hambo sahayo) nang kamu miliki. Allah Maha Mangawasi sagalo sasuatu.
@@ -15584,8 +14349,6 @@ Idak halal bagimu (Nabi Muhammad) mangawini perempuan-perempuan (lain) sasudah t
 ## 33:53
 
 Oi orang-orang nang baiman, janganlah kamu mamasuki rumah-rumah Nabi kacuali bilo kamu diizinkan untuk makan dengan idak manunggu-nunggu waktu masak (makanannyo), [^618] tapi bilo kamu diundang mako masuklah dan bilo kamu lah salesai makan, kaluarlah kamu dengan idak mamperpanjang percakapan. Sasungguhyo nang macam tu mangganggu Nabi sahinggo dio malu kapadomu (untuk manyuruhmu kaluar). Allah idak malu (manerangkan) nang benar. Apobilo kamu maminta sasuatu (kaperluan) kapado orang-orang tu (bini-bini Nabi), mako mintaklah dari belakang tabir. (Caro) nang demikian tu lebih suci bagi hatimu dan hati orang-orang tu (bini-bini Nabi). Kamu idak boleh manyakiti (hati) Rasulullah dan idak boleh (pulak) mangawini bini-bininyo salamo-lamonyo sasudah Nabi (wafat). Sasungguhyo nang macam tu amat besak (dosonyo) di sisi Allah.
-
-[^618]: Ayat ko malarang sahabat masuk ka rumah Nabi untuk makan sambil manunggu-nunggu waktu makannyo Nabi saw.
 
 ## 33:54
 
@@ -15599,10 +14362,6 @@ Idak ado doso atas orang-orang tu (bini-bini Nabi Muhammad untuk berjumpa tanpa 
 
 Sasungguhyo Allah dan malaikat-malaikat-Nyo basalawat untuk Nabi [^619] . Oi orang-orang nang baiman, basalawatlah kamu untuk Nabi dan ucapkanlah salam dengan penuh panghormatan kapadonyo. [^620]
 
-[^619]: Salawat dari Allah Swt. baarti mambagih rahmat, salawat dari malaikat baarti mamohonkan ampunan, dan salawat dari orang-orang nang baiman baarti badoa supayo dibagih rahmat, seperti dengan mambaca ‘Allāhumma ṣalli ‘alā sayyidina Muhammad’.
-
-[^620]: Dengan mangucapkan atau mambaca kalimat seperti ‘Assalāmu ‘alaika ayyuhan-nabi’ nang artinyo ‘semoga kaselamatan talimpahkan kapadomu, oi Nabi’.
-
 ## 33:57
 
 Sasungguhyo orang-orang nang manyakiti (manista) Allah dan Rosul-Nyo, Allah bakal makutukinyo di dunio dan di akherat dan manyediokan bagi orang-orang tu sikso nang manghinokan.
@@ -15614,8 +14373,6 @@ Orang-orang nang manyakiti orang-orang nang baiman laki-laki dan perempuan tanpo
 ## 33:59
 
 Oi Nabi (Muhammad), katokanlah kapado bini-binimu, anak-anak perempuanmu dan bini-bini orang nang baiman supayo orang-orang tu mangulurkan jilbabnyo ke seluruh tubuhnyo [^621] . Nang demikian tu supayo orang-orang tu lebih mudah untuk dikenali, sehinggo idak diganggu. Allah Maha Pangampun lagi Maha Penyayang.
-
-[^621]: Manurut sikok pendapat, ‘jilbab’ adolah sajenis baju kurung atau tengkuluk nang longgar nang dapat manutup kepalo dan dado perempuan.
 
 ## 33:60
 
@@ -15721,8 +14478,6 @@ Buatlah baju-baju besi nang besak dan ukurlah anyamannyo serto kerjokanlah amal 
 
 Bagi Sulaiman (Kami tundukkan) angin nang (jarak tempuh) perjalanannyo pado waktu pagi samo dengan perjalanan sabulan dan perjalanannyo pado waktu sore samo dengan perjalanan sabulan (pulak) [^622] serto Kami alirkan cairan tembago baginyo. Sabagian dari jin ado nang bakerjo di depannyo dengan izin Tuhannyo. Siapo nang manyimpang di antaro orang-orang tu dari perentah Kami, Kami rasokan kapadonyo sikso (nerako) Sa’ir (nang apinyo manyalo-nyalo).
 
-[^622]: Bilo Nabi Sulaiman mangadokan perjalanan dari pagi sampe dengan tengah hari, jarak nang ditempuhnyo samo dengan jarak perjalanan unto dalam sabulan.
-
 ## 34:13
 
 Paro jin tu salalu bakerjo untuk Sulaiman sasuai dengan kendaknyo. Di antaronyo (mambuat) gedung-gedung nang tinggi, patung-patung, piring-piring (nang (besaknyo) macam kolam dan periuk-periuk nang tetap (barado di atas tungku). Bakerjolah oi keluargo Daud untuk basyukur (kapado Allah). Sadikit sakali dari hambo-hambo-Ku nang banyak basyukur.
@@ -15739,8 +14494,6 @@ Sabenarnyo pado kaum Saba ́ benar-benar ado tando (kaagungan dan kakuasoan Alla
 
 Tapi, orang-orang tu bapaling, mako Kami datangkan kapado orang-orang tu banjir besak [^623] dan Kami ganti kaduo kebun orang-orang tu dengan duo kebun nang ditumbuhi (pohon-pohon) nang babuah pahit, pohon atsal (sajenis cemaro) dan sadikit pohon sidir (bidaro).
 
-[^623]: Banjir besak karno jebolnyo bendungan atau dam Ma‘rib.
-
 ## 34:17
 
 Macam tulah, Kami mambagih balasan kapado orang-orang tu kareno kakafirannyo. Kami idak manjatuhkan sikso (nang demikian tu), malainkan cumo kapado orang-orang nang sangat kufur.
@@ -15749,13 +14502,9 @@ Macam tulah, Kami mambagih balasan kapado orang-orang tu kareno kakafirannyo. Ka
 
 Kami jadikan antaro orang-orang tu dan negeri-negeri nang Kami berkahi (Syam), baberapo negeri nang badekatan dan Kami tetapkan antaro negeri-negeri tu (jarak) perjalanan. Bajalanlah kamu di negeri-negeri tu pado malam dan siang hari dengan aman. [^624]
 
-[^624]: Negeri Syam, nang takenal subur, dan negeri-negeri nang badekatan taletak di antaro Yaman dan Syam. Orang dapat bajalan dengan aman pado siang dan malam hari idakj harus bahenti di padang pasir dan pulak mandapat kasulitan.
-
 ## 34:19
 
 Orang-orang tu bakato, “Wahai Tuhan kami, jauhkanlah jarak perjalanan kami,” [^625] dan (orang-orang tu) manganiayo diri dewek. Kami jadikan orang-orang tu buah bibir dan Kami hancurkan sehancur-hancurnyo. Sabenarnyo pado nang demikian tu benar-benar tadapat tando-tando (kakuasaan dan kebesaran Allah) bagi satiap orang nang sabar lagi basyukur.
-
-[^625]: Maksud ayat ko adolah supayo kota-kota nang badekatan tu dihapuskan supayo perjalanan manjadi panjang dan orang-orang tu dapat malakukan monopoli dalam perdagangan tu, serto mamperoleh kauntungan nang lebih besak.
 
 ## 34:20
 
@@ -15772,8 +14521,6 @@ Katokanlah (Nabi Muhammad), “Serulah orang-orang tu nang kamu anggap (sebagai 
 ## 34:23
 
 Idaklah baguno syafa ́at (pertolongan) di sisi-Nyo, kacuali bagi orang nang diizinkan-Nyo sahinggo apobilo lah dihilangkan katakutan dari hatinyo, orang-orang tu bakato, “Apo nang lah difirmankan oleh Tuhanmu?” Orang-orang tu manjawab, “Kabenaran,” Diolah Nang Mahatinggi dan Mahaagung. [^626]
-
-[^626]: Panganugerahan syafa’at cumo balaku dengan saizin Allah Swt. Orang-orang nang bakal dibagih izin mambagih syafaat dan nang bakal mandapatkannyo samo-samo maraso takut dan harap-harap cemas manunggu izin Allah Swt.
 
 ## 34:24
 
@@ -15822,8 +14569,6 @@ Idaklah Kami utus pambagih peringatan ka suatu negeri, kacuali orang-orang nang 
 ## 34:35
 
 Orang-orang tu bakato, “Kami mamiliki lebih banyak harto dan anak (daripado kamu) dan kami idak bakal disikso. [^627]
-
-[^627]: Orang-orang tu manganggap bahwa nikmat nang besak di dunio adolah tando bahwa Allah SWT rido kapadonyo, sehinggo idak bakal disikso di akherat.
 
 ## 34:36
 
@@ -15881,8 +14626,6 @@ Katokanlah (Nabi Muhammad), “Sabenarnyo Tuhanku malemparkan (kabatilan) dengan
 
 Katokanlah, “Kabenaran lah datang dan nang batil tu idak bakal mamulai dan idak (pulak) bakal mangulangi.” [^628]
 
-[^628]: Apobilo kabenaran lah datang, kabatilan bakal hancur binaso. Idak ado nang mampu babuat apapun untuk melawan dan maruntuhkan kabenaran tu.
-
 ## 34:50
 
 Katokanlah, “Jiko aku sesat, sabenarnyo aku sesat untuk diriku dewek dan jiko aku mandapat patunjuk, hal tu adolah disebabkan apo nang diwahyukan Tuhanku kapadoku. Sabenarnyo Dio Maha Mandengar lagi Mahadekat.”
@@ -15902,8 +14645,6 @@ Sungguh, orang-orang tu lah kufur tahadap kabenaran sabelum tu (katiko di dunio)
 ## 34:54
 
 Dibagih penghalang antaro orang-orang tu dengan apo nang diinginkannyo [^629] samacam mano nang dilakukan tahadap orang-orang nang sarupo dengan orang-orang tu pado maso dulu. Sabenarnyo orang-orang tu dulu (di dunio) dalam karaguan nang mandalam.
-
-[^629]: Nang diinginkan orang-orang tu adolah baiman atau balik lagi ke dunio untuk batobat.
 
 ## 35:1
 
@@ -15945,8 +14686,6 @@ Allahlah nang mangirimkan bamacam-macam angin, lalu io (angin) manggerakkan awan
 
 Siapo nang mangendaki kamulioan, (katauilah) kamulioan tu sagalonyo milik Allah. Kapado-Nyolah bakal naik perkatoan-perkatoan nang baik [^630] dan amal saleh bakal diangkat-Nyo. Adopun orang-orang nang marencanakan kajahatan bakal mandapat sikso nang amat keras dan rencano jahat orang-orang tu bakal hancur.
 
-[^630]: Sebagian ulama tafsir mangatokan bahwa perkatoan nang baik tu iolah Kalimat Tauhid, yaitu Lā ilāha illallāh; dan ado pulak nang mangatokan zikir kapado Allah; dan ado pulak nang mangatokan sagalo perkatoan nang baik nang diucapkan kareno Allah.
-
 ## 35:11
 
 Allah manciptokan kamu dari tanah, dari air mani, kemudian Dio jadikan kamu bapasang-pasangan (laki-laki dan perempuan). Idak ado saorang perempuan pun nang mangandung dan malahirkan kacuali dengan sapengetauan-Nyo. Idak dipanjangkan umur sasaorang dan idak pulo dikurangi umurnyo, kacuali (sudah ditetapkan) dalam Kitab (Lauh Mahfuzh). Sasungguhnyo nang demikian tu sangat mudah bagi Allah.
@@ -15979,8 +14718,6 @@ Nang macam tu bagi Allah idak sulit.
 
 Orang nang badoso idak mamikul doso orang lain. Jiko sasaorang nang (dibebani dengan) doso nang berat (lalu) mamanggil (orang lain) untuk mamikul bebannyo tu idak bakal dipikulkan sadikit pun meskipun (nang dipanggilnyo tu) kaum kerabatnyo dewek. Sasungguhnyo nang dapat kamu bagih peringatan [^631] hanyo orang-orang nang takut kapado Tuhannyo (sakalipun) idak mangimak-Nyo dan orang-orang manegakkan sembahyang. Siapo nang mansucikan dirinyo, sasungguhnyo dio mansucikan diri untuk kabaikan dirinyo dewek. Hanyo kapado Allahlah kamu balik.
 
-[^631]: Maksud dari ‘dapat kamu bagih paringatan’ tu adolah dapat kamu bagih peringatan dan mau manerimonyo.
-
 ## 35:19
 
 Idaklah samo orang nang buto dengan orang nang mangimak.
@@ -16005,13 +14742,9 @@ Kamu idak lain hanyolah saorang pambagih peringatan.
 
 Sasungguhnyo Kami mangutus kamu dengan mambawak kabenaran [^632] sabagai pambawak berito gembiro dan sabagai pambagi peringatan. Idak ado sikok umat pun, kacuali lah datang kapadonyo saorang pambagih peringatan.
 
-[^632]: ‘Kabenaran’ dalam ayat ko adolah ugamo tauhid dan hukum-hukum.
-
 ## 35:25
 
 Jiko orang-orang tu mandustokanmu, sungguh orang-orang nang sabelum orang-orang tu pun lah mandustokan (kabenaran). Lah datang rasul-rasul dengan mambawak katerangan nang nyato (mu’jizat), zubur, [^633] dan kitab nang mambagih panjelasan nang sempurno.
-
-[^633]: ‘Zubur’ adolah lembaran-lembaran wahyu nang mangandung katetapan hukum dan nasehat nang dibagih kapado nabi-nabi tadahulu.
 
 ## 35:26
 
@@ -16024,8 +14757,6 @@ Idakkah kamu mangimak bahwasanyo Allah manurunkan aek dari langit, lalu dengan (
 ## 35:28
 
 (Macam tu pulak) di antaro manusio, makhluk bagerak nang banyawo, dan binatang-binatang ternak ado nang bamacam-macam warnonyo (dan jenisnyo). Di antaro hambo-hambo Allah nang takut kapado-Nyo hanyolah ulama. [^634] Sasungguhnyo Allah Mahaperkaso lagi Maha Pangampun.
-
-[^634]: ‘Paro ulama pado ayat ko adolah orang nang mampunyoi pangetauan tentang syari’at, kajadian alam dan sosial nang manghasilkan raso takut disertoi pangagungan kapada Allah Swt.
 
 ## 35:29
 
@@ -16042,8 +14773,6 @@ Apo nang lah Kami wahyukan kapadomu (Nabi Muhammad), yaitu Kitab Suci (Al Qur’
 ## 35:32
 
 Kemudian, Kitab suci tu Kami wariskan kapado orang-orang nang Kami pilih di antaro hambo-hambo Kami, lalu di antaro orang-orang tu ado nang manganiayo dirinyo dewek, ado nang pertengahan dan ado (pulak) nang lebih dahulu babuat kabaikan [^635] dengan izin Allah. Tulah (dibagih kitab suci tu adolah) karunio nang amat besak.
-
-[^635]: Ungkapan ‘mananiayoi diri dewek’ baarti malakukan doso, sedangkan kato ‘pertengahan’ mengacu kapado orang nang malakukan amalan nang wajib bae dan menjaui doso. Adopun ‘orang-orang nang lebih dulu dalam babuat kabaikan‘ adolah orang-orang nang idak hanyo mangerjokan nang wajib, tapi jugo mangerjokan hal-hal nang hukumnyo sunah.
 
 ## 35:33
 
@@ -16088,8 +14817,6 @@ Orang-orang tu basumpah atas (nama) Allah dengan sungguh-sungguh bahwa jiko data
 ## 35:43
 
 Karena kasombongan (orang-orang tu) di muko bumi dan karena rencana (orang-orang tu) nang jahat. Akibat (buruk) dari rencana jahat tu hanyo bakal manimpo orang nang marencanokannyo dewek. Orang-orang tu hanyo manunggu katetapan (nang balaku) kapado orang-orang nang tadahulu. [^636] Mako, kamu idak bakal mandapatkan parubahan atas katetapan Allah dan idak (pulak) bakal manemukan panyimpangan bagi katetapan Allah tu.
-
-[^636]: Nang dimaksud dengan ‘katetapan (nang balaku) kapado orang-orang nang tadahulu’ adolah turunnyo sikso kapado orang-orang nang mandustokan rasul.
 
 ## 35:44
 
@@ -16142,8 +14869,6 @@ Samo bae bagi orang-orang tu, apokah kamu (Nabi Muhammad) mambagih peringatan ka
 ## 36:11
 
 Sasungguhnyo kamu (Nabi Muhammad) hanyo (biso) mambagih peringatan kapado orang-orang nang mau mangikutinyo [^637]  dan nang takut kapado Tuhan Nang Maha Pangasih tanpo mangimak-Nyo. Bagihlah berito gembiro dengan ampunan dan pahalo nang mulio.
-
-[^637]: Peringatan nang dibagih oleh Nabi Muhammad saw. hanyo baguno bagi orang-orang nang mau mangikutinyo.
 
 ## 36:12
 
@@ -16205,8 +14930,6 @@ Sasungguhnyo aku lah baiman kapado Tuhanmu. Mako, aningkanlah (pangakuan kaimana
 
 Dikatokan (kapadonyo): “Masuklah ka surgo.” [^638] Io (laki-laki tu) bakato, “Aduhai, sakironyo kaumku mangetaui
 
-[^638]: Manurut riwayat, laki-laki tu dibunuh samacam mano disebut dalam ayat 20-25. Katiko dio bakam maninggal,malaikat turun mamberitaukan bahwa Allah Swt. lah mangampuni dosonyo dan dio bakal masuk surgo.
-
 ## 36:27
 
 (bagaimano) Tuhanku mangampuniku dan manjadikanku tamasuk orang-orang nang dimuliokan.”
@@ -16259,8 +14982,6 @@ Suatu tando jugo (kakuasoan Allah) bagi orang-orang tu adolah malam. Kami pisahk
 
 (Macam tu jugo) bulan, Kami tetapkan bagi(-nyo) genah-genah peredaran sahinggo (sasudah io sampe ka genah peredaran nang terakhir,) baliklah io seperti bentuk tandan nang tuo. [^639]
 
-[^639]: Bulan tu pado awalnyo kecik babentuk sabit dan manjadi sempurno pado saat purnamo. Kemudian, bulan tu balik mangecil hinggo kaliatan seperti tandan kering nang malengkung.
-
 ## 36:40
 
 Idaklah mungkin bagi matohari mangejar bulan dan malam pun idak dapat mandahului siang. Masing-masing baredar pado garis edarnyo.
@@ -16272,8 +14993,6 @@ Suatu tando (kaagungan Allah) bagi orang-orang tu adolah bahwa Kami mangangkut k
 ## 36:42
 
 (Macam tu jugo) Kami manciptokan untuk orang-orang tu dari jenis tu angkutan (lain) nang orang-orang tu kendaroi. [^640]
-
-[^640]: Maksud ayat ko adolah binatang-binatang tunggangan dan alat-alat angkutan pado umumnyo.
 
 ## 36:43
 
@@ -16303,8 +15022,6 @@ Orang-orang tu bakato, “Bilokah janji (hari Kabangkit) ko (tajadi) jiko kamu o
 
 Orang-orang tu hanyo manunggu sakali tariakan [^641] nang bakal mambinasokan orang-orang tu katiko orang-orang tu (sibuk) batengkar (tentang urusan dunio).
 
-[^641]: Nang dimaksud dengan ‘tariakan’ pado ayat ko adolah suaro tiupan sangkakalo pertamo nang manghancurkan alam ko.
-
 ## 36:50
 
 Sebab tu, orang-orang tu idak dapat bawasiat dan idak dapat balik kapado keluargonyo.
@@ -16312,8 +15029,6 @@ Sebab tu, orang-orang tu idak dapat bawasiat dan idak dapat balik kapado keluarg
 ## 36:51
 
 Sangkakalo pun ditiup [^642] dan sakatiko tu orang-orang tu bagerak cepat dari kuburnyo manuju kapado Tuhannyo.
-
-[^642]: Ko adalah tiupan sangkakalo nang kaduo nang mambangkitkan orang-orang dari kubur.
 
 ## 36:52
 
@@ -16775,13 +15490,9 @@ Kemudian, Kami manenggelamkan nang lain.
 
 Sasungguhnyo Ibrahim tamasuk golongannyo (Nuh). [^643]
 
-[^643]: Nabi Ibrahim a.s. tamasuk sekok golongan dengan Nabi Nuh a.s. dalam kamanan kapado Allah Swt. dan pokok-pokok ajaran ugamo.
-
 ## 37:84
 
 (Ingatlah) katiko dio datang kapado Tuhannyo dengan hati nang suci, [^644]
-
-[^644]: Mangikhlaskan hatinyo kapado Allah dengan sapenuhnyo.
 
 ## 37:85
 
@@ -16810,8 +15521,6 @@ Orang-orang tu lalu bapaling darinyo serayo maninggalkannyo.
 ## 37:91
 
 Kemudian, dio langsung manuju ka berhalo-berhalo orang-orang tu (sacaro diam-diam), lalu bakato, “Mangapo kamu idak makan? [^645]
-
-[^645]: Pertanyoan tasebut diajukan sabagai ejekan kapado berhalo-berhalo nang dibagih sajian makanan, tapi idak biso mamakannyo.
 
 ## 37:92
 
@@ -16845,8 +15554,6 @@ Orang-orang tu bamaksud mamperdayoinyo, (namun Allah manyelamatkannyo,) lalu Kam
 
 Dio (Ibrahim) bakato, “Sasungguhnyo aku bakal pegi (manghadap) kapado Tuhanku. [^646] Dio bakal mambagihku patunjuk.”
 
-[^646]: Nabi Ibrahim a.s. pegi ka suatu negeri supayo dapat manyembah Allah dan badakwah.
-
 ## 37:100
 
 (Ibrahim badoa,) “Ya Tuhanku, anuge-rahkanlah kapadoku (katurunan) nang tamasuk orang-orang saleh.”
@@ -16878,8 +15585,6 @@ Sasungguhnyo ko benar-benar suatu ujian nang nyato.
 ## 37:107
 
 Kami manebusnyo dengan saekor (binatang) sambelihan nang besak. [^647]
-
-[^647]: Peristiwo tu manjadi dasar disyariatkannyo panyembelihan binatang kurban pado hari rayo Iduladha.
 
 ## 37:108
 
@@ -16953,8 +15658,6 @@ Sasungguhnyo Ilyas benar-benar tamasuk paro rasul.
 
 Apokah kamu terus manyeru Ba‘l [^648] dan maninggalkan sabaik-baik pancipto,
 
-[^648]: Ba‘l adolah nama salah sikok berhalo orang Fenisia, yaitu orang nang baasal dari wilayah Lebanon dan Suriah.
-
 ## 37:126
 
 Allah Tuhanmu dan Tuhan nenek moyangmu nang tadahulu?”
@@ -16999,8 +15702,6 @@ Kacuali saorang perempuan tuo (bininyo) nang tamasuk golongan (orang-orang kafir
 
 Kemudian, Kami binasokan nang lain. [^649]
 
-[^649]: Orang-orang nang tinggal di kota nang idak ikut basamo Nabi Lut a.s.
-
 ## 37:137
 
 Sasungguhnyo kamu (penduduk Makkah) benar-benar bakal malintasi (bekas-bekas kahancuran) orang-orang tu pado waktu pagi
@@ -17021,13 +15722,9 @@ Sasungguhnyo Yunus benar-benar tamasuk paro rasul,
 
 Kemudian dio ikut diundi, [^650] mako dia tamasuk orang-orang nang kalah (dalam undian).
 
-[^650]: Undian diadokan kareno muatan kapal amat penuh dan dikhawatirkan bakal tanggelam jiko panumpang idak dikurangi. Orang nang namonya kaluar dalam undian dinyatokan kalah dan bakal dilempar ka laut. Namo Nabi Yunus a.s. kaluar dalam undian tasebut, sahinggo dio dilemparkan ka laut.
-
 ## 37:142
 
 Dio kemudian ditelan oleh ikan besak dalam kaadoan tacelo. [^651]
-
-[^651]: Disebut ‘tacelo’ kareno dio lari maninggalkan kaumnyo.
 
 ## 37:143
 
@@ -17056,8 +15753,6 @@ lalu orang-orang tu baiman. Mako, Kami manganugerahkan kanikmatan hidup kapado o
 ## 37:149
 
 (Oi Nabi Muhammad,) tanyolah orang-orang tu (orang-orang kafir Makkah), “Apokah untuk Tuhanmu anak-anak perempuan, sedangkan untuk orang-orang tu anak-anak laki-laki [^652]
-
-[^652]: Orang musyrik Makkah mangatokan bahwa malaikat tu adolah anak-anak perempuan Allah Swt., padohal orang-orang tu dewek manganggap hino anak perempuan tu.
 
 ## 37:150
 
@@ -17363,8 +16058,6 @@ Ingatlah hambo Kami Ayyub katiko dio manyeru Tuhannyo, “Sasungguhnyo aku lah d
 
 Kami anugerahkan (pulak) kapadonyo (Ayyub) keluarganyo dan (Kami lipat gandokan) jumlah orang-orang tu sabagai rahmat dari Kami dan palajaran bagi orang-orang nang bapikiran sehat. [^653]
 
-[^653]: Nabi Ayyub a.s. manderito panyakit kulit baberapo waktu lamonyo. Dia mamohon kapado Allah Swt. untuk disembuhkan. Allah Swt. mangabulkan permohonan tasebut dengan mamerentahkannyo untuk mangentakkan kaki ka bumi. Nabi Ayyub a.s. manaati perentah tu. Mako, kaluarlah aek dari bekas kakinyo. Nabi Ayyub a.s. pun mandi dan minum dari aek tu. Dio pun sembuh dari panyakitnyo dan dapat bakumpul balik dengan keluargonya. Orang-orang tu kemudian bakembang biak dua kali lipat dari jumlah sabelumnyo. Pada suatu katiko, Nabi Ayyub a.s. taingat tahadap sumpahnyo untuk mamukul bininyo apobila io sembuh dari sakitnyo lantaran sang bini pernah lalai mangurusnyo katika dio masih sakit. Namun, timbul raso ibo dan sayang kapado bininyo, sahinggo dio idak dapat mamenuhi sumpah tasebut. Mako, turunlah patunjuk Allah Swt. dalam ayat 44 bahwa dio dapat malaksanokan sumpahnyo tanpa perlu manyakiti bininyo, yaitu dengan mamukulnyo dengan saikat rumput.
-
 ## 38:44
 
 Ambiklah dengan tanganmu saikat rumput, lalu pukullah (binimu) dengannyo dan janganlah kamu malanggar sumpah. Sasungguhnyo Kami dapati dio (Ayyub) saorang nang sabar. Diolah sabaik-baik hambo. Sasungguhnyo dio salalu balik (kapado Allah dan sangat taat kapado-Nyo).
@@ -17525,8 +16218,6 @@ sampe hari nang lah ditentukan waktunyo (kiamat).”
 
 Kacuali, hambo-hambo-Mu nang tapilih (kareno kaikhlasannyo) di antaro orang-orang tu.” [^654]
 
-[^654]: ungkapan ‘hambo nang tapilih’ adolah orang-orang nang lah dibagih taufik untuk manaati sagalo patunjuk dan perentah Allah Swt.
-
 ## 38:84
 
 Allah) bafirman, “Mako, nang benar (adolah sumpah-Ku) dan hanyo kabenaran tulah nang Aku katokan.
@@ -17546,8 +16237,6 @@ Katokanlah (Nabi Muhammad), “Aku idak maminta imbalan sadikit pun kapadomu ata
 ## 38:88
 
 Sungguh, kamu bakal mangetaui (kabenaran) beritonyo (Al-Qur’an) sasudah baberapo waktu lagi.” [^655]
-
-[^655]: Kabenaran berito-berito Al-Qur’an tu ado nang talaksano di dunio dan ado pulak nang talaksano di akherat. Nang talaksano di dunia seperti kabenaran janji Allah Swt. kapado orang mukmin untuk menang dalam paperangan malawan orang musyrik, sedangkan nang talaksano di akherat adolah seperti kabenaran janji Allah Swt. tentang balasan atau peritungan nang bakal dilakukan tahadap manusio.
 
 ## 39:1
 
@@ -17572,8 +16261,6 @@ Dio (Allah) manciptokan langit dan bumi dengan hak (nang benar). Dio manutupkan 
 ## 39:6
 
 Dio manciptokanmu dari jiwo nang sekok (Adam), kemudian darinyo Dio manjadikan pasangannyo dan dio manurunkan delapan pasang binatang ternak untukmu. Dio manciptokanmu dalam perut emakmu kajadian demi kajadian dalam tigo kagelapan. [^656] nang (babuat) demikian tu adolah Allah, Tuhanmu, Pamilik karajoanIdak ado tuhan salain Dio. Mangapo kamu dapat bapaling (dari kabenaran)?
-
-[^656]: Ungkapan ‘tigo kagelapan’ pado ayat ko baarti kagelapan dalam perut, kagelapan dalam rahim, dan kagelapan dalam selaput nang manutup anak dalam rahim.
 
 ## 39:7
 
@@ -17611,8 +16298,6 @@ Katokanlah, “Hanyo Allah nang aku sembah dengan mangikhlaskan kataatanku kapad
 
 Mako, sembahlah sasukamu salain Dio (oi orang-orang musyrik!) [^657] Katokanlah, “Sasungguhnyo orang-orang nang rugi iolah orang-orang nang marugikan diri dewek dan keluargonyo pado hari Kiamat.” Ingatlah, nang macam tu adolah karugian nang nyato.
 
-[^657]: Perentah ko bukanlah dalam arti nang sabenarnyo, tapi pernyatoan kamurkoan Allah Swt. tahadap kaum musyrik nang bakali-kali diajak batauhid, tapi salalu engkar.
-
 ## 39:16
 
 Di atas orang-orang tu ado lapisan-lapisan dari api dan di bawah orang-orang tu pun ado lapisan-lapisan pulak. Macam tulah Allah mambuat takut hambo-hambo-Nyo dengan (azab) tu. “Oi hambo-hambo-Ku, batakwalah kapado-Ku!”
@@ -17624,8 +16309,6 @@ Orang-orang nang manjaui tagut, (Yaitu) idak manyembahnyo dan balik (batobat) ka
 ## 39:18
 
 (Yaitu) orang-orang tu nang manganingkan perkatoan lalu mangikuti apo nang paling baik di antaronyo. [^658] Orang-orang tulah orang-orang nang lah dibagih patunjuk oleh Allah dan orang-orang tulah ululalbab (orang-orang nang mampunyoi akal sehat).
-
-[^658]: Orang-orang tu mandengarkan ajaran-ajaran Al-Qur’an dan ajaran nang lain, lalu mangikuti ajaran-ajaran Al-Qur’an kareno mayakininyo sabagai nang tabaik.
 
 ## 39:19
 
@@ -17646,8 +16329,6 @@ Mako apokah orang-orang nang dibukokan Allah hatinyo untuk (nerimo) ugamo Islam 
 ## 39:23
 
 Allah lah manurunkan perkatoan nang tabaik, (Yaitu) Kitab (Al-Qur’an) nang sarupo (ayat-ayatnyo) lagi baulang-ulang. [^659]  Kareno tu, kulit orang nang takut kapado Tuhannyo gemetar. Kemudian, kulit dan hati orang-orang tu manjadi lunak katiko mangingat Allah. Tulah patunjuk Allah nang dengannyo Dio mambagih patunjuk kapado siapo nang Dio kendaki. Siapo nang dibiakkan sesat oleh Allah idak ado nang dapat mambagih patunjuk.
-
-[^659]: Hukum-hukum, palajaran, dan kisah-kisah tu diulang-ulang dalam Al-Qur’an supayo lebih bapangaruh dan lebih maresap. Sabagian mufasir mangatokan bahwa ayat-ayat Al-Qur’an tu diulang-ulang mambaconyo.
 
 ## 39:24
 
@@ -17769,8 +16450,6 @@ Idakkah orang-orang tu idak mangetaui bahwa Allah malapangkan rezeki bagi siapo 
 
 Katokanlah (Nabi Muhammad), “Oi hambo-hambo-Ku nang malampaui batas (dengan mananiayo) dirinyo dewek, janganlah baputus aso atas rahmat Allah. Sasungguhnyo Allah mengampuni doso sagalonyo. [^660]  Sasungguhnyo Diolah Nang Maha Pangampun lagi Maha Panyayang.
 
-[^660]: Sagalo doso biso diampuni Allah Swt., kacuali dosa syirik (Imak surah an-Nisā’/4: 48).
-
 ## 39:54
 
 Baliklah kapado Tuhanmu dan baserah dirilah kapad-Nyo sabelum datang azab kapadomu, kemudian kamu idak bakal ditolong.
@@ -17826,8 +16505,6 @@ Kareno tu, sembahlah Allah (bae) dan jadilah kamu tamasuk orang-orang nang basyu
 ## 39:67
 
 Orang-orang tu idak mangagungkan Allah samacam mano mestinyo. Padohal, bumi sagalonyo (ado dalam) genggaman-Nyo pado hari Kiamat dan langit digulung dengan tangan kanan-Nyo. [^661]  Mahasuci dan Mahatinggi Dio dari apo apo nang orang-orang tu persekutukan.
-
-[^661]: Ayat ko manggambarkan kabesaran dan kakuasoan Allah Swt. dan hanyo Dio nang bakuaso pado hari Kiamat.
 
 ## 39:68
 
@@ -17937,8 +16614,6 @@ Bagihlah orang-orang tu peringatan tentang hari nang samakin dekat (hari Kiamat,
 
 Dio mengetaui (pandangan) mato nang khianat [^662]  dan apo nang tasembunyi di dalam dado.
 
-[^662]: Maksud ungkapan ‘pandangan yang khianat’ adolah pandangan kapada hal-hal yang talarang, seperti mamandang kapada lawan jenis nang bukan mahram.
-
 ## 40:20
 
 Allah mamutuskan dengan hak (benar-benar adil), sedangkan orang-orang nang disembah salain-Nyo idak mampu mamutuskan dengan suatu apo pun. Sasungguhnyo Allah, Diolah Nang Maha Manganing lagi Maha Mangimak.
@@ -17950,8 +16625,6 @@ Apokah orang-orang tu idak bajalan di bumi, lalu mamperatikan bagaimano kasudaha
 ## 40:22
 
 Nang macam tu adolah kareno sasungguhnyo rasul-rasul lah datang kapado orang-orang tu dengan mambawak bukti-bukti nang nyato [^663]  lalu orang-orang tu engkari. Mako, Allah mangazab orang-orang tu. Sasungguhnyo Dio maha kuat lagi Mahakeras hukuman-Nyo.
-
-[^663]: Maksud ‘bukti-bukti nang nyato’ adolah mukjizat, hukum-hukum, dan ajaran nang dibawaknya.
 
 ## 40:23
 
@@ -17992,8 +16665,6 @@ Orang nang baiman tu bakato, “Oi kaum aku, sasungguhnyo aku kuatir (bahwa) kam
 ## 40:32
 
 Oi kaumku, sasungguhnyolah aku kuatir tahadapmu sikso bakal (siksoan) hari saling mamanggil. [^664]
-
-[^664]: Hari Kiamat tu disebut hari saling mamanggil kareno orang nang bakumpul di Padang Mahsyar saling mamanggil untuk maminta tolong.
 
 ## 40:33
 
@@ -18195,8 +16866,6 @@ Dan manampakkan tando tando-tando (kakuasoan-Nyo) kapadomu, mako tando tando (ka
 
 Apokah orang-orang tu idak mangadokan perjalanan di bumi, lalu orang-orang tu mamperatikan bagaimano kasudahan orang-orang nang sabelum orang-orang tu? Orang-orang tu lebih banyak dan lebih hebat kakuatannyo serto (lebih banyak) jejak-jejak peradabannyo di bumi. [^665]  Apo nang orang-orang tu usahokan tu idak dapat manolongorang-orang tu.
 
-[^665]: Paninggalan peradaban tasebut barupo bangunan, benteng, istano, dan alat-alat perlengkapan.
-
 ## 40:83
 
 Katiko paro rasul datang kapado orang-orang tu dengan membawak bukti-bukti nang nyato, orang-orang tu maraso senang dengan pangetauan nang ado pado orang-orang tu. (Pado saat tulah) orang-orang tu dikepung (azab) nang dahulu orang-orang tu perolok-olokan.
@@ -18257,8 +16926,6 @@ Dio kemudian manuju ka langit dan (langit tu) masih barupo asap. Dio bafirman ka
 
 Lalu, Dio manjadikannyo tujuh langit dalam duo maso dan pado satiap langit Dio mawahyukan urusan masing masing. Kemudian langit nang paling dekat (dengan bumi), Kami hiasi dengan bintang-bintang sabagai panjagoan (dari setan). [^666]  Macam tulah ketetapan (Allah) Nang Mahaperkaso lagi Maha Mangetaui.
 
-[^666]: Kabiasoan setan adolah mangintip dan mancuri dengar pambicaroan paro malaikat tentang apo nang bakal tajadi di bumi.
-
 ## 41:13
 
 Jiko orang-orang tu bapaling, katokanlah, “Aku lah mangingatkan kamu (azab barupo) petir seperti penir nang manimpo (kaum) ‘Ad dan (kaum) Samud.”
@@ -18266,8 +16933,6 @@ Jiko orang-orang tu bapaling, katokanlah, “Aku lah mangingatkan kamu (azab bar
 ## 41:14
 
 Katiko paro rasul datang kapado orang orang tu dari depan dan dari balakang orang-orang tu [^667]  (dengan manyerukan,) “Janganlah kamu manyembah salain Allah,” orang-orang tu menjawab, “Kalu Tuhan kami mangendaki, tentu Dio manurunkan malaikat-malaikat-Nyo. Sasungguhnyo kami engkar pado karasulanmu.”
-
-[^667]: Nang dimaksud dengan ‘dari depan dan dari balakang’ adolah dari sagalo panjuru.
 
 ## 41:15
 
@@ -18300,8 +16965,6 @@ Orang-orang tu bakato kapado kulit orang-orang tu, “Manggapo kamu manjadi saks
 ## 41:22
 
 Kamu idak dapat manyingit dari kasaksian panganingan, pangimakan, dan kulitmu tahadapmu, bahkan kamu manyangko Allah idak mangetaui banyak tentang apo nang kamu lakukan. [^668]
-
-[^668]: Orang-orang tu malakukan doso dengan terang-terangan kareno manyangko bahwa Allah idak mangetaui perbuatan orang-orang tu serto panganingan, pangimakan, dan kulit orang-orang tu idak bakal manjadi saksi di akherat kagi atas perbuatan orang-orang tu.
 
 ## 41:23
 
@@ -18383,8 +17046,6 @@ Sasungguhnyo orang-orang nang mangengkari Al-Qur’an katiko (Al-Qur’an) tu di
 
 Idak ado kabatilan nang mandatanginyo, baik dari depan maupun dari balakang. [^669] (Al-Qur’an tu adolah) kitab nang diturunkan dari Tuhan Nang Mahabijaksano lagi Maha Tapuji.
 
-[^669]: Maksud ungkapan ‘dari depan maupun dari balakang’ adolah pado maso lalu dan nang bakal datang.
-
 ## 41:43
 
 Apo nang dikatokan (oleh orang-orang kafir) kapadomu idak lain adolah apo nang lah dikatokan kapado rasul-rasul sabelummu. Sasungguhnyo Tuhanmu pasti mampunyoi ampunan dan azab nang pedih.
@@ -18392,8 +17053,6 @@ Apo nang dikatokan (oleh orang-orang kafir) kapadomu idak lain adolah apo nang l
 ## 41:44
 
 Sakironyo Kami manjadikan (Al-Qur’an) bacoan dalam bahaso salain bahaso Arab, niscayo orang-orang tu mangatokan, “Mangapo ayat-ayatnyo idak diterangkan (dengan bahaso nang kami pahami)?” Apokah patut (Al-Qur’an) dalam bahaso salain bahaso Arab, sedangkan (rasul adolah) orang Arab? Katokanlah (Nabi Muhammad), “Al-Qur’an adolah patunjuk dan panyembuh bagi orang-orang nang baiman, sedangkan orang-orang nang idak baiman, pado telingo orang-orang tu ado panyumbat dan orang-orang tu buto tahadpnyo (Al-Qur’an). [^670] Orang-orang tu (seperti) orang-orang nang diseru dari genah nang jauh.”
-
-[^670]: Orang-orang tu idak mangimak dari Al-Qur'an, kacuali fitnah-fitnah nang memang orang-orang tu cari.
 
 ## 41:45
 
@@ -18406,10 +17065,6 @@ Siapo nang mangerjokan kabajikan, mako (pahalonyo) untuk dirinyo dewek dan siapo
 ## 41:47
 
 Hanya kapado-Nyo pangetauan tentang hari Kiamat tu dikambalikan. [^671]  Idak ado samo sakali buah-buahan nang kaluar dari kalopaknyo dan idak saorang perempuan pun nang mangandung dan malahirkan, malainkan sagalonyo dengan sapangetauan-Nyo. Pado hari katiko Dio (Allah) manyeru orang-orang tu, “Di manokah sekutu-sekutu-Ku tu?” [^672]  Orang-orang tu manjawab, “Kami manyatokan kapado-Mu bahwa idak ado saorang pun di antaro kami nang dapat mambagih kasaksian (bahwa Engkau mampunyoi sekutu).”
-
-[^671]: Hanyo Allahlah nang mangetaui bilo tibonyo hari Kiamat tu.
-
-[^672]: Nang dimaksud dengan ‘sakutu-sakutu-Ku’ adolah berhalo-berhalo nang orang-orang tu anggap sabagai sakutu Allah.
 
 ## 41:48
 
@@ -18711,8 +17366,6 @@ Sasungguhnyo kami pasti bakal balik kapado Tuhan kami.”
 
 Orang-orang tu manjadikan sabagian dari hambo-hambo-Nyo sabagai bagian dari-Nyo. [^673]  Sasungguhnyo manusio tu benar-benar pangengkar (nikmat Tuhan) nang nyato.
 
-[^673]: Orang-orang musyrik mangatokan bahwa malaikat adolah anak perempuan Allah. Padohal, malaikat tu sabagian dari makhluk dan ciptoan-Nyo.
-
 ## 43:16
 
 Patutkah Dio mangambik anak batino dari sabagian nang lah Dio ciptokan dan mamilihkan anak jantan untukmu?
@@ -18724,8 +17377,6 @@ Apobilo salah saorang di antaro orang-orang tu dibagih kabar gembiro tentang sas
 ## 43:18
 
 Apokah patut (manjadi anak Allah) orang nang tumbuh dan bakembang (dengan tabiat) salalu bahias diri, sedangkan dio idak mampu mambagih alasan nang tegas dan jelas dalam pertengkaran. [^674]
-
-[^674]: Ayat ko manggambarkan keadaan batino Arab pado waktu Al-Qur’an diturunkan. Orang-orang tu hanyo dijadikan pahiasan atau idak dibagih kasempatan dalam pendidikan sahinggo kurang pangetauannyo serto idak mampu basikap tegas dan jelas.
 
 ## 43:19
 
@@ -18767,13 +17418,9 @@ Kacuali (kamu manyembah) Allah nang manciptokanku. Sasungguhnyo Dio bakal mambag
 
 Dio (Ibrahim) manjadikannyo (kalimat tauhid) parkatoan nang kekal pado katurunannyo supayo orang-orang tu balik (kapadonyo). [^675]
 
-[^675]: Nabi Ibrahim a.s. manjadikan kalimat tauhid sabagai pegangan bagi katurunannyo sahinggo kalu di antaro orang-orang tu ado nang mapersekutukan Allah, orang-orang tu diharapkan segero balik kapado tauhid tu.
-
 ## 43:29
 
 Bahkan Aku lah mambagihkan kanikmatan hidup kapado orang-orang tu dan nenek moyang orang-orang tu sampe kabenaran (Al-Qur’an) datang kapado orang-orang tu baserto saorang Rasul nang mambagih panjelasan. [^676]
-
-[^676]: Di antaro katurunan Nabi Ibrahim a.s. ado nang malupokan tauhid serto idak mansyukuri kanikmatan dan kahidupan nang dianugerahkan Allah. Allah idak mangazab orang-orang tu, bahkan sabaliknyo Allah mambagih kanikmatan kapado orang-orang tu hinggo Dia manurunkan Al-Qur’an serto mangutus saorang rasul untuk mambimbing orang-orang tu.
 
 ## 43:30
 
@@ -18854,8 +17501,6 @@ Idaklah Kami perliatkan suatu mukjizat kapado orang-orang tu kacuali io (mukjiza
 ## 43:49
 
 Orang-orang tu bakato, “Oi panyihir, [^677] badoalah kapado Tuhanmu untuk (malepaskan) kami sesuai dengan apo nang lah dijanjikan-Nyo kapadomu. Sasungguhnyo kami benar-benar bakal manjadi orang-orang nang mandapat patunjuk.”
-
-[^677]: Kata ‘penyihir’ idak digunakan oleh orang-orang tu untuk menghina, tapi justru untuk menghormati karena orang-orang tu sangat mengagungkan ilmu sihir.
 
 ## 43:50
 
@@ -19029,13 +17674,9 @@ Demi Kitab (Al-Qur’an) nang jelas.
 
 Sasungguhnyo Kami (mulai) manurunkannyo pado malam nang diberkahi (Lailatulqadar). [^678]  Sasungguhnyo Kamilah pambagih peringatan.
 
-[^678]: Nang dimaksud dengan turunnyo Al-Qur’an pado malam Lailatulqadar adolah bahwa Al-Qur’an untuk pertamo kalinyo diturunkan pado malam tasebut.
-
 ## 44:4
 
 Pado (malam tu) dijelaskan sagalo urusan nang penuh hikmah. [^679]
-
-[^679]: Nang dimaksud dengan ‘sagalo urusan nang penuh hikmah’ adolah sagalo sasuatu nang bahubungan dengan kahidupan makhluk seperti hidup, mati, rezeki, nasib baik, dan nasib buruk.
 
 ## 44:5
 
@@ -19061,8 +17702,6 @@ Tapi, orang-orang tu dalam karaguan; orang-orang tu bamain-main.
 
 Mako, nantikanlah hari (katiko) langit mandatangkan kabut asap nang tampak jelas [^680]
 
-[^680]: Maksudnyo adolah bencano kalaparan nang manimpo kaum Quraisy akibat manentang Nabi Muhammad saw
-
 ## 44:11
 
 (Nang) maliputi manusio (durhako). Ko adolah azab nang sangat pedih.
@@ -19079,8 +17718,6 @@ Bagaimano orang-orang tu dapat manerimo peringatan (satelah turun azab), padohal
 
 Kemudian, orang-orang tu bapaling darinyo dan bakato, “Dio (Nabi Muhammad) diajari (oleh orang lain) lagi gilo.” [^681]
 
-[^681]: Nabi Muhammad saw. dituduh manerimo palajaran dari Addas, seorang non-Arab nang baugamo Nasrani.
-
 ## 44:15
 
 Sasungguhnyo (kalau) Kami malenyapkan azab tu sabentar bae, pasti kamu bakal balik (engkar).
@@ -19088,8 +17725,6 @@ Sasungguhnyo (kalau) Kami malenyapkan azab tu sabentar bae, pasti kamu bakal bal
 ## 44:16
 
 (Ingatlah) pado hari (katiko) Kami manghantam orang-orang tu dengan hantaman nang besak. [^682]  Sasungguhnyo Kami adolah pambagih balasan.
-
-[^682]: Hantaman nang besak tu tajadi pado Perang Badar katiko orang-orang musyrik dipukul mundur sahinggo manderito kakalahan dan banyak di antaro pamimpin orang-orang tu nang tewas.
 
 ## 44:17
 
@@ -19175,8 +17810,6 @@ Datangkanlah nenek moyang kami jiko kamu orang-orang nang benar.”
 
 Apokah orang-orang tu nang lebih baik atau kaum Tubba‘ [^683]  dan orang-orang nang sabelum orang-orang tu. Kami lah mambinasokan orang-orang tu kareno sasungguhnyo orang-orang tu adolah para pandusto.
 
-[^683]: Tubba’ adolah gelar nang dibagih kapado rajo-rajo di Yaman nang maliputi suku Himyar, Saba’, dan Hadramaut.
-
 ## 44:38
 
 Idaklah Kami ciptokan langit, bumi, dan apo nang ado di antaro kaduonyo sacaro main-main.
@@ -19248,8 +17881,6 @@ Macam tulah (kaadoan panghuni surgo) dan Kami manjadikan orang-orang tu bapasang
 ## 44:55
 
 Di dalamnyo orang-orang tu dapat mamintak sagalo macam buah-buahan dengan aman dan tenteram. [^684]
-
-[^684]: Maksudnyo adolah tanpa khawatir bakal kahabisan, sakit, dan kamudaratan lainnyo.
 
 ## 44:56
 
@@ -19359,8 +17990,6 @@ Allah manciptokan langit dan bumi dengan hak dan supayo satiap jiwo dibagih bala
 
 Taukah kamu (Nabi Muhammad), orang nang manjadikan hawo nafsunyo sabagai Tuhannyo dan dibiakkan sesat oleh Allah dengan pangetauan-Nyo, [^685]  Allah lah mangunci pandengaran dan hatinyo serto maletakkan tutup atas pangliatannyo, siapokah nang mampu mambagihnyo patunjuk sasudah Allah (mambiakkannyo sesat)? Apokah kamu (oi manusio) idak mangambik palajaran?
 
-[^685]: Allah mambiakkan orang tu sesat kareno Allah mangetaui bahwa io idak manarimo patunjuk nang Dio bagihkan kapadonyo.
-
 ## 45:24
 
 Orang-orang tu bakato, “Kahidupan ko idak lain hanyolah kahidupan di dunio bae, kito mati dan kito hidup, dan idak ado nang mambinasokan kito salain maso.” Padohal, orang-orang tu idak mampunyoi ilmu (samo sakali) tentang tu. Orang-orang tu hanyolah mandugo-dugo.
@@ -19457,13 +18086,9 @@ Katokanlah (Nabi Muhammad), “Aku bukanlah Rasul nang pertamo di antaro paro ra
 
 Katokanlah, “Terangkanlah kapadoku bagaimano pandapatmu kalu io (Al- Qur’an) tu datang dari Allah dan kamu mangengkarinyo, padohal saorang saksi dari Bani Israil mangakui (kabenaran) nang serupo dengan (nang disebut dalam) Al-Qur’an lalu dio baiman, [^686]  sedangkan kamu manyombongkan diri. Sasungguhnyo Allah idak mambagih patunjuk kapado kaum nang aniayo.”
 
-[^686]: Yang dimaksud dengan ‘seorang dari Bani Israil’ ialah Abdullah bin Salam. Dio menyatokan keimanannyo kapado Nabi Muhammad saw. satelah mamperhatikan bahwo di antaro isi Al-Qur’an ado nang sasuai dengan Taurat, seperti ajaran tauhid, janji dan ancaman, kerasulan Nabi Muhammad saw, adonyo kehidupan akherat, dan sabagainyo.
-
 ## 46:11
 
 Orang-orang nang kafir bakato tentang orang-orang nang baiman, “Sakironyo Al-Qur’an tu adolah sasuatu nang baik, tentu orang-orang tu idak patut mandahului kami (baiman) kapadonyo.” [^687]  (Tapi,) kareno idak mandapat patunjuk dengannyo, Orang-orang tu bakal bakato, “Ko adolah kadustoan lamo (nang disampekan balik).”
-
-[^687]: Orang-orang kafir tu mangejek orang-orang Islam dengan mengatokan, “Sekironyo Al-Qur’an ko benar, tentu kami lebih dahulu baiman kapadonyo daripado orang-orang miskin dan lemah tu seperti Bilal, ‘Ammar, Suhaib, dan Khabbab.”
 
 ## 46:12
 
@@ -19504,8 +18129,6 @@ Pado hari (katiko) orang-orang nang kafir dihadapkan pado nerako, (dikatokan kap
 ## 46:21
 
 Ingatlah saudaro (kaum) ‘Ad (Hud) katiko dio mangingatkan kaumnyo (nang tinggal) di lembah Ahqaf. [^688]  Sungguh, lah balalu paro pambagih peringatan sabelum dan satelahnyo. (Dio bakato,) “Janganlah kamu manyembah salain Allah. Sasungguhnyo aku khawatir nanti kamu ditimpo azab pado hari nang besar.”
-
-[^688]: Lembah Ahqaf adolah lembah-lembah pasir yang terletak di selatan Jazirah Arabia.
 
 ## 46:22
 
@@ -19755,8 +18378,6 @@ Supayo kamu sakalian baiman kapado Allah dan Rasul-Nyo, manguatkan (ugamo)-Nyo, 
 
 Sasungguhnyo orang-orang nang bajanji setio kapadomu (Nabi Muhammad), (pado hakikatnyo) orang-orang tu bajanji setio kapado Allah. Tangan [^689]  Allah di atas tangan orang-orang tu. Sebab tu, siapo nang malanggar janji (setio tu), mako sasungguhnyo (akibat buruk dari) palanggaran tu hanyo bakal manimpo dirinyo dewek. Siapo nang manepati janjinyo kapado Allah, mako Dio bakal manganugerahinyo pahalo nang besar.
 
-[^689]: Ko tamasuk ayat-ayat sifat. Ahli tafsir babedo pandapat mangenai ayat ko. Sebagian manjelaskan bahwa nang dimaksud ‘tangan’ pada ayat ko adolah ‘kakuatan dan kakuasoan’ Allah. Sabagian lainnyo manafsirkan ‘tangan Allah’ dengan pangawasan Allah bakal janji setio nang dibagihkan oleh baberapo orang kapado Nabi Muhammad saw.
-
 ## 48:11
 
 Orang-orang Arab Badui nang ditinggalkan (kareno idak mau ikut ka Hudaibiah) bakal bakato kapadomu, “Kami lah disibukkan oleh harto dan keluargo kami, mako mohonkanlah ampunan untuk kami.” Orang-orang tu mangucapkan dengan mulutnya apo nang idak ado dalam hatinyo. Katokanlah, “Siapokah nang dapat manghalang-halangi kendak Allah kalu Dio mangendaki mudarat tahadap kamu atau kalu Dio mangendaki manfaat bagimu? Bahkan, Allah Mahateliti tahadap apo nang kamu kerjokan.”
@@ -19777,8 +18398,6 @@ Punyo Allahlah karajoan langit dan bumi. Dio mangampuni siapo nang Dio kendaki d
 
 Apobilo kamu nanti barangkat untuk mangambil rampasan perang, orang-orang Badui nang ditinggalkan tu bakal bakato, “Biakkanlah kami mangikutimu.” Orang-orang tu hendak mangubah janji Allah. [^690] Katokanlah, “Kamu sakali-kali idak (boleh) mangikuti kami. Macam tulah nang lah difirmankan Allah sabelumnyo.” Mako, orang-orang tu bakal bakato, “Sabenarnyo kamu dengki kapado kami,” padohal orang-orang tu idak mangerti kacuali sadikit sekali.
 
-[^690]: Orang-orang tu ingin mangubah janji Allah bahwa rampasan tu (Khaibar) hanyo untuk orang-orang nang ikut dalam Perjanjian Hudaibiah. Perjanjian tu tajadi pado akhir tahun kaenam Hijriah, kemudian pado Muharam tahun katujuh Rasulullah dan paro sahabat barangkat perang manuju Khaibar. Pado perang Khaibar ko, orang-orang Badui nang idak ikut dalam Perjanjian Hudaibiah bamaksud untuk ikut berangkat ka Khaibar supayo turut serto mandapatkan rampasan perang. Allah mangabarkan bahwa Io lah bajanji, rampasan perang ko hanyo untuk orang-orang nang ikut dalam Perjanjian Hudaibiah.
-
 ## 48:16
 
 Katokanlah kapado orang-orang Arab Badui nang ditinggalkan tu, “Kamu bakal diajak untuk (mamerangi) kaum nang mampunyai kakuatan nang besar. Kamu bakal mamerangi orang-orang tu atau orang-orang tu manyerah. Kalu kamu mamatuhi (ajakan tu), Allah bakal mambagih kapadomu balasan nang baik. Tapi, kalu kamu bapaling seperti nang kamu perbuat sabelumnyo, Dio bakal mangazabmu dengan azab nang pedih.”
@@ -19798,8 +18417,6 @@ Dan harto rampasan perang nang banyak nang dapat orang-orang tu ambil. Allah Mah
 ## 48:20
 
 Allah lah manjanjikan kapadomu rampasan perang nang banyak nang (nanti) dapat kamu ambil, mako Dio manyegerokan (harto rampasan perang) ko untukmu. [^691]  Dio manahan tangan (mencegah) manusio dari (upayo manganiayo)-mu (supayo kamu mansyukuri-Nyo), supayo manjadi bukti bagi orang-orang mukmin, dan supayo Dio manunjukkan kamu ka jalan nang lurus.
-
-[^691]: Allah manjanjikan harto rampasan perang nang banyak kapado kaum muslim. Sabagai pandahuluan, Allah mambagihkannyo pado Perang Khaibar.
 
 ## 48:21
 
@@ -19825,15 +18442,9 @@ Orang-orang tulah orang-orang nang kufur dan manghalang-halangi kamu (masuk) Mas
 
 (Kami bakal mangazab) orang-orang nang kufur katiko orang-orang tu mananamkan kasombongan dalam hati orang-orang tu, (Yaitu) kasombongan jahiliah, lalu Allah manurunkan katenangan kapado Rasul-Nyo dan orang-orang mukmin. (Allah) menetapkan (pulak) untuk orang-orang tu kalimat takwa. [^692]  Orang-orang tu lebih berhak atas kalimat tu dan patut mamilikinyo. Allah Maha Mangetaui sagalo sesuatu.
 
-[^692]: Kalimat takwa adolah kalimat tauhid.
-
 ## 48:27
 
 Sungguh, Allah benar-benar bakal mambuktikan kapado Rasul-Nyo tentang kabenaran mimpinyo dengan sabenar-benarnyo, (Yaitu) bahwa kamu pasti bakal mamasuki Masjidilharam, kalu Allah mangendaki, dalam kaadoan aman, dengan mancukur rambut kepalo, [^693]  dan mamendekkannyo, sedang kamu idak maraso takut. Allah mangetahui apo nang idak kamu kataui dan sabelum tu Dio lah mambagihkan kamenangan nang dekat. [^694]
-
-[^693]: Nang dimaksud dengan ‘mancukur rambut kepalo’ adolah tahallul sasudah umrah.
-
-[^694]: Selang baberapo lamo sabelum terjadi Perjanjian Hudaibiah Nabi Muhammad saw. bamimpi bahwa beliau basamo para sahabatnyo memasuki kota Makkah dan Masjidil haram dalam keadaan sebagian mareko manggundul rambut dan sebagian lagi memendekkannyo. Nabi mangatokan bahwa mimpi beliau tu bakal terjadi.
 
 ## 48:28
 
@@ -19846,8 +18457,6 @@ Nabi Muhammad adolah utusan Allah dan orang-orang nang basamo dengannyo basikap 
 ## 49:1
 
 Oi orang-orang nang baiman, janganlah mandahului Allah dan Rasul-Nyo [^695] dan batakwalah kapado Allah. Sasungguhnyo Allah Maha Mannganing lagi Maha Mangetahui.
-
-[^695]: Maksudnyo adolah bahwa orang-orang mukmin idak boleh manetapkan suatu hukum sabelum ado katetapan dari Allah dan Rasul-Nyo dalam hal nang dimungkinkan adonyo panjelasan dari Allah atau Rasul-Nyo.
 
 ## 49:2
 
@@ -19888,8 +18497,6 @@ Sasungguhnyo orang-orang mukmin tu basaudaro, kareno tu damaikanlah kaduo saudar
 ## 49:11
 
 Oi orang-orang nang baiman, Janganlah suatu kaum mangolok-olok kaum nang lain (kareno) boleh jadi orang-orang tu (nang diolok-olokkan tu) lebih baik daripado orang-orang (nang mangolok-olok) dan jangan pulak perempuan-perempuan (mangolok-olok) perempuan lain (kareno) boleh jadi perempuan (nang diolok-olok tu) lebih baik dari pado perempuan (nang mangolok-olok). Janganlah kamu saling mancelo dan saling mamanggil dengan julukan nang buruk. Saburuk-buruk panggilan adolah (panggilan) fasik [^696]  sasudah baiman. Siapo nang idak batobat, orang-orang tulah orang-orang aniayo.
-
-[^696]: Panggilan fasik adolah panggilan dengan manggunakan kato-kato nang mangandung panghinoan atau idak mancerminkan sifat saorang mukmin.
 
 ## 49:12
 
@@ -20127,13 +18734,9 @@ Dan sasungguhnyo pambalasan pasti terjadi.
 
 Demi langit nang mampunyoi jalan-jalan nang kokoh, [^697]
 
-[^697]: Nang dimaksud dengan ‘żātil ḥubuk (jalan-jalan nang kokoh)’ adolah garis edar bintang, planet, dan bendo-bendo angkaso lainnyo. Ado pulak nang mangartikan ‘żātil ḥubuk’ dengan ‘mamiliki ciptoan nang bagus’, ‘mamiliki hiasan bintang-bintang’, atau ‘mamiliki bangunan nang kokoh’.
-
 ## 51:8
 
 Sasungguhnyo kamu benar-benar dalam kaadoan baselisih. [^698]
-
-[^698]: Maksudnyo adolah perbedoan pandapat kaum musyrik tentang Nabi Muhammad saw. dan Al-Qur’an.
 
 ## 51:9
 
@@ -20251,8 +18854,6 @@ Kami idak mandapati di dalamnyo, kacuali sabuah rumah dari orang-orang muslim (L
 
 Kami maninggalkan suatu tando (kaagungan-Nyo) [^699]  di (negeri) itu bagi orang-orang nang takut pado azab nang pedih.
 
-[^699]: Menurut sabagian mufasir, nang dimaksud dengan ‘tando kaagungan-Nyo’ adolah batu-batu nang batumpuk tumpuk nang digunokan untuk mambinasokan kaum Lut. Ado pulak nang mangatokan bahwa nang dimaksud adolah sabuah talago nang aeknyo itam dan busuk baunya.
-
 ## 51:38
 
 (Macam tu pulak kami maninggalkan) pado Musa (tando-tando kakuasoan Allah) katiko Kami mangutusnyo kapado Fir’aun dengan mambawak mukjizat nang nyato.
@@ -20360,8 +18961,6 @@ Pado lembaran nang tabuka,
 ## 52:4
 
 Demi Baitulmakmur, [^700]
-
-[^700]: Manurut riwayat al-Bukhari dan Muslim, ‘Baitulmakmur’ adolah rumah di langit katujuh nang sanantiaso diramaikan oleh 70.000 malaikat nang baibadah salat.
 
 ## 52:5
 
@@ -20739,8 +19338,6 @@ Bahwa sasungguhnyo Diolah nang mambagih kakayoan dan kacukupan,
 
 Bahwa sasungguhnyo Diolah Tuhan (nang mamiliki) bintang Syi’ra, [^701]
 
-[^701]: Syi’ra adolah namo bintang nang disembah oleh sabagian orang Arab pado maso Jahiliyah.
-
 ## 53:50
 
 Dan bahwa sasunguhnyo Diolah nang lah mambinasokan (kaum) ‘Ad nang tadahulu,
@@ -20812,8 +19409,6 @@ Sungguh, benar-benar lah datang kapado orang-orang tu baberapo berito nang di da
 ## 54:5
 
 (Berito-berito tu adolah) hikmah nang sempurno, [^702]  tapi peringatan-peringatan tu idak baguno (bagi orang-orang tu).
-
-[^702]: Hikmah nang sempurno dalam ayat ko adolah ilmu pangetauan nang agung dan sempurno.
 
 ## 54:6
 
@@ -21170,8 +19765,6 @@ Mako, nikmat Tuhanmu nang manokah nang kamu dustokan (oi jin dan manusio)?
 ## 55:39
 
 Mako, pado hari tu manusio dan jin idak ditanyo tentang dosonyo. [^703]
-
-[^703]: Orang-orang tu idak ditanyo untuk mambuktikan amal perbuatannyo, tapi pado saatnyo bakal ditanyo untuk mampertanggungjawabkannyo
 
 ## 55:40
 
@@ -21537,8 +20130,6 @@ Kemudian, sasungguhnyo kamu, oi orang-orang sesat lagi pandusto,
 
 Pasti bakal mamakan batang zaqum. [^704]
 
-[^704]: Pohon zaqum adolah jenis pohon di nerako nang mangakibatkan derito nang luar biaso bagi nang mamakannyo.
-
 ## 56:53
 
 Lalu, kamu bakal mamenuhi perut-perutmu dengannyo.
@@ -21647,8 +20238,6 @@ Dalam Kitab nang tapeliharo.
 
 Idak ado nang manyentuhnyo kacuali paro hambo (Allah) nang disucikan. [^705]
 
-[^705]: Hamba Allah nang disucikan manurut sabagian ulama adolah orang-orang nang suci dari hadas besak dan kecik. Manurut sabagian lainnyo adolah makhluk Allah nang suci dari doso dan kasalahan, yakni paro malaikat.
-
 ## 56:80
 
 (Al-Qur’an) diturunkan dari Tuhan sagalo alam.
@@ -21729,13 +20318,9 @@ Milik-Nyolah karajoan langit dan bumi. Dio mangidupkan dan mamatikan. Dio Mahaku
 
 Diolah Nang Mahaawal, Mahaakhir, Mahazhahir dan Mahabathin. [^706]  Dio Maha Mangetaui sagalo sasuatu.
 
-[^706]: “Mahaawal” iolah nang lah ada sabelum sagalo sasuatu ado sahinggo idak ado nang mandahului-Nyo, “Mahaakhir” iolah nang bakal hidup salamonya sasudah sagalo sasuatu musnah, “Mahazahir” baarti nang macam tu jelas wujud-Nyo malalui alam samesta nang Dio ciptokan dan pambuktian logika dan raso, dan “Mahabatin” iolah nang zat dan hakikat-Nyo idak biso dijangkau, baik dengan mato, akal dan khayal.
-
 ## 57:4
 
 Diolah nang manciptokan langit dan bumi dalam enam maso. Kemudian Dio basamayam di atas ‘Arsy. Dio mangetahui apo nang masuk ka dalam bumi dan apo nang kaluar darinyo serto apo nang turun dari langit dan apo nang naik ka sano. [^707]  Dio basamomu di mano bae kamu barado. Allah Maha Mangimak apo nang kamu kerjokan.
-
-[^707]: Nang dimaksud dengan ‘nang naik’, antaro lain, adolah amal-amal dan doa-doa hambo-Nyo.
 
 ## 57:5
 
@@ -21840,8 +20425,6 @@ Oi orang-orang nang baiman, batakwalah kapado Allah dan baimanlah kapado Rasul-N
 ## 58:1
 
 Sungguh, Allah lah manganing ucapan perempuan nang mangajukan gugatan kapadomu (Nabi Muhammad) tentang lakinyo dan mangadukan kapado Allah, padohal Allah manganing percakapan kamu baduo. Sasungguhnyo Allah Maha Manganing lagi Maha Mangimak. [^708]
-
-[^708]: Ayat ko turun bakenaan dengan Khaulah binti Ṡa‘labah nang dizihar oleh lakinyo, Aus bin Aṣ-Ṣamit, dengan mangatokan, “Kamu bagiku seperti punggung emakku,” dengan maksud idak boleh lagi manggauli bininyo samacam mano io idak boleh manggauli emaknyo. Dalam adat Jahiliah kalimat zihar seperti tu samo dengan menalak bini. Khaulah mangadukan hal tu kapado Rasulullah saw. Rasulullah manjawab bahwa tentang hal tu belum ado kaputusan Allah. Dalam riwayat lain io basabdo, “Kamu lah diharamkan bagaul dengan dio.” Khaulah lalu bakato, “Lakiku belum manyebut kato-kato talak.” Io baulang kali mandesak Rasulullah agar manetapkan kaputusan. Mako, turunlah ayat ko dan ayat-ayat barikutnyo.
 
 ## 58:2
 
@@ -21951,8 +20534,6 @@ Apo nang kamu tebang di antaro pohon kurmo (milik Yahudi Bani Nadir) atau nang k
 
 Apo bae (harto nang diperoleh tanpa paperangan) [^709]  nang dianugerahkan Allah kapado Rasul-Nyo dari orang-orang tu idak (perlu) kamu mamacu kudo atau unto (untuk mandapatkannyo). Tapi, Allah mambagihkan kakuasoan kapado rasul-rasul-Nyo tahadap siapo nang Dio kendaki. Allah Mahakuaso atas sagalo sasuatu.
 
-[^709]: Harto rampasan yang diperoleh dari musuh tanpa malalui pertempuran disebut dengan fai’, sedangkan nang diperoleh dari musuh malalui pertempuran disebut ganimah. Pambagian harto fai’ dijelaskan pada ayat 7 surah ko, sedangkan pambagian ganimah dijelaskan pada ayat 41, surah al-Anfāl/8.
-
 ## 59:7
 
 Apo bae (harto nang diperoleh tanpa paperangan) nang dianugerahkan Allah kapado Rasul-Nyo dari penduduk baberapo negeri adolah untuk Allah, Rasul, kerabat (Rasul), anak yatim, orang miskin, dan orang nang dalam perjalanan. (Macam tu) supayo harto tu idak hanyo baedar di antaro orang-orang kayo bae di antaro kamu. Apo nang dibagihkan Rasul kapadomu terimolah. Apo nang dilarangnyo bagimu tinggalkanlah. Batakwalah kapado Allah. Sasungguhnyo Allah amat keras hukuman-Nyo.
@@ -22041,8 +20622,6 @@ Kaum kerabatmu dan anak-anakmu idak bakal bamanfaat bagimu pada hari Kiamat. Kag
 
 Sungguh, benar-benar ado suri tauladan nang baik bagimu pado (diri) Ibrahim dan orang-orang nang basamo dengannyo katiko orang-orang tu bakata kapado kaumnyo, “Sasungguhnyo kami balepas diri dari kamu dan dari apo nang kamu sembah salain Allah. Kami mangengkari (kekufuran)-mu dan lah nyato antaro kami dan kamu ado permusuhan dan kabencian untuk salamo-lamonyo sampe kamu baiman kapado Allah bae.” Tapi, (janganlah kamu tauladani) perkatoan Ibrahim kapado bapaknyo, [^710]  “Sungguh, aku bakal mamohonkan ampu-nan bagimu, tapi aku samo sakali idak dapat manolak (siksoan) Allah tahadapmu.” (Ibrahim bakato,) “Ya Tuhan kami, hanyo kapado Engkau kami batawakal, hanyo kapado Engkau kami batobat, dan hanyo kapado Engkaulah kami balik.
 
-[^710]: Nabi Ibrahim a.s. pernah mamintakan ampunan untuk bapaknyo nang musyrik kapado Allah. Ko idak boleh ditiru kareno Allah idak mambenarkan orang mukmin mamintakan ampunan untuk orang-orang kafir (Imak surahan- Nisā’/4: 48).
-
 ## 60:5
 
 Ya Tuhan kami, janganlah Engkau jadikan kami (sasaran) fitnah bagi orang-orang kafir. Ampunilah kami, ya Tuhan kami. Sasungguhnyo Engkau nang Mahaperkaso lagi Mahabijaksano.”
@@ -22071,8 +20650,6 @@ Oi orang-orang nang baiman, apobilo perempuan-perempuan mukmin datang bahijrah k
 
 Jiko ado sasuatu (pangembalian mahar) nang belum kamu selesaikan dari bini-binimu nang lari kapado orang-orang kafir, lalu kamu dapat mangalahkan orang-orang tu, bagihkanlah (dari harto rampasan) kapado orang-orang nang bininyo lari tu sabanyak mahar nang lah orang-orang tu bagihkan. [^711]  Batakwalah kapado Allah nang kapado-Nyo kamu baiman.
 
-[^711]: Sabelum dibagihkan kapada lima golongan nang berhak, ganimah dipergunokan lebih dahulu untuk mambayar mahar-mahar kapado paro suami nang bininyo lari ka daerah kaum kafir.
-
 ## 60:12
 
 Oi Nabi, apobilo perempuan-perempuan mukmin datang kapadomu untuk mangadokan baiat (janji setio) bahwa orang-orang tu idak bakal mampersekutukan sasuatu apo pun dengan Allah, idak bakal mancuri, idak bakal bazino, idak bakal mambunuh anak-anaknyo, idak bakal babuat dusto nang orang-orang tu ado-adokan antaro tangan dan kaki orang-orang tu3 dan idak bakal mandurhakoimu dalam urusan nang baik, terimolah baiat orang-orang tu dan mohonkanlah ampunan untuk orang-orang tu kapado Allah. Sasungguhnyo Allah Maha Pangampun lagi Maha Panya-yang.
@@ -22100,8 +20677,6 @@ Sasungguhnyo Allah mancintoi orang-orang nang baperang di jalan-Nyo dalam sekok 
 ## 61:5
 
 (Ingatlah) katiko Muso bakato kapado kaumnyo, “Oi kaumku, mangapo kamu manyakitiku? Padohal, kamu sungguh mangetaui bahwa aku adolah utusan Allah kapadomu.” Mako, katiko orang-orang tu bapaling (dari perentah Allah), Allah mamalingkan hati orang-orang tu (dari kabenaran). [^712]  Allah idak mambagih patunjuk kapado kaum nang fasik.
-
-[^712]: Kareno orang-orang tu bapaling dari kebenaran, Allah membiakkan sesat hati orang-orang tu sahinggo orang-orang tu batambah jauh dari kebenaran.
 
 ## 61:6
 
@@ -22191,8 +20766,6 @@ Apobilo orang-orang munafik tibo kapadomu (Nabi Muhammad), orang-orang tu bakato
 
 Orang-orang tu menjadikan sumpah-sumpah orang-orang tu sabagai perisai, [^713] lalu orang-orang tu manghalang-halangi (orang lain) dari jalan Allah. Sasungguhnyo apo nang salalu orang-orang tu kerjokan tu sangatlah buruk.
 
-[^713]: Orang-orang tu basumpah bahwa orang-orang tu baiman untuk menjago harto supayo idak dirampas dan manjago diri supayo idak dibunuh atau ditawan.
-
 ## 63:3
 
 Nang macam tu kareno sasungguhnyo orang-orang tu lah baiman, kemudian kufur. Mako, hati orang-orang tu dikunci sahinggo dak dapat mangerti.
@@ -22200,8 +20773,6 @@ Nang macam tu kareno sasungguhnyo orang-orang tu lah baiman, kemudian kufur. Mak
 ## 63:4
 
 Apobilo kamu mangimak orang-orang tu, tubuhnyo mangagumkanmu. Jiko orang-orang tu batutur kato, kamu manganing tutur katonyo (dengan saksamo kareno kafasihannyo). Orang-orang tu bagaikan (saonggok) kayu nang tasandar. [^714] Orang-orang tu manyangko bahwa satiap teriakan (kutukan) ditujukan kapado orang-orang tu. Orang-orang tulah musuh (nang sabenarnyo). Mako, waspadolah tahadap orang-orang tu. Semoga Allah mambinasokan orang-orang tu. Bagaimanokah orang-orang tu dapat dipalingkan (dari kabenaran)?
-
-[^714]: Orang-orang munafik bagaikan saonggok kayu nang tasandar tanpo dayo hidup, tanpo pijakan nang kokoh, dan idak mamiliki buah nang biso dimanfaatkan
 
 ## 63:5
 
@@ -22287,8 +20858,6 @@ Taatlah kapado Allah dan taatlah kapado Rasul. Jiko kamu bapaling, sasungguhnyo 
 
 Oi orang-orang nang baiman, sasungguhnyo di antaro bini-binimu dan anak-anakmu ado nang manjadi musuh bagimu. [^715] Mako, bahati-hatilah kamu tahadap orang-orang tu. Jiko kamu mamaafkan, manyantuni, dan mangampuni (orang-orang tu), sasungguhnyo Allah Maha Pangampun lagi Maha Panyayang.
 
-[^715]: Kadang-kadang bini atau anak dapat manjerumuskan suami atau bapaknyo untuk malakukan perbuatan-perbuatan nang idak dibenarkan oleh ugamo.
-
 ## 64:15
 
 Sasungguhnyo hartomu dan anak-anakmu hanyolah cuboan (bagimu). Di sisi Allahlah (ado) pahalo nang besak.
@@ -22300,8 +20869,6 @@ Batakwalah kamu kapado Allah sakuat kamampuanmu! Aninglah, taatlah, dan infakkan
 ## 64:17
 
 Jiko kamu maminjamkan kapado Allah pinjaman nang baik, [^716] niscayo Dio bakal malipatgandokan (balasan) untukmu dan mangampunimu. Allah Maha Mansyukuri lagi Maha Panyantun.
-
-[^716]: Pinjaman nang disebut dalam ayat ko adalah sedekah, infak, wakaf, zakat, dan lain-lain.
 
 ## 64:18
 
@@ -22358,8 +20925,6 @@ Allahlah nang manciptokan tujuh langit dan (manciptokan pulak) bumi seperti tu. 
 ## 66:1
 
 Oi Nabi (Muhammad), mangapo kamu mangharamkan apo nang dihalalkan Allah bagimu? Kamu bermaksud manyenangkan hati bini-binimu. Allah Maha Pangampun lagi Maha Panyayang. [^717]
-
-[^717]: Nabi basumpah untuk dak menggauli bininyo, yaitu Mariah al-Qibtiyah. Dengan sumpah iko sesuatu yang halal menjadi dak diperbolehkan. Jadi, ayat iko dak bamakna bahwo Nabi mengubah hukum halal menjadi haram.
 
 ## 66:2
 
@@ -22957,8 +21522,6 @@ Dari Allah, Pamilik genah-genah (untuk) naik.
 
 Paro malaikat dan Rūḥ (Jibril) naik (manghadap) kapado-Nyo dalam sahari nang kadarnyo limo puluh ribu tahun. [^718]
 
-[^718]: Maksudnyo, Jibril dan paro malaikat nang lain butuh waktu sikok hari perjalanan untuk manghadap Allah. Sikok hari dalam dunio malaikat samo dengan limo puluh ribu tahun dalam dunio manusio.
-
 ## 70:5
 
 Mako, basabarlah kamu dengan kasabaran nang baik.
@@ -23015,8 +21578,6 @@ Nang mamanggil orang nang bapaling dan manjauh (dari ugamo),
 
 Serto mangumpulkan (harto bendo), lalu manyimpannyo. [^719]
 
-[^719]: Maksudnyo adolah orang nang manyimpan hartonyo dan idak mau mangaluarkan zakat dan idak pulak manginfakkan ka jalan nang benar.
-
 ## 70:19
 
 Sasungguhnyo manusio diciptokan dengan sifat keluh kesah lagi kikir.
@@ -23065,8 +21626,6 @@ Sasungguhnyo idak ado orang nang maraso aman dari azab Tuhan orang-orang tu.
 
 Kacuali tahadap bini-bini orang-orang tu atau budak-budak nang orang-orang tu punyoi. [^720]  Mako, sasungguhnyo orang-orang tu idak tahino (kareno manggaulinyo).
 
-[^720]: Imak catatan kaki surah al-Mu’minun/23: 6.
-
 ## 70:31
 
 Mako, siapo nang mancari (palampiasan syahwat) salain tu, mako orang-orang tulah orang-orang nang malampaui batas.
@@ -23095,8 +21654,6 @@ Mangapo orang-orang kafir tu basegero datang ka arahmu (Nabi Muhammad),
 
 Dari kanan dan dari kiri dengan bakelompok-kelompok? [^721]
 
-[^721]: Manurut katerangan sabagian mufasir ayat ko bahubungan dengan kajadian katiko orang-orang musyrik bakumpul bakelompok di depan Rasulullah saw. sambil mangejek dan mangatokan, “Jiko orang-orang mukmin benar-benar bakal masuk surgo samacam mano kato Muhammad, kitolah nang bakal masuk lebih dulu.” Mako turunlah ayat 38.
-
 ## 70:38
 
 Apokah satiap orang dari orang-orang tu (orang-orang kafir tu) ingin dimasukkan ka dalam surgo nang penuh kanikmatan?
@@ -23104,8 +21661,6 @@ Apokah satiap orang dari orang-orang tu (orang-orang kafir tu) ingin dimasukkan 
 ## 70:39
 
 Sakali-kali idak! Sasungguhnyo Kami manciptokan orang-orang tu dari apo nang orang-orang tu kataui (aek mani). [^722]
-
-[^722]: Orang-orang kafir tu mangetaui bahwa orang-orang tu diciptokan Allah dari aek mani untuk baiman dan batakwa kapado-Nyo samacam mano manusia nang lainnyo. Jadi, kalu idak baiman dan batakwa, orang-orang tu idak bahak masuk surgo.
 
 ## 70:40
 
@@ -23159,13 +21714,9 @@ Sasungguhnyo satiap kali aku manyeru orang-orang tu (untuk baiman) supayo Engkau
 
 Kemudian, sasungguhnyo aku manyeru orang-orang tu dengan caro terang-terangan. [^723]
 
-[^723]: Dakwah ko dikerjokan sasudah dakwah dengan caro diam-diam idak barasil.
-
 ## 71:9
 
 Lalu, aku manyeru orang-orang tu dengan terang-terangan dan dengan diam-diam. [^724]
-
-[^724]: Sasudah malakukan dakwah sacaro diam-diam dan sacaro terang-terangan, Nabi Nuh a.s. mangerjokan kaduonyo tu sakaligus.
 
 ## 71:10
 
@@ -23186,8 +21737,6 @@ Mangapo kamu idak takut tahadap kaagungan Allah?
 ## 71:14
 
 Padohal, sungguh, Dio lah manciptokanmu dalam baberapo tahapan (panciptoan). [^725]
-
-[^725]: Imak surat l-Mu’minūn/23: 12, 13, 14.
 
 ## 71:15
 
@@ -23224,8 +21773,6 @@ Orang-orang tu pun malakukan tipu-dayo nang amat besak.”
 ## 71:23
 
 Orang-orang tu bakato, “Jangan sakali-kali kamu maninggalkan tuhan-tuhanmu dan jangan pulak sakali-kali kamu maninggalkan Wadd, Suwwā’, Yaghuts, Ya’ūq dan Nasr.” [^726]
-
-[^726]: Wadd, Suwwā’, Yaghuts, Ya’ūq dan Nasr adolah namo-namo berhalo tabesak pado kabilah-kabilah kaum Nabi Nuh a.s. nang samulo adolah namo-namo orang saleh.
 
 ## 71:24
 
@@ -23282,8 +21829,6 @@ Sasungguhnyo orang-orang tu (jin) manyangko samacam mano kamu (orang-orang kafir
 ## 72:9
 
 Sasungguhnyo kami (jin) dahulu salalu manduduki baberapo genah (di langit) untuk manganingkan (berito-beritonyo). Tapi sekarang [^727]  siapo nang (mancoba) manganingkan tentu bakal manjumpoi panah api nang mangintai (untuk mambakarnyo).
-
-[^727]: Nang dimaksud dengan sekarang adolah waktu sasudah Nabi Muhammad saw. diutus manjadi rasul.
 
 ## 72:10
 
@@ -23368,8 +21913,6 @@ Oi orang nang baselimut (Nabi Muhammad),
 ## 73:2
 
 Bangunlah (untuk sembahyang) pado malam hari, kacuali sabagian kecik, [^728]
-
-[^728]: Sembahyang malam ko pado awalnyo wajib, sabelum turun ayat ke-20 dalam surat ko. Sasudah turunnyo ayat ke-20 ko hukumnyo jadi sunah.
 
 ## 73:3
 
@@ -23487,8 +22030,6 @@ Hari tulah hari nang sulit,
 
 Biakkanlah Aku (nang batindak) kapado orang nang Aku lah ciptokan dio dalam kasendirian. [^729]
 
-[^729]: Ayat ko dan baberapo ayat barikutnyo diturunkan mangenai al-Walid bin al-Mugirah, pamimpin kafir Quraisy, nang sabelumnyo idak mamiliki apo-apo.
-
 ## 74:12
 
 Aku bagih dio harto bendo nang banyak,
@@ -23572,8 +22113,6 @@ Kami idak manjadikan paro panjago nerako, kacuali dari malaikat dan Kami idak ma
 ## 74:32
 
 Sakali-kali idak! [^730]  Demi bulan,
-
-[^730]: “Idak” adolah bantahan tahadap ucapan orang-orang musyrik nang mangingkari hal-hal tasebut di atas.
 
 ## 74:33
 
@@ -23727,8 +22266,6 @@ Pado hari tu diberitokan kapado manusio apo nang lah dikerjokannyo dan apo nang 
 
 Bahkan, manusio tu manjadi saksi atas dirinyo dewek, [^731]
 
-[^731]: Anggota badan manusio manjadi saksi tahadap pakerjoan nang lah orang-orang tu lakukan, seperti tasebut dalam surah an-Nur/24: 24.
-
 ## 75:15
 
 meskipun dio mangemukokan alasan-alasan(-nyo).
@@ -23788,8 +22325,6 @@ Dio pun yakin bahwa sabenarnyo tulah waktu papisahan (dengan dunio),
 ## 75:29
 
 Batautlah betis (kiri) dan betis (kanan). [^732]
-
-[^732]: Hal tu manggambarkan hebatnyo penderitaan pado saat bakal mati serto katakutan bakal maninggalkan dunio dan manghadapi akherat.
 
 ## 75:30
 
@@ -23854,8 +22389,6 @@ Sasungguhnyo Kami lah manyediokan bagi orang-orang kafir rantai, belenggu dan ap
 ## 76:5
 
 Sasungguhnyo orang-orang nang babuat kabajikan bakal minum (khamar) dari gelas nang campurannyo air kafur, [^733]
-
-[^733]: Kafur marupokan namo suatu mato air di surgo nang warnonyo putih, aromanyo harum, dan enak rasonyo. Kafur disediokan untuk hambo Allah nang taat.
 
 ## 76:6
 
@@ -23973,8 +22506,6 @@ Dan (malaikat-malaikat) nang terbang dengan kencangnyo;
 
 Demi (malaikat-malaikat) nang manyebar-kan (rahmat Tuhannyo) dengan saluas-luasnyo, [^734]
 
-[^734]: Nang dimaksud adolah malaikat nang turun untuk mambawak wahyu. Sabagian mufasir bapendapat bahwa nang dimaksud dengan ‘an-nasyirat’ iolah angin nang batiup disertoi hujan.
-
 ## 77:4
 
 Dan (malaikat-malaikat) nang mambedakan (antaro nang hak dan nang batil) dengan sajelas-jelasnyo,
@@ -24006,8 +22537,6 @@ Apobilo gunung-gunung lah dihancurkan-leburkan;
 ## 77:11
 
 Apabilo rasul-rasul lah ditetapkan waktu-nyo, [^735]
-
-[^735]: Maksudnyo adolah waktu untuk bakumpul basamo umat orang-orang tu masing-masing.
 
 ## 77:12
 
@@ -24069,8 +22598,6 @@ Bukankah Kami manjadikan bumi sabagai (genah) bakumpul
 
 Bagi nang (masih) hidup dan nang (sudah) mati? [^736]
 
-[^736]: Bumi mangumpulkan orang-orang hidup di permukoannyo dan orang-orang nang mati di perutnyo.
-
 ## 77:27
 
 Kami manjadikan padonyo gunung-gunung nang tinggi dan Kami bagih minum kamu dengan aek tawar?
@@ -24086,8 +22613,6 @@ Celakolah pado hari tu bagi orang-orang nang mandustokan (kabenaran).
 ## 77:30
 
 Pergilah manuju naungan (asap api nerako) nang mampunyoi tigo cabang [^737]
-
-[^737]: Maksudnyo adolah nang mampunyoi tigo gejolak, yaitu di kanan, di kiri, dan di atas. Ko baarti bahwa azab tu mangepung orang-orang kafir dari sagalo panjuru.
 
 ## 77:31
 
@@ -24209,8 +22734,6 @@ Kami manjadikan tidukmu untuk baistirahat.
 
 Kami manjadikan malam sabagai pakaian. [^738]
 
-[^738]: Malam disebut sabagai ‘pakaian’ kareno malam tu gelap manutupi alam samacam mano pakaian manutupi tubuh manusio.
-
 ## 78:11
 
 Kami manjadikan siang untuk mancari pangidupan.
@@ -24323,8 +22846,6 @@ Tuhan (pameliharo) langit, bumi, dan apo nang ado di antaro kaduonyo, Nang Maha 
 
 Pado hari katiko Rūḥ [^739]  dan malaikat tegak basaf-saf. Malaikat-malaikat tu idak bacakap, kacuali nang diizinkan oleh Tuhan Nang Maha Pangasih dan dio mangatokan nang benar.
 
-[^739]: Di antara ahli tafsir ada nang mamahami roh dalam ayat ko sebagai Jibril, ado nang mangatokan tentaro Allah, dan ado pulak nang mangatokan malaikat nang diserahi tugas mangurus arwah dan sajenisnyo.
-
 ## 78:39
 
 Tulah hari nang hak (pasti tajadi). Siapo nang mangendaki (kaselamatan) niscayo manempuh jalan balik kapado Tuhannyo (dengan baamal saleh).
@@ -24353,8 +22874,6 @@ Demi (malaikat) nang cepat (manunaikan tugasnyo) dengan mudah,
 
 (Malaikat) nang mangatur urusan (dunio). [^740]
 
-[^740]: Dalam ayat 1-5 Allah basumpah dengan malaikat nang bamacam-macam sifat dan urusannyo bahwa manusio bakal dibangkitkan pado hari Kiamat. Sabagian mufasir bapendapat bahwa dalam ayat-ayat ni, kacuali ayat 5, Allah basumpah dengan bintang-bintang.
-
 ## 79:6
 
 (Kamu benar-benar bakal dibangkitkan) pado hari katiko tiupan pertamo mangguncang (alam semesta).
@@ -24374,8 +22893,6 @@ Pandangannyo tatunduk.
 ## 79:10
 
 Manusio-manusio tu bakato, “Apokah kita benar-benar bakal dibalikkan pado kahidupan nang samulo? [^741]
-
-[^741]: Sasudah orang-orang kafir manganing adonya hari Kabangkitan sasudah mati, orang-orang tu marasa heran dan mangejek kareno manurut kayakinan orang-orang tu hari Kabangkitan u idak ado. Tulah sebabnya orang-orang tu batanyo.
 
 ## 79:11
 
@@ -24601,8 +23118,6 @@ Dio manciptokannyo dari satetes mani, lalu manentukan (takdir)-nyo.
 
 Kemudian, jalannyo Dio mudahkan. [^742]
 
-[^742]: Maksudnyo adolah mamudahkan kalahirannyo atau mampermudah baginyo untuk manjalani jalan nang benar atau jalan nang sesat
-
 ## 80:21
 
 Kemudian, Dio mamatikannyo lalu mangubur-kannyo.
@@ -24795,8 +23310,6 @@ Dio (Nabi Muhammad) bukanlah saorang nang kikir (enggan) untuk manerangkan nang 
 
 Mako, ka manokah kamu bakal pegi? [^743]
 
-[^743]: Sasudah diterangkan bahwa Al-Qur’an tu benar-benar datang dari Allah dan di dalamnyo ado palajaran dan patunjuk nang mamimpin manusio ka jalan nang lurus, ditanyokanlah kapado orang-orang kafir tu, “Jalan manokah nang bakal kamu tempuh?”
-
 ## 81:27
 
 (Al-Qur’an) tu idak lain, kacuali peringatan bagi semesta alam,
@@ -24913,8 +23426,6 @@ Pado suatu hari nang besak (Kiamat),
 
 Jangan sakali-kali macam tu! Sasungguhnyo catatan orang nang durhako benar-benar (tasimpan) dalam Sijjīn. [^744]
 
-[^744]: ‘Sijjīn’ adolah namo kitab nang mancatat sagalo perbuatan orang-orang nang durhako.
-
 ## 83:8
 
 Tahukah engkau apokah Sijjīn tu?
@@ -24947,8 +23458,6 @@ Sakali-kali idak! Bahkan, apo nang selalu orang-orang tu kerjokan tu lah manutup
 
 Sakali-kali idak! [^745]  Sasungguhnyo orang-orang tu pado hari tu benar-benar tahalang dari (rahmat) Tuhannyo.
 
-[^745]: Maksudnyo adolah sakali-kali idak macam apo nang orang-orang tu katokan, yakni bahwa orang-orang tu dekat pado sisi Tuhan.
-
 ## 83:16
 
 Sasungguhnyo orang-orang tu kemudian benar-benar masuk (nerako) Jahim.
@@ -24960,8 +23469,6 @@ Lalu dikatokan (kapado orang-orang tu), “Nilah (azab) nang selalu kamu dustoka
 ## 83:18
 
 Sakali-kali idak! Sasungguhnyo catatan orang-orang nang babakti benar-benar tasimpan dalam ‘Illiyyīn. [^746]
-
-[^746]: ‘Illi yyīn’ adolah namo kitab nang mancatat sagalo perbuatan orang-orang nang baamal saleh.
 
 ## 83:19
 
@@ -25059,8 +23566,6 @@ Serto patuh kapado Tuhannyo, dan sudah saharusnyo patuh.
 
 Oi manusio, sasungguhnyo kamu lah bakerjo keras manuju (pertemuan dengan) Tuhanmu. Mako, kamu pasti manemui-Nyo. [^747]
 
-[^747]: Manusio di dunio ko baik disadari atau idak sedang dalam perjalanan manuju Tuhannyo. Pasti dio bakal batemu dengan Tuhannyo untuk manerimo balasan tahadap perbuatannyo nang buruk dan nang baik.
-
 ## 84:7
 
 Adopun orang nang catatannyo dibagihkan dari sabelah kanannyo,
@@ -25112,8 +23617,6 @@ Demi bulan apobilo jadi purnama.
 ## 84:19
 
 Sungguh, kamu benar-benar bakal manjalani tingkat demi tingkat (dalam kahidupan). [^748]
-
-[^748]: Nang dimaksud dengan ‘tingkat demi tingkat’ adolah perkembangan dari satetes mani manuju kalahiran, kanak-kanak, remaja, dewasa dan tuo atau perkembangan dari hidup manuju mati kemudian dibangkitkan balik.
 
 ## 84:20
 
@@ -25270,8 +23773,6 @@ Mako, baginyo (manusio) idak ado lagi kakuatan dan idak (pulo) ado panolong.
 ## 86:11
 
 Demi langit nang mangandung hujan [^749]
-
-[^749]: ‘Raj‘i’ artinyo balik baputar. Hujan dinamokan ‘raj‘i’ kareno hujan baasal dari uap nang naik dari bumi ka udaro, kemudian turun ka bumi, kemudian balik ka atas, dan dari atas balik ka bumi dan macam tulah saterusnyo.
 
 ## 86:12
 
@@ -25485,8 +23986,6 @@ Demi waktu fajar
 
 Demi malam nang sapuluh, [^750]
 
-[^750]: Nang dimaksud dengan malam nang sapuluh adolah malam sapuluh taakhir dari bulan Ramadan. Ado nang mangatokan sapuluh pertamo dari bulan Muharam, tamasuk di dalamnyo hari Asyura dan ado pulo nang mangatokan sapuluh malam pertamo dari bulan Zulhijah.
-
 ## 89:3
 
 Demi nang genap dan nang ganjil,
@@ -25514,8 +24013,6 @@ Nang sabelumnyo idak pernah dibangun (suatu kota pun) macam tu di negeri-negeri 
 ## 89:9
 
 (Idakkah kamu mangimak pulo kaum) Samud nang mamotong batu-batu besak di lembah, [^751]
-
-[^751]: Lembah ni taletak di bagian utaro Jazirah Arab antaro kota Madinah dan Syam. Orang-orang tu mamotong-motong batu gunung untuk mambangun gedung-gedung tempat tinggal dan ado pulo nang malubangi gunung-gunung untuk tempat tinggal dan tempat balindung.
 
 ## 89:10
 
@@ -25545,13 +24042,9 @@ Adopun manusio, apobilo Tuhan mangujinyo lalu mamuliokannyo dan mambagihnyo kani
 
 Sementara tu, apobilo Dio mangujinyo lalu mambatasi rezekinyo, bakatolah dio, “Tuhanku lah manghinoku.” [^752]
 
-[^752]: Allah manyalahkan orang nang mangatokan bahwa kakayoan tu adolah suatu kamulioan, dan kamiskinan adolah suatu kahinoan macam nang tasebut pado ayat 15 dan 16. Sabenarnyo kakayoan dan kamiskinan adolah ujian Allah bagi hambo-hambo-Nyo.
-
 ## 89:17
 
 Sakali-kali idak! Sabaliknyo, kamu idak mamuliokan anak yatim, [^753]
-
-[^753]: Maksudnyo adolah idak mambagih hak-hak anak yatim dan idak babuat baik kapadonyo.
 
 ## 89:18
 
@@ -25821,8 +24314,6 @@ Nang manginfakkan hartonyo (di jalan Allah) untuk mambersihkan (diri dari sifat 
 
 Idak ado suatu nikmat pun nang dibagihkan saseorang kapadonyo nang harus dibalas, [^754]
 
-[^754]: Maksudnyo adolah bahwo orang-orang nang batakwa mambantu orang lain bukan kareno orang tu bajaso kapadonyo sahinggo perlu mambalasnyo, malainkan hanyo mangarap rido Allah.
-
 ## 92:20
 
 Kacuali (dio mambagihkannyo samato-mato) kareno mancari karidaan Tuhannyo Nang Mahatinggi.
@@ -26011,8 +24502,6 @@ Biaklah dio mamanggil golongannyo (untuk manolongnyo).
 
 Kagi Kami bakal mamanggil Malaikat Zabaniyah (panyikso orang-orang nang badoso). [^755]
 
-[^755]: Zabaniyah adolah malaikat nang batugas manyikso orang-orang nang badoso.
-
 ## 96:19
 
 Sakali-kali idak! Janganlah patuh kapadonyo, (tapi) sujud dan mandekatlah (kapado Allah).
@@ -26193,8 +24682,6 @@ Taukah kamu apokah (nerako) Hawiyah tu?
 
 Babangga-bangga dalam mamperbanyak (dunio) lah malalaikanmu. [^756]
 
-[^756]: Maksudnyo basaing mampabanyak anak, harto, pangikut, kamulioan, dan sabagainyo lah malalaikan manusio dari kataatan kapado Allah Swt.
-
 ## 102:2
 
 Sampai kamu masuk ka dalam kubur.
@@ -26327,13 +24814,9 @@ Celakolah orang-orang nang malaksanokan sembahyang,
 
 (Yaitu) nang lalai tahadap sembahyangnyo, [^757]
 
-[^757]: Malalaikan salat tamasuk lalai bakal waktu dan tujuan salat serto bamalasan dalam mangerjokannyo.
-
 ## 107:6
 
 Nang babuat riya, [^758]
-
-[^758]: Riya adolah malakukan sasuatu perbuatan idak untuk mancari karidoan Allah, tapi untuk mancari pujian atau kamasyhuran di masyarakat.
 
 ## 107:7
 
@@ -26390,8 +24873,6 @@ Mako batasbihlah dengan mamuji Tuhanmu dan mohonlah ampun kapadoNyo. Sasungguhny
 ## 111:1
 
 Binasolah kaduo tangan Abu Lahab dan benar-benar binaso dio. [^759]
-
-[^759]: Yang dimaksud dengan ‘kedua tangan Abu Lahab’ adalah Abu Lahab itu sendiri.
 
 ## 111:2
 
@@ -26468,3 +24949,1522 @@ Nang mambisikkan (kajahatan) ka dalam dado manusio
 ## 114:6
 
 Dari (golongan) jin dan manusio.”
+
+[^1]: Allah disebut rabb (tuhan) sagalo alam kareno Diolah nang lah manciptokan, mameliharo, mandidik, mangatur, mengururs, mambagih rezki, dan sagalonyo kapado makhluk-Nyo.
+
+[^2]: ‘Yaumid-dīn (Hari Pambalasan) adolah hari katiko kagi manusio manerimo pembalasan tahadap amal-amalnyo nang baik dan nang buruk. Hari tu disebut jugo yaumul-qiyāmah (Hari Kiamat), yaumul-ḥisāb (Hari Pangitungan) dan sabagainyo.
+
+[^3]: Jalan nang lurus iolah jalan hidup nang benar sasuai dengan ajaran Islam nang takandung di dalam Al-Qur’an dan hadis.
+
+[^4]: Dalam Al-Qur’an tadapat 29 surat nang dimuloi dengan huruf arab nang muqatta’ah (dibaco namo hurufnyo), saperti Alif Lām Mīm, Alif Lām Rā. Makno sasungguhnyo dari rangkaian huruf-huruf tu hanyo Allah Swt. nang tau. Ado nang bapendapat bahwa huruf-huruf tu gunonyo untuk manarik perhatian atau untuk manunjukkan mukjizat Al-Qur’an
+
+[^5]: Allah Swt. lah mangunci hati dan panganingan orang kafir sahinggo nasehat atau hidayah idak biso masuk ka dalam hatinyo
+
+[^6]: Panyakit hati nang dimaksud adolah karaguan tentang kabenaran ugamo Islam, kamunafikan, atau katidaksukoan tahadap kanabian Rasulullah saw
+
+[^7]: Di antaro bentuk karusakan di atas bumi adolah kakufuran, kamaksiatan, manyebarkan rahasio orang baiman dan mambagihkan kasetiaan kapado orang kafir. Malanggar nilai-nilai nang ditetapkan ugamo kagi mangakibatkan alam iko rusak, bahkan hancur.
+
+[^8]: Maksudnyo adolah bahwa pangetauan dan kakuasoan Allah Swt. maliputi orang-oranng kafir.
+
+[^9]: Makhluk nang kecik nang dikiro lemah, macam nyamuk, semut, lebah, laba-laba, atau lainnyo, sabenarnyo banyak manyimpan hikmah untuk manjadi palajaran bagi manusio.
+
+[^10]: Saseorang manjadi sesat kareno kaengkarannyo dan idak mau mamahami patunjuk- patunjuk Allah. Dalam ayat iko dijelaskan bahwa orang-orang tu engkar dan idak mau mamahami apo sebabnyo Allah mambuat nyamuk sabagai perumpamoan. Akibatnyo, orang-orang tu manjadi sesat.
+
+[^11]: Orang fasik adolah orang nang malanggar katentuan-katentuan ugamo, baik barupo ucapan maupun gawenyo.
+
+[^12]: Langit nang bamakna ruang di luar bumi dengan sagalo isinyo (bulan, planet, komet, bintang, galaksi) nang jumlahnyo tak bahingga (disimbolkan dengan ungkapan ‘tujuh langit’) sasungguhnya terus berevolusi. Allah Swt. manyebutnyo ‘manyempurnokannyo’, karena prosesnya terus balanjut. Banyak bintang nang mati, namun banyak jugo bintang nang lahir. Sedangkan nang dimaksud dengan, ‘manyempurnokan’ adolah proses pambentukan bintang-bintang baru nang terus balanjut sejak pambentukan alam semesta.
+
+[^13]: Dalam Al-Qur'an kata ‘khalīfah’ mampunyoi makno pangganti, pamimpin, panguaso, atau pangelola alam samesta.
+
+[^14]: Iblis tamasuk nang disuruh sujud dan barasal dari golongan jin.
+
+[^15]: Setan mangicuh Nabi Adam a.s. bahwa siapo nang makan buah pohon tu kagi kekal di dalam surgo (tengok surat Thāhā/20 : 120).
+
+[^16]: Orang zalim adolah orang nang malakukan gawe aniayo nang marugikan dirinyo dewek maupun orang lain.
+
+[^17]: Nabi Adam a.s. dan Hawa mamakan buah pohon nang dilarang tu, sahinggo diusir Allah SWT. dari surgo dan diturunkan ka dunio.
+
+[^18]: Nang dimaksud baberapo kalimat pado ayat ko adolah ucapan untuk mamohon ampun (tobat) dari Allah SWT macam disebut dalam surah al-A’raf/7:23.
+
+[^19]: Israil adolah namo lain Nabi Ya‘qub a.s. Oleh kareno tu, Bani Israil adolah katurunan Nabi Ya‘qub a.s. dan kini dikenal dengan bangso Yahudi.
+
+[^20]: Di antaro Janji Bani Israil kapado Allah iolah hanyo manyembah Allah, idak manyekutukan-Nyo, serto baiman kapado Nabi Muhammad saw. Samacam mano nang tasebut di dalam Taurat.
+
+[^21]: Nang dimaksud dengan kebatilan adolah kesalahan, kejahatan, kemungkaran, dan sabagainyo.
+
+[^22]: Syafaat iolah pertolongan nang, antaro lain, dibagihkan oleh malaikat, paro nabi, atau orang-orang mukmin pilihan atas izin Allah Swt. untuk maringankan azab sasaorang atau bebannyo di akherat.
+
+[^23]: Fir‘aun adolah gelar bagi rajo-rajo Mesir Kuno. Menurut sabagian ahli sejarah, Fir‘aun pado maso Nabi Musa a.s. adolah Menepthan (1232–1224 SM) nang dikenal dengan Ramses II.
+
+[^24]: Allah Swt. mambagi mukjizat kapado Nabi Musa a.s. dengan membagihkan jalan malalui laut nang tasibak. Belum ado panjelasan ilmiah, caronyo. Salah sikok caronyo, biso jadi palintasan eksodus malalui celah teluk nang sempit. Dengan kakuasoan Allah Swt., rombongan Nabi Musa a.s. melintasi tepat saat laut surut maksimum saat purnama atau bulan baru sahinggo cukup waktu untuk melintas. Sekitar 6 jam kemudian, rombongan Fir‘aun mengejar. Saat di tengah, aek laut mulai pasang dan manenggelamkan rombongan Fir‘aun.
+
+[^25]: Allah Swt. manjanjikan bahwa waktu munajat Nabi Musa a.s. untuk manerimo patunjuk (Taurat) adolah empat puluh malam. Tapi, umatnyo idak sabar manunggunyo sahinggo orang tu menyembah patung anak jawi nang dibuat oleh Samiri.
+
+[^26]: Kitab nang dimaksudkan adolah kumpulan wahyu nang disebut Taurat dan baguno sabagai furqān, yaitu mambedakan antaro hak dan batil.
+
+[^27]: Untuk ungkapan “mambunuh dirimu” ado nang mangartikan, budak-budak nang idak manyembah patung anak jawi tu mambunuh orang nang manyembahnyo. Ado pulak nang mangartikan, orang nang manyembah patung anak jawi tu saling mambunuh dan ado pulak nang mangartikan orang-orang tu disuruh mambunuh diri orang-orang tu masing-masing untuk bataubat.
+
+[^28]: ‘Manna’ adolah sejenis madu, salwa adolah sejenis burung puyuh.
+
+[^29]: Shabi’in adolah umat sabelum Nabi Muhammad saw nang mangetaui adonyo Tuhan nang Maha So, dan mampercayoi adonyo pangaruh bintang-bintang.
+
+[^30]: Ayat ini marupokan katentuan umum bagi setiap umat pado masanyo masing-masing. Misalnya, umat Yahudi pado maso Nabi Musa a.s. dan umat Nasrani pado maso Nabi Isa a.s.
+
+[^31]: Kata ‘jahil’ biso berarti ‘bengak, mayakini sasuatu nang idak benar, atau malakukan perbuatan nang idak layak dikerjokan’.
+
+[^32]: Dalam Al-Qur’an, kato ‘fitnah’ digunokan untuk menyatokan sajumlah makno sasuai dengan konteksnya, seperti ‘ujian, cobaan, azab, manghalangi kabenaran, dan mangusir orang dari kampung halamannya’.
+
+[^33]: Ra’ina artinyo perhatikanlah kami. Tapi orang Yahudi bersungut mangucapkannyo, sahinggo nang orang-orang tu maksud iolah Ru’unah nang artinyo bodoh nian, sabagai ejekan kapado Rasulullah. Tulah sebabnyo Allah 11
+
+[^34]: Bani Israil pernah maminta kapado Nabi Musa a.s. agar dapat mangimak Allah Swt., mambuat berhalo nang disembah selain Allah Swt., dan lain-lain.
+
+[^35]: Orang Yahudi mangatokan bahwa orang-orang tu bae nang kelam masuk surgo. Orang Nasrani mangatokan nang samo, yaitu bahwa dirinyo dewek lah nang kagi masuk surgo.
+
+[^36]: ‘Wajah Allah Swt. (wajhullāh)’ biso bararti ‘Zat Allah Swt.’ atau ‘rida Allah Swt.’, sedang nang dimaksud di iko adolah ‘arah kiblat nang diridai oleh Allah Swt. saat saseorang idak biso manentukan arah kiblat karena alasan tatentu’. Maksud iko tagambar dalam sebab nuzul nang dituturkan oleh ‘Amir bin Rabi‘ah r.a. Dia bakato, “Kami menemani Rasulullah saw. dalam sebuah perjalanan. Tibo-tibo langit tatutup mendung sahinggo kami kasulitan manentukan arah kiblat. Kami pun salat dan mambagih tando (pado arah sembahyang kami). Macam tu matahari muncul, kami sadar lah sembahyang tanpo manghadap ka arah kiblat. Kami laporkan hal iko kapado Rasulullah, lalu turunlah ayat iko.” (Riwayat Ibnu Majah, Baihaqi dan Tirmizi).
+
+[^37]: Maqam Ibrahim adolah genah dio tegak katiko mambangun Ka‘bah. Namun, ado jugo nang mamahaminya sabagai seluruh Masjidilharam samacam mano jugo ado nang mamahaminya sabagai genah dio pernah sembahyang.
+
+[^38]: Di antaro arti hikmah adolah: sunah, pamahaman nang mandalam atas ajaran agama, kabenaran, pambicaraan nang akurat, raso takut kapado Allah Swt., kanabian, risalah, akal, dan keserasian antaro pangetauan dan pangamalan.
+
+[^39]: Sibgah (Ṣibgah)’ Allah Swt. berarti ‘celupan Allah Swt.’. Maksudnyo adolah iman kapado Allah Swt. nang idak disertai dengan kamusyrikan. Istilah tu digunokan karena iman manyatu dalam hati seperti manyatunyo warna pado bahan nang dicelupkan dan pengaruh celupan tu tampak pado pakaian samacam mano pangaruh iman tampak pado diri seorang mukmin.
+
+[^40]: Umat pertengahan bararti umat pilihan, tabaik, adil, dan seimbang baik dalam kayakinan, pikiran, sikap maupun perilaku.
+
+[^41]: Ahlulkitab adolah kaum Yahudi dengan kitab Tauratnyo dan Kaum Nasrani dengan kitab Injilnyo (surah al-Baqarah/2: 105).
+
+[^42]: Orang-orang Yahudi dan Nasrani tu sangat mangenal kanabian dan sifat-sifat Nabi Muhammad samacam mano nang lah disebutkan oleh Allah dalam kitab Taurat dan Injil.
+
+[^43]: Nang dimaksud dengan syiar adolah simbol-simbol kaagungan ugamo Allah Swt.
+
+[^44]: Sa’i bararti ‘bajalan dan balari-lari kecil tujuh kali antaro Safa dan Marwah katiko malakukan ibadah haji atau umrah’. Ungkapan ‘idak ada doso’ dimaksudkan untuk manghilangkan raso kaberatan sabagian sahabat untuk mangerjokan sai kareno Safa dan Marwah bekas genah barhalo.
+
+[^45]: Allah Swt. mansyukuri hambo-Nyo, mambagi pahalo tahadap amalnyo, memaafkan kasalahannyo, manambo nikmatnya dan sabagainyo.
+
+[^46]: Maksudnyo adolah mangerjokan amal-amal saleh untuk manghilangkan kaburukan nang diakibatkan kareno kasalahan-kasalahannyo dan manjelaskan kabenaran nang disembunyikannyo.
+
+[^47]: Pargantian malam dan siang nang disebabkan rotasi bumi lah manggerakkan udara secaro global berupo angin. Dengan angin, kapal dapat bagerak manggunokan layar. Angin jugo nang manggerakkan uap aek dari lautan mambentuk awan dan mamindahkannyo ke daratan tacurah sabagai hujan. Dengan hujan tu, tumbuhlah tumbuhan nang manghidupi beragam jenis hewan.
+
+[^48]: Perentah untuk mambagihkan kabaikan dengan caro nang baik balaku untuk kaduo belah pihak, baik pambunuh maupun wali orang nang dibunuh.
+
+[^49]: Manurut jumhur ulama, ayat iko dinasakh dengan ayat waris dan hadis ‘lā waṣiyyata li wāriṡin’ (Idak ado wasiat untuk ahli waris).
+
+[^50]: Maksud mandamaikan di siko iolah manyuruh orang nang bawasiat untuk balaku adil dalam bawasiat sasuai dengan katentuan ugamo.
+
+[^51]: Siapo nang mamberi makan kapado lebih dari saorang miskin untuk sahari, itu lebih baik.
+
+[^52]: Bulan sabit adolah bukti mayakinkan pagantian bulan. Sasudah tampak bulan sabit ujung bulan nang tipis seperti pelepah kurma (surah Yāsīn/36: 39) manjelang pagi, malam berikutnyo ‘bulan mati’ (malam tanpo bulan samo sekali), kemudian disusul tampaknyo hilal, bulan sabit tipis sasaat sasudah magrib. Tulah awal bulan nang digunokan untuk parhitungan waktu ibadah seperti ibadah puaso Ramadan dan ibadah haji.
+
+[^53]: Fitnah dalam ayat iko maksudnyo perbuatan nang menimbulkan kakacauan, seperti mangusir orang dari kampung halamannyo, marampas harto, manyakiti orang lain, manghalangi orang dari jalan Allah Swt., atau malakukan kamusyrikan (imak catatan kaki surah al-Baqarah/2: 102).
+
+[^54]: Maksudnyo adolah bahwa kalu diserang pado bulan haram, umat Islam dibolehkan untuk mambalas serangan di bulan tu.
+
+[^55]: Sasuatu nang dihormati dapat bararti bulan haram, yaitu Zulkaidah, Zulhijah, Muharam, dan Rajab; tanah haram (Makkah), dan dalam kaadaan baihram.
+
+[^56]: Hadyu adolah hewan ternak nang disembelih di tanah haram Makkah pado Iduladha dan hari-hari tasyrik kareno manjalankan haji tamattu’ atau qiran, maninggalkan salah sikok manasik haji atau umrah, mangerjokan salah sikok larangan manasik, atau murni mau mandekatkan diri kapado Allah Swt. sebagai ibadah sunah.
+
+[^57]: Fidyah (tebusan) kareno idak dapat manyempurnokan manasik haji dengan alasan tatentu.
+
+[^58]: Waktu nang dimaklumi untuk palaksanoan ibadah haji iolah Syawal, Zulkaidah, dan 10 malam Zulhijah.
+
+[^59]: ‘Rafaṡ’ bararti ‘mengeluarkan perkatoan nang manimbulkan birahi, perbuatan nang idak senonoh, atau hubungan seks’.
+
+[^60]: Nang dimaksud dengan ‘Masyarilharam’ adolah bukit Quzah di Muzdalifah, tapi Muzdalifah secaro kaseluruhan dapat digunokan untuk tempat mabīt.
+
+[^61]: Maksud zikir di siko iolah membaco takbir, tasbih, tahmid, dan sebagainyo. Maksud baberapo hari nang babilang iolah hari tasyriq, yaitu tigo hari satelah Iduladha (tanggal 11, 12, dan 13 bulan Zulhijah).
+
+[^62]: Mampercepat pado ayat iko bararti maninggalkan Mina pado tanggal 12 Zulhijjah sabelum matahari tabenam (nafar awwal). Adopun mangakhirkannyo bararti maninggalkan Mina pado tanggal 13 Zulhijjah (nafar ṡāni).
+
+[^63]: Jihad secaro umum bararti mancurahkan sagalo kamampuan, baik harto maupun rago untuk mamparjuangkan ugamo Allah Swt. dengan niat nang ikhlas kareno Allah Swt
+
+[^64]: Khamar adolah sagala sasuatu nang mangandung unsur nang mamabukkan.
+
+[^65]: Haid adolah darah nang kaluar basama jaringan nang diparsiapkan untuk pambuahan di rahim perempuan. Kaluarnya secaro periodik, sasuai dengan periode palepasan sel telur ka rahim. Kondisi seperti tu nang dianggap kotor manjadikan perempuan idak suci secaro syar‘i, tamasuk idak suci untuk digauli suaminyo.
+
+[^66]: Bini diumpamokan sebagai ladang, tempat mananam benih. Mako tanamlah benih tu sasuai waktu nang disukoi.
+
+[^67]: ‘Allah Swt. Maha Panyantun (halīm)’ bararti idak segero manyikso orang nang babuat doso.
+
+[^68]: Ayat iko manjadi dasar hukum khulu‘ dan panerimaan ‘iwaḍ. Khulu‘ yaitu hak bini untuk bacerai dari suaminyo dengan mambayar ‘iwaḍ (uang tebusan) malalui pangadilan.
+
+[^69]: ‘Idah’ iolah ‘maso manunggu (idak boleh manikah) bagi perempuan kareno paceraian atau kamatian suaminyo’.
+
+[^70]: Maksudnyo adolah manikah lagi, baik dengan bekas suaminyo maupun orang jantan nang lain.
+
+[^71]: Satelah salesai masa idah, perempuan boleh bahias, bapegian, atau manerimo pinangan.
+
+[^72]: Perempuan nang boleh dipinang secaro sindiran iolah perempuan nang dalam masa idah kareno ditinggal mati oleh suaminyo atau kareno talak bā’in, sedangkan perempuan nang dalam idah talak raj‘iy (biso dirujuk) idak boleh dipinang walaupun dengan sindiran.
+
+[^73]: ‘Mut‘ah’ nang dimaksud adolah pamberian suami kapado istri nang diceraikannyo sebagai palipur di samping nafkah nang wajib ditunaikannyo sasuai dengan kamampuannyo.
+
+[^74]: Nang dimaksud dengan ‘orang nang memiliki kawenangan nikah’ adolah suami atau wali. Kalu nang mambebaskan mahar adolah wali, suami dibebaskan dari kawajiban mambayar separo mahar. Apobilo suami nang mambebaskannyo, dalam arti bakomitmen untuk mambayar semuo mahar nang disebutkan, dia harus mambayar mahar sagalohnya. Dengan syarat bahwa wali tasebut adolah wali mujbir, yaitu wali nang berhak mamakso anak gadis untuk manikah, seperti ayah atau kakek kandung.
+
+[^75]: Menurut pendapat nang masyhur, sembahyang Wusṭā adolah sembahyang Asar.
+
+[^76]: Maksud mambagih pinjaman kapado Allah Swt. adolah manginfakkan harto di jalan-Nyo.
+
+[^77]: Orang-orang tu diusir dari kampung halaman dan anak-anak orang-orang tu ditawan.
+
+[^78]: Tabut iolah peti genah manyimpan Taurat.
+
+[^79]: Kata ‘tagut’ disebutkan untuk satiap nang malampaui batas dalam kaburukan. Oleh kareno tu, setan, dajal, penyihir, panetap hukum nang batentangan dengan hukum Allah Swt., dan penguaso nang tirani dinamokan tagut.
+
+[^80]: Sains idak biso manjelaskan mukjizat iko. Orang nang ditidukkan seratus tahun dan makanannyo dijago tetap utuh, sementaro keledainyo lah manjadi tulang-belulang. Lalu tulang-belulang keledai dikumpulkan dan Allah Swt. tunjukkan kakuasoan-Nya dengan manghidupkan balik keledainyo.
+
+[^81]: Sains idak biso manjelaskan mukjizat iko. Burung nang sudah dipotong-potong dan ditempatkan tapisah jauh, dapat dihidupkan oleh Allah Swt.
+
+[^82]: Diumpamokan dengan ‘dataran tinggi’ kareno dataran tinggi nang lebih dingin bapotensi mandapatkan awan hujan lebih banyak daripado dataran rendah sahinggo tanamannyo lebih subur. Kalu pun idak ado hujan lebat, gerimis pun biso mambasahi tanahnyo.
+
+[^83]: Patumbuhan janin dari sel telur nang dibuahi lalu secaro batahap mambentuk organ-organ tubuh di dalam rahim.
+
+[^84]: ‘Ayat Muhkamat’ iolah ayat nang maksudnyo terang, tegas, dan dapat dipahami dengan mudah.
+
+[^85]: ‘Ayat mutasyabihat’ iolah aya nang mengandung baberapo maksud, sulit dipahami atau hanyo Allah nang Mengetahui.
+
+[^86]: Patemuan antaro duo golongan nang dimaksud oleh ayat ini tajadi antaro kaum Muslimin dan kaum musyrikin pado Perang Badar tahun ke-2 Hijriyah di barat daya Madinah.
+
+[^87]: Kata ‘umi’ nang dimaksud dalam ayat ini iolah orang nang idak mandapat kitab suci.
+
+[^88]: Kata ‘auliyā’’ adolah bentuk jamak dari kato ‘waliy’. Secaro harfiah kato ko baarti dekat sahingga manunjukkan makno teman dekat, teman akrab, teman setio, kakasih, panolong, sakutu, palindung, pambela, dan pamimpin. Kato ‘waliy’ dan ‘auliya’’ dalam Al-Qur’an diulang 41 kali. Maknonyo babeda-beda sasuai dengan konteks ayat.
+
+[^89]: Bini Imran nang marupokan mamak Maryam adolah Hanna binti Faqud. Nabi Zakaria a.s. manikahi saudaro perempuan Hanna sahinggo Maryam adolah kaponakannyo.
+
+[^90]: Mambenarkan kadatangan saorang nabi nang diciptokan dengan kata ‘kun’ (jadilah) tanpo ayah yaitu Nabi Isa a.s.
+
+[^91]: Maksudnyo adolah bahwa kaluarga Maryam mangundi siapo nang bakal mangurus Maryam dengan malemparkan pena nang biaso orang-orang tu gunokan untuk manulis Taurat atau dengan malempar anak panah.
+
+[^92]: Maksud ‘kitab’ di siko adolah manulis dengan tangan.
+
+[^93]: Lihat catatan kaki surah al-Baqarah/2: 129.
+
+[^94]: ‘Mubāhalah’ baarti satiap pihak nang baselisih badoa dengan sungguh-sungguh supayo Allah Swt. manimpokan laknat kapada pihak nang badusto. Nabi Muhammad saw. mangajak utusan Nasrani Najran ber-mubāhalah, tapi orang-orang tu idak berani. Hal ko manjadi bukti kabenaran akidah Islam tentang Isa a.s.
+
+[^95]: Orang Yahudi dan Nasrani masing-masing manganggap Nabi Ibrahim a.s. tu dari golongannyo. Lalu Allah Swt. membantah orang-orang tu dengan alasan bahwa Nabi Ibrahim a.s. tu datang sabelum orang-orang tu.
+
+[^96]: Perkaro nang idak dikataui oleh Ahlulkitab adolah tentang Nabi Musa a.s. Nabi Isa a.s. dan Nabi Muhammad SAW.
+
+[^97]: Perkaro nang idak dikataui oleh Ahlulkitab tentang Nabi Ibrahim a.s.
+
+[^98]: ‘Hanif’ baarti jauh dari syirik (mampersukutukan Allah Swt.) dan jauh dari kasesatan.
+
+[^99]: Maksudnyo adolah ayat-ayat Allah Swt. Nang nang turunkan kapado Nabi Muhammad Saw.
+
+[^100]: ‘Mancampuradukkan antaro hak dan batil’ maksudnyo adolah mancampuradukkan antaro ayat-ayat Tuhan nang disampaikan oleh paro nabi dengan takwilan-takwilan batil nang diberikan oleh paro pamuko ugamo orang-orang tu.
+
+[^101]: Nang dimaksud dengan ‘manyingitkan kabenaran’ adolah manutupi firman Tuhan nang dibawak oleh paro nabi, barupo tauhid dan berito gembiro tentang bakal datangnyo Nabi Muhammad Saw. Nang disebut dalam Taurat jugo Injil.
+
+[^102]: Kapado orang nang saugamo dengan kamu (Yahudi atau Nasrani) supayo orang-orang tu idak jadi masuk Islam atau kapado orang-orang Islam nang barasal dari ugamomu supayo guncang iman orang-orang tu dan balik kapado kekafiran.
+
+[^103]: Pangertian ‘umi’ dapat diliat pado catatan kaki ayat ke-20. Orang-orang tu baanggapan bahwa orang-orang tu boleh mamperoleh harto dengan cara manipu orang-orang nang idak saugamo dengan orang-orang tu. Menurut orang-orang tu, idak badoso malakukannyo kareno Allah Swt. mambolehkannyo, padohal manipu adolah pabuatan nang idak dibenarkan di dalam ugamo.
+
+[^104]: paro Nabi bajanji kapado Allah Swt. bahwa apobilo datang saorang Rasul banamo Muhammad, orang-orang tu bakal baiman kapadonyo dan menolongnyo. Pajanjian paro nabi ko mangikat pulak umatnyo.
+
+[^105]: Sasudah Taurat diturunkan, ado baberapo makanan nang diharamkan bagi Bani Israil sabagai hukuman. Imak Surah Annisa/4: 160 dan Surah Al An’am/6: 146.
+
+[^106]: Kabohongan tahadap Allah Swt. iolah pernyatoan bahwa sabelum Taurat diturunkan, Allah Swt. lah mangharamkan babarapo makanan kapado Bani Israil.
+
+[^107]: Ahlulkitab mengatokan bahwa rumah ibadah nang pertamo di bangun adolah nang berado di Baitulmaqdis. Kareno tu, Allah Swt. mambantahnyo kareno nang benar adolah nang ado di Makkah.
+
+[^108]: Lihat catatan kaki Surah Albaqoroh/2: 125.
+
+[^109]: Kriteria mampu adolah sanggup mandapatkan perbekalan, alat transportasi, sehat jasmani, perjalanan aman, dan kaluarga nang ditinggalkan tajamin kahidupannyo.
+
+[^110]: Maksud ‘manyaksikan’ adolah mangetaui bahwasanyo ugamo nang diridoi Allah Swt. adolah ugamo Islam.
+
+[^111]: ‘Ma’ruf’ adolah sagalo kabaikan nang diperentahkan di dalam ugamo serto berfaedah untuk kebaikan diri dewek dan masyarakat. Mungkar adolah satiap kaburukan nang dilarang ugamo dan marusak kahidupan diri dewek dan masyarakat.
+
+[^112]: Golongan Ahlulkitab nang dimaksudkan di siko adolah orang-orang nang sudah mameluk ugamo Islam.
+
+[^113]: Peristiwa ko tajadi pado Perang Uhud pado tahun ke-3 Hijriah.
+
+[^114]: Nang dimaksud dengan ‘dua golongan’ adolah Bani Salamah dari suku Khazraj dan Bani Harisah dari suku Aus. Kaduanyo marupokan bagian dari barisan kaum muslim.
+
+[^115]: Perang Badar tajadi katiko umat Islam jumlahnyo sadikit dan palengkapan perangnyo kurang.
+
+[^116]: Maksudnyo adolah bahwa tujuh puluh pamimpin kafir tabunuh dan tujuh puluh orang lainnyo ditawan.
+
+[^117]: Menurut riwayat al-Bukhari, ayat ko turun kareno Nabi Muhammad saw. badoa kapado Allah Swt. supayo manyelamatkan sabagian pamuka musyrikin dan mambinasakan sabagian lainnyo.
+
+[^118]: Riba dalam ayat ko dimaksudkan sabagai utang-piutang nang katika idak biso dibayar pado waktu jatuh tempo, dio dibagihan tengat waktu untuk mambayar utangnyo, tapi dengan panambahan jumlah nang harus dibayarkan. Manurut paro ulama, riba nasiah ko haram walaupun jumlah panambahannyo idak balipat gando.
+
+[^119]: ‘Perbuatan keji (fāḥisyah)’ adolah dosa besar nang akibatnyo idak hanyo manimpa diri dewek, tapi jugo manimpa orang lain seperti zina dan riba. Mananiayo diri dewek adolah pabuatan dosa nang akibatnyo hanyo manimpa diri dewek, baik besak maupun kecik.
+
+[^120]: Nang dimaksud dengan ‘sunah Allah Swt.’ di siko adolah kendak dan hukum Allah Swt. nang balaku dalam kahidupan manusio.
+
+[^121]: Imak catatan kaki surah al-Baqarah/2: 218.
+
+[^122]: Nabi Muhammad saw. adolah salah saorang utusan Allah Swt. paro rasul sabelumnya lah wafat. Kareno tu, Nabi Muhammad saw. jugo bakal wafat seperti halnyo paro rasul tadahulu. Pado waktu perang Uhud bakecamuk, tasiar berito bahwa Nabi Muhammad saw. Wafat tabunuh. Berito ni mangacaukan umat Islam sahingga ado nang ingin maminta palindungan Abu Sufyan (pamimpin kaum Quraisy). Sementara tu, orang-orang munafik mangatokan bahwa kalu Muhammad saw. itu benar saorang Nabi, tentu idak bakal wafat tabunuh. Mako, Allah Swt. manurunkan ayat ko untuk manenteramkan kaum muslim dan mambantah pakatoan orang munafik (sahih Bukhari, bab Jihad).
+
+[^123]: Tindakan nang balebihan adolah sikap malampaui batas-batas hukum nang lah ditetapkan Allah Swt.
+
+[^124]: Pahalo dunio dapat barupo kamenangan, harto rampasan, pujian dan lain-lain.
+
+[^125]: Baselisih dalam urusan Nabi baarti malaksanokan perentah Nabi Muhammad saw. supayo regu pamanah tetap batahan pado genah nang lah ditunjukkan dalam kaadoan bagaimanopun.
+
+[^126]: Yakni kamenangan dan harto rampasan.
+
+[^127]: Maksudnyo adolah bahwa kaum muslimin idak bahasil mangalahkan orang-orang tu.
+
+[^128]: Kasedihan kaum muslim disebabkan bahwa orang-orang tu idak manaati perentah Rasul nang mangakibatkan kakalahan bagi orang-orang tu.
+
+[^129]: Maksudnyo adolah orang-orang Islam nang kuat kayakinannyo.
+
+[^130]: Maksudnyo adolah orang-orang Islam nang masih ragu-ragu.
+
+[^131]: Sangkaan jahiliah tu manganggap bahwa apobilo Nabi Muhammad saw. tu benar-benar utusan Allah Swt., tentu idak bakal takalahkan atau tabunuh dalam paperangan.
+
+[^132]: Duo pasukan tu adolah pasukan kaum muslim dan pasukan kaum musyrik dalam Perang Uhud.
+
+[^133]: Maksudnyo adolah maninggal dunio di jalan Allah Swt. bukan kareno paperangan.
+
+[^134]: Maksudnyo adolah hidup di alam nang lain, bukan di alam dunia. Orang-orang tu mandapatkan babagai kanikmatan di sisi Allah Swt. Hanyo Allah Swt. lah nang mangataui bagaimano kaadoan hidup di alam lain tu.
+
+[^135]: Maksudnyo adolah kanti-kantinyo nang masih hidup dan tetap bajihad di jalan Allah Swt.
+
+[^136]: Lihat catatan kaki surah Āli ‘Imrān/3: 28.
+
+[^137]: Maksudnyo adolah jangan manyangko bahwa usio nang panjang bagi orang kafir tu baik. Kalu idak digunokan untuk baamal saleh, samakin panjang usio, samakin buruk baginyo.
+
+[^138]: Maksudnyo adolah kaadoan kaum muslim bacampur baur dengan kaum munafik.
+
+[^139]: Dalam Perang Uhud, Allah Swt. mambedakan antaro orang baik (umat Islam) dan orang nang buruk (kaum munafik).
+
+[^140]: Di antaro nang gaib adolah pangetahuan tentang kaimanan dan kamunafikan saseorang.
+
+[^141]: Di antara orang nang dikendaki Allah Swt. untuk mangetaui kamunafikan di dalam hati manusio adolah Nabi Muhammad saw.
+
+[^142]: Nang dimaksud dengan ‘zubur’ iolah lembaran-lembaran kalam suci saperti suhuf Nabi Ibrahim a.s. dan Nabi Musa a.s.
+
+[^143]: Ayat ko manegaskan, bahwa Nabi Adam a.s. dan Hawa idak diciptokan malalui proses evolusi hayati seperti makhluk hidup lainnyo, tapi diciptokan secaro khusus saorang diri, lalu diciptokan pasangannyo dari dirinyo. Caronyo idak dapat dijelaskan secaro sains. Barulah anak-anaknyo lahir dari proses biologis secaro bapasang-pasangan sesuai kendak-Nyo.
+
+[^144]: Maksudnyo adolah karabat nang idak mampunyoi hak warisan dari harto warisan.
+
+[^145]: Pambagihan sakedarnyo tu idak boleh lebih dari sepertigo harto warisan.
+
+[^146]: Bagian anak laki-laki adolah duo kali bagian anak perempuan adolah kareno kawajiban anak laki-laki lebih berat dari anak perempuan seperti kawajiban mambayar maskawin dan mambagih nafkah (Imak surahan-Nisā’/4: 34).
+
+[^147]: Manyusahkan ahli waris dapat tajadi dengan mangerjokan pabuatan-pabuatan seperti (a) mawasiatkan lebih dari sepertigo harto paninggalan (b) mambagihkan wasiat dengan maksud mangurangi harto warisan meskipun kurang dari sepertigo harto warisan.
+
+[^148]: Kato keji dalam ayat ko baarti pabuatan zina. Tapi, manurut pandapat lain tamasuk pabuatan mesum lain, seperti hubungan sajenis dan nang samisalnyo.
+
+[^149]: Nang dimaksud dengan ‘jalan nang lain’ adolah dengan turunnyo surah an-Nūr/24: 2 tentang hukum cambuk.
+
+[^150]: Ayat ko idak mangandung arti kabolehan manjadikan bini sabagai warisan seperti harto meskipun idak dengan paksoan. Manurut tradisi jahiliah, anak tatuo atau anggota kaluarganyo nang lain dapat mawarisi jando nang ditinggal wafat ayahnyo.
+
+[^151]: Nang dimaksud dengan ‘mamak’ pado awal ayat ko adolah mamak, nenek, dan saterusnyo ka atas, sedangkan ‘anak perempuan’ adolah anak perempuan, cucu perempuan, dan saterusnyo ka bawah. Nang dimaksud dengan ‘anak-anak binimu nang dalam pameliharoanmu’, manurut sabagian besar ulama, mancakup anak tiri nang idak dalam pameliharoannyo.
+
+[^152]: Maksudnyo adolah hambo sahayo perempuan nang dimiliki kareno tatawan. Sementaro tu, lakinyo idak ikut tatawan basamonya. Imak surahan-Nisā’/4: 3.
+
+[^153]: Maksudnyo adolah bahwa bini boleh idak manuntut suaminyo untuk mambayar sabagian atau kaseluruhan maskawin nang lah ditetapkan atau suami mambayar lebih dari maskawin nang lah ditetapkannyo.
+
+[^154]: Sabagai kepala keluarga, suami batanggung jawab untuk malindungi, mangayomi, mangurusi, dan mangupayokan kamaslahatan kaluargo.
+
+[^155]: Maksud ‘nusyuz’ adolah pabuatan saorang istri maninggalkan kawajibannyo, seperti maninggalkan rumah tanpo ridho lakinya.
+
+[^156]: Menurut jumhur, kato ‘manyentuh’ pado ayat ko adolah basentuhan kulit, sedangkan sabagian mufasir mangartikannyo ‘bacampur sabagai laki-bini’.
+
+[^157]: Lihat catatan kaki surah al-Baqarah/2: 104.
+
+[^158]: Jibt’ adolah setan dan apo bae nang disembah selain Allah Swt., sedangkan ‘tagut’ biasanyo disebutkan untuk orang nang malampaui batas dalam kaburukan. Lihat catatan kaki surah al-Baqarah/2: 256.
+
+[^159]: Rasul idak batanggung jawab tahadap perbuatan-perbuatan orang-orang tu dan idak majamin supayo orang-orang tu idak babuat kasalahan.
+
+[^160]: Lihat catatan kaki surah Āli ‘Imrān/3: 28.
+
+[^161]: Ayat ko diturunkan bakenaan dengan baberapo orang muslim nang idak ikut hijrah ke Madinah dan tapakso ikut dalam Perang Badar di pihak pasukan musyrik kemudian orang-orang tu tabunuh dalam perang tu. (Hadis riwayatal-Bukhari).
+
+[^162]: Salah sikok caro sembahyang khauf adolah jamaah dibagih manjadi duo kelompok. Apobilo imam lah manyelesaikan sikok rakaat basamo kelompok pertamo, kelompok kadua malakukan rakaat tu dan imam dalam kondisi manunggu. Macam tu salanjutnyo secaro bagantian hinggo sagalo kelompok malakukan salam basamo-samo dengan imam.
+
+[^163]: Tata caro sembahyang khauf nang dijelaskan pado ayat ko dilakukan dalam kaadoan masih mamungkinkan untuk mangerjokan sembahyang. Apobilo idak mamungkinkan, sembahyang dikerjokan sadapat-dapatnyo.
+
+[^164]: Ayat ko diturunkan takait dengan kasus pancurian nang dilakukan oleh Tu’mah. Dio manyingitkan barang curiannyo di rumah saorang Yahudi dan manuduh orang tulah nang lah mancurinyo. Katiko kerabat-kerabat Tu’mah maminta agar Nabi Muhammad saw. mambela Tu’mah dan manghukum orang Yahudi, Nabi saw. hampir mambela Tu’mah, tapi Allah Swt. manurunkan ayat ko dan malarang untuk mambela pangkhianat.
+
+[^165]: Maksudnyo setan bakal barusaho manyesatkan manusio kacuali orang-orang mukmin pilihan Allah Swt. (Surah al-Ḥijr/15: 40; surah Saba’/34: 20).
+
+[^166]: Maksudnyo setan benar-benar bakal manyesatkan manusio dengan mangharamkan binatang ternak nang dihalalkan Allah Swt. atau manghalalkan nang diharamkan Allah Swt., seperti dalam kapercayaan Arab Jahiliah tentang baḥirah, sā’ibah, waṣīlah, dan ḥām (Imak surahal-Mā’idah/5: 103).
+
+[^167]: Mangubah ciptoan Allah Swt. biso baarti mangubah fisik seperti mangganti jenis kelamin atau mangubah ciptoan dalam batin manusio seperti maubah fitrah (Islam) dengan manganut ugamo lain.
+
+[^168]: Kato ‘angan-anganmu’ dalam ayat ko menurut sabagian ahli tafsir marujuk kapado umat Islam, tapi ado nang marujuknyo kapada kaum musyrikin. Maksudnyo adolah bahwa pahalo di akherat idak manurut angan-angan orang-orang tu, tapi sesuai dengan katentuan ugamo.
+
+[^169]: Imak surahan-Nisā’/4: 2 dan 3.
+
+[^170]: Menurut adat Arab Jahiliah, saorang wali bakuaso atas perempuan yatim nang dalam asuhannyo dan bakuaso atas  hartonyo.  Kalu  perempuan  yatim  tu  elok  rupo,  io  dinikahi  dan  diambek  hartonya.  Kalu  perempuan  yatim tu buruk ruponyo, dihalanginyo nikah dengan laki-laki lain agar dio tetap dapat manguasai hartonyo. Ayat ko malarang kabiasaan tu.
+
+[^171]: Lihat arti ‘nusyuz’ bagi pihak bini dalam catatan kaki surah an-Nisā’/4: 34. ‘Nusyuz’ dari pihak suami iolah basikap keras tahadap bininya, idak mau manggaulinyo, dan idak mau mambagihkan haknyo.
+
+[^172]: Perdamaian nang sesungguhnyo adolah seperti bini basedio untuk dikurangi baberapa haknyo asal suami mau balik babaik-baik dengannyo.
+
+[^173]: Tabiat  manusio  tu  idak  mau  malepaskan  sabagian  haknyo  kapado  orang  lain  dengan  seikhlas  hatinyo.  Meskipun macam tu, kalu bini malepaskan sabagian haknyo, mako boleh suami manerimonyo.
+
+[^174]: Lihat catatan kaki surah Āli ‘Imrān/3: 28.
+
+[^175]: Lihat catatan kaki surah Āli ‘Imrān/3: 28.
+
+[^176]: Tengok catatan kaki surah al-Baqarah/2: 160
+
+[^177]: Allah  Maha Mansyukuri baarti mambagih pahalo tahadap amal hambo-Nyo, mamaafkan kasalahannyo, manambah nikmat-Nyo, dan lain-lain.
+
+[^178]: Orang nang dianiayo boleh mangemukokan kapado hakim atau panguaso tentang kaburukan-kaburukan orang nang mananiayonyo.
+
+[^179]: Maksud ‘mambeda-bedakan’ dalam ayat ni adolah hanyo baiman kapado Allah Swt., tapi idak baiman kapado rasul-rasul-Nyo.
+
+[^180]: Ahlulkitab nang dimaksud pado ayat ni adolah orang-orang Yahudi.
+
+[^181]: Patung anak jawi tu dibuat oleh orang-orang tu dari emas untuk disembah.
+
+[^182]: Ayat ni baarti bahwa ancaman Allah Swt. kapado Bani Israil supayo mamatuhi perjanjian, yaitu malaksanokan ajaran Taurat.
+
+[^183]: Orang-orang tu disambar petir, dikutuk jadi kero, dan sabagainyo.
+
+[^184]: Ayat ni marupokan bantahan tahadap anggapan Ahlulkitab bahwa Nabi Isa a.s. ninggal di tiang salib.
+
+[^185]: Ayat ni sabagai bantahan tahadap anggapan orang Yahudi bahwa orang-orang tu lah mambunuh Nabi Isa a.s.
+
+[^186]: Menurut ayat ni, satiap orang Yahudi dan Nasrani katiko bakal manemui ajalnyo, orang-orang tu bakal baiman bahwa Nabi Isa a.s. adolah utusan Allah Swt. dan bukan anak Allah, tapi kaimanannyo lah idak baguno lagi.
+
+[^187]: Di antaro kaistimewaan Nabi Musa a.s. adolah dapat bacakap dengan Allah Swt. sacaro langsung sahinggo disebut kalīmullāh. Samuo nabi nang lain mandapatkan firman Allah Swt. malalui parantaroan Jibril, kacuali Nabi Muhammad saw. dapat bacakap langsung dengan Allah Swt. pado waktu mikraj.
+
+[^188]: Tamasuk berlebihan adalah mengatakan bahwa Nabi Isa a.s. itu tuhan samacam mano dikatakan oleh orang Nasrani.
+
+[^189]: Maksud ‘kalimat’ adalah ‘kun’(jadilah) sahinggo Nabi Isa a.s. diciptakan tanpa bapak.
+
+[^190]: Disebut ‘tiupan dari Allah’ karena tiupan itu berasal dari perintah Allah Swt..
+
+[^191]: ‘Kalālah’ iolah orang mati nang idak maninggalkan bapak dan anak.
+
+[^192]: Maksud ‘janji’ di siko adolah janji dengan Allah Swt., artinyo mangikuti ajaran Allah Swt. dan janji kapado manusio dalam muamalah.
+
+[^193]: Syiar-syiar kasucian Allah Swt.’ iolah sagalo amalan nang dilakukan dalam rangka ibadah haji seperti tato caro malakukan tawaf dan sa’i, serto genah-genah mangerjokannyo, seperti Ka‘bah, Safa dan Marwah.
+
+[^194]: Bulan haram iolah Zulkaidah, Zulhijah, Muharam dan Rajab. Pado bulan-bulan tu dilarang malakukan paperangan.
+
+[^195]: ‘Hadyu’ iolah binatang nang disembelih sabagai pengganti (dam) pekerjoan wajib nang ditinggalkan, atau sabagai dendo kareno malanggar hal-hal nang talarang di dalam ibadah haji.
+
+[^196]: ‘Qalā’id’ iolah binatang hadyu nang diberi kalung supayo dikataui orang bahwa binatang tu lah ditetapkan untuk dibawak ka Ka‘bah.
+
+[^197]: Nang dimaksud dengan karunio di siko iolah kauntungan nang dibagihkan Allah Swt. dalam perjalanan ibadah haji, sedangkan keridoan Allah Swt. iolah pahalo amalan haji.
+
+[^198]: biantang nang tacekik, dipukul, jatuh, ditanduk, dan diterkam binatang buas hukumnyo halal, kalu sempat disembelih sabelum mati.
+
+[^199]: ‘Al-Azlām’ artinyo anak panah nang idak mamakai bulu. Orang Arab Jahiliah manggunokannyo untuk mangundi apokah malakukan suatu perbuatan atau idak. Caronyo, mengambik tigo buah anak panah, nang pertamo ditulis “kerjokanlah”, kadua “jangan kerjokan”, dan katigo idak ditulisi apo-apo. Anak-anak panah tu diletakkan dalam sabuah genah dan disimpan di dalam Ka‘bah. Bilo hendak malakukan suatu perbuatan, orang-orang tu maminta juru kunci Ka‘bah untuk mangambik sabuah anak panah. Orang-orang tu bakal mangerjokan atau idak mangerjokannyo sesuai dengan tulisan anak panah nang diambiknyo, tapi jiko nang taambik adolah anak panah nang idak ada tulisannyo, undian diulangi sakali lagi.
+
+[^200]: Maksud kato ‘hari ko’ adolah pado waktu haji wada’.
+
+[^201]: Maksudnyo adolah binatang buruan nang ditangkap oleh binatang pamburu nang sengajo dilepas oleh pamiliknya untuk baburu dan ia idak mamakannyo.
+
+[^202]: Maksudnyo, sakit nang mambuatnyo idak boleh takeno aek.
+
+[^203]: Imak catatan kaki surah an-Nisā’/4: 43.
+
+[^204]: Maksudnyo, perjanjian untuk manganing dan taat kapado Nabi Muhammad saw. dalam kaadoan apo pun nang diikrarkan pado waktu baiat (sumpah setio).
+
+[^205]: ‘Pinjaman nang baik kapado Allah Swt.’ maksudnyo manginfakkan harto di jalan Allah Swt., baik infak wajib maupun infak sunah.
+
+[^206]: Mangubah firman Allah Swt. dari genahnya dengan mangubah teks ayat, dengan mandahulukan, mangakherkan, manambahkan, atau mangurangi; dan mamalingkan makno kalimat dari pamahaman nang sasungguhnyo.
+
+[^207]: Cahayo dari Allah Swt. maksudnyo adolah Nabi Muhammad saw., sedangkan kitab maksudnyo adolah Al-Qur’an.
+
+[^208]: Maksudnyo, tanah Palestina ditentukan Allah Swt. bagi kaum Yahudi salama orang-orang tu baiman dan taat kapado Allah Swt. Katiko Nabi Muhammad saw. sudah diutus Allah Swt., sementaro orang-orang tu manolak untuk baiman kapadonya, katentuan tu pupus bagi orang Yahudi.
+
+[^209]: Sif at-sifat manusio nang dikhawatirkan malaikat (surah al-Baqarah/2: 30) mulai muncul pado anak Adam.
+
+[^210]: Allah Swt. mangajarkan kapado manusio ilmu dan kamampuan untuk mangembangkan kahidupannyo malalui prilaku binatang, tumbuhan, dan fenomena alam lainnyo.
+
+[^211]: Maksudnyo, orang nang mambunuh saorang manusio, samo dengan manghalalkan pambunuhan tahadap sagalo manusio. Sabaliknyo, mameliharo kahormatan saorang jiwo, samo dengan mameliharo kahormatan sagalo manusio.
+
+[^212]: Ayat ko bakenaan dengan panjelasan Allah Swt. tentang ḥirābah. ‘Ḥirābah’ adolah tindakan kakerasan sacaro terang-terangan untuk mangambik harto, mambunuh, dan manimbulkan raso takut seperti parampokan.
+
+[^213]: Orang nang idak mamutuskan perkaro manurut hukum Allah Swt. ado tigo macam: a). kareno benci dan engkarnya kapado hukum Allah Swt., orang nang samacam ko kafir (surah al-Mā’idah/5: 44); b). kareno manuruti hawo nafsu dan marugikan orang lain dinamokan zalim (surah al-Mā’idah/5: 45); c). kareno fasik samacam mano tadapat dalam ayat 47 surah ko.
+
+[^214]: Hukum ko balaku sampai Allah Swt. mangutus Nabi Muhammad saw.
+
+[^215]: Imak catatan kaki surah Āli ‘Imrān/3: 28.
+
+[^216]: Imak catatan kaki surah Āli ‘Imrān/3: 28.
+
+[^217]: Hal nang lebih buruk pambalasannyo adolah manganggap salah kaimanan kapado Allah Swt., Al-Qur’an, dan
+    kitab suci nang diturunkan sabelumnyo.
+
+[^218]: Laknat ko ditimpokan kapado orang-orang Yahudi nang malanggar kahormatan hari Sabat (imak surah al- Baqarah/2: 65).
+
+[^219]: Sabagai pahalonya, Allah Swt. bakal mambagihkan rahmat-Nyo dari langit dengan manurunkan hujan dan manumbuhkan tumbuh-tumbuhan nang buahnyo malimpah ruah.
+
+[^220]: Maksudnyo, idak saorang pun nang dapat mambunuh Nabi Muhammad saw.
+
+[^221]: Perjanjian tu iolah orang-orang tu baiman kapado Allah Swt. dan rasul-rasul-Nyo.
+
+[^222]: Imak catatan kaki surah Āli ‘Imrān/3: 28.
+
+[^223]: Nang dimaksud binatang buruan pado ayat ko adolah binatang nang boleh dimakan maupun idak, kacuali burung gagak, burung elang, kalajengking, tikus, dan anjing buas. Dalam suatu riwayat tamasuk jugo ular.
+
+[^224]: Maksud ‘sampai ke Ka‘bah’ pada ayat ko adolah nang dibawak sampe ka daerah haram untuk disambelih di sano dan dagingnyo dibagikan kapado fakir miskin.
+
+[^225]: Mambayar kafarat harus sapadan dengan hargo binatang ternak pangganti binatang nang dibunuh tu.
+
+[^226]: Puaso nang dilakukan samo jumlah harinyo dengan jumlah mud nang dibagihkan kapado fakir miskin, yaitu sahargo binatang nang dibunuh, dengan catatan, saorang fakir miskin mandapat sikok mud (lebih kurang 6,5 ons).
+
+[^227]: Maksud ‘perbuatan nang lah lalu’ dalam ayat ko adolah mambunuh binatang sabelum turun ayat nang mangharamkannyo.
+
+[^228]: Hewan buruan laut nang dihalalkan adolah nang diparoleh dengan jalan usaho saperti mangail dan mamukat. Tamasuk jugo dalam pangertian laut di siko adolah sungei, danau, kolam dan sabagainyo.
+
+[^229]: Ka‘bah dan sakitarnyo manjadi genah nang aman bagi manusio untuk mangerjokan urusan-urusan nang bahubungan dengan dunio dan akherat sarto manjadi pusat ibadah haji.
+
+[^230]: ‘Baḥīrah’ adolah unto batino nang lah baranak limo kali dan anak nang kalimo tu jantan. Lalu, unta batino tu dibelah talingonyo, dilepaskan, idak boleh ditunggangi lagi, dan idak boleh diambil aek susunyo.
+
+[^231]: ‘Sā’ibah’ adolah unto batino nang dibiarkan pergi ka mano be kareno suatu nazar. Misalnyo, jiko orang Arab Jahiliah bakal malakukan sasuatu atau parjalanan nang berat, dio biaso banazar bakal manjadikan untonyo sā’ibah kalu maksud atau pajalanannyo barhasil dan selamat.
+
+[^232]: ‘Waṣīlah’ adolah saekor domba batino nang malahirkan anak kembar nang tardiri atas jantan dan batino. Unto jantan disebut waṣīlah, idak boleh disembelih dan diserahkan kapado barhalo.
+
+[^233]: ‘Ḥām’ adolah unto jantan nang idak boleh diganggu-ganggu lagi kareno lah dapat mambuntingkan unto batino sapuluh kali. Parlakuan tahadap baḥīrah, sā’ibah, waṣīlah, dan ḥām ko adolah kapercayoan Arab Jahiliah.
+
+[^234]: ‘Babuat doso’ di siko maksudnyo adolah malakukan kacurangan dalam parsaksiannyo nang diketaui satelah dio basumpah.
+
+[^235]: Maksud ungkapan ko adolah bahwa sumpah saksi-saksi nang balainan ugamo tu ditolak dengan sumpah saksi-saksi nang barasal dari kerabat, atau biso jugo bararti bahwa orang-orang nang basumpah tu bakal mandapat balasan di dunio dan akherat kareno malakukan sumpah palsu.
+
+[^236]: ‘Ayat’ di siko bararti mukjizat, ayat Al-Qur’an, atau peristiwo-peristiwo nang tajadi di alam nang manunjukkan kekuasoan Allah Swt.
+
+[^237]: Ungkapan ko adolah untuk manerangkan bahwa Nabi Muhammad saw tu adolah saorang nabi.
+
+[^238]: Kalau Allah Swt mangutus malaikat sabagai rasul, tentu Allah Swt mangutusnyo dalam bentuk manusio. Hal tu kareno manusio idak dapat mangimak malaikat dan tentu orang-orang tu bakal bakato, “Ko bukanlah malaikat, tapi hanyo manusio samacam mano kami jugo.” Jadi, orang-orang tu bakal tetap ragu-ragu.
+
+[^239]: Allah Swt lah bajanji, sabagai tando kamurahan-Nyo, bahwa Dio bakal malimpahkan rahmat kapado makhlukNyo.
+
+[^240]: Nang dimaksud dengan ‘kalimāt Allah Swt.’ adolah katetapan-katetapan Allah Swt nang sudah tatulis di Lauh mahfuz. Di antaronyo adolah bahwa orang-orang tu nang mandustokannyo pasti bakal hancur dan orang nang mangimaninyo bakal menang.
+
+[^241]: Orang-orang kafir diserupokan dengan orang-orang nang mati kareno orang-orang tu idak mau manganing seruan Allah Swt.
+
+[^242]: Sabagai makhluk hidup, binatang mampunyoi kamiripan biologis dengan manusio, bahkan sabagian mampunyoi sistem sosial saperti masyarakat manusio dengan kepemimpinannyo.
+
+[^243]: Sabagian mufasir manafsirkan ‘kitab’ itu dengan Lauh Mahfuz nang bararti bahwa nasib sagalo makhluk tu sudah dituliskan (ditetapkan) di dalamnyo. Ado pulak nang manafsirkannyo dengan Al-Qur’an dengan pangertian bahwa di dalam Al-Qur’an tu lah ado pokok-pokok ugamo, norma, hukum, hikmah, dan tuntunan untuk kabahagioan manusio di dunio dan akherat.
+
+[^244]: Orang-orang nang disesatkan oleh Allah Swt. memang mamilih jalan kekafiran, sedangkan orang-orang nang dibagih patunjuk memang mamilih jalan patunjuk.
+
+[^245]: Katiko Rasulullah saw. sedang duduk-duduk basamo baberapo orang mukmin nang dianggap rendah dan miskin oleh kaum Quraisy, datanglah baberapo pamuka Quraisy hendak babicaro dengan Rasulullah. Orang-orang tu enggan duduk basamo dengan orang mukmin tu dan mangusulkan supayo orang-orang mukmin tu diusir be supayo orang-orang tu dapat babicaro dengan Rasulullah. Ayat ko turun sabagai teguran tahadap sikap tasebut.
+
+[^246]: Azab nang datang dari atas adolah hujan batu, sambaran petir, dan lain-lain. Adopun nang datang dari bawah adolah saperti gempa bumi dan banjir.
+
+[^247]: Allah Swt manjelaskan tando-tando kakuasoan-Nyo dalam babagai rupo dengan cara nang babeda-beda. Sabagian ulama manafsirkannyo dengan ayat-ayat nang barupo peringatan, kisah, hukum dan lain-lain.
+
+[^248]: Sabagian mufasir mangatokan bahwa nang didustokan tu adolah Al-Qur’an
+
+[^249]: Di antaro mufasir ado nang bapendapat bahwa nang dimaksud dengan ‘abīhi (ayahnyo)’ adolah ‘pamannyo’.
+
+[^250]: Peristiwo ko tajadi dalam rangko mananamkan akidah tauhid kapado kaumnyo, bukan dalam rangko mancari tuhan.
+
+[^251]: Satelah Allah Swt mamperliatkan tando-tando kaaagungan-Nyo kapado Nabi Ibrahim a.s. dan dengan tu teguhlah imannyo kapado Allah Swt. (ayat 75), Nabi Ibrahim a.s. mamimpin kaumnyo kapado tauhid dengan mangikuti alam pikiran orang-orang tu.
+
+[^252]: Kalimat ko diucapkan sabagai sindiran kapado orang-orang nang saakan-akan orang-orang tu dipandang sabagai kanak-kanak nang belum barakal.
+
+[^253]: Di antaro mufasir ado nang bapendapat bahwa nang dimaksud ‘genah manetap’ adolah tulang sulbi bapak dan ‘genah manyimpan’ adolah rahim ibu. Ado pulak nang bapendapat bahwa ‘genah manetap’ adolah permukaan bumi pado waktu manusio masih hidup dan ‘genah manyimpan’ adolah perut bumi (kuburan) pado waktu manusio lah mati.
+
+[^254]: Orang-orang tu mangatokan bahwa Allah Swt mampunyoi anak, saperti orang Yahudi mangatokan Uzair adalah putra Allah Swt, dan orang-orang musyrik mangatokan bahwa malaikat marupokan anak-anak perempuan Allah Swt. Orang-orang tu mangatokan macam tu kareno kabodohannyo.
+
+[^255]: Siapo nang mangetaui kabenaran dan mangerjokan kabajikan serto mamperoleh patunjuk, dio lah mancapai puncak kabahagioan.
+
+[^256]: Orang musyrik basumpah bahwa kalu datang mukjizat dari Allah Swt., orang-orang tu bakal baiman. Kareno tu, orang mukmin mangharap kapado Nabi supayo Allah Swt. manurunkan mukjizat nang dimaksud. Mako, Allah Swt. manolak pangharapan orang-orang mukmin tu dengan ayat ko.
+
+[^257]: Liat catatan kaki surah Āli ‘Imrān/3: 28.
+
+[^258]: Menurut sabagian mufasir, ‘akābira mujrimīhā’ artinyo adolah paro panjahat-panjahat besak.
+
+[^259]: Tentang makna kato ‘waliy’ dan ‘auliyā’ silakan liat catatan kaki surah Āli ‘Imrān/3: 28.
+
+[^260]: Masing-masing lah marasokan kanikmatan dari pihak lain. Pihak jin setan mandapatkan kanikmatan kareno hasil manyesatkan manusio, sedangkan manusio mandapatkan kanikmatan kareno meraso senang mangikuti bujukan jin dan laluaso manikmati kalezatan di dunio.
+
+[^261]: Hasil tanaman dan ternak orang-orang tu dibagih manjadi tigo bagian, yaitu sikok bagian untuk orang-orang tu dewek, sikok bagian untuk Allah Swt., dan sikok bagian untuk berhalo orang-orang tu. Kalu bagian untuk berhalo tasebut manguntungkan, orang-orang tu idak mambagihkannyo untuk Allah Swt. Sabaliknyo, jiko bagian nang untuk Allah Swt. manguntungkan, orang-orang tu bakal mangambilnya untuk berhalo.
+
+[^262]: Sabagian orang Arab adolah panganut syariat Ibrahim. Nabi Ibrahim a.s. pernah diperintah Allah Swt. Swt. untuk mangurbankan anaknyo Ismail. Kemudian, pamimpin-pemimpin ugama orang-orang tu mangaburkan pangertian bakurban tu, sahinggo dapat mananamkan raso mamandang baik mambunuh anak-anak orang-orang tu dengan alasan mandekatkan diri kapado Allah Swt. Padohal, alasan nang sasungguhnya adolah kareno takut miskin dan takut tanoda.
+
+[^263]: Maksud kato ‘diharamkan’ pada ayat 143 dan 144 ko adolah bahwa hewan-hewan tu diharamkan kareno bakal dipersembahkan kapado berhalo-berhalo orang-orang tu.
+
+[^264]: Nang dimaksud “hewan bakuku” di siko adolah hewan nang jari-jarinyo idak tapisah antaro nang sikok dengan nang lain, seperti unto, itik, dan angso. Sabagian mufassir mangartikannyo dengan hewan nang bakuku tunggal, seperti kudo dan keledai.
+
+[^265]: Nang dibenarkan oleh syariat adolah seperti kisas, hukuman mati bagi orang murtad, dan rajam.
+
+[^266]: Lihat catatan kaki surah Āli ‘Imrān/3: 28.
+
+[^267]: Lihat catatan kaki surah Āli ‘Imrān/3: 28.
+
+[^268]: Maksud kata “melakukan kekejian” di sini adalah syirik, tawaf bertelanjang di sekeliling Ka‘bah, dan sabagainya.
+
+[^269]: Lihat catatan kaki surah Āli ‘Imrān/3: 28.
+
+[^270]: Artinya doa dan amal orang-orang tu idak diterima oleh Allah Swt.
+
+[^271]: Kalimat ko berarti orang-orang tu idak mungkin masuk surga samacam mano idak mungkinnya unta masuk ke dalam lubang jarum.
+
+[^272]: Kata ‘a‘rāf’ adalah bentuk jamak dari ‘urf nang berarti ‘sesuatu nang tinggi’ atau ‘sesuatu nang terhormat’. Pembatas antara surga dan neraka disebut dengan a‘rāf karena posisinya nang tinggi.
+
+[^273]: Allah Swt. menciptakan alam semesta dalam enam masa nang prosesnya sepanjang sejarah alam semesta, seperti nang dijelaskan di dalam surah an-Nāzi‘āt/79: 27-33.
+
+[^274]: “Bersemayam di atas ʻArasy” adalah sikok sifat Allah Swt. nang wajib diimani sesuai dengan keagungan Allah Swt. dan kesucian-Nya.
+
+[^275]: Madyan’ pado mulonya adolah namo putra Nabi Ibrahim a.s. dari istri beliau nang ketigo nang banama Qatura. Dio manikah dengan Nabi Lut a.s. Salanjutnya, kata ‘Madyan’ dipakai untuk namo sikok suku nang berasal katurunan Madyan. Lokasinya di pantai Laut Merah sabelah tenggara Gurun Sinai, yaitu antaro Hijaz, tepatnya Tabuk Saudi Arabia dan Teluk Aqabah
+
+[^276]: Perbaikan nang dimaksud adolah malalui syariat dan aturan nang dibawak oleh para nabi dan dilanjutkan oleh para panerusnya.
+
+[^277]: Orang-orang tu langsung basujud kapado Allah Swt. kareno mayakini kabenaran seruan Nabi Musa a.s. dan bukan sihir sabagai nang orang-orang tu dugo samulo.
+
+[^278]: Negeri Syam, Mesir dan negeri-negeri sakitar kaduonyo nang pernah dikuasoi Fir’aun dulu, sasudah kerajaan Fir’aun runtuh negeri-negeri tu diwarisi oleh Bani Israil.
+
+[^279]: Nang dimaksud dengan bangunan-bangunan Fir’aun nang dihancurkan Allah Swt. adolah bangunan-bangunan nang orang-orang tu dirikan dengan manindas Bani Israil, seperti kota Ramses, menara nang dibangun Haman atas perentah Fir’aun.
+
+[^280]: Para mufasir ado nang bapendapat bahwa apo nang ditampakkan tersebut adolah kabesaran dan kakuasaan Allah Swt. Ado pula nang manafsirkan bahwa nang tampak tu adolah cahayo Allah Swt. Bagaimanopun jugo tampaknyo Allah Swt. tu bukanlah seperti tampaknyo makhluk, hanyo tampak nang sasuai dengan sifat-sifat Allah Swt. nang idak dapat diukur dengan ukuran manusio.
+
+[^281]: ‘Lauh’ adolah kepingan dari batu atau kayu nang batuliskan kitab Taurat nang diterimo Nabi Musa a.s. sasudah munajat di Gunung Sinai.
+
+[^282]: Utamokanlah hal-hal nang wajib dulu daripado nang sunah dan mubah.
+
+[^283]: Allah Swt. bakal mampaliatkan negeri orang-orang fasik seperti Fir’aun, ‘Ad, dan Samud nang hancur basamo orang-orang tu akibat akhir kajahatan dan kafasikan orang-orang tu.
+
+[^284]: Orang-orang tu mambuat patung anak jawi dari emas. Sabagian mufasir bapendapat bahwa suaro nang mirip suaro jawi tu hanyolah disebabkan oleh angin nang masuk ka dalam rongga patung tu dengan teknik nang dikenal oleh Samiri waktu tu. Sabagian lagi ado nang manafsirkan bahwa patung nang dibuat tu kemudian menjadi tubuh nang banyawo dan mangeluarkan suaro sapi.
+
+[^285]: Maksud pertanyoan iko adolah mampatanyokan katidaksabaran manantik kadatangan Nabi Musa a.s. balik sasudah bamunajat kapado Tuhan, sahinggo kaumnyo mambuat patung anak jawi untuk disembah samacam mano manyembah Allah Swt.
+
+[^286]: Perbuatan orang-orang tu mambuat patung anak jawi dan manyembahnyo tu adolah suatu cobaan dari Allah Swt. untuk manguji orang-orang tu, siapo nang sabenarnyo kuat imannyo dan siapo nang masih ragu-ragu. Orang nang lemah imannyo tulah nang mangikuti Samiri dan manyembah patung anak jawi tu. bakal tetapi, orang nang kuat imannyo bakal tetap dalam kaimanannyo.
+
+[^287]: Dalam syariat nang dibawak oleh Nabi Muhammad saw. tu idak ado lagi beban nang berat nang dipikulkan kapado Bani Israil, seperti mansyariatkan mambunuh diri untuk sahnyo tobat, wajib kisas pado pambunuhan, baik nang disengajo maupun dak, tanpa boleh mambayar diat (ganti rugi), mamotong anggota badan nang malakukan kasalahan, dan mambuang atau manggunting kain nang keno najis.
+
+[^288]: Orang-orang tu mambagih patunjuk dan manuntun dengan bapadoman kapado patunjuk dan tuntunan nang datang dari Allah Swt. Dalam hal mangadili pakaro, orang-orang tu salalu mencari kaadilan dengan bapadoman kapado patunjuk dan tuntunan Allah Swt.
+
+[^289]: Lihat catatan kaki surah al-Baqarah/2: 57.
+
+[^290]: Orang-orang tu diperentah untuk mangucap, ‘ḥiṭṭatun’ (nang artinyo ‘mohon dilepaskan dari doso’), tapi orang-orang tu mangubah sambil mancemooh dan mangucapkannyo menjadi ‘ḥinṭatun fī sya‘īrah’ (nang artinyo ‘gandum’).
+
+[^291]: ‘Negeri dekat laut’ di siko adolah kota Eilah nang taletak di pantai Laut Merah, antara kota Madyan danGunung Sinai.
+
+[^292]: Manurut aturan, orang-orang tu idak boleh bakerjo pado ari Sabat, kareno ari Sabat tu dikhususkan hanyo untuk baibadah. Aturan iko ditetapkan oleh Allah Swt. kapado orang-orang Yahudi sasuai dengan parmintaan orang-orang tu. Orang-orang tu dilarang mangail ikan pado ari tu, tapi sabagian dari orang-orang tu melanggar dengan caro nang licik. Orang-orang tu idak mangail tapi mambendung ikan dengan manggali kolam, sahinggo air masuk basamo ikan ka dalam kolam tu, dan orang-orang tu kemudian manangkapnyo di ari nang lain.
+
+[^293]: Alasan orang-orang tu adolah bahwa orang-orang tu sudah melaksanakan perentah Allah Swt. untuk mambagih peringatan
+
+[^294]: Supaya orang-orang musyrik tu jangan mangatokan bahwa nenek moyang orang-orang tu dulu lah mampasakutukan Tuhan, sedangkan orang-orang tu idak tahu-menahu bahwa mampasakutukan Tuhan tu salah. Idak ado jalan lagi bagi orang-orang tu, hanyo meniru nenek moyang orang-orang tu nang mampasakutukan Tuhan. Oleh kareno tu, orang-orang tu manganggap orang-orang tu idak patut disikso kareno kasalahan nenek moyang orang-orang tu.
+
+[^295]: Jangan dihiraukan orang-orang nang manyembah Allah Swt. dengan manyebut namo-namo nang idak sasuai dengan sifat-sifat kaagungan Allah Swt., atau dengan memakai Asmaulhusna, tapi dengan maksud manodai namo Allah Swt. atau mampagunokan Asmaulhusna untuk namo-namo salain Allah Swt.
+
+[^296]: Pembiaran tersebut dicontohkan seperti orang nang babuat maksiat, tapi hidupnyo kaliatan makin sukses, sahinggo dio makin berani babuat maksiat. Dio idak sadar bahwa apo nang dio lakukan manuntunnyo manuju kabinasoan.
+
+[^297]: Lihat catatan kaki surah al-Baqarah/2: 26.
+
+[^298]: Peristiwa iko idak bakenaan dengan Nabi Adam a.s., melainkan dengan sabagian katurunannyo.
+
+[^299]: Dalam pandangan orang musyrik, kalahiran anak orang-orang tu bukan semato-mato karunia Allah Swt., tapi jugo atas berkat berhalo-berhalo nang orang-orang tu sembah. Oleh kareno tulah, orang-orang tu manamokan anak-anak orang-orang tu dengan Abdul Uzza, Abdu Manat, Abdus Syams, dan sabagainyo.
+
+[^300]: Kato yabṭisyūn di siko bamakna ‘keras’, maksudnyo manampar, marusak, memukul dengan kasar, dan sabagainyo.
+
+[^301]: Balindung dengan mambaco aʻużu billāhi minasy syaiṭānir rajīm.
+
+[^302]: Ko adolah salah sikok ayat sajadah nang disunahkan bagi kito untuk basujud sasudah pambacaannyo atau manganingnyo baik di dalam sembahyang maupun di luar sembahyang. Sujud ko dinamokan sujud tilawah.
+
+[^303]: Manyebut namo Allah Swt. di siko baarti manyebut sifat-sifat nang mangagungkan dan mamuliokan-Nyo.
+
+[^304]: Sabagian sahabat Nabi kaberatan dengan katentuan pambagian harto rampasan perang, samacam mano orang-orang tu kaberatan dengan perentah Allah Swt. untuk melaksanokan Perang Badar.
+
+[^305]: Duo golongan tasebut adolah kafilah Abū Sufyān nang mambawak dagangan dari Syam dan pasukan basanjato nang datang dari Makkah di bawah pimpinan ‘Utbah bin Rabi‘ah basamo Abū Jahal.
+
+[^306]: ko tajadi dalam peperangan. Sasaran nang mamatikan adolah leher. Tapi, apobilo lawan mamakai baju besi sahinggo sulit dikalahkan, tangannyolah nang dilumpuhkan agar dak dapat mamegang senjato supayo mudah ditawan.
+
+[^307]: Peristiwa ko takait Perang Badar samacam mano diriwayatkan oleh Ibnu Abbas. Dio bacarito bahwa katiko Perang Badar bakacamuk, Nabi Muhammad saw. bakato kapado Ali, “Ambikkan aku sagenggam pasir!” Ali sagero mengambik pasir tasebut dan manyerahkannyo kapado beliau. Lalu, beliau malemparkan pasir tu ka muko para musuh sahinggo dak seorang pun nang matonyo luput darinyo. Oleh kareno tu, hancurlah orang-orang tu.” (Hadis riwayat Ṭabrani).
+
+[^308]: Pangandaian dalam ayat ko bukan baarti Allah Swt. dak tau, tapi Allah Swt. Mahatau bahwa pado orang-orang tu dak ado kabaikan.
+
+[^309]: Seruan tasebut barupo seruan untuk baperang demi meninggikan kalimat Allah Swt. serto manghidupkan Islam dan muslimin. Hal tu jugo baarti manyeru kapado iman, patunjuk, jihad, dan sagalo nang ado hubungannyo dengan kebahagiaan hidup di dunio dan di akherat.
+
+[^310]: Allah Swt. manguasoi hati manusio dan mangarahkannyo sasuaii kendak-Nyo. Mako, Allah Swt. manghalangi katiko hati tu condong untuk manuruti hawa nafsu dan mambimbing manusio manuju jalan nang lurus.
+
+[^311]: Nang dimaksud dengan ‘rampasan perang’ di siko adolah harto nang diparoleh dari orang-orang kafir malalui pertempuran. Adopun harto nang diparoleh tanpa malalui pertempuran disebut fai’. Pambagian dalam ayat ko hanyo bakaitan dengan ganimah be.
+
+[^312]: Saperlimo dari ganimah tu dibagih kapado : 1) Allah swt dan Rosul-Nyo, 2) kerabat Rosul (Bani Hasyim dan Bani Muttalib), 3) anak yatim, 4) orang miskin, 5) ibnu sabil, yaitu orang nang sedang dalam perjalanan, sedangkan empatperlimo dari ganimah tu dibagih kapado orang-orang nang ikut batempur.
+
+[^313]: Hari batemunyo duo pasukan pado Perang Badar, hari Jum’at 17 Ramadan tahun kaduo Hijriah. Sabagian mufasir bapendapat bahwa ayat ko mangisyaratkan kapado bamulo turunnyo Al-Qur’an pado malam 17 Ramadan.
+
+[^314]: Kaum muslim waktu tu barado di tepi lembah nang dekat ka Madinah, dan orang-orang kafir barado di tepi lembah nang jauh dari Madinah. Sedang kafilah nang dipimpin oleh Abu Sufyan barado di tepi pantai kiro-kiro 5 mil dari Badar.
+
+[^315]: Orang-orang tu idak mangerti bahwa baperang tu haruslah untuk mambela keyakinan dan manaati perentah Allah Swt. Orang-orang tu baperang hanyo nak mampertahankan tradisi jahiliah dan maksud-maksud duniawi lainnyo.
+
+[^316]: Bahwa Allah idak bakal manjatuhkan sikso sabelum tajadi pelanggaran atas katentuan nang jelas.
+
+[^317]: Imak catatan kaki surah Ali ‘Imran/2: 28
+
+[^318]: Paro mufasir babeda pandapat tentang pangertian haji akbar pado ayat ko. Ado nang mangatokannyo hari nahar, ado nang mangatokannyo hari Arafah. Nang dimaksud dengan ‘haji akbar’ di siko adolah haji nang tajadi pado tahun ke-9 Hijriah.
+
+[^319]: Nang dimaksud dengan bulan haram di siko adolah maso empat bulan nang dibagih tenggang waktu kapado kaum musyrik pado waktu tu, yaitu mulai 10 Zulhijah (hari turunnyo ayat iko), sampe dengan 10 Rabiulakhir.
+
+[^320]: Imak catatan kaki surah Ali ‘Imran/3:28.
+
+[^321]: Satelah tahun 9 H orang-orang musyrik idak dibolehkan mangerjokan haji dan umroh, atau mamasuki mesjid dan daerah haram manurut pandapat nang lain, baik untuk kaperluan haji dan umroh maupun untuk kaperluan nang lain.
+
+[^322]: Jizyah adolah imbalan atau balasan atas raso aman dan fasilitas nang diparoleh penganut ugamo Yahudi, Nasrani, dan lainnyo dalam masyarakat Islam.
+
+[^323]: Ayat ko dan ayat-ayat nang senada balaku dalam situasi perang ugamo bukan dalam situasi normal
+
+[^324]: Maksud kalimat tasebut adolah bahwa orang-orang tu mamatuhi ajaran nang lah ditetapkan oleh para rabi dan rahib, mekipun batentangan dengan ajaran Allah SWT.
+
+[^325]: Allah manetapkan periode orbit bumi mangitari matahari salamo satahun nang setara dengan duo belas bulan, yaitu duo belas kalikatampakan bulan sabit akibat bulan mangitari bumi. Kateraturan priode waktu ko nang dimanfaatkan untuk pahitungan waktu.
+
+[^326]: Maksud dari ‘mambinasokan diri dewek’ dalam ayat ko adolah bahwa orang-orang tu bakal binaso disebabkan sumpah palsu dan kabohongan orang-orang tu.
+
+[^327]: Imak catatan kaki surah Ali ‘Imran/3 : 28.
+
+[^328]: Orang-orang tu ingin mambunuh Nabi Muhammad SAW
+
+[^329]: Orang nang idak pegi baperang dalam ayat ko adolah perempuan, anak-anak, orang nang lemah, sakit dan sudah tuo.
+
+[^330]: Kali pertamo, orang-orang tu kalah dari Nabi Muhammad saw. dan umat Islam; dan kali keduo, kemunafikan orang-orang tu diungkap oleh Allah Swt. Bisa jugo diartikan, bahwa azab nang pertamo adolah azab dunio dan nang kaduo adolah azab kubur, kareno ayat ko ditutup dengan panegasan adonyo azab akherat (ṡumma yuraddūna ilā ‘ażābin ‘aẓīm).
+
+[^331]: Zakat mambersihkan orang-orang tu dari kabakhilan dan cinto nang balebihan tahadap harto.
+
+[^332]: Nang dimaksud dengan ‘orang nang sabelumnyo lah mamerangi Allah Swt. dan Rosul-Nyo’ adolah saorang pendeta Nasrani banamo Abu ‘Amir nang orang-orang tu tunggu-tunggu kadatangannyo dari Syam untuk malaksanokan sembahyang di mesjid nang orang-orang tu bangun, serto membawak tentara Romawi nang bakal mamerangi kaum Muslim. Tapi, Abu ‘Amir ko idak jadi datang kareno ia mati di Syam. Mesjid nang dibangun kaum munafik tu diruntuhkan atas perentah Rosulullah saw. badasarkan wahyu nang diterimanyo sasudah balik dari Perang Tabuk.
+
+[^333]: Maksud ‘tapotong-potong’ pado ayat ko adolah sampai orang-orang tu mati. Ado pulak nang manafsirkan, apobilo orang-orang tu idak dapat batobat lagi.
+
+[^334]: Ado pulak nang menafsirkan nang tergolong ka dalam orang-orang ko adolah orang-orang nang bapuaso.
+
+[^335]: Permohonan ampunan Nabi Ibrahim a.s. untuk bapaknya antaro lain tadapat dalam surah Ibrāhīm/14: 41 dan surah Maryam/19: 47.
+
+[^336]: Saorang hambo idak bakal diazab oleh Allah Swt. semato-mato karena kasesatannyo, kacuali kalu hambo tu malanggar perentah-perentah nang sudah dijelaskan
+
+[^337]: Ketiga orang itu adolah Ka‘ab bin Malik, Hilal bin Umayyah, dan Mararah bin Rabi‘. Orang-orang tu disalahkan kareno idak mau ikut baperang dalam perang Tabuk.
+
+[^338]: Islam idak mangajarkan kapado umat muslim untuk mamerangi orang kafir kareno kakafirannyo, tapi mambolehkannyo untuk manghindarkan diri dari sagalo bentuk kezaliman (dengan maksud mambelo diri), seperti kalu orang Islam diserang.
+
+[^339]: Penyakit batin pado ayat ko maliputi kakafiran, kemunafikan, karagu-raguan, dan sabagainyo.
+
+[^340]: Lihat catatan kaki surah al-A‘rāf/7: 54.
+
+[^341]: Basemayam di atas ʻArasy sasuai dengan kaagungan dan kasucian-Nyo.
+
+[^342]: Allah swt. manjadikan matohari dan bulan babeda sifat fisiknyo. Matohari basinar kareno mamancarkan cahayonyo dari proses reaksi nuklir di dalam intinyo. Sedangkan bulan bacahayo kareno mamantulkan cahayo matohari.
+
+[^343]: Pergerakan bulan mangitari bumi manyebabkan pamantulan cahayo matohari oleh bulan barubah-ubah bentuknyo, dari bentuk sabit sampe purnamo dan balik manjadi sabit lagi, sasuai dengan kadudukannyo. Kateraturan periode bulan mangitari bumi dijadikan sabagai pahitungan waktu bulanan. Duo belas bulan satara dengan sikok tahun (surah at-Taubah/9 :36).
+
+[^344]: Kalimat ko adolah ejekan tahadap panyembah barhalo nang manyangko bahwa berhalo-berhalo tu dapat mambagihnyo pertolongan di hadapan Allah swt.
+
+[^345]: Ayat ko idak manunjukkan katidaktauan Allah swt. atas sagalo sasuatu di langit dan di bumi, tapi manunjukkan kamustahilan adonyo sembahan salain Allah swt.
+
+[^346]: Katetapan Allah swt iolah bahwa perselisihan manusio di dunio tu bakal diputuskan di akherat.
+
+[^347]: Maksudnyo adolah bahwa bumi tampak elok dengan gunung-gunung dan lembah-lembahnyo nang lah manghijau dengan tanam-tanamannyo.
+
+[^348]: Allah swt. manjadikan siklus harian rotasi bumi manyebabkan kaberulangan malam dan siang. Saat malam, katiko matohari barado pado belahan bumi sabaliknyo, suasano gelap dan sejuk sangat nyaman untuk baistirahat. Samentaro pado siang hari nang terang sangat cocok untuk sagalo aktivitas kahidupan
+
+[^349]: Manurut sabagian mufasir, nang dimaksud dengan ‘genah kediaman’ adolah dunio dan ‘genah penyimpanan’ adolah akherat. Manurut mufasir lain, maksud ‘genah kadiaman’ adolah rahim dan ‘geah penyimpanan’ adolah tulang sulbi.
+
+[^350]: Imak catatan kaki surah al-A‘rāf/7 : 54.
+
+[^351]: Ado yang menafsirkan saksi sabagai Jibril a.s., Al-Qur’an, atau Muhammad saw
+
+[^352]: Nang dimaksud paro saksi di siko adolah malaikat, nabi-nabi, dan anggota badannya dewek
+
+[^353]: Maksud ayat ko adolah bahwa orang-orang tu bausaho supayo orang lain mengengkari ugamo nang benar
+
+[^354]: Imak catatan kaki surah Āli ‘Imrān/3: 28.
+
+[^355]: Gunung Judiy tu taletak di Armenia sabelah selatan dan babatasan dengan Mesopotamia.
+
+[^356]: Manusio dijadikan panghuni dunio untuk manguasoi dan mamakmurkannyo.
+
+[^357]: Perbuatan orang-orang tu mambunuh unto tu adolah sasuatu pelanggaran tahadap larangan Nabi Saleh a.s. Kareno tu, Allah Swt manjatuhkan kapado orang-orang tu hukuman barupo membatasi hidup orang-orang tu hanyo dalam waktu tigo hari. Mako, sabagai ejekan orang-orang tu disuruh basuki rio salamo tiga hari tu.
+
+[^358]: Kareno demikian cepatnyo orang-orang tu dihancurkan oleh geledek tu, sahinggo orang-orang tu hancur lebur dak do babekas. Saolah-olah orang-orang tu idak pernah ado.
+
+[^359]: Nabi Luth maraso gundah gulano dengan kedatangan malaikat utusan Allah Swt tu, karno malaikat tu barwujud jadi pemudo nang gagah, sedangkan kaum Nabi Luth adolah homoseks nang menyukoi pemudopemudo gagah. Dio maraso idak sanggup melindungi tamunyo tu bilo ado gangguan dari kaumnyo.
+
+[^360]: Ucapan ko orang-orang tu ucapkan untuk mangejek Nabi Syuʻaib a.s.
+
+[^361]: Kalimat ko marupokan kiasan be nang manjelaskan keadaan orang nang kekal di dalam nerako salamolamonyo. Alam akherat jugo mampunyoi langit dan buminyo jugo.
+
+[^362]: Sakironyo idak ado katetapan penundoan azab tahadap orang-orang tu sampai hari Kiamat, tentulah orangorang tu dibinasokan waktu tu jugo.
+
+[^363]: Imak catatan kaki surah Āli ‘Imrān/3: 28.
+
+[^364]: Nang dimaksud saudaro kandung Nabi Yusuf tu adolah Bunyamin.
+
+[^365]: Maksudnyo adolah manjadi orang pangecut nang hidupnyo idak ado artinyo.
+
+[^366]: Orang-orang tu khawatir bahwa Nabi Yusuf bakal ditemukan oleh keluargonyo dan bakal langsung diambik lagi dan orang-orang tu idak mandapatkan apo-apo. Makonyo, cepat-cepat dijual walaupun dengan hargo murah.
+
+[^367]: Orang dari Mesir nang mambeli Nabi Yusuf tu adolah seorang pambesar Mesir nang dikenal dengan namo Qitfir al-Aziz. Dalam sebagian kitab tafsir disebutkan namo bininyo, Rail. Ado jugo nang manyebutnya Zulaikha atau Zalikha. Namun, riwayat nang manyebutkan namo-namo tu idak dapat dipertanggungjawabkan.
+
+[^368]: Ayat ko idak manunjukkan bahwa Nabi Yusuf mampunyoi kainginan nang buruk tahadap perempuan tu, tapi godaan perempuan tu demikian besaknyo sahinggo sakironyo dio idak dikuatkan dengan kaimanan kapada Allah, tentu dio bakal jatuh ka dalam kemaksiatan.
+
+[^369]: Manurut suatu riwayat, duo pemudo tu adolah pelayan-pelayan rajo.
+
+[^370]: Nang dimaksud dengan kaadoan di siko iolah pandapat perempuan-perempuan tu tentang Nabi Yusuf a.s. apokah dio tapengaruh godaan tu atau idak.
+
+[^371]: Menurut catatan sejarah, lah tajadi musim paceklik di Mesir dan sekitarnyo. Mako, atas anjuran Nabi Ya‘qub a.s. saudaro-saudaro Nabi Yusuf a.s. tibo dari Kan‘an ka Mesir menghadap pambesar-pambesar Mesir untuk mandapatkan bahan makanan.
+
+[^372]: Menurut kabanyakan mufasir, barang-barang saudaro-saudaro Nabi Yusuf a.s. nang digunokan sabagai alat panukar bahan makanan tu ialah kulit atau terompah.
+
+[^373]: Tindakan ko diambil sabagai siasat dengan caro mananam budi kapado orang-orang tu supayo orang-orang tu nantinyo basedio balik lagi ka Mesir dengan mambawak Bunyamin
+
+[^374]: Cawan nang dimaksud adolah suatu wadah nang tabuat dari emas nang digunokan untuk minum dan dapat juga digunokan untuk menakar.
+
+[^375]: Menurut Syari’at Nabi Ya‘qub a.s., hukuman bagi maling adolah dijadikan hambo sahayo salamo sikok tahun.
+
+[^376]: Imak catatan kaki surah al-A‘rāf/7: 54.
+
+[^377]: Kaadoan daratan bumi barupo hamparan dan gunung-gunung. Di antaronya ada sungei-sungei. Daratan tulah genah tumbuhnyo buah-buahan nang panyerbukannyo dapat tajadi kareno struktur bunga nang bapasangan, jantan dan betino. Sagalonya mangalami siang dan malam kareno proses perputaran bumi.
+
+[^378]: ‘Seruan nang hak’ ditafsirkan oleh paro ulama sabagai pangakuan atas kandungan kalimat la ilāha illallāh dan juga ditafsirkan sabagai baibadah dan badoa.
+
+[^379]: Allah Swt. manyesatkan sasaorang kareno nang basangkutan engkar kapado patunjuk-patunjuk-Nyo. Dio mambagih hidayah kapada sasaorang kareno kataatannyo tahadap patunjuk-patunjuk-Nyo.
+
+[^380]: Nang dimaksud dengan ‘Orang-orang tu’ adalah orang Yahudi dan Nasrani nang idak mengekari Allah Swt. dan idak mandustokan rasul-rasul-Nyo.
+
+[^381]: Pado setiap maso ado hukum nang dibalakukan oleh Allah Swt. atas hambo-hambo-Nyo sasuai garis kabijakan-Nyo.
+
+[^382]: Nang dimaksud ‘orang nang manguasoi ilmu al-Kitab’ adalah ulama Ahlulkitab nang mameluk Islam.
+
+[^383]: ‘Hari-hari Allah’ maksudnyo adolah peristiwo-peristiwo nang tajadi pado kaum-kaum tadahulu serto nikmat dan siksoan nang orang-orang tu alami.
+
+[^384]: Maksud ‘dalam’ adolah selamat dari sagalo bencano.
+
+[^385]: Nang temasuk ‘kalimat tayyibah’ iolah sagalo ucapan nang manyeru kapada kabajikan dan mancegah kamungkaran serto perbuatan baik, tamasuk di dalamnya adolah kalimat tauhid, yaitu ‘lā ilāha illallāh’.
+
+[^386]: Nang tamasuk dalam ‘kalimah khabīṡah’ iolah ungkapan-ungkapan nang mangandung kakufuran, kamusyrikan, serto sagalo perkatoan nang idak benar dan idak baik.
+
+[^387]: Nang dimaksud ‘ucapan-ucapan nang teguh’ di siko iolah ‘kalimah ṭayyibah’ nang disebut dalam ayat 24 di atas.
+
+[^388]: Allah Swt. manundukkan matohari dan bulan dengan hukum-hukum-Nyo di alam sahingga bumi terus mangitari matohari (nang tampak saolah matohari nang mangitari bumi) dan bulan terus mangitari bumi, serto bumi terus berotasi sahinggo manampakkan kajadian malam dan siang.
+
+[^389]: Nabi Ibrahim a.s. hanyo mandoakan sabagian anak cucunya kareno Allah Swt. lah mambagihtaunya bahwa sabagian anak cucunyo nang lain bakal manjadi orang-orang kafir.
+
+[^390]: Nang dimaksud dengan ‘gunung’ pado ayat ko adolah syariat Allah Swt. nang kukuh laksano gunung.
+
+[^391]: Kato-kato ko diucapkan oleh orang-orang kafir Mekah kapado Nabi Muhammad saw sabagai ejekan.
+
+[^392]: Ayat ko mambagih jaminan tentang kasucian dan kamurnian Al-Qur’an salamo-lamonyo.
+
+[^393]: Sunnatullah disiko iolah mambinasokan orang-orang nang mandustokan rasul.
+
+[^394]: Sagalo sasuatu tu sumbernyo dari Allah Swt.
+
+[^395]: Maksudnyo adolah mangawinkan awan, tanaman dan sabagainyo.
+
+[^396]: Sujud disiko bukan manyembah, malainkan manghormat saperti sujudnyo saudaro-saudaro Nabi Yusuf a.s kapadonyo..
+
+[^397]: Panjelasan lebih lengkap, imak surah az-Zuriyat/51:27
+
+[^398]: Maksudnyo adolah kota Sodom nang taletak di dekat pantai Laut Tengah di sabelah timur Yordania sekarang
+
+[^399]: Orang-orang tu ingin babuat homosexual dengan tamu-tamu tu. Orang-orang tu memang lah pernah mangancam Nabi Luth as agar idak manghalangi orang-orang tu babuat macam tu.
+
+[^400]: Orang Arab biaso basumpah dengan umur sasaorang. Disiko Allah basumpah dengan umur atau kahidupan Nabi Muhammad Saw untuk mamuliokan baliau.
+
+[^401]: Negeri nang dimaksud adolah kota Sodom. Orang Quraisy biaso malaluinyo dalam pajalanan orang-orang tu ka Syam.
+
+[^402]: Panduduk Aikah ko iolah kaum Nabi Syu’aib as. Aikah iolah kawasan nang bautan di daerah Madyan, Yordania.
+
+[^403]: Kaduo negeri nang dimaksud adolah Sodom dan Aikah
+
+[^404]: Penduduk kota Al-Hijr iolah kaum Tsamud, kaum Nabi Saleh as. Al-Hijr marupokan namo sikok genah nang taletak di Wadi Quro antaro Madinah dan Syria.
+
+[^405]: nang dimaksud dengan rasul-rasul disiko iolah Nabi Saleh as. Mestinyo disiko disebut “rasul”, tapi disebut rasul-rasul (jama’) kareno mandustokan saorang rasul samolah halnyo dengan mandustokan samua rasulrasul.
+
+[^406]: Peristiwa tu tajadi pado ari nang kaempat sasudah datangnyo peringatan kapado orang-orang tu
+
+[^407]: nang dimaksud dengan tujuh ayat nang dibaco baulang-ulang iolah surat Al Faatihah nang tadiri dari tujuh ayat. Sabagian ahli tafsir mangatokan tujuh surat-surat nang panjang yaitu Al Baqarah, Ali Imron, An-Nisaa’, Al A’Raaf, Al An’am sarto Al Anfaal nang digabung dengan At-Taubah.
+
+[^408]: Orang-orang tu adolah orang-orang nang manarimo sabagian isi Kitab dan manolak sabagian nang lain.
+
+[^409]: Orang-orang tu adolah orang Yahudi dan Nasroni nang mamilah-milah Al-Qur’an. Ado bagian nang orangorang tu percayo dan ado pulo bagian nang orang-orang tu mangingkarinyo.
+
+[^410]: Katetapan Allah swt. Nang dimaksud adolah hari Kiamat nang lah diperingatkan kapado orang-orang musyrik.
+
+[^411]: Bagal adolah peranakan kudo dengan kaledai.
+
+[^412]: Nang dimaksud ‘lautan’ di siko adolah perairan nang luas, baik tawar maupun asin, tamasuk di dalamnyo laut, danau dan sungei nang luas.
+
+[^413]: Maksudnyo adolah wafat dalam kaadaan suci dari kakafiran dan kama’siatan, atau dapat jugo baarti orang-orang tu mati dalam kaadaan senang kareno ado barito gembiro dari malaikat bahwa orang-orang tu bakal masuk surgo.
+
+[^414]: Maksudnyo adolah kadatangan malaikat untuk manyabut nyawa orang-orang tu.
+
+[^415]: Maksudnyo adolah kadatangan azab dari Allah untuk mamusnahkan orang-orang tu.
+
+[^416]: Liat catatan kaki surah al-Baqarah/2:26..
+
+[^417]: Yakni: orang-orang nang mampunyoi pangetauan tentang nabi dan kitab-kitab.
+
+[^418]: Kakurangan tu maliputi harto, jiwo, raga dan sabagainyo. Manurut sabagian ahli tafsir, “Takhawwul” baarti dalam kaadaan takut.
+
+[^419]: Perkatoan orang-orang tu bahwa Allah swt mampunyoi anak batino, yaitu nang bawujud paro malaikat, dipicu raso kabencian kapado anak batino samacam mano tasebut dalam ayat Al-Qur’an barikutnyo.
+
+[^420]: Dalam ayat iko ditekankan bahwa bajantan dan batino mandapat pahalo nang samo samacam mano jugo ditekankan bahwa amal kabajikan harus disertoi iman.
+
+[^421]: Kalaparan dan katakutan tu maliputi orang-orang tu saperti halnyo pakaian maliputi tubuh orang-orang tu
+
+[^422]: Orang-orang Yahudi diperentahkan untuk mangkhuhsuskan hari Jum’at untuk baibadah, tapi orang-orang tu manolak dan manjadikan hari Sabtu sabagai panggantinyo
+
+[^423]: Hikmah iolah perkatoan nang tegas dan benar nang dapat mambedakan antaro nang hak dengan nang batil
+
+[^424]: Masjidil Aqso dan daerah sakitarnyo mandapat barkat dari Allah dengan diturunkannyo nabi-nabi di negeri tu barikut kasuburan tanahnyo.
+
+[^425]: Sakedar mangucapkan kato ‘ah’ (atau kato-kato kasar lainnyo) kapado orang tuo idak dibolehkan oleh ugamo apolagi mamperlakukan kaduonyo dengan lebih kasar dari pado tu.
+
+[^426]: Lihat catatan surah Al An’am /6: 151.
+
+[^427]: Kakuasoan di siko iolah kawenangan ahli waris orang nang tabunuh atau panguoso nang sah untuk manuntut kisas atau manerimo diat. (Imak surahal-Baqarah/2: 178 dan surah an-Nisa/4: 92).
+
+[^428]: Sagalo larangan nang dimaksud adolah nang disebut dalam ayat: 22, 23, 26, 29, 31, 32, 33, 34, 36, dan 37 surat ko.
+
+[^429]: Maksudnyo adolah apo nang diyakini orang-orang tu sabagai Tuhan, yaitu berhalo, malaikat, jin dan sabagainyo.
+
+[^430]: Nabi Isa a.s., paro Malaikat dan ‘Uzair nang orang-orang tu sembah salamo ko manyeru dan mancari jalan pandekatan diri kapado Allah swt.
+
+[^431]: Manurut sabagian mufasir, nang dimaksud ‘ru’yā’ disiko bakaitan dengan kajadian Isra’ Mi’raj sahinggo maknanyo adolah pangimakan Nabi katiko Isra’ Mi’raj. Adopun manurut sabagian mufasir lainnyo, ‘ru’yā’ ko bakaitan dengan Perang Badar. Mako, maknanyo adolah mimpi nang dialami Rasulullah sabelum peristiwo perang Badar .
+
+[^432]: Pohon takutuk adolah pohon zaqum (lihat surat as-Saffat/37: 62 dan surah ad-Dukhan/44: 43).
+
+[^433]: Kalu sampai tajadi Nabi Muhammad saw. diusir oleh penduduk Makkah, niscayo orang-orang tu idak bakal lamo hidup di dunio dan Allah segero bakal mambinasokan orang-orang tu. Hijrah Nabi Muhammad s.a.w. ka Madinah bukan kareno pangusiran kaum Quraisy, malainkan samato-mato kareno perentah Allah.
+
+[^434]: Maksudnyo adolah bahwa tiap-tiap umat nang mangusir rasul pasti bakal dibinasokan Allah swt. Macam tulah sunnah (katetapan) Allah swt.
+
+[^435]: Ayat ko manerangkan waktu-waktu sembahyang nang limo. Tagelincir matohari untuk waktu sembahyang Zhuhur dan Ashar, gelap malam untuk waktu Magrib, Isya dan Subuh.
+
+[^436]: Dalam hadits riwayat Imam Ahmad disebutkan bahwa sembahyang Subuh disaksikan oleh paro malaikat nang batugas pado malam dan siang.
+
+[^437]: Maksud doa ko adolah mamohon kapado Allah swt. supayo kito mamasuki suatu ibadah dan salesai daripadonyo dengan niat nang baik dan panuh kaikhlasan serto bersih dari ria dan dari sasuatu nang marusakkan pahalo. Ayat ko jugo mangisyaratkan kapado Nabi supayo bahijrah dari Makkah ka Madinah. Ado juga nang manafsirkannyo dengan mamohon kapado Allah Swt. supayo kito mamasuki kubur dengan baik dan kaluar daripadonyo waktu hari-hari kabangkitan dengan baik pulak.
+
+[^438]: Lihat catatan kaki surah Ali Imran/3: 28.
+
+[^439]: Mukjizat nang sambilan tu iolah: tongkat, tangan nang biso mamancarkan cahayo, balalang, kutu, katak, darah, topan, laut nang tabelah, dan gunung (Sinai).
+
+[^440]: Al-Qur’an benar-benar diturunkan oleh Allah swt, bukan oleh salain-Nyo.
+
+[^441]: Idak ado dalam Al-Qur’an tu makna-makna nang saling balawananan dan idak ado panyimpangan dari kabenaran
+
+[^442]: ‘Raqīm’, sabagian ahli tafsir mangartikan sabagai namo anjing dan sabagian nang lain mangartikannyo sabagai batu tulis barisi catatan tentang ugamo tauhid atau namo-namo orang-orang tu
+
+[^443]: Allah swt manidurkan orang-orang tu salamo 309 tahun qomariah dalam guo tu (Lihat ayat 25 surah ko) sahinggo orang-orang tu tak dapat dibangunkan oleh suaro apopun.
+
+[^444]: Kaduo golongan tu iolah pemudo-pemudo tu dewek nang baselisih tentang barapo lamonyo orang-orang tu tinggal dalam guo tu
+
+[^445]: Bangun dan manghadap Rajo Dikyanus (Decius) nang zalim dan sombong
+
+[^446]: Perkatoan ko tajadi antaro orang-orang tu dewek nang timbulnyo kareno ilham dari Allah Swt.
+
+[^447]: Contoh amal kabajikan nang abadi pahalonyo antaro lain malaksanokan rukun Islam dengan benar, mambaco tasbih, tahmid, dan zikir-zikir lainnyo.
+
+[^448]: Lihat catatan kaki surah Ali Imran/3: 28
+
+[^449]: Di antaro bentuk siksoan Allah swt. adolah nang idak langsung dibagihkan kapado hamba-Nyo nang badoso, tapi ditundo sasuai kahendak Allah swt.
+
+[^450]: Sabagian mufasir manyebutkan dio banamo Yusya’ bin Nun, salah sikok pambesar Bani Israil
+
+[^451]: Manurut ahli tafsir, badasarkan hadis, hambo di siko iolah Khidr, dan nang dimaksud dengan rahmat di siko iolah wahyu dan kanabian. Sedang nang dimaksud dengan ilmu iolah ilmu tentang nang ghaib saperti nang bakal diterangkan dengan ayat-ayat barikut.
+
+[^452]: Sampe di pantai sabelah barat, tempat Zulqarnain manengok matohari sedang tabenam.
+
+[^453]: Manurut sabagian mufasir, golongan nang ditemui Zulqarnain tu adolah umat nang miskin
+
+[^454]: Orang-orang tu idak dapat mamahami bahaso orang lain kareno bahaso orang-orang tu sangat jauh bedonyo dari bahaso nang lain dan orang-orang tu pun idak dapat menerangkan maksud orang-orang tu dengan jelas kareno kekurangcerdasan orang-orang tu
+
+[^455]: Ya’juj dan Ma’juj iolah duo bangso nang babuat karusakan di bumi
+
+[^456]: Lihat catatan kaki surah Āli ‘Imrān/3: 28
+
+[^457]: Idak baiman kapado hari Kiamat.
+
+[^458]: Sebagian mufasir bapendapat bahwa nang bakato di siko adolah Allah Swt. Sabagiannyo lagi bapendapat bahwa nang bakato di siko adolah Jibril.
+
+[^459]: Maksudnyo adolah, “Palajarilah Taurat tu, amalkan isinyo, dan sampaikan kapado umatmu!”
+
+[^460]: Maksudnyo adolah pamahaman Taurat dan pandalaman ugamo.
+
+[^461]: Saluruh alam ko bakal hancur dan hanyo Allah Swt. nang kekal
+
+[^462]: Sabagian mufasir bapendapat bahwa nang dimaksud ‘ahlahu’ iolah keluargonyo, sedangkan sabagiannyo bapendapat umatnyo.
+
+[^463]: Maksudnya adolah mamanjangkan umur dan mambiakkan orang-orang tu hidup dalam kasenangan
+
+[^464]: Mangadokan perjanjian dengan Allah Swt. maksudnyo baiman kapado Allah Swt., manjalankan perentah-Nyo, dan bertakwa kapado-Nyo.
+
+[^465]: Imak catatan kaki surah al-A‘rāf/7: 54
+
+[^466]: Satiap orang nang mamandang Nabi Musa a.s. bakal marasokan cinto, kasih, dan sayang kapadonyo
+
+[^467]: Nang tabunuh adolah saorang bangsa Qibti nang sedang bakelahi dengan saorang Bani Israil samacam mano nang dikisahkan dalam surah al-Qaṣaṣ/28: 15.
+
+[^468]: Nabi Musa a.s. datang ka negeri Madyan untuk malarikan diri. Di sano dio dinikahkan oleh Syekh Madyan dengan salah saorang putrinyo dan manetap baberapo tahun lamonyo.
+
+[^469]: Bani Israil pada waktu di Mesir barado di bawah perbudakan Fir‘aun. Orang-orang tu dipekerjokan untuk mandirikan bangunan-bangunan nang besak dan kota-kota dengan caro kerjo pakso. Mako, Nabi Musa a.s. maminta kapado Fir‘aun supayo orang-orang tu dibebaskan
+
+[^470]: Patunjuk di siko maksudnyo adolah akal, naluri, dan kodrat alamiah untuk kalanjutan hidupnyo masing-masing
+
+[^471]: Nang dimaksud dengan tando-tando di siko adolah tando-tando kanabian Nabi Musa a.s. Pado pertemuan Nabi Musa a.s. dengan Fir‘aun ko, mukjizat nang diperlihatkan baru duo, yaitu tongkat manjadi ular dan tangan Nabi Musa a.s. manjadi putih bercahayo.
+
+[^472]: Mamukul laut tu dengan tongkat (imak surah asy-Syu‘arā’/26: 63).
+
+[^473]: Ayat ko ditujukan kapado orang Yahudi pado zaman Nabi Muhammad saw., sedangkan nang dimaksud ‘kamu’ pado ayat ko adolah nenek moyang orang-orang tu.
+
+[^474]: Imak panjelasan ‘manna’ dan ‘salwa’ pado catatan kaki surah al-Baqarah/2: 57
+
+[^475]: Beban berat’ nang disebutkan dalam ayat ko dapat baarti berat dalam makno fisik dan dapat pulak baarti beban doso kareno idak mangembalikan perhiasan nang orang-orang tu pinjam dari penduduk Mesir.
+
+[^476]: Orang-orang tu disuruh mambawak perhiasan dari emas milik orang-orang Mesir, lalu oleh Samiri dianjurkan supayo perhiasan tu dilemparkan ka dalam api nang lah dinyalokannyo dalam suatu lubang untuk dijadikan patung babentuk anak sapi. Kemudian orang-orang tu malemparkannyo dan diikuti pulak oleh Samiri.
+
+[^477]: Imak catatan kaki surah al-A‘rāf/7: 148.
+
+[^478]: Menurut jumhur ulama, nang dimaksud dengan ‘jejak rasul’ adolah jejak telapak kudo Jibril a.s. Pandapat kp manjelaskan bahwa Samiri mangambil sagumpal tanah dari jejak telapak kudo tu lalu malemparkannyo ka dalam logam nang sedang dihancurkan sahingga logam tu babentuk anak jawi nang mangeluarkan suaro. Adopun sabagian kecil mufasir bapendapat bahwa ‘jejak rasul’ di siko adolah ajaran-ajarannyo. Manurut paham ko Samiri mangambil sabagian ajaran Nabi Musa a.s. kemudian maninggalkan ajaran-ajaran tu sahingga dio menjadi sesat.
+
+[^479]: Larangan manyentuh Nabi Musa a.s. batujuan supayo Samiri hidup tapencil sabagai hukuman di dunio. Adopun sabagai hukuman di akherat, dio bakal ditempatkan di nerako
+
+[^480]: Tiupan sangkakala nang keduo adolah tiupan untuk mambangkitkan manusio dari kuburnyo atau manghidupkannyo balik.
+
+[^481]: Maksudnyo adolah orang nang lurus pikirannyo atau amalnyo di antaro orang nang badoso.
+
+[^482]: Nabi Muhammad saw. dilarang oleh Allah Swt. mangikuti bacoan Jibril kato demi kato sabelum Jibril salesai mambacokannyo supayo beliau manghafal dan mamahami betul-betul ayat nang diturunkan. Allah Swt. manjamin bahwa beliau bakal mampu manghafal ayat-ayat nang diturunkan kapadonyo.
+
+[^483]: Pesan Allah Swt. ko tasebut dalam surah al-Baqarah/2: 35.
+
+[^484]: Nang dimaksud dengan ‘malanggar (perintah) Tuhannyo’ di siko iolah malanggar larangan Allah Swt. kareno lupo atau idak sengajo samacam mano disebutkan dalam ayat 115 surah ko. Adopun nang dimaksud ‘khilaf’ adolah mangikuti apo nang dibisikkan setan. Meskipun idak macam tu besak manurut ukuran manusio biaso, kasalahan Nabi Adam a.s. sudah dinamoi malanggar kareno tingginyo martabat Nabi Adam a.s. dan untuk manjadi taladan bagi orang besak dan pamimpin-pamimpin supayo manjaui perbuatan-perbuatan nang talarang saberapo pun keciknya.
+
+[^485]: Ajal nang ditentukan maksudnyo adolah waktu nang lah ditetapkan oleh Allah Swt. untuk manurunkan azab.
+
+[^486]: Imak surah al-Isrā’/17: 90-93.
+
+[^487]: Nang orang-orang tu maksud dengan sihir di siko iolah ayat-ayat Al-Qur’an
+
+[^488]: ‘dari sisi Kami’ iolah nang sasuai dengan sifat-sifat Kami.
+
+[^489]: Contoh panyifatan nang idak pantas adolah sangkoan bahwa Allah Swt. mampunyai bini dan anak
+
+[^490]: Dalam peristiwa tu, Nabi Daud a.s. mambagih putusan bahwa kambing-kambing tu harus dibagihkan kapado pamilik ladang sabagai ganti karusakan ladangnyo. Tapi, Nabi Sulaiman a.s. mamutuskan bahwa pamilik kambing harus mananami ladang tu hinggo balik seperti samulo. Sementaro tu, io manyerahkan kambingnya untuk dimanfaatkan oleh pamilik ladang sampai tanaman tu tumbuh balik.
+
+[^491]: Menurut riwayat Ibnu Abbas, ado sakawanan kambing nang marusak tanaman pado waktu malam. Pamilik tanaman mangadukan hal ko kapado Nabi Daud a.s. Io mamutuskan bahwa kambing-kambing tu harus diserahkan kapada pamilik tanaman sabagai ganti tanaman nang rusak. Tapi Nabi Sulaiman a.s. mamutuskan agar kambing-kambing tu diserahkan sementaro kapado pamilik tanaman untuk diambil manfaatnya. Pamilik kambing diharuskan mangganti tanaman tu dengan tanaman nang baru. Apabilo tanaman nang baru lah dapat diambil hasilnyo, pamilik kambing tu boleh mangambil kambingnya balik. Putusan Nabi Sulaiman a.s. kolah nang lebih tepat.
+
+[^492]: Maksudnya adolah kagelapan perut ikan, kagelapan laut nang dalam, dan kagelapan malam hari.
+
+[^493]: Sakironya Allah Swt. idak mangabulkan doanyo, yakni mambagih katurunan, Nabi Zakaria a.s. bakal baserah diri kapado Allah Swt. kareno Allah Swt. adolah waris nang tabaik.
+
+[^494]: Yakni sampai hari Kiamat pun orang-orang tu mustahil balik ka dunio
+
+[^495]: Sabagian mufasir manyatokan bahwa Zabur adolah kitab nang diturunkan kapado Nabi Daud a.s., sedangkan Aż-Żikr adolah kitab Taurat. Manurut sabagian mufasir lain, Zabur adolah kitab-kitab nang diturunkan Allah Swt. kapada nabi-nabi satelah ditulis di Lauh Mahfuz.
+
+[^496]: Hari rayo haji dan hari Tasyriq yaitu tanggal 10, 11, 12 dan 13 Zulhijah
+
+[^497]: Nang dimaksud dengan “mangilangkan kotoran” di siko iolah mamotong rambut, mamotong kuku, dan sabagainyo.
+
+[^498]: Al-Bait al-‘Atīq’ adolah rumah tuo kareno marupokan rumah ibadah nang pertamo kali dibangun di muko bumi. ‘Al-‘Atīq’ bisa jugo bamakno nang dibebaskan dari ancaman paro pandurhako
+
+[^499]: Arti “nang tahormat (ḥurumāt)” pado ayat ko iolah bulan haram (Zulkaidah, Zulhijah, Muharam, Rajab), tanah haram dan maqam Ibrahim.
+
+[^500]: Syiar Allah Swt. iolah sagalo amalan nang dikerjokan dalam rangka ibadah haji dan genah-genah mangerjokannyo
+
+[^501]: Imak surahal-Baqarah/2: 196.
+
+[^502]: Maksudnyo, binatang-binatang hadyu boleh kamu ambil manfaatnyo seperti dikendarai, diambik susunyo, dan sabagainyo, sampai hari nahar.
+
+[^503]: Lazimnya, unto disembelih dalam posisi badiri.
+
+[^504]: Sabagian mufasir mangartikan ‘tamannā’ dengan ‘mambaco’ dan ‘umniyyatihi’ dengan ‘bacoannya.’ Yaitu apobilo Nabi saw. mambaco suatu ayat nang isinyo mamberikan peringatan kapado orang-orang kafir, orang-orang tu segero mangikuti bacoan Nabi saw. dengan tambahan kato-kato nang mambenarkan kayakinan orang-orang tu.
+
+[^505]: Hambo sahayo (budak-budak) nang didapat dalam paperangan dengan orang kafir, kenyok budak nang didapat di luar paperangan ugamo, nang sekarang sudah idak ado lagi.
+
+[^506]: Sabagian manusio mati, dan sabagian lagi dilahirkan
+
+[^507]: Macam tu buruknyo akibat orang-orang tu, sampe orang-orang tu idak badayo sadikitpun, idak ubahnyo sabagai sampah nang dianyutkan banjir. Padohal orang-orang tu babadan besak dan kuat.
+
+[^508]: Mukjizat Nabi Musa a.s. nang Sembilan macam.
+
+[^509]: Bahayo kalaparan. Kaum musyrikin pernah mangalami kalaparan, kareno idak tibonya bahan makanan dari Yaman ke Mekkah, sedang Makkah dan sakitarnyo dalam keadaan paceklik, hinggo sangat malaratlah pado waktu tu.
+
+[^510]: Antaro lain kakalahan orang-orang tu pado Perang Badr, nang dalam paperangan tu orang-orang nang takemuko dari orang-orang tu banyak nang tabunuh atau ditawan, dan musim kering nang manimpo orang-orang tu, sehinggo orang-orang tu manderito kalaparan.
+
+[^511]: Diancam dengan hari kabangkitan.
+
+[^512]: Barzakh yaitu tempat atau kaadoan orang sasudahh mati sampai dio dibangkitkan pado hari Kiamat
+
+[^513]: Maksud ayat 6-7 iolah orang nang manuduh babuat zino dengan idak mangajukan empat orang saksi, haruslah basumpah, dengan namo Allah empat kali, bahwo dio adolah benar dalam tuduhannyo itu. Kemudian dio basumpah sakali lagi bahwo dio bakal keno laknat Allah jiko dio babohong. Masalah ko dalam fikih dikenal dengan Lian.
+
+[^514]: Berito bohong ko mangenai bini Rasulullah saw. Aisyah r.a. ummul Mukminin, sasudah perang dengan Bani Musthaliq pado bulan Sya’ban 5 H. Paperangan tu diikuti oleh kaum munafik dan turut pulak ‘Aisyah r.a. dengan Nabi saw. Badasarkan undian nang diadokan di antaro bini-bini beliau. Dalam perjalanan balik dari paperangan, orang-orang tu barenti pado suatu genah, ‘Aisyah r.a. keluar dari sekedupnyo untuk suatu kaperluan, lalu balik, tibo-tibo io meraso kalungnyo ilang, lalu balik lagi mancarinyo. Sementaro tu, rombongan barangkat dengan manyangko bahwo ‘Aisyah r.a. masih di dalam sekedupnyo. Sasudah ‘Aisyah r.a. mangatui, sekedupnyo lah barangkat. Io duduk di genahnyo dan baharap sekedup tu bakal balik lagi manjemputnyo. Kebetulan lewat di genah tu, seorang sahabat Nabi, Shafwan bin Mu‘aththal. Dio nemui saorang lagi tiduk. Shafwan pun takejut, sarayo bakato : inna lilahi wa inna ilaihi rojiun, bini Rosul!.” ‘Aisyah tabangun. Lalu dipersilahkan oleh Shafwan mangendarai untonyo. Shafwan bajalan manuntun unto hinggo tibo di Madinah. Orang-orang nang maliat orang-orang tu mambicarokannyo manurut pandapat masingmasing. Mulai timbul desas-desus dan kaum munafik mambesak-besakannyo. Mako fitnah atas ‘Aisyah r.a. tu pun batambah luas, hinggo mambuat kaguncangan di kalangan kaum muslimin.
+
+[^515]: Nang dimaksud dengan perempuan-perempuan nang lengah iolah perempuan-perempuan nang idak pernah sakalipun taingat bakal perbuatan nang keji.
+
+[^516]: Ayat ko manunjukkan kasucian ‘Aisyah r.a. dan Safwan dari sagalo tuduhan nang ditujukan kapado orang-orang tu. Rasulullah adolah orang nang paling baik. Mako, perempuan nang baik pulaklah nang manjadi bini beliau
+
+[^517]: “Lubang nang idak tembus”, (misykat), iolah suatu lubang di dinding rumah nang idak tembus sampai ke sabelahnyo, biasonyo digunokan untuk tempat lampu, atau barang-barang lain.
+
+[^518]: Batang kayu zaitun tu tumbuh di puncak bukit, io mandapat sinar matohari baik pado waktu matohari terbit maupun katiko bakal tabenam, sahinggo batang kayunyo subur dan buahnyo menghasilkan minyak nang baik.
+
+[^519]: Nang batasbih iolah orang nang disebut pado ayat 37
+
+[^520]: Orang-orang kafir, kareno amal-amal orang-orang tu idak didasarkan atas iman, idaklah mandapat balasan dari Allah di akherat walaupun di dunio orang-orang tu mangiro bakal mandapat balasan atas amalnya.
+
+[^521]: Di antaro sasamo kaum Muslimin dan antaro Muslimin dengan nang bukan Muslimin.
+
+[^522]: Tigo macam waktu nang biasonyo pado waktu-waktu tu badan banyak tabuka. Sebab tu, Allah malarang hambo sahayo dan budak-budak kecik di bawah umur untuk masuk ka kamar tiduk orang dewaso tanpa izin
+
+[^523]: Anak-anak dari orang merdeka nang bukan mahrom nang lah balig, haruslah maminta izin talebih dahulu jiko bakal masuk ka kamar tiduk orang tuo, seperti caro orang-orang nang disebut dalam ayat 27 dan 28 surah ko.
+
+[^524]: Pakaian luar nang kalu dibuka idak manampakkan aurat.
+
+[^525]: Orang-orang tu mangharapkan kabinasoan supayo talepas dari sikso nang sangat besak, yaitu sikso di nerako nang sangat panas dengan dibelenggu di genah nang sangat sempit pulak, samacam mano nang digambarkan tu.
+
+[^526]: Satelah orang-orang tu dikumpulkan basamo-samo dengan apo nang orang-orang tu sembah, yaitu malaikat, “Uzair, Nabi Isa.as. dan berhalo-halo, dan satelah Allah mananyokan kapado nang disembah itu, apokah orang-orang tu nang manyesatkan orang-orang itu ataukah orang-orang tu nang sesat dewek. Mako nang disembah itu manjawab bahwo daklah pantas bagi orang-orang tu untuk manyembah salain Allah, apolagi manyuruh orang lain manyembah salain Allah.
+
+[^527]: Ko adolah suatu ungkapan nang biaso disebut orang Arab di waktu manemui musuh atau bencaono nang idak dapat dielakkan. Ungkapan ko baarti “Semoga Allah manjauhkan bahayo ko dari sayo.”
+
+[^528]: Amal-amal baik nang orang-orang tu kerjokan di dunio idak dibalas oleh Allah kareno orang-orang tu idak baiman
+
+[^529]: Nang dimaksud dengan si fulan, iolah setan atau orang nang lah manyesatkannyo di dunio.
+
+[^530]: Maksudnyo, Al-Qur’an tu idak diturunkan sakaligus, tapi diturunkan sacaro baangsur-angsur supayo dengan caro nang macam tu hati Nabi Muhammad s.a.w manjadi kuat dan mantap.
+
+[^531]: Rass adolah telago nang sudah kering aeknyo. Kato tasebut kemudian dijadikan namo suatu kaum, yaitu kaum Rass. Orang-orang tu manyembah patung, lalu Allah mangutus Nabi Syuaib a.s. kapadonyo.
+
+[^532]: Maksud kalimat ko adolah bayang-bayang tu Kami hapuskan dengan palahan-lahan sasuai dengan perjalanan matohari manuju genah tabenamnyo.
+
+[^533]: Mushaharah (pasamendaan) artinyo hubungan kakeluargoan nang timbul dan ikatan perkawinan, separti manantu, ipar, martuo dan sabagainyo.
+
+[^534]: Basamayam di atas ‘Arsy iolah sikok sifat Allah nang wajib kito imani, sasuai dengan kabesaran Allah dan kasucian-Nyo.
+
+[^535]: Nabi Musa as mamohon agar Harun tu diangkat manjadi rasul untuk mambantunyo.1
+
+[^536]: Nabi Musa a.s. maraso badoso tahadap orang-orang Masir kareno pernah mambunuh salah saorang di antaro orang Mesir tu dengan sangajo sabelum manjadi Nabi.
+
+[^537]: Musa a.s. tinggal basamo Fir’aun kurang lebih 18 taun, sejak kecik.
+
+[^538]: Tali temali dan tongkat-tongkat nang dilemparkan panyihir tu nang tabenam saolah-olah manjadi ular, sagalonyo ditelan oleh tongkat Musa as.
+
+[^539]: Kareno mangejar Nabi Musa as. dan Bani Israil, Fir’aun dan bala tentaronyo lah kaluar dari negeri orang-orang tu dengan maninggalkan karajoan, keagungan, kamewahan dan sabagainyo.
+
+[^540]: Satelah Fir’aun dan bala tentaronyo binaso, Nabi Musa as. dan Bani Israil balik ka Mesir untuk mangambik harto kekayoan dan tentaronyo. Orang-orang tu lalu malanjutkan perjalanan ka Baitulmaqdis.
+
+[^541]: Nang dimaksud dengan ‘golongan nang lain’ iolah Fir’aun dan bala tentaronyo. Maksud ayat ko iolah di bagian nang tabelah tu Allah mandekatkan antaro Fir’aun dan balatentaronyo dengan Nabi Musa as. dan Bani Israil.
+
+[^542]: Maksud ayat ko adolah bahwa sabagian panyair tu suko bamain kato-kato, idak mampunyoi tujuan nang baik, dan idak mampunyo pandirian.
+
+[^543]: Nang diaksud adolah maletakkan tangan ka dado malalui leher baju.
+
+[^544]: Maksudnyo Nabi Sulaiman manggantikan kenabian dan kerajoan Nabi Daud a.s. serto mawarisi ilmu pangetahuannyo dan kitab Zabur nang diturunkan kapadonyo.
+
+[^545]: Hudhud adolah sajenis burung pelatuk nang bamahkota (bajambul).
+
+[^546]: Saba’ adolah namo kerajaan di zaman tadalu, ibu kotanyo Ma’rib nang letaknyo dekat kota San’a ibu kota Yaman sakarang.
+
+[^547]: Nang dimaksud dengan perempuan dalam ayat ko adolah ratu Balqis nang mamerentah kerajoan Saba’ di zaman Nabi Sulaiman a.s.
+
+[^548]: Nang dimaksud dengan ‘mangeluarkan apo nang tapendam di langit dan di bumi adolah seperti manurunkan hujan dari langit, manumbuhkan tanam-tanaman, serto mangeluarkan logam dan barang tambang dari bumi.
+
+[^549]: Alkitab di siko maksudnyo iolah kitab nang diturunkan sabelum Nabi Sulaiman, yaitu Taurat dan Zabur.
+
+[^550]: Balqis  lah  mangetaui  kenabian  Sulaiman  tu,  sabelum  dipindahkan  singgasanonyo  dari  negeri  Saba’  ke  Palestina  dalam sakejap mato.
+
+[^551]: Nang dimaksud dengan “kota” dalam ayat ko iolah kota kaum Samud, yaitu kota Al-Hijr.
+
+[^552]: Orang-orang tu adolah Nabi Shaleh a.s. dan pangikut-pangikutnyo.
+
+[^553]: Nang dimaksud dengan “pabuatan keji” pado ayat ko adolah panyimpangan seks, tamasuk hubungan sajenis.
+
+[^554]: Ungkapan ‘duo laut’ pado ayat ko marujuk pado laut nang asin dan sungei besak nang bamuaro di laut. Sungei nang tawar tu satelah tibo di muaro idak langsung menjadi asin.
+
+[^555]: Orang-orang musyrik Arab mandustokan ayat-ayat Allah Swt. tanpa mikirkannyo lebih dulu
+
+[^556]: Fir‘aun selalu takut bahwa karajaannyo bakal dihancurkan oleh Bani Israil. Oleh kareno tu, dio mambunuh anak laki-laki nang lahir di kalangan Bani Israil. Ayat ni manyatokan bahwa bakal tajadi apo nang ditakutkannyo tu.
+
+[^557]: Sasudah ibunda Nabi Musa a.s. manganyutkan Musa a.s. kecik di sungei Nil, dio manyesal dan sangsi kareno khawatir anaknyo  idak  bakal  selamat,  bahkan  hampir-hampir  bateriak  minta  tolong  kapado  orang  lain  untuk  mangambik  anaknyo tu balik. Hal tasebut dapat mangakibatkan tabukaknyo rahasio bahwa Musa a.s. adolah anaknyo dewek.
+
+[^558]: Menurut sabagian mufasir, kota nang dimaksud pado ayat ni adolah Memphis, sebuah kota di Mesir bagian utaro.
+
+[^559]: “Madyan” pado mulonyo adolah namo putra Nabi Ibrahim a.s. dari istri beliau nang katigo nang banamo Qatura. Dio nikah dengan Nabi Lut a.s. Lalu, kato “Madyan” dipakai untuk namo sikok suku nang barasal dari katurunan Madyan. Lokasinyo di pantai Laut Merah sabelah tenggara Gurun Sinai, yaitu antaro Hijaz, tepatnyo Tabuk Saudi Arabia dan Teluk Aqabah.
+
+[^560]: Sasudah Nabi Musa a.s. manyelesaikan hal nang dijanjikan kapado mertuonyo, Syekh Madyan, dio berangkat basamo istrinyo ka Mesir untuk manjumpai ibunyo.
+
+[^561]: Di tempat dan katiko tulah Nabi Musa a.s. diangkat sebagai rasul.
+
+[^562]: Kisah sarupo ado dalam surah Ṭāhā/20 ayat 20.
+
+[^563]: Nabi Musa a.s. selain maraso takut kapado Fir‘aun jugo maraso kurang lancar bacakap. Mako, dio mamohon kapado Allah Swt. supayo mangutus Harun a.s. nang lebih lancar cakapnyo untuk menjadi nabi basamonyo.
+
+[^564]: Satelah panduduknyo hancur, tempat tu manjadi kosong dan idak dimakmurkan lagi, sahinggo akhirnyo balik kapado pamiliknyo nang hakiki yaitu Allah Swt.
+
+[^565]: Orang-orang tu adolah orang nang dibagih kanikmatan duniawi, tapi idak manggunokannyo untuk mancari kabahagiaan akherat. Di akherat kagi dio bakal diseret ka dalam nerako.
+
+[^566]: “Saksi” di sini adolah rasul nang lah diutus kapado orang-orang tu katiko di dunio.
+
+[^567]: Qarun adolah saudaro sepupu Nabi Musa a.s.
+
+[^568]: Nang dimaksud dengan ‘tempat balik’ adolah kota Makkah. Nilah janji dari Allah Swt. bahwa Nabi Muhammad saw. bakal balik ka Makkah sabagai orang nang menang. Peristiwa ni tajadi pado tahun kadelapan Hijriah, pado waktu Nabi saw. manaklukkan Makkah. Nilah sabuah mukjizat Nabi Muhammad saw.
+
+[^569]: Maksudnyo adolah bahwa orang tu manganggap dahsyatnyo kazaliman manusio samo macam dahsyatnyo azab Allah Swt., sahinggo dio maninggalkan imannyo.
+
+[^570]: “Balasan” nang dimaksud pado ayat ko adolah mambagihkan anak cucu nang baik, kanabian kapado katurunannyo, dan pujian.
+
+[^571]: Sabagian mufasir mangartikan “taqṭa‘ūnas-sabīl” dengan “malakukan perbuatan keji tahadap orang-orang nang dalam perjalanan” kareno sabagian besak kaum Nabi Lut tu malakukan homoseks dengan tamu-tamu nang datang ka kampungnyo. Ado lagi nang mangartikan dengan ‘mamutus jalur katurunan’ kareno orang-orang tu babuat homoseks.
+
+[^572]: “Kabar gembiro” nang dimaksud adolah bahwa Nabi Ibrahim a.s. bakal mandapat anak laki-laki.
+
+[^573]: Nabi Lut a.s. maraso basedih bakal kadatangan utusan-utusan Allah Swt. tu kareno utusan-utusan tu adolah pemudo nang rupawan, sedangkan kaum Lut amat manyukoi pemudo-pemudo nang rupawan untuk diajak malakukan homoseks. Dio maraso idak sanggup malindungi utusan-utusan tu jiko ado gangguan dari kaumnyo.
+
+[^574]: “Tando nang nyato” adolah bekas-bekas runtuhan kota Sodom, negeri kaum Lut a.s.
+
+[^575]: Imak catatan kaki surah Āli ‘Imrān/3: 28.
+
+[^576]: Allah Swt. manciptokan sagalo nang disebutkan tu bukan dengan percumo, malainkan dengan penuh hikmah.
+
+[^577]: Nang dimaksud dengan ‘mandustokan kabenaran’ di siko adolah macam mandustokan kanabian Muhammad saw.
+
+[^578]: ‘Bangso nang dikalahkan’ pado ayat ko maksudnyo adolah Romawi Timur nang bapusat di Konstantinopel.
+
+[^579]: Kato ‘tadekat’ maksudnyo negeri nang dekat negeri Arab, yaitu Suriah dan Palestina.
+
+[^580]: Bangso Romawi (pado saat ayat ko diturunkan) adolah suatu bangso nang baugamo Nasrani nang punyo Kitab Suci, sedangkan bangso Persia nang baugamo Majusi, manyembah api dan berhalo (musyrik). Kaduo bangso tu baperang. Katiko tasiar berito kakalahan bangso Romawi oleh bangso Persia, kaum musyrik Makkah manyambutnyo dengan penuh gembiro kareno bapihak kapado kaum musyrik Persia. Sabaliknyo, kaum muslim baduko karenonya. Ayat ko dan ayat sasudahnyo lalu turun untuk manerangkan bahwa sasudah kalah, bangso Romawi bakal menang dalam maso baberapo taun bae. Tu benar-benar tajadi. Baberapo taun sasudah tu menanglah bangso Romawi dan kalahlah bangso Persia. Dengan kajadian tu nyatolah kabenaran Nabi Muhammad saw. sabagai nabi dan rasul serto kabenaran Al-Qur’an sabagai firman Allah Swt.
+
+[^581]: Kata biḍ‘ manunjukkan bilangan antaro tigo sampe sembilan. Waktu antaro kakalahan bangso Romawi (taun 614-615) dengan kamenangannyo (taun 622 M) adolah sekitar tujuh tahun.
+
+[^582]: Manurut sabagian mufasir, ayat ko diartikan, ‘bahkan orang-orang tu manjadi kafir disebabkan oleh berhalo-berhalo.’
+
+[^583]: Manurut sabagian mufasir, maksud ‘batasbih’ pado ayat 17 adolah manegakkan sembahyang sebab di dalam sembahyang tadapat bacoan tasbih. Ayat 17 dan 18 manerangkan waktu sembahyang nang limo.
+
+[^584]: Parumpamoan tasebut manggambarkan bahwa idak pantas ado persekutuan dari unsur-unsur nang idak setaro, misalnyo antaro hambo sahayo dan pamiliknyo, apolagi antaro makhluk dengan Allah Swt. Tu tentu lebih idak pantas lagi.
+
+[^585]: Kamu meraso takut kareno idak biso manggunokan apo nang kamu punyo tanpo saizin hambo-hambo sahayo tu.
+
+[^586]: Imak cacatan kaki surah al-Baqarah/2: 26.
+
+[^587]: Maksud ‘fitrah Allah’ pado ayat ko adolah ciptoan Allah Swt. Manusio diciptokan Allah Swt. dengan naluri baugamo, yaitu ugamo tauhid. Kalu ado manusio nang idak baugamo tauhid, baarti io lah manyimpang dari fitrahnyo.
+
+[^588]: Maksud ‘mamecah belah ugamo orang-orang tu’ adolah maninggalkan ugamo tauhid dan manganut babagai kapercayoan manurut kainginan orang-orang tu.
+
+[^589]: Nang dimaksud dengan ‘rahmat’ pado ayat ko adolah lepas dari bahayo.
+
+[^590]: Nang dimaksud dengan ungkapan ‘orang-orang tu tapisah-pisah’ adolah sabagian barado di surgo, sedangkan sabagian lagi barado di nerako.
+
+[^591]: Maksud ‘pambawak berito gembiro’ adolah awan tebal nang ditiup angin lalu manurunkan ujan, sahinggo dapat dirasokan rahmat Allah Swt. dengan tumbuhnya biji-bijian nang lah disemaikan dan manghijaunyo tanaman-tanaman serto babuahnyo tumbuh-tumbuhan.
+
+[^592]: Katiko rasul-rasul tibo mambawak katerangan kapado kaumnyo, sabagian orang-orang tu mampercayoinyo, sedangkan sabagian nang lain mandustokannyo, bahkan ado nang manyakitinyo. Mako, Allah Swt. Mambalasnyo dengan manurunkan azab kapado orang nang badoso macam tu.
+
+[^593]: orang kafir tu disamakon oleh Allah Swt. dengan orang mati nang idak mungkin lagi manganing seruan kabenaran. Samo jugo macam orang pekak nang idak biso mandengar panggilan samo sakali apobilo orang-orang tu mambelakangi orang nang mamanggilnyo.
+
+[^594]: Kato ‘lemah’ nang pertamo baarti ‘maso katiko masih barupo nutfah’. Kato ‘lemah’ nang kaduo baarti ‘maso kanak-kanak’. Adopun kato ‘kuat’ baarti ‘maso mudo’.
+
+[^595]: Macam mano orang-orang tu badusto dalam perkatoannyo ko, macam tu pulaklah orang-orang tu selalu badusto di dunio.
+
+[^596]: Pesan dari ayat ko ditujukan kapado orang nang mampergunokan percakapan kosong (sagalo hal nang mamalingkan hati dari kataatan kapado Allah Swt.) untuk manyesatkan manusio.
+
+[^597]: Selambat-lambat waktu manyapih iolah sampe anak baumur 2 tahun.
+
+[^598]: ‘Allah Mahahalus’ artinyo iolah ilmu Allah tu maliputi sagalo sasuatu macam manopun keciknyo.
+
+[^599]: Katiko bajalan, janganlah talampau cepat dan jangan pulak talalu lambat.
+
+[^600]: Nang dimaksud dengan ‘kalimatullah’ pado ayat ko adolah ilmu dan hikmah-Nyo.
+
+[^601]: Nang dimaksud ‘jalan nang lurus’ adalah mangakui kaesaan Allah Swt.
+
+[^602]: Manusio idak dapat mangetaui dengan pasti apo nang bakal dikerjokannya besok atau nang bakal didapatnyo, namun orang-orang tu diwajibkan bausaho.
+
+[^603]: Imak catatan kaki surah al-A‘rāf/7: 54.
+
+[^604]: Nang dimaksud ‘urusan tu naik kapado-Nyo’ adolah beritonyo dibawak oleh malaikat. Ayat ko marupokan tamsil bagi kaagungan Allah Swt.
+
+[^605]: Orang-orang tu dihidupkan balik untuk manerimo balasan Allah Swt. pado hari Kiamat.
+
+[^606]: Nang dimaksud dengan ‘maula’ dalam ayat ko adolah kanti dekat.
+
+[^607]: Nang dimaksud dengan ‘perjanjian teguh nang Diambik dari paro nabi’ adolah kasanggupan paro nabi tu untuk manyampaikan ugamo kapado umatnyo masing-masing.
+
+[^608]: Pado hari Kiamat Allah Swt. bakal mananyokan kapado paro rasul sampai di mano usaho orang-orang tu manyampaikan ajaran Allah Swt. kapado umatnyo dan sampai di mano umatnyo malaksanokan ajaran Allah Swt. tu.
+
+[^609]: ko manerangkan kisah bala tentaro kafir nang dikalahkan dalam Perang Khandaq (Ahzab).
+
+[^610]: Ayat ko manggambarkan luar biaso hebatnyo parasoan takut dan gentar kaum mukmin pado waktu tu.
+
+[^611]: ‘Fitnah’ nang dimaksud dalam ayat ko adolah malakukan kakacauan, macam murtad dan mambantu pasukan musuh dalam paperangan.
+
+[^612]: Nang dijanjikan Allah Swt. dan Rasul tu adolah kamenangan sasudah mangalami kasukaran.
+
+[^613]: Nang dimaksud dengan ‘manunggu’ pado ayat ko adolah manunggu salah sikok di antaro duo kabaikan, yakni menang atau mati syahid.
+
+[^614]: Dalam perang Khandaq, orang mukmin idak baperang sebab Allah Swt. lah mangalau musuh orang-orang tu dengan mengirimkan angin dan malaikat.
+
+[^615]: Sasudah golongan-golongan nang basekutu itu kocar-kacir, Allah Swt. mamerintahkan Nabi Muhammad saw. untuk manghukum Yahudi Bani Quraizah dan mangusir orang-orang tu dari benteng-benteng orang-orang tu. Sagalo laki-laki dewaso nang ikut baperang kemudian dibunuh, sedangkan perempuan dan anak-anak ditawan.
+
+[^616]: Ungkapan ‘tanah nang belum dipijak’ pado ayat ni adolah tanah nang bakal dimasuki oleh tentero Islam.
+
+[^617]: Manurut riwayat, pado suatu katiko bini-bini Nabi Muhammad saw. ado nang cemburu dan ado pulak nang maminta tambahan belanjo. Mako, Nabi Muhammad saw. mamutuskan hubungan dengan bini-bininyo tu sampai sabulan lamonyo. Kareno takut diceraikan oleh Nabi, bini-bininyo tu datang kapado Nabi manyatokan kereloannyo atas apo bae nang bakal diperbuat Nabi tahadap bini-bininyo. Turunnyo ayat ko mambagihkan izin kapado Nabi untuk menggauli atau idak manggauli siapo nang dikendakinyo dari bini-bininyo, serto mambagih izin kapadonyo untuk rujuk kepada bini-bininyo, bilo lah ado nang diceraikannyo.
+
+[^618]: Ayat ko malarang sahabat masuk ka rumah Nabi untuk makan sambil manunggu-nunggu waktu makannyo Nabi saw.
+
+[^619]: Salawat dari Allah Swt. baarti mambagih rahmat, salawat dari malaikat baarti mamohonkan ampunan, dan salawat dari orang-orang nang baiman baarti badoa supayo dibagih rahmat, seperti dengan mambaca ‘Allāhumma ṣalli ‘alā sayyidina Muhammad’.
+
+[^620]: Dengan mangucapkan atau mambaca kalimat seperti ‘Assalāmu ‘alaika ayyuhan-nabi’ nang artinyo ‘semoga kaselamatan talimpahkan kapadomu, oi Nabi’.
+
+[^621]: Manurut sikok pendapat, ‘jilbab’ adolah sajenis baju kurung atau tengkuluk nang longgar nang dapat manutup kepalo dan dado perempuan.
+
+[^622]: Bilo Nabi Sulaiman mangadokan perjalanan dari pagi sampe dengan tengah hari, jarak nang ditempuhnyo samo dengan jarak perjalanan unto dalam sabulan.
+
+[^623]: Banjir besak karno jebolnyo bendungan atau dam Ma‘rib.
+
+[^624]: Negeri Syam, nang takenal subur, dan negeri-negeri nang badekatan taletak di antaro Yaman dan Syam. Orang dapat bajalan dengan aman pado siang dan malam hari idakj harus bahenti di padang pasir dan pulak mandapat kasulitan.
+
+[^625]: Maksud ayat ko adolah supayo kota-kota nang badekatan tu dihapuskan supayo perjalanan manjadi panjang dan orang-orang tu dapat malakukan monopoli dalam perdagangan tu, serto mamperoleh kauntungan nang lebih besak.
+
+[^626]: Panganugerahan syafa’at cumo balaku dengan saizin Allah Swt. Orang-orang nang bakal dibagih izin mambagih syafaat dan nang bakal mandapatkannyo samo-samo maraso takut dan harap-harap cemas manunggu izin Allah Swt.
+
+[^627]: Orang-orang tu manganggap bahwa nikmat nang besak di dunio adolah tando bahwa Allah SWT rido kapadonyo, sehinggo idak bakal disikso di akherat.
+
+[^628]: Apobilo kabenaran lah datang, kabatilan bakal hancur binaso. Idak ado nang mampu babuat apapun untuk melawan dan maruntuhkan kabenaran tu.
+
+[^629]: Nang diinginkan orang-orang tu adolah baiman atau balik lagi ke dunio untuk batobat.
+
+[^630]: Sebagian ulama tafsir mangatokan bahwa perkatoan nang baik tu iolah Kalimat Tauhid, yaitu Lā ilāha illallāh; dan ado pulak nang mangatokan zikir kapado Allah; dan ado pulak nang mangatokan sagalo perkatoan nang baik nang diucapkan kareno Allah.
+
+[^631]: Maksud dari ‘dapat kamu bagih paringatan’ tu adolah dapat kamu bagih peringatan dan mau manerimonyo.
+
+[^632]: ‘Kabenaran’ dalam ayat ko adolah ugamo tauhid dan hukum-hukum.
+
+[^633]: ‘Zubur’ adolah lembaran-lembaran wahyu nang mangandung katetapan hukum dan nasehat nang dibagih kapado nabi-nabi tadahulu.
+
+[^634]: ‘Paro ulama pado ayat ko adolah orang nang mampunyoi pangetauan tentang syari’at, kajadian alam dan sosial nang manghasilkan raso takut disertoi pangagungan kapada Allah Swt.
+
+[^635]: Ungkapan ‘mananiayoi diri dewek’ baarti malakukan doso, sedangkan kato ‘pertengahan’ mengacu kapado orang nang malakukan amalan nang wajib bae dan menjaui doso. Adopun ‘orang-orang nang lebih dulu dalam babuat kabaikan‘ adolah orang-orang nang idak hanyo mangerjokan nang wajib, tapi jugo mangerjokan hal-hal nang hukumnyo sunah.
+
+[^636]: Nang dimaksud dengan ‘katetapan (nang balaku) kapado orang-orang nang tadahulu’ adolah turunnyo sikso kapado orang-orang nang mandustokan rasul.
+
+[^637]: Peringatan nang dibagih oleh Nabi Muhammad saw. hanyo baguno bagi orang-orang nang mau mangikutinyo.
+
+[^638]: Manurut riwayat, laki-laki tu dibunuh samacam mano disebut dalam ayat 20-25. Katiko dio bakam maninggal,malaikat turun mamberitaukan bahwa Allah Swt. lah mangampuni dosonyo dan dio bakal masuk surgo.
+
+[^639]: Bulan tu pado awalnyo kecik babentuk sabit dan manjadi sempurno pado saat purnamo. Kemudian, bulan tu balik mangecil hinggo kaliatan seperti tandan kering nang malengkung.
+
+[^640]: Maksud ayat ko adolah binatang-binatang tunggangan dan alat-alat angkutan pado umumnyo.
+
+[^641]: Nang dimaksud dengan ‘tariakan’ pado ayat ko adolah suaro tiupan sangkakalo pertamo nang manghancurkan alam ko.
+
+[^642]: Ko adalah tiupan sangkakalo nang kaduo nang mambangkitkan orang-orang dari kubur.
+
+[^643]: Nabi Ibrahim a.s. tamasuk sekok golongan dengan Nabi Nuh a.s. dalam kamanan kapado Allah Swt. dan pokok-pokok ajaran ugamo.
+
+[^644]: Mangikhlaskan hatinyo kapado Allah dengan sapenuhnyo.
+
+[^645]: Pertanyoan tasebut diajukan sabagai ejekan kapado berhalo-berhalo nang dibagih sajian makanan, tapi idak biso mamakannyo.
+
+[^646]: Nabi Ibrahim a.s. pegi ka suatu negeri supayo dapat manyembah Allah dan badakwah.
+
+[^647]: Peristiwo tu manjadi dasar disyariatkannyo panyembelihan binatang kurban pado hari rayo Iduladha.
+
+[^648]: Ba‘l adolah nama salah sikok berhalo orang Fenisia, yaitu orang nang baasal dari wilayah Lebanon dan Suriah.
+
+[^649]: Orang-orang nang tinggal di kota nang idak ikut basamo Nabi Lut a.s.
+
+[^650]: Undian diadokan kareno muatan kapal amat penuh dan dikhawatirkan bakal tanggelam jiko panumpang idak dikurangi. Orang nang namonya kaluar dalam undian dinyatokan kalah dan bakal dilempar ka laut. Namo Nabi Yunus a.s. kaluar dalam undian tasebut, sahinggo dio dilemparkan ka laut.
+
+[^651]: Disebut ‘tacelo’ kareno dio lari maninggalkan kaumnyo.
+
+[^652]: Orang musyrik Makkah mangatokan bahwa malaikat tu adolah anak-anak perempuan Allah Swt., padohal orang-orang tu dewek manganggap hino anak perempuan tu.
+
+[^653]: Nabi Ayyub a.s. manderito panyakit kulit baberapo waktu lamonyo. Dia mamohon kapado Allah Swt. untuk disembuhkan. Allah Swt. mangabulkan permohonan tasebut dengan mamerentahkannyo untuk mangentakkan kaki ka bumi. Nabi Ayyub a.s. manaati perentah tu. Mako, kaluarlah aek dari bekas kakinyo. Nabi Ayyub a.s. pun mandi dan minum dari aek tu. Dio pun sembuh dari panyakitnyo dan dapat bakumpul balik dengan keluargonya. Orang-orang tu kemudian bakembang biak dua kali lipat dari jumlah sabelumnyo. Pada suatu katiko, Nabi Ayyub a.s. taingat tahadap sumpahnyo untuk mamukul bininyo apobila io sembuh dari sakitnyo lantaran sang bini pernah lalai mangurusnyo katika dio masih sakit. Namun, timbul raso ibo dan sayang kapado bininyo, sahinggo dio idak dapat mamenuhi sumpah tasebut. Mako, turunlah patunjuk Allah Swt. dalam ayat 44 bahwa dio dapat malaksanokan sumpahnyo tanpa perlu manyakiti bininyo, yaitu dengan mamukulnyo dengan saikat rumput.
+
+[^654]: ungkapan ‘hambo nang tapilih’ adolah orang-orang nang lah dibagih taufik untuk manaati sagalo patunjuk dan perentah Allah Swt.
+
+[^655]: Kabenaran berito-berito Al-Qur’an tu ado nang talaksano di dunio dan ado pulak nang talaksano di akherat. Nang talaksano di dunia seperti kabenaran janji Allah Swt. kapado orang mukmin untuk menang dalam paperangan malawan orang musyrik, sedangkan nang talaksano di akherat adolah seperti kabenaran janji Allah Swt. tentang balasan atau peritungan nang bakal dilakukan tahadap manusio.
+
+[^656]: Ungkapan ‘tigo kagelapan’ pado ayat ko baarti kagelapan dalam perut, kagelapan dalam rahim, dan kagelapan dalam selaput nang manutup anak dalam rahim.
+
+[^657]: Perentah ko bukanlah dalam arti nang sabenarnyo, tapi pernyatoan kamurkoan Allah Swt. tahadap kaum musyrik nang bakali-kali diajak batauhid, tapi salalu engkar.
+
+[^658]: Orang-orang tu mandengarkan ajaran-ajaran Al-Qur’an dan ajaran nang lain, lalu mangikuti ajaran-ajaran Al-Qur’an kareno mayakininyo sabagai nang tabaik.
+
+[^659]: Hukum-hukum, palajaran, dan kisah-kisah tu diulang-ulang dalam Al-Qur’an supayo lebih bapangaruh dan lebih maresap. Sabagian mufasir mangatokan bahwa ayat-ayat Al-Qur’an tu diulang-ulang mambaconyo.
+
+[^660]: Sagalo doso biso diampuni Allah Swt., kacuali dosa syirik (Imak surah an-Nisā’/4: 48).
+
+[^661]: Ayat ko manggambarkan kabesaran dan kakuasoan Allah Swt. dan hanyo Dio nang bakuaso pado hari Kiamat.
+
+[^662]: Maksud ungkapan ‘pandangan yang khianat’ adolah pandangan kapada hal-hal yang talarang, seperti mamandang kapada lawan jenis nang bukan mahram.
+
+[^663]: Maksud ‘bukti-bukti nang nyato’ adolah mukjizat, hukum-hukum, dan ajaran nang dibawaknya.
+
+[^664]: Hari Kiamat tu disebut hari saling mamanggil kareno orang nang bakumpul di Padang Mahsyar saling mamanggil untuk maminta tolong.
+
+[^665]: Paninggalan peradaban tasebut barupo bangunan, benteng, istano, dan alat-alat perlengkapan.
+
+[^666]: Kabiasoan setan adolah mangintip dan mancuri dengar pambicaroan paro malaikat tentang apo nang bakal tajadi di bumi.
+
+[^667]: Nang dimaksud dengan ‘dari depan dan dari balakang’ adolah dari sagalo panjuru.
+
+[^668]: Orang-orang tu malakukan doso dengan terang-terangan kareno manyangko bahwa Allah idak mangetaui perbuatan orang-orang tu serto panganingan, pangimakan, dan kulit orang-orang tu idak bakal manjadi saksi di akherat kagi atas perbuatan orang-orang tu.
+
+[^669]: Maksud ungkapan ‘dari depan maupun dari balakang’ adolah pado maso lalu dan nang bakal datang.
+
+[^670]: Orang-orang tu idak mangimak dari Al-Qur'an, kacuali fitnah-fitnah nang memang orang-orang tu cari.
+
+[^671]: Hanyo Allahlah nang mangetaui bilo tibonyo hari Kiamat tu.
+
+[^672]: Nang dimaksud dengan ‘sakutu-sakutu-Ku’ adolah berhalo-berhalo nang orang-orang tu anggap sabagai sakutu Allah.
+
+[^673]: Orang-orang musyrik mangatokan bahwa malaikat adolah anak perempuan Allah. Padohal, malaikat tu sabagian dari makhluk dan ciptoan-Nyo.
+
+[^674]: Ayat ko manggambarkan keadaan batino Arab pado waktu Al-Qur’an diturunkan. Orang-orang tu hanyo dijadikan pahiasan atau idak dibagih kasempatan dalam pendidikan sahinggo kurang pangetauannyo serto idak mampu basikap tegas dan jelas.
+
+[^675]: Nabi Ibrahim a.s. manjadikan kalimat tauhid sabagai pegangan bagi katurunannyo sahinggo kalu di antaro orang-orang tu ado nang mapersekutukan Allah, orang-orang tu diharapkan segero balik kapado tauhid tu.
+
+[^676]: Di antaro katurunan Nabi Ibrahim a.s. ado nang malupokan tauhid serto idak mansyukuri kanikmatan dan kahidupan nang dianugerahkan Allah. Allah idak mangazab orang-orang tu, bahkan sabaliknyo Allah mambagih kanikmatan kapado orang-orang tu hinggo Dia manurunkan Al-Qur’an serto mangutus saorang rasul untuk mambimbing orang-orang tu.
+
+[^677]: Kata ‘penyihir’ idak digunakan oleh orang-orang tu untuk menghina, tapi justru untuk menghormati karena orang-orang tu sangat mengagungkan ilmu sihir.
+
+[^678]: Nang dimaksud dengan turunnyo Al-Qur’an pado malam Lailatulqadar adolah bahwa Al-Qur’an untuk pertamo kalinyo diturunkan pado malam tasebut.
+
+[^679]: Nang dimaksud dengan ‘sagalo urusan nang penuh hikmah’ adolah sagalo sasuatu nang bahubungan dengan kahidupan makhluk seperti hidup, mati, rezeki, nasib baik, dan nasib buruk.
+
+[^680]: Maksudnyo adolah bencano kalaparan nang manimpo kaum Quraisy akibat manentang Nabi Muhammad saw
+
+[^681]: Nabi Muhammad saw. dituduh manerimo palajaran dari Addas, seorang non-Arab nang baugamo Nasrani.
+
+[^682]: Hantaman nang besak tu tajadi pado Perang Badar katiko orang-orang musyrik dipukul mundur sahinggo manderito kakalahan dan banyak di antaro pamimpin orang-orang tu nang tewas.
+
+[^683]: Tubba’ adolah gelar nang dibagih kapado rajo-rajo di Yaman nang maliputi suku Himyar, Saba’, dan Hadramaut.
+
+[^684]: Maksudnyo adolah tanpa khawatir bakal kahabisan, sakit, dan kamudaratan lainnyo.
+
+[^685]: Allah mambiakkan orang tu sesat kareno Allah mangetaui bahwa io idak manarimo patunjuk nang Dio bagihkan kapadonyo.
+
+[^686]: Yang dimaksud dengan ‘seorang dari Bani Israil’ ialah Abdullah bin Salam. Dio menyatokan keimanannyo kapado Nabi Muhammad saw. satelah mamperhatikan bahwo di antaro isi Al-Qur’an ado nang sasuai dengan Taurat, seperti ajaran tauhid, janji dan ancaman, kerasulan Nabi Muhammad saw, adonyo kehidupan akherat, dan sabagainyo.
+
+[^687]: Orang-orang kafir tu mangejek orang-orang Islam dengan mengatokan, “Sekironyo Al-Qur’an ko benar, tentu kami lebih dahulu baiman kapadonyo daripado orang-orang miskin dan lemah tu seperti Bilal, ‘Ammar, Suhaib, dan Khabbab.”
+
+[^688]: Lembah Ahqaf adolah lembah-lembah pasir yang terletak di selatan Jazirah Arabia.
+
+[^689]: Ko tamasuk ayat-ayat sifat. Ahli tafsir babedo pandapat mangenai ayat ko. Sebagian manjelaskan bahwa nang dimaksud ‘tangan’ pada ayat ko adolah ‘kakuatan dan kakuasoan’ Allah. Sabagian lainnyo manafsirkan ‘tangan Allah’ dengan pangawasan Allah bakal janji setio nang dibagihkan oleh baberapo orang kapado Nabi Muhammad saw.
+
+[^690]: Orang-orang tu ingin mangubah janji Allah bahwa rampasan tu (Khaibar) hanyo untuk orang-orang nang ikut dalam Perjanjian Hudaibiah. Perjanjian tu tajadi pado akhir tahun kaenam Hijriah, kemudian pado Muharam tahun katujuh Rasulullah dan paro sahabat barangkat perang manuju Khaibar. Pado perang Khaibar ko, orang-orang Badui nang idak ikut dalam Perjanjian Hudaibiah bamaksud untuk ikut berangkat ka Khaibar supayo turut serto mandapatkan rampasan perang. Allah mangabarkan bahwa Io lah bajanji, rampasan perang ko hanyo untuk orang-orang nang ikut dalam Perjanjian Hudaibiah.
+
+[^691]: Allah manjanjikan harto rampasan perang nang banyak kapado kaum muslim. Sabagai pandahuluan, Allah mambagihkannyo pado Perang Khaibar.
+
+[^692]: Kalimat takwa adolah kalimat tauhid.
+
+[^693]: Nang dimaksud dengan ‘mancukur rambut kepalo’ adolah tahallul sasudah umrah.
+
+[^694]: Selang baberapo lamo sabelum terjadi Perjanjian Hudaibiah Nabi Muhammad saw. bamimpi bahwa beliau basamo para sahabatnyo memasuki kota Makkah dan Masjidil haram dalam keadaan sebagian mareko manggundul rambut dan sebagian lagi memendekkannyo. Nabi mangatokan bahwa mimpi beliau tu bakal terjadi.
+
+[^695]: Maksudnyo adolah bahwa orang-orang mukmin idak boleh manetapkan suatu hukum sabelum ado katetapan dari Allah dan Rasul-Nyo dalam hal nang dimungkinkan adonyo panjelasan dari Allah atau Rasul-Nyo.
+
+[^696]: Panggilan fasik adolah panggilan dengan manggunakan kato-kato nang mangandung panghinoan atau idak mancerminkan sifat saorang mukmin.
+
+[^697]: Nang dimaksud dengan ‘żātil ḥubuk (jalan-jalan nang kokoh)’ adolah garis edar bintang, planet, dan bendo-bendo angkaso lainnyo. Ado pulak nang mangartikan ‘żātil ḥubuk’ dengan ‘mamiliki ciptoan nang bagus’, ‘mamiliki hiasan bintang-bintang’, atau ‘mamiliki bangunan nang kokoh’.
+
+[^698]: Maksudnyo adolah perbedoan pandapat kaum musyrik tentang Nabi Muhammad saw. dan Al-Qur’an.
+
+[^699]: Menurut sabagian mufasir, nang dimaksud dengan ‘tando kaagungan-Nyo’ adolah batu-batu nang batumpuk tumpuk nang digunokan untuk mambinasokan kaum Lut. Ado pulak nang mangatokan bahwa nang dimaksud adolah sabuah talago nang aeknyo itam dan busuk baunya.
+
+[^700]: Manurut riwayat al-Bukhari dan Muslim, ‘Baitulmakmur’ adolah rumah di langit katujuh nang sanantiaso diramaikan oleh 70.000 malaikat nang baibadah salat.
+
+[^701]: Syi’ra adolah namo bintang nang disembah oleh sabagian orang Arab pado maso Jahiliyah.
+
+[^702]: Hikmah nang sempurno dalam ayat ko adolah ilmu pangetauan nang agung dan sempurno.
+
+[^703]: Orang-orang tu idak ditanyo untuk mambuktikan amal perbuatannyo, tapi pado saatnyo bakal ditanyo untuk mampertanggungjawabkannyo
+
+[^704]: Pohon zaqum adolah jenis pohon di nerako nang mangakibatkan derito nang luar biaso bagi nang mamakannyo.
+
+[^705]: Hamba Allah nang disucikan manurut sabagian ulama adolah orang-orang nang suci dari hadas besak dan kecik. Manurut sabagian lainnyo adolah makhluk Allah nang suci dari doso dan kasalahan, yakni paro malaikat.
+
+[^706]: “Mahaawal” iolah nang lah ada sabelum sagalo sasuatu ado sahinggo idak ado nang mandahului-Nyo, “Mahaakhir” iolah nang bakal hidup salamonya sasudah sagalo sasuatu musnah, “Mahazahir” baarti nang macam tu jelas wujud-Nyo malalui alam samesta nang Dio ciptokan dan pambuktian logika dan raso, dan “Mahabatin” iolah nang zat dan hakikat-Nyo idak biso dijangkau, baik dengan mato, akal dan khayal.
+
+[^707]: Nang dimaksud dengan ‘nang naik’, antaro lain, adolah amal-amal dan doa-doa hambo-Nyo.
+
+[^708]: Ayat ko turun bakenaan dengan Khaulah binti Ṡa‘labah nang dizihar oleh lakinyo, Aus bin Aṣ-Ṣamit, dengan mangatokan, “Kamu bagiku seperti punggung emakku,” dengan maksud idak boleh lagi manggauli bininyo samacam mano io idak boleh manggauli emaknyo. Dalam adat Jahiliah kalimat zihar seperti tu samo dengan menalak bini. Khaulah mangadukan hal tu kapado Rasulullah saw. Rasulullah manjawab bahwa tentang hal tu belum ado kaputusan Allah. Dalam riwayat lain io basabdo, “Kamu lah diharamkan bagaul dengan dio.” Khaulah lalu bakato, “Lakiku belum manyebut kato-kato talak.” Io baulang kali mandesak Rasulullah agar manetapkan kaputusan. Mako, turunlah ayat ko dan ayat-ayat barikutnyo.
+
+[^709]: Harto rampasan yang diperoleh dari musuh tanpa malalui pertempuran disebut dengan fai’, sedangkan nang diperoleh dari musuh malalui pertempuran disebut ganimah. Pambagian harto fai’ dijelaskan pada ayat 7 surah ko, sedangkan pambagian ganimah dijelaskan pada ayat 41, surah al-Anfāl/8.
+
+[^710]: Nabi Ibrahim a.s. pernah mamintakan ampunan untuk bapaknyo nang musyrik kapado Allah. Ko idak boleh ditiru kareno Allah idak mambenarkan orang mukmin mamintakan ampunan untuk orang-orang kafir (Imak surahan- Nisā’/4: 48).
+
+[^711]: Sabelum dibagihkan kapada lima golongan nang berhak, ganimah dipergunokan lebih dahulu untuk mambayar mahar-mahar kapado paro suami nang bininyo lari ka daerah kaum kafir.
+
+[^712]: Kareno orang-orang tu bapaling dari kebenaran, Allah membiakkan sesat hati orang-orang tu sahinggo orang-orang tu batambah jauh dari kebenaran.
+
+[^713]: Orang-orang tu basumpah bahwa orang-orang tu baiman untuk menjago harto supayo idak dirampas dan manjago diri supayo idak dibunuh atau ditawan.
+
+[^714]: Orang-orang munafik bagaikan saonggok kayu nang tasandar tanpo dayo hidup, tanpo pijakan nang kokoh, dan idak mamiliki buah nang biso dimanfaatkan
+
+[^715]: Kadang-kadang bini atau anak dapat manjerumuskan suami atau bapaknyo untuk malakukan perbuatan-perbuatan nang idak dibenarkan oleh ugamo.
+
+[^716]: Pinjaman nang disebut dalam ayat ko adalah sedekah, infak, wakaf, zakat, dan lain-lain.
+
+[^717]: Nabi basumpah untuk dak menggauli bininyo, yaitu Mariah al-Qibtiyah. Dengan sumpah iko sesuatu yang halal menjadi dak diperbolehkan. Jadi, ayat iko dak bamakna bahwo Nabi mengubah hukum halal menjadi haram.
+
+[^718]: Maksudnyo, Jibril dan paro malaikat nang lain butuh waktu sikok hari perjalanan untuk manghadap Allah. Sikok hari dalam dunio malaikat samo dengan limo puluh ribu tahun dalam dunio manusio.
+
+[^719]: Maksudnyo adolah orang nang manyimpan hartonyo dan idak mau mangaluarkan zakat dan idak pulak manginfakkan ka jalan nang benar.
+
+[^720]: Imak catatan kaki surah al-Mu’minun/23: 6.
+
+[^721]: Manurut katerangan sabagian mufasir ayat ko bahubungan dengan kajadian katiko orang-orang musyrik bakumpul bakelompok di depan Rasulullah saw. sambil mangejek dan mangatokan, “Jiko orang-orang mukmin benar-benar bakal masuk surgo samacam mano kato Muhammad, kitolah nang bakal masuk lebih dulu.” Mako turunlah ayat 38.
+
+[^722]: Orang-orang kafir tu mangetaui bahwa orang-orang tu diciptokan Allah dari aek mani untuk baiman dan batakwa kapado-Nyo samacam mano manusia nang lainnyo. Jadi, kalu idak baiman dan batakwa, orang-orang tu idak bahak masuk surgo.
+
+[^723]: Dakwah ko dikerjokan sasudah dakwah dengan caro diam-diam idak barasil.
+
+[^724]: Sasudah malakukan dakwah sacaro diam-diam dan sacaro terang-terangan, Nabi Nuh a.s. mangerjokan kaduonyo tu sakaligus.
+
+[^725]: Imak surat l-Mu’minūn/23: 12, 13, 14.
+
+[^726]: Wadd, Suwwā’, Yaghuts, Ya’ūq dan Nasr adolah namo-namo berhalo tabesak pado kabilah-kabilah kaum Nabi Nuh a.s. nang samulo adolah namo-namo orang saleh.
+
+[^727]: Nang dimaksud dengan sekarang adolah waktu sasudah Nabi Muhammad saw. diutus manjadi rasul.
+
+[^728]: Sembahyang malam ko pado awalnyo wajib, sabelum turun ayat ke-20 dalam surat ko. Sasudah turunnyo ayat ke-20 ko hukumnyo jadi sunah.
+
+[^729]: Ayat ko dan baberapo ayat barikutnyo diturunkan mangenai al-Walid bin al-Mugirah, pamimpin kafir Quraisy, nang sabelumnyo idak mamiliki apo-apo.
+
+[^730]: “Idak” adolah bantahan tahadap ucapan orang-orang musyrik nang mangingkari hal-hal tasebut di atas.
+
+[^731]: Anggota badan manusio manjadi saksi tahadap pakerjoan nang lah orang-orang tu lakukan, seperti tasebut dalam surah an-Nur/24: 24.
+
+[^732]: Hal tu manggambarkan hebatnyo penderitaan pado saat bakal mati serto katakutan bakal maninggalkan dunio dan manghadapi akherat.
+
+[^733]: Kafur marupokan namo suatu mato air di surgo nang warnonyo putih, aromanyo harum, dan enak rasonyo. Kafur disediokan untuk hambo Allah nang taat.
+
+[^734]: Nang dimaksud adolah malaikat nang turun untuk mambawak wahyu. Sabagian mufasir bapendapat bahwa nang dimaksud dengan ‘an-nasyirat’ iolah angin nang batiup disertoi hujan.
+
+[^735]: Maksudnyo adolah waktu untuk bakumpul basamo umat orang-orang tu masing-masing.
+
+[^736]: Bumi mangumpulkan orang-orang hidup di permukoannyo dan orang-orang nang mati di perutnyo.
+
+[^737]: Maksudnyo adolah nang mampunyoi tigo gejolak, yaitu di kanan, di kiri, dan di atas. Ko baarti bahwa azab tu mangepung orang-orang kafir dari sagalo panjuru.
+
+[^738]: Malam disebut sabagai ‘pakaian’ kareno malam tu gelap manutupi alam samacam mano pakaian manutupi tubuh manusio.
+
+[^739]: Di antara ahli tafsir ada nang mamahami roh dalam ayat ko sebagai Jibril, ado nang mangatokan tentaro Allah, dan ado pulak nang mangatokan malaikat nang diserahi tugas mangurus arwah dan sajenisnyo.
+
+[^740]: Dalam ayat 1-5 Allah basumpah dengan malaikat nang bamacam-macam sifat dan urusannyo bahwa manusio bakal dibangkitkan pado hari Kiamat. Sabagian mufasir bapendapat bahwa dalam ayat-ayat ni, kacuali ayat 5, Allah basumpah dengan bintang-bintang.
+
+[^741]: Sasudah orang-orang kafir manganing adonya hari Kabangkitan sasudah mati, orang-orang tu marasa heran dan mangejek kareno manurut kayakinan orang-orang tu hari Kabangkitan u idak ado. Tulah sebabnya orang-orang tu batanyo.
+
+[^742]: Maksudnyo adolah mamudahkan kalahirannyo atau mampermudah baginyo untuk manjalani jalan nang benar atau jalan nang sesat
+
+[^743]: Sasudah diterangkan bahwa Al-Qur’an tu benar-benar datang dari Allah dan di dalamnyo ado palajaran dan patunjuk nang mamimpin manusio ka jalan nang lurus, ditanyokanlah kapado orang-orang kafir tu, “Jalan manokah nang bakal kamu tempuh?”
+
+[^744]: ‘Sijjīn’ adolah namo kitab nang mancatat sagalo perbuatan orang-orang nang durhako.
+
+[^745]: Maksudnyo adolah sakali-kali idak macam apo nang orang-orang tu katokan, yakni bahwa orang-orang tu dekat pado sisi Tuhan.
+
+[^746]: ‘Illi yyīn’ adolah namo kitab nang mancatat sagalo perbuatan orang-orang nang baamal saleh.
+
+[^747]: Manusio di dunio ko baik disadari atau idak sedang dalam perjalanan manuju Tuhannyo. Pasti dio bakal batemu dengan Tuhannyo untuk manerimo balasan tahadap perbuatannyo nang buruk dan nang baik.
+
+[^748]: Nang dimaksud dengan ‘tingkat demi tingkat’ adolah perkembangan dari satetes mani manuju kalahiran, kanak-kanak, remaja, dewasa dan tuo atau perkembangan dari hidup manuju mati kemudian dibangkitkan balik.
+
+[^749]: ‘Raj‘i’ artinyo balik baputar. Hujan dinamokan ‘raj‘i’ kareno hujan baasal dari uap nang naik dari bumi ka udaro, kemudian turun ka bumi, kemudian balik ka atas, dan dari atas balik ka bumi dan macam tulah saterusnyo.
+
+[^750]: Nang dimaksud dengan malam nang sapuluh adolah malam sapuluh taakhir dari bulan Ramadan. Ado nang mangatokan sapuluh pertamo dari bulan Muharam, tamasuk di dalamnyo hari Asyura dan ado pulo nang mangatokan sapuluh malam pertamo dari bulan Zulhijah.
+
+[^751]: Lembah ni taletak di bagian utaro Jazirah Arab antaro kota Madinah dan Syam. Orang-orang tu mamotong-motong batu gunung untuk mambangun gedung-gedung tempat tinggal dan ado pulo nang malubangi gunung-gunung untuk tempat tinggal dan tempat balindung.
+
+[^752]: Allah manyalahkan orang nang mangatokan bahwa kakayoan tu adolah suatu kamulioan, dan kamiskinan adolah suatu kahinoan macam nang tasebut pado ayat 15 dan 16. Sabenarnyo kakayoan dan kamiskinan adolah ujian Allah bagi hambo-hambo-Nyo.
+
+[^753]: Maksudnyo adolah idak mambagih hak-hak anak yatim dan idak babuat baik kapadonyo.
+
+[^754]: Maksudnyo adolah bahwo orang-orang nang batakwa mambantu orang lain bukan kareno orang tu bajaso kapadonyo sahinggo perlu mambalasnyo, malainkan hanyo mangarap rido Allah.
+
+[^755]: Zabaniyah adolah malaikat nang batugas manyikso orang-orang nang badoso.
+
+[^756]: Maksudnyo basaing mampabanyak anak, harto, pangikut, kamulioan, dan sabagainyo lah malalaikan manusio dari kataatan kapado Allah Swt.
+
+[^757]: Malalaikan salat tamasuk lalai bakal waktu dan tujuan salat serto bamalasan dalam mangerjokannyo.
+
+[^758]: Riya adolah malakukan sasuatu perbuatan idak untuk mancari karidoan Allah, tapi untuk mancari pujian atau kamasyhuran di masyarakat.
+
+[^759]: Yang dimaksud dengan ‘kedua tangan Abu Lahab’ adalah Abu Lahab itu sendiri.

@@ -58,7 +58,8 @@ for await (const child of Deno.readDir(databaseDir)) {
 
     const document: Document = {
         metadata,
-        verseList: []
+        verseList: [],
+        footnoteList: []
     }
     const parseBase = parsedName.name == "tanzil.latin.en" ? htmlToMdast
         : async (text: string) => plainToMdast(text);
@@ -72,15 +73,13 @@ for await (const child of Deno.readDir(databaseDir)) {
                 sura,
                 verse,
                 text: await parseText(text),
-                footnotes: []
             }
         )
     }
 
     if (data.footnote)
-        for (const { sura, verse, index, text } of data.footnote) {
-            const verseObj = document.verseList.find((val) => val.sura == sura && val.verse == verse)
-            verseObj?.footnotes.push({
+        for (const { index, text } of data.footnote) {
+            document.footnoteList.push({
                 index: index,
                 text: await parseBase(text)
             })

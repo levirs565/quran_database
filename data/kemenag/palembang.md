@@ -9,15 +9,9 @@ type: translation
 
 Dengen nami Allah yên Maha Pengasî, Maha Penyayang [^1]
 
-[^1]: Maksudnyo: kulo ngawali (mula’i) maco al-Fatihah niki ngen ngelap nami Allah. Sedanten damelan yên saê, ayunnyo dimula’i ngen ngelap asma Allah, pecak nedo, minum, nyemle binatang serto liannyo. Allah niku la nami zat yên Maha Suci, yên wênten hak disemba ngen seleser-lesernyo, yên nano mutuke makhluk-Nyo, tapi makhluk yên mutuke-Nyo. Ar Rahmaan (Maha Pemura): sala sios nami Allah yên ngesung makno bahwo Allah ngelimpake karunio-Nyo kepado makhluk-Nyo sedeng Ar Rahiim (Maha Penyayang) ngesung pengertian bahwo Allah senantiaso besifat rahmah yên nyebabke Dio sesampun niku ngelimpake rahmat-Nyo kepado makhluk-Nyo.
-
 ## 1:2
 
 Sedanten puji [^2] peranti Allah, Tuhan semesto alam. [^3]
-
-[^2]: Alhamdu (sedanten puji). Muji wong wênten la kerno damelannyo yên sai yên didamelkenyo atas kendak-Nyo dewek. Mako muji Allah retinyo: nyanjung-Nyo kreno damelannyo yên sai. Lian halnyo ngen syukur yên retinyo ngako’i keutamoan sesios wong tehadep nikmat yên disungke-Nyo. kito ngadepke sedanten puji bagi Allah lan kerno Allah sumber dari sedanten kesaian yên patut dipuji.
-
-[^3]: Rabb (tuhan), retinyo: Tuhan yên ditoati yên Ngewênteni, nidik serto meliharo. Lafal Rabb nano angsal digunoke selian peranti Tuhan, kacowali kalu wênten sambungannyo, pecak robbul bait (tuan rompok). 'Alamiin (semesto alam): sedanten yên diciptoke Tuhan yên tediri dari beragem jenis serto macem, pecak: alam manusio, alam binatang, alam tumbu-tumbuan, bendo-bendo padem serto liannyo. Allah Pencipto sedanten alam-alam niku.
 
 ## 1:3
 
@@ -27,71 +21,37 @@ Maha Pemura jugo Maha Penyayang.
 
 Yên nguasoi [^4] dinten Pembalesan [^5]
 
-[^4]: Maalik (yên nguasoi) ngen manjangke mim retinyo: pemilik. angsal pulo dibaco ngen Malik (ngen mendekke mim), retinyo: Rajo.
-
-[^5]: Yaumiddin (dinten Pembalesan): dinten yên diwaktu niku dewek-dewek wong nerimo balesan amalannyo yên sai jugo yên jahat. Yaumiddin dikelapke juga yaumulqiyaamah, yaumulhisaab, yaumuljazaa' lan liannyo.
-
 ## 1:5
 
 Saos Niko la yên Kamê’ semba [^6], saos kepado Niko la Kame’ nedo petolongan [^7] .
-
-[^6]: Na'budu diembil dari kelap 'ibaadat: kepatuan serto ketundukan yang ditongolke ole perasoan tehadep keagengan Allah, sebagî Tuhan yên disemba, kerno bekeyakinan bahwo Allah wênten kekuasoan yên mutlak tehadepnyo.
-
-[^7]: 7Nasta'iin (nedo petolongan), dari kelap isti'aanah: ngarepke petulungan peranti angsal ngerampungke sios damelan yên nano sanggup didamelke ngen tenago dewek.
 
 ## 1:6
 
 Sûng wikan [^8] Kame’ jalan yên leser,
 
-[^8]: Ihdina (tunju’ila Kame’), dari kelap hidayaat: ngesûng hidayah ke jalan yên sai. Yên dimaksud ngen ayat niki didinyo sekadar ngesung hidayah saos, tapi jugo ngesung taufik.
-
 ## 1:7
 
 (Ya’ni) jalan sedanten wong yên sampûn Niko sûng nikmat kepado wong-wong niku; didinyo (jalan) wong-wong niku yên dimurkoi serto didinyo (pulo jalan) wong-wong niku yên seset. [^9]
-
-[^9]: Yên dimaksud ngen wong-wong niku yang dimurkoi serto wong-wong niku yên seset nikula sedanten golongan yên nyimpang dari ajaran Islam.
 
 ## 2:1
 
 Alif laam miin. [^10]
 
-[^10]: Nikula huruf-huruf abjad yên teletak pado awal sebagian dari surat-surat Al Quran pecak: Alif laam miim, Alif laam raa, Alif laam miim shaad serto liannyo. diantaro Ahli-ahli tafsir wênten yên nyerake pengertiannyo kepado Allah kerno dipandang temasuk ayat-ayat mutasyaabihaat, serto wênten pulo golongan yên nafsirkenyo atawa yên mandangnyo sebagî nami surat, serto wênten pulo yên bependapet bahwo huruf-huruf abjad niku gunonyo peranti narîk pehatian sedanten pendengêr supayo merhatike Al Quran niku, serto peranti ngisyaratke bahwo Al Quran niku diturunke dari Allah jerû baso Arab yên tesusun dari huruf-huruf abjad. Kalu wong-wong niku nano yakin bahwo Al Quran niku diturunke dari Allah serto dîdînyo buatan Nabi Muhammad s.a.w.,  cobola wong-wong niku damel pecak Al Quran niku.
-
 ## 2:2
 
 Kitab [^11] (Al Quran) niki nano wênten keraguan padonyo; petunju’ peranti wong-wong niku yên betaqwa [^12] ,
-
-[^11]: Tuhan namike Al Quran dengen Al kitab yên dingeriki retinyo yên ditulis, sebagi isyarat bahwo Al Quran niku diperintake peranti ditulis.
-
-[^12]: Takwa ya’ni menjago diri dari siksoan Allah dengen numuti sedanten perinta-perinta-Nyo; serto tebehi sedanten larangan-larangan-Nyo; nano cekap diretike dengen wedhi saos.
 
 ## 2:3
 
 (Yakni) wong-wong niku yên beriman [^13] kepado yên ghaib [^14] , nega’ke semayang [^15] , serto nafkake sebagian rezki [^16] yên Kame’ anugerake kepado wong-wong niku.
 
-[^13]: Iman nikula kepercayoan yên tegû yên disertoi dengen ketundukan serto penyerahan jiwo. tando-tando wêntennyo iman nikula ngerjoke wênten yên dikendaki ole iman niku.
-
-[^14]: Yên ghaib, nikula yên nano angsal ditangkep ole pancaindero. Pecayo kepado yên ghaib yakni, ngi'tikadke wêntennyo sesios yên maujud yên nano angsal ditangkep ole pancaindero, kerno wênten dalil yên nunju’ke kepado wêntennyo, pecak: wêntennyo Allah, malaikat-malaikat, dinten kiamat serto liannyo.
-
-[^15]: semayang nurut baso 'Arab: doa. nurut istila syara' nikula ibadat yên sampun tekelahar, yên diawali dengen takbir serto disampuni dengen salam, yên didamelke peranti muktike pengabdian serto keendepan diri kepado Allah. Nega’ke semayang nikula nunaikenyo dengen teratur, dengen ngelengkapi syarat-syarat, rukun-rukun serto adab-adabnyo, sae yên lahir atawa yên batin, pecak khusu', merhatike wênten yên dibaco dan liannyo.
-
-[^16]: Rezki: sedanten yên angsal diembil manfaatnyo. nafkahke sebagian rezki, nikula ngesung sebagian dari herto yên sampun direzkike ole Tuhan kepado sedanten wong yên disyari'atke ole agamo ngesungkenyo, pecak sedanten wong fakir, wong miskin, sanak beroyot ondon, buda'-buda' yatim serto liannyo.
-
 ## 2:4
 
 Serto wong-wong niku yên beriman kepado kitab (Al Quran) yen sampun diturunke kepado niko dan Kitab-Kitab yên sampun diturunke sedereng niko [^17] , dan wong-wong niku yakin wêntennyo (keuripan) akhirat [^18] .
 
-[^17]: Kitab-Kitab yên sampun diturunke sedereng Muhammad s.a.w. nikula Kitab-Kitab yên diturunke sedereng Al Quran pecak: Taurat, Zabur, Injil serto Shuhuf-Shuhuf yên tesebut jerû Al Quran yên diturunke kepado sedanten rasul. Allah nurunke kitab kepado Rasul nikula dengen ngesungke wahyu kepado Jibril a.s., sampun niku Jibril nyampikenyo kepado rosul.
-
-[^18]: Yakin nikula keyakinan yên kuat dengen nano dicampuri keraguan setitik jugo. kiamat lawan dunio. keuripan kiamat niku yakni keuripan sesampun dunio abis, yakin bahwo ayun wêntennyo keuripan kiamat sesampun dunio niki berakhir.
-
 ## 2:5
 
 Wong-wong niku nikula yên tetep angsal petunju’ dari Tuhan dan wong-wong niku, serto wong-wong nikula [^19] sedanten wong yên beruntung [^20] .
-
-[^19]: Nikula sedanten wong yên angsal wênten-wênten yên dimohonkenyo kepado Allah sesampun ngusohokennyo.
-
-[^20]: Nikula sedanten wong yên angsal wênten-wênten yên dimohonkenyo kepado Allah sesampun ngusohokennyo.
 
 ## 2:6
 
@@ -101,15 +61,9 @@ Selesernyo sedanten wong kafir, sami saos bagi wong-wong niku, niko sung peringa
 
 Allah sampun mengunci-padem ati dan kerunguan wong-wong niku [^21] , serto peningaserto wong-wong niku ditutup [^22] . serto bagi wong-wong niku sikso yên berat nian.
 
-[^21]: Yakni wong niku nano angsal nerimo petunju’, serto sedanten ragem nasehat jugo nano angsal bebekas padonyo.
-
-[^22]: Maksudnyo: wong-wong niku nano angsal merhatike dan mahami ayat-ayat Al Quran yên wong-wong niku kerungu dan nano angsal ngembil pelajaran dari tando-tando keagengan Allah yên wong-wong niku tingal di cakrawala, di pemukoan bumi serto pado diri wong-wong niku dewek.
-
 ## 2:8
 
 Di antaro sedanten wong yên ngelapke: "Kame’ beriman kepado Allah serto dinten akhir [^23] ," padohal wong-wong niku selesernyo nano sedanten wong yên beriman.
-
-[^23]: Dinten akhir Nikula: awal dari waktu mahluk dikumpulke di padang mahsyar sampi waktu yên nano wênten batasnyo.
 
 ## 2:9
 
@@ -119,13 +73,9 @@ Wong-wong niku ayun nipu Allah serto sedanten wong yên beriman, Padohal wong-wo
 
 Jerû ati wong-wong niku wênten penyakit [^24] , sampun niku ditamba Allah penyakitnyo; bagi wong-wong niku siksoan yên pedi, disebabke wong-wong niku bi’ sae kapado Allah..
 
-[^24]: Yakni keyakinan wong-wong niku tedahap keleseran Nabi Muhammad s.a.w. lemah. Lemahnyo keyakinan niku, munculke serik, iri-ati serto dendem tehadep Nabi s.a.w., agamo serto sedanten wong Islam.
-
 ## 2:11
 
 Dan kalu dikelapke kepado wong-wong niku:"nano pangsal niko namelke keancuran (carot marot) di muko bumi [^25] ". wong-wong niku bekelap: "Selesernyo Kame’ sedanten wong yên namelke kesaean."
-
-[^25]: Kerusakan yên wong-wong niku damelke di muko bumi, didinyo saos kerusakan benda-benda, melianke ngasut sedanten wong kafir peranti musuhi serto nentang sedanten wong Islam.
 
 ## 2:12
 
@@ -139,8 +89,6 @@ Napibilo dikelapke kepado wong-wong niku: "Berimanla niko peca’ sedanten wong 
 
 Dan kalu wong-wong niku panggi ngen sedanten wong yên beriman, wong-wong niku ngelapke: "Kame’ sampun beriman". serto kalu wong-wong niku mantu’ kepado beles-beles wong-wong niku [^26] , wong-wong niku bekelap: "Selesernyo Kame’ sesios kelapan sami niko, Kame’ saos ngatoi".
 
-[^26]: Maksudnyo: sirah-sirah (pemimpin) wong-wong niku.
-
 ## 2:15
 
 Allah ayun males katoan wong-wong niku serto nala’ke wong-wong niku terayun-ayun di jerû kesesetan wong-wong niku.
@@ -153,21 +101,13 @@ Wong-wong niku, wong yên numbas kesesetan ngen hidayah, Dadesnyo nano la berunt
 
 Perumpamoan wong-wong niku wêntenla pecak wong yên mûrûpke api [^27], Dadesnyo sesampun api niku madangi mereka, Allah lengetke cahayo (yên nyinari) wong-wong niku, serto nala’ke wong-wong niku di jero kegelepan, nano angsal ningali napi-napi.
 
-[^27]: Sedanten wong munafik niku nano angsal ngembil manfaat dari hidayah-hidayah yên rawo dari Allah, kerno sifat-sifat kemunafikkan yên bersemi di jerû dado wong-wong niku. Keadaan wong-wong niku digambarkan Allah pecak jero ayat tersebut di atas.
-
 ## 2:18
 
 Wong-wong niku peka’, bisu serto buto [^28] , Dadesnyo nanola wong-wong niku ayun mantu’ (ke jalan yên sae),
 
-[^28]: Walaupun pancaindera wong-wong niku sehat, namun wong-wong niku dipandang tuli, bisu dan buto ole kerno nano angsal nerimo keleseran.
-
 ## 2:19
 
 Atawa pecak (sedanten wong yên ditimpo hujan lebet dari langit ditandoi gelep gulito, geledeg serto kilat; wong-wong niku nyumpel kupingnyo dengen anak jarinyo, kareno (ngerungu suaro) petir, sebab wedhi ayun padem [^29] . serto Allah melingkupi sedanten wong yên kafir [^30] .
-
-[^29]: Keadaan sedanten wong munafik niku, ketiko ngerungu ayat-ayat yên ngandung peringetan, wêntenla pecak wong yên ditimpo ujan lebet serto petir. wong-wong niku nyumbat kupingnyo kerno nano sanggup ngerungu peringetan-peringetan Al Quran niku.
-
-[^30]: Maksudnyo pengetahuan serto kekuasoan Allah ngeliputi sedanten wong kafir.
 
 ## 2:20
 
@@ -181,13 +121,9 @@ Hei sedanten manusio, sembala Tuhan Yên sampun nyiptoke niko serto sedanten won
 
 Dio nikula yên dadeske bumi sebagi tempat bagi niko serto langit sebagi atap, serto Dio nyampa’ke banyu (ujan) dari langit, sesampun niku Dio ngasilke ngen ujan niku sedanten buah-buahan sebagi rezki perantimu; kerno niku nano angsal niko natangke sekutu-sekutu bagi Allah [^31] , Padohal niko wikan.
 
-[^31]: Nikula sedanten sesios yên disemba di samping nyembah Allah pecak behala-behala, dewa-dewa, serto liannyo.
-
 ## 2:23
 
 Serto kalu niko (tetep) di jerû keraguan tentang Alquran yen Kame’ wahyuke kepado hambo Kame’ (Muhammad), dadeskela [^32] sios surat (saos) sepecak Al Quran niku serto ajakla penolong-penolong niko selian Allah, kalu niko sedanten wong yên leser.
-
-[^32]: Ayat niki ngerupoke tantangan bagi wong-wong niku yên ngeraguke tentang kesaean Al Quran niku nano angsal ditiru walau dengen ngerahke sedanten ahli sastera serto bahasa kerno Al-Quran ngerupoke mukjizat Nabi Muhammad s.a.w.
 
 ## 2:24
 
@@ -197,15 +133,9 @@ Dadesnyo kalu niko nano angsal damelkenyo serto pasti niko nano ayun angsal dame
 
 Serto sung wikan kabar gembiro kepado wong-wong yên beriman serto bedamel sae, bahwo bagi wong-wong niku disajike suargo-suargo yên ngalir sungi-sungi di jerûnyo. Sedanten wong-wong niku disung rezki buah-buahan di jerû suargo-suargo niku, wong-wong niku ngelapke : "Nikila yên perna disungke kepado Kame’ bingen." wong-wong niku disung buah-buahan yên mirip serto peranti wong-wong niku di jerûnyo wênten sema-sema yên suci serto wong-wong niku kekal di jerûnyo [^33] .
 
-[^33]: Kenikmatan di syurgo niku wêntenla kenikmatan yên serbo lengkep, sae jasmani jugo rohani.
-
 ## 2:26
 
 Selesernyo Allah nano segen muat perumpamoan pecak nyamuk atawa yen langkung renda dari niku [^34] . wênten jugo sedanten wong yên beriman niku yakin bahwo perumpamoan niku leser dari Tuhan wong-wong niku, tapi wong-wong kafir ngelapke: napi dio maksud Allah dadeske niki peranti perumpamoan?." ngen perumpamoan niku kata wong yên disesetke. Allah [^35] , serto ngen perumpamoan niku (pulo) kata wong yên disung-Nyo petunju’. serto nano wênten yên disesetke Allah kacowali sedanten wong yên fasik,
-
-[^34]: Sewaktu turunnyo surat Al Hajj ayat 73 yên di jerûnyo Tuhan nerangke bahwo behalo-behalo yên mereka semba niku nano angsal muat lalat, Sesios saos wong-wong niku namelke besami-sami, serto turunnyo surat Al Ankabuut ayat 41 yên di jerûnyo Tuhan ngambarke Kelemahan behalo-behalo yên didadeske ole sedanten wong musyrik niku sebagi pelindung sami dengen lemanyo sarang laba-laba.
-
-[^35]: Disesetke Allah retinyo: bahwo wong niku seset behubung keingkarannyo serto nano ayun mahami hidayah-hidayah Allah. di jerû ayat niki, kareno wong-wong niku ingkar serto nano ayun mahami napi sebabnyo Allah dadeske nyamuk sebagi perumpamaan, Dadesnyo wong-wong niku dades seset.
 
 ## 2:27
 
@@ -231,8 +161,6 @@ Serto Dio ngajarke kepado Adam nami-nami bendo-bendo sedantennyo, sampun niku ng
 
 Malaikat bekelap: "Maha suci Niko, nano wênten yên Kame’ wikan selian dari napi yên sampun Niko ajarke kepado Kame’; Selesernyo Niko la Yên Maha wikan male Maha Bijaksano [^36] ."
 
-[^36]: Selesernyo terjemahan “hakim” dengen Maha Bijaksana kirang tepat, kerno arti hakim nikula: yên ngewênteni hikmah. Hikmah nikula penciptaan dan penggunaan sesios  tepat dengen sifat, guno dan faedahnya. di niki diartiken dengen Maha Bijaksana kerno dianggap arti niku ampir mendekati arti Hakim.
-
 ## 2:33
 
 Allah befirman: "Hei Adam, sung wikan kepado mereka (Malaikat) nami-nami bendo niki." Dadesnyo sesampun disung wikankenyo kepado malaikat niku nami-nami bendo niku, Allah befirman: "Didinyoka sampun Kulo kelapke kepado niko, bahwo selesernyo Kulo wikan resio langit serto bumi serto wikan napi yên niko lahirke serto yên niko singitke?"
@@ -241,27 +169,17 @@ Allah befirman: "Hei Adam, sung wikan kepado mereka (Malaikat) nami-nami bendo n
 
 Serto (imutla) ketiko Kame’ befirman kepado sedanten Malaikat: "Sujudla [^37] niko kepado Adam," Dadesnyo sujudla sedanten malaikat niku, kacowali Iblis; io nano ayun serto takabur serto wênten la io temasuk golongan sedanten wong yên kafir.
 
-[^37]: Sujud di niki retinyo ngehorpadem dan memuliakan Adam, didinyo sujud menghambakan diri, kerno sujud menghambakan diri niku saoslah semata-mata kepado Allah.
-
 ## 2:35
 
 Serto Kame’ befirman: "Hei Adam, mantepla niko teko sema niko di suargo niki, serto nedola tedoan-tedoannyo yên kata male sae dipundi saos yên niko demeni, serto nano angsal niko mara’i pohon niki [^38] , yên mengkin nyebabke niko temasuk wong yên zalim.
-
-[^38]: Pohon yên dilarang Allah mendekatinyo nano angsal dipastiken, sebab Al Quran serto Hadist nano nerangkenyo. wênten yên menamikenyo pohon khuldi peca’ tersebut di jerû surat Thaha ayat 120, tapi niku wêntenla nami yên disungke belis.
 
 ## 2:36
 
 Sampun niku keduonyo dipelesetke ole belis dari suargo niku [^39]  serto dimetuke dari keadaan semulo  [^40] serto Kame’ befirman: "Turunla niko! sebagian niko dades musu bagi yên lian, serto bagi niko wênten panggonan di bumi, serto kesenengan urip sampi waktu yên dicengkike."
 
-[^39]: Adam dan hawa dengen tipu daya belis nedo buah pohon yên dilarang niku, yên mengakibatke keduo iko'nya metu dari suargo, dan Allah ngengken mereka niku turun ke dunio. yên dimaksud dengen belis di niki, nikula belis yên dikelapke jerû surat Al Baqarah ayat 34 di pucuk.
-
-[^40]: Maksud Keadaan semulo nikula kenikmatan, kemewahan serto kemuliaan durip di jerû suargo.
-
 ## 2:37
 
 Sampun niku Adam nerimo pinten-pinten kalimat [^41] dari Tuhannyo, Dadesnyo Allah nerimo taubatnyo. Selesernyo Allah Maha Penerimo taubat male Maha Penyayang.
-
-[^41]: Tentang pinten-pinten kalimat (ajaran-ajaran) dari Tuhan yên diterimo ole Adam sebagian ahli tafsir ngertikenyo dengen kelapan peranti betaubat saos.
 
 ## 2:38
 
@@ -275,10 +193,6 @@ Wênten jugo sedanten wong yên kafir dustoke ayat-ayat Kame’, mereka niku dad
 
 Hei Bani Israil [^42], imutla nikmat-Kulo yên sampun kulo anugerake kepado niko, serto penuila semayoan niko kepado-Kulo [^43] , niscayo Kulo penuhi semayoan-Kulo kepado niko; serto kepado-Kulo saos niko mesti wedhi (tunduk).
 
-[^42]: Israil wêntenla aranan bagi Nabi Ya'qub. Bani Israil wêntenla turunan Nabi Ya'qub; mak niki dinten tekenal dengen bangsa Yahudi.
-
-[^43]: Semayoan Bani Israil kepado Tuhan nikula: bahwo mereka niku ayun nyemba Allah serto nano memperrewangke-Nyo dengen sesios napi jugo, serto beriman kepado rasul-rasul-Nyo di antaranyo Nabi Muhammad s.a.w. peca’ yên terkelap di jerû Taurat.
-
 ## 2:41
 
 Serto beriman la niko kepado napi yên sampun kulo turunke (Al Quran) yên meleserke napi yên wênten pado niko (Taurat), serto nano angsal niko dades wong yên paling bungaran kafir kepadonyo, nano angsal niko nukarke ayat-ayat-Kulo ngen hargo yên renda, serto kepado Kulo saos niko mesti betakwa.
@@ -287,13 +201,9 @@ Serto beriman la niko kepado napi yên sampun kulo turunke (Al Quran) yên meles
 
 Serto nano angsal niko campur adukke yên haq ngen yên bathil serto nano angsal niko nyingitke yên haq niku [^44], sedengke niko wikan.
 
-[^44]: Di antaro yên mereka singitke,  nikula: Tuhan ayun ngkengken sesios Nabi dari keturunan Ismail yên ayun bangun umat yên ageng di belakang dinten, yak’ni Nabi Muhammad s.a.w.
-
 ## 2:43
 
 Serto tega’ke semayang, tunaike zakat serto ruku'la beserto sedanten wong yên ruku' [^45] .
-
-[^45]: Yên dimaksud nikula: semayang bejama'ah serto angsal pula diretike: tundukla kepado perinta-perinta Allah besami-sami sedanten wong yên tunduk.
 
 ## 2:44
 
@@ -311,13 +221,9 @@ Dadeskela sabar serto semayang sebagi penolongmu. Serto selesernyo yên ma'niku 
 
 Hei Bani Israil, imutla sami nikmat-Kulo yên sampun kulo anugerake kepado niko serto (imutla pulo) bahwosanyo Kulo sampun langkungke niko atas sedanten umat [^46] .
 
-[^46]: Bani Israil yên sampun disungi rahmat ole Allah serto dilebikenyo dari sedanten umat nikula nenek moyang mereka yên berado di masa Nabi Musa a.s.
-
 ## 2:48
 
 Serto jagola diri niko dari azab dinten kiamat, yên pado dinten niku sesios wong nano angsal belo wong lian, walau setiti’; serto ma'niku pulo nano diterimo syafa'at [^47] serto tebusan dari padonyo, serto nanola mereka niku ayun ditolong.
-
-[^47]: Syafa'at: usaha perantaroan jerû ngesungke sesios manfaat bagi wong lian atawa ngelakke sesios mudharat bagi wong lian. Syafa'at yên nano diterimo di sisi Allah wêntenla syafa'at bagi sedanten wong kafir.
 
 ## 2:49
 
@@ -327,13 +233,9 @@ Serto, imutla sewaktu Kame’ selamet niko dari Fir'aun serto pengikut-pengikutn
 
 Serto (imutla) sewaktu Kame’ bela laut peranti niko, sampun niku Kame’ selametke niko serto Kame’ tenggelemke (Fir'aun) serto pengikut-pengikutnyo dengen niko dewek nyaksike [^48] .
 
-[^48]: Waktu Nabi Musa a.s. makto Bani Israil ke luar dari negeri Mesir nuju Palestina serto dikejer ole Fir'aun, mereka mesti melalui laut merah sebela Utara. Dadesnyo Tuhan merintake kepado Musa ngepuk laut niku dengen tongkatnyo. perinta niku dilaksanake ole Nabi Musa hingga neta’ laut niku serto tebentangla tembokan ditengah-tengahnyo serto Musa lewat jalan niku sampi selamatla io serto gugu'nyo ke seberang, sedengke Fir'aun serto pengikut-pengikutnyo lewat jalan niku pulo, tapi sewaktu mereka niku wênten di tenga-tenga laut, mantu’la laut niku peca’ biaso, sampun niku tenggelemla mereka.
-
 ## 2:51
 
 Serto (imutla) sewaktu Kame’ besemayoan kepado Musa (ngesungke Taurat) sesampun empat pulu bengi. Sampun niku niko dadeske anak lembu [^49] (sebagi sembahan niko) sepeninggalnyo serto niko wêntenla wong-wong yên zalim.
-
-[^49]: Anak lembu niku dibuat mereka niku dari emas peranti disemba.
 
 ## 2:52
 
@@ -347,33 +249,21 @@ Serto (imutla), sewaktu Kame’ sungke kepado Musa Al kitab (Taurat) serto keter
 
 Serto (imutla), sewaktu Musa bekelap kepado kaumnyo: "Hei kaum ku, Selesernyo niko sampun nganiayo diri niko dewek kerno niko sampun dadeske anak lembu (sembahan niko), Dadesnyo taubatla kepado Tuhan yên dadeske niko serto bunula diri niko [^50] . hal niku wêntenla langkung sae bagi niko pado sisi Tuhan yên dadeske niko; Dadesnyo Allah ayun nerimo taubat niko. Selesernyo Dio Yen Maha Penerima taubat jugo Maha Penyayang."
 
-[^50]: Bunu awak niko wênten yên ngertike: sedanten wong yên nano nyemba anak lembu niku munu wong yên nyembanyo. wênten jugo yên ngertike: wong yên nyemba patung anak lembu niku saling munu, serto wênten pulo yên ngertike: mereka niku dikengken munu awak mereka niku dewek-dewek peranti bertaubat.
-
 ## 2:55
 
 Serto (imutla), sewaktu niko bekelap: "Hei Musa, Kame’ nano ayun beriman kepado niko sedereng Kame’ ningal Allah ngen terang [^51] , kerno niku niko disamber halilintar, sedeng niko nyaksikenyo [^52] ".
-
-[^51]: Maksudnyo: meningal Allah dengen mato kepala.
-
-[^52]: Kerno tedoan yên mak niki nunju’ke keinagkaran serto ketakaburan mereka, sebab niku mereka niku disamber halilintar sebagi azab dari Tuhan.
 
 ## 2:56
 
 Sesampun niku Kame’ bangkitke niko sesampun niko padem [^53] , supayo niko besyukur.
 
-[^53]: Yên dimaksud dengen padem di ngeriki kelap sebagian mufassirin nikula: padem yên selesernyo, serto kelap sebagian yên lian nikula: pingsan akibat samberan gledek.
-
 ## 2:57
 
 Dan Kame’ naungi niko ngen awan, serto Kame’ nurunke kepado niko "manna" serto "salwa" [^54] . nedola dari tedoan yên sae-sae yên sampun Kame’ sungke kepado niko; serto nanola mereka niku nganiayo Kame’; namun mereka nikula yên nganiayo diri mereka dewek.
 
-[^54]: Sala sios nikmat Tuhan kepado mereka  Nikula: wong-wong niku sesampun niku dinaungi awan sewaktu mereka niku melaku di panas terik padang pasir. manna nikula: tedoan manis sebagi madu. Salwa nikula: burung sebangso puyuh.
-
 ## 2:58
 
 Serto (imutla), sewaktu Kame’ befirman: "Melebula niko ke negeri niki (Baitul Maqdis), serto nedola dari hasil buminyo, yên kata jugo lazit dipundi saos yên niko demeni, serto melebula ke lawang gerbangnyo sambil besujud [^55] , serto Kelapkela: "Bebaskela Kame’ dari doso", cengki Kame’ ampuni kesalahan-kesalahan niko, serto mengkin Kame’ ayun nambah (sungan Kame’) kepado sedanten wong yên bedamel sae".
-
-[^55]: Maksudnyo kelap sebagian ahli tafsir: nundu’ke awak.
 
 ## 2:59
 
@@ -383,8 +273,6 @@ Sampun niku sedanten wong yên zalim ngenti perinta dengen (namelke) yên nano d
 
 Serto (imutla) sewaktu Musa mohon banyu peranti kaumnya, sampun niku Kame’ befirman: "Gebokla batu niku ngen tongkat niko". sampun niku mancarla daripadonyo dua belas mato banyu. selesernyo saben-saben suku sampun wikan wada ngumbenyo (dewek-dewek) [^56] . Nedo serto ngumbela rezki (yen disungke) Allah, serto nano angsal niko belamburan di muko bumi ngen damelke kerusakan.
 
-[^56]: Nikula sekata suku Bani Israil peca’ tersebut jerû surat Al A'raaf ayat 160.
-
 ## 2:61
 
 Serto (imutla), sewaktu niko bekelap: "Hai Musa, Kame’ nano angsal sabar ngen sios macam nedoan saos. sebab niku pintake kame’ kepado Tuhan niko, supayo Dio metuke bagi kame’ dari napi yên ditumbuke bumi, yakni sayur-mayurnyo, timunnyo, bawang putihnyo, kacang adasnyo, serto bawang abangnyo". Musa bekelap: "Ayun dak niko ngembil yên endep sebagi pengenti yên langkung sae? Kesanala niko ke sios kota, pasti niko angsal napi yên niko tedo". sampun niku ditimpokela kepado mereka niku nisto serto kehinoan, serto mereka niku angsal kemurkoan dari Allah. Yên ma'niku (tedades) kerno mereka niku sampun ngingkari ayat-ayat Allah serto munu sedanten Nabi yên memang nano dileserke. ma'niku (tedades) kerno mereka niku sampun namelke durhako serto keliwatan.
@@ -392,12 +280,6 @@ Serto (imutla), sewaktu niko bekelap: "Hai Musa, Kame’ nano angsal sabar ngen 
 ## 2:62
 
 Selesernyo sedanten wong mukmin, sedanten wong Yahudi, sedanten wong Nasrani serto sedanten wong Shabiin [^57], sinten saos diantaro wong-wong niku yên selesernyo beriman kepado Allah [^58] , dinten kiamat serto beramal soleh [^59] , mereka niku ayun nerimo pahalo dari Tuhan mereka niku, nano wênten kekhawatiran kepado mereka niku, serto nano (pulo) mereka niku pilu ati.
-
-[^57]: Shabiin nikula sedanten wong yên numuti syari'at nabi-nabi zaman kerehen atawa sedanten wong yên nyemba bintang atawa dewa-dewa.
-
-[^58]: Sedanten wong mukmin ma'niku jugo wong Yahudi, Nasrani serto Shabiin yên beriman kepado Allah temasuk iman kepado Muhammad s.a.w., yakin kepado dinten kiamat dan namelke amalan sole, mereka niku angsal pahalo dari Allah.
-
-[^59]: Nikula damelan yên sae yên diperintake agami Islam, sae yên behubungan dengen agamo atawa nano.
 
 ## 2:63
 
@@ -411,10 +293,6 @@ Sampun niku niko bepaling sesampun (wêntennyo semayoan) niku, Dadesnyo kalu nan
 
 Serto selesernyo sampun niko wikani sedanten wong yên ngelanggar di antaro niko pado dinten Sabtu [^60] , sampun niku Kame’ berfirman kepado mereka niku: "Dadesla niko beruk [^61] yên hino".
 
-[^60]: Dinten Sabtu nikula dinten yên khusus peranti beribadat bagi sedanten wong Yahudi.
-
-[^61]: Sebagian ahli tafsir mandang bahwo niki sebagai sios perumpamoan, retinyo ati mereka niku memper ati beruk, kerno sami-sami nano nerimo nasehat serto peringetan. Pendapet jumhur mufassir nikula mereka niku selesernyo beubah dades beruk, saos nano beranak, nano nedo dan ngumbi, serto urip nano lebi dari telu dinten.
-
 ## 2:66
 
 Dadesnyo Kame’ dadeske yên ma'niku peringetan bagi sedanten wong di waktu niku, serto bagi mereka niku yên rawu sesampun niku, serto dades pelajaran bagi sedanten wong yên betakwa.
@@ -422,8 +300,6 @@ Dadesnyo Kame’ dadeske yên ma'niku peringetan bagi sedanten wong di waktu nik
 ## 2:67
 
 Serto (imutla), sewaktu Musa bekelap kepado kaumnyo: "Selesernyo Allah ngengken niko nyemle sios sapi betino." mereka niku bekelap: "napi niko ayun dadeske Kame’ bua ejekan?" [^62] Musa nyawab: " Kulo belindung kepado Allah supayo nano dades sala sios wong dari sedanten wong yên jail".
-
-[^62]: Hikma Allah ngengken nyemele sapi nikula supayo lenget raso penghormatan mereka niku tehadep sapi yên perna mereka sembah.
 
 ## 2:68
 
@@ -441,8 +317,6 @@ Mereka niku bekelap: "Mohonkela kepado Tuhan niko peranti kame’ supayo Dio ner
 
 Musa bekelap: "Selesernyo Allah befirman bahwo sapi betino niku wêntenla sapi betino yên dereng perna digunoke peranti majak tana serto nano pulo peranti manyui taneman, nano becacat, nano wênten belangnyo." wong-wong niku bekelap: "Mak niki dinten barula niko nerangke hakikat sapi betino yên selesernyo". sampun niku mereka nyemelenya serto ampir saos mereka nano namelke perintah niku [^63] .
 
-[^63]: Kerno sapi yên sesuai syarat yên dikelapke niku saro diperole, ampir mereka nano angsal nemukenyo.
-
 ## 2:72
 
 Serto (imutla), sewaktu niko munu sios wong sampun niku niko saling nudu tentang niku. serto Allah ayun nyingkepke napi yên selamo niki niko nyingitke.
@@ -450,8 +324,6 @@ Serto (imutla), sewaktu niko munu sios wong sampun niku niko saling nudu tentang
 ## 2:73
 
 Sampun niku Kame’ befirman: "Gebokla mayet niku ngen sebagian anggota sapi betino niku !" ma'nikula Allah nguripke male sedanten wong yên sampun padem, serto ningalke pado niko alamat kekuasoanNyo supayo niko wikan [^64] .
-
-[^64]: Kelap jumhur mufassirin ayat niki wênten hubungannyo dengen peristiwo yen didamelke ole sios wong dari Bani Israil. dewek-dewek mereka niku saling nudu tentang sinten yên munu niku. sesampun mereka makto masala niku kepado Musa a.s., Allah ngengken mereka nyemele sesios sapi betino supayo wong yên tebunu niku angsal urip male serto nerangke sinten yên mununyo sesampun digebuk dengen sebagian badan sapi niku.
 
 ## 2:74
 
@@ -461,13 +333,9 @@ Sesampun niku ati niko dades keras pecak batu, bahkan keras banget. Padohal dian
 
 Napi niko maler ngarepke mereka niku ayun pecayo kepado niko, Padohal segolongan dari mereka niku ngerunguke firman Allah, sampun niku mereka niku ngubanyo sesampun mereka mahaminyo, deng mereka niku wikan? [^65]
 
-[^65]: Yên dimaksud nikula nenek-moyang mereka yên nyimpen Taurat, sampun niku Taurat niku diobah-obah mereka; di antaronyo sifat-sifat Nabi Muhammad s.a.w. yên tesebut jerû Taurat niku.
-
 ## 2:76
 
 Serto napi bilo mereka niku kepanggi ngen sedanten wong yên beriman, mereka bekelap:" Kame’pun sampun beriman," tapi napi bilo mereka besami mereka saos, sampun niku mereka bekelap: "Napi dio niko nyerioske kepado wong-wong niku (sedanten wong mukmin) napi yên sampun diterangke Allah kepado niko, supayo ngen ma'niku mereka niku angsal ngalake hujjah niko di adepan Tuhan niko; nanoka niko wikan?" [^66]
-
-[^66]: Sebagian Bani Israil yên ngaku beriman kepado Nabi Muhammad s.a.w niku perna becerios kepado sedanten wong Islam, bahwo jerû Taurat memang dikelapke tentang kerawuan Nabi Muhammad s.a.w. Dadesnyo golongan lian negur mereka niku dengen ngelapke: "Menapi niko nyerioske hal niku kepado sedanten wong Islam sehinggo hujjah wong-wong niku betamba kuat?"
 
 ## 2:77
 
@@ -476,8 +344,6 @@ Nanoka wong-wong niku wikan bahwo Allah wikan sedanten yên mereka nyingitke ser
 ## 2:78
 
 Serto diantaro mereka niku wênten yên buto uruf, nano wikan Al-kitab (Taurat), kacowali dongengan bohongan saos serto yên mereka dugo saos [^67] .
-
-[^67]: Kekataan bangsa Yahudi niku buto urup, serto nano wikan isi Taurat selian dari dongeng-dongeng yên dicerioske pendeta-pendeta mereka saos.
 
 ## 2:79
 
@@ -507,8 +373,6 @@ Serto (imutla), sewaktu Kame’ ngembil semayoan dari niko (yakni): niko nano ay
 
 Sampun niku niko (Bani Israil) munu awak niko (dulur niko sebangso) serto ngusir segolongan daripado niko dari kampung halamannyo, niko bantu membantu tehadep wong-wong niku dengen muat doso serto pemusuan; tapi kalu wong-wong niku rawu kepado niko sebagi tawanan, niko tebus mereka niku, Padohal ngusir mereka niku (juga) nano angsal bagi niko. Napi dio niko beriman kepado sebagian Al-kitab (Taurat) serto ingkar tehadep sebagian yên lian? Nano wêntenla balasan bagi wong yên bedamel ma'niku dari pado niko, melianke kenistoan jerû keuripan dunio, serto pado dinten kiamat mereka niku dimantu’ke kepado sikso yên berat sanget. Allah nano lengo dari napi yên niko damelke [^68] .
 
-[^68]: Ayat niki bekenoan dengen cerita wong Yahudi di Madinah pado pemuloan Hijrah. Yahudi Bani Quraizhah berencang dengen suku Aus, serto Yahudi dari Bani Nadhir berencang dengen sedanten wong Khazraj. antara suku Aus serto suku Khazraj sedereng Islam sesampun niku wente pesengketoan serto peperangan yên nyebabke Bani Quraizhah nolong Aus serto Bani Nadhir nolong sedanten wong Khazraj. sampe antaro keduo iko' suku Yahudi niku tedades peperangan serto tangkep-menangkep, kareno nolong rencangnyo. tapi kalu sampun niku wênten sedanten wong Yahudi tetawan, Dadesnyo keduo iko' suku Yahudi niku besepakat peranti nebusnyo meski wong-wong niku sederengnyo beperang-perangan.
-
 ## 2:86
 
 Nikula sedanten wong yên numbas keuripan dunio dengen (keuripan) akhirat, Dadesnyo nano ayun dientengke siksoan mereka serto mereka nano ayun ditolong.
@@ -516,8 +380,6 @@ Nikula sedanten wong yên numbas keuripan dunio dengen (keuripan) akhirat, Dades
 ## 2:87
 
 Serto selesernyo Kame’ sampun nurunke Al-kitab (Taurat) kepado Musa, serto Kame’ sampun nyusulinyo (beturut-turut) sesampun niku dengen rasul-rasul, serto sampun Kame’ sungke bukti-bukti keleseran (mukjizat) kepado Isa putro Maryam serto Kame’ nguatkenyo dengen Ruhul Qudus [^69] . Napi dio sedantennyo rawu kepado niko sios wong Rasul makto sesios (pelajaran) yên nano sami (tepat) dengen keayunan niko sampun niku niko congkak; Dadesnyo pinten-pinten wong (diantaro mereka niku) niko budike serto pinten-pinten wong (yên lian) niko bunu?
-
-[^69]: Maksudnyo: kedadesan Isa a.s. wêntenla kedadesan yên luar biaso, nano wênten bapak, nikula dengen tiupan Ruhul Qudus ole Jibril kepado diri Maryam. niki termasuk mukjizat Isa a.s. kelap jumhur musafirin, bahwo Ruhul Qudus niku nikula Malaikat Jibril.
 
 ## 2:88
 
@@ -527,15 +389,9 @@ Serto mereka niku bekelap: "ati kame’ tetutup". tapi selesernyo Allah sampun n
 
 Serto sesampun rawu kepado wong-wong niku Al Quran dari Allah yên ngeleserke napi yên wênten pado wong-wong niku [^70] , Padohal sederengnya wong-wong niku biaso mohon (kerawuan Nabi) peranti angsal kemenangan atas sedanten wong kafir, Dadesnyo sesampun rawu kepado wong-wong niku napi yên sampun wong-wong niku wikani, wong-wong niku sampun niku ingkar kepadonya. Dadesnyo la'nat Allah-la peranti sedanten wong yên ingkar niku.
 
-[^70]: Maksudnyo kerawuan Nabi Muhammad s.a.w. yên wênten di jerû Taurat dipundi diterangke sifat-sifatnyo.
-
 ## 2:90
 
 Alangke jahatnyo (damelan) wong-wong niku yên besadi awaknyo dewek dengen kekafiran kepado napi yên sampun diturunke Allah, kerno dengki bahwo Allah nyampa’ke kurnia-Nyo [^71] kepado sinten yên diayuni-Nyo diantaro hamba-hamba-Nyo. kerno niku wong-wong niku angsal murko sesampun (angsal) kemurkoan [^72] . serto peranti sedanten wong kafir siksoan yên nginoke.
-
-[^71]: Maksudnyo: Allah nurunke wahyu (kenabian) kepado Muhammad s.a.w.
-
-[^72]: Maksudnyo: wong-wong niku angsal kemurkoan yên belipet-ganda nikula kemurkoan kerno nano beriman kepado Muhammad s.a.w. serto kemurkaan yên disebabke damelan wong-wong niku kerehen, Yakni munuh Nabi, mudikenyo, ngoba isi Taurat serto liannyo.
 
 ## 2:91
 
@@ -545,19 +401,13 @@ Serto napi bilo dikelapke kepado wong-wong niku: "Berimanla kepado Al Quran yên
 
 Selesernyo Musa sampun rawu kepado niko makto bukti-bukti keleseran (mukjizat), sampun niku niko dadeske anak sapi (sebagi sembahan) sesampun kesanyo [^73] , serto selesernyo niko wêntenla sedanten wong yên zalim.
 
-[^73]: Maksudnyo kesa Musa a.s. ke bukit Thur yên wênten di Sinai, sesampun dirawuke kepadonyo mukjizat-mukjizat
-
 ## 2:93
 
 Serto (imutla), sewaktu Kame’ ngembil semayoan dari niko serto Kame’ angkat bukit (Thursina) di pucu’ niko (serayo Kame’ befirman): "Cekella tegu-tegu napi yên Kame’ sungke kepado niko serto kerungukela!" wong-wong niku nyawab: "Kame’ ngerungu tapi nano naati". serto sampun diresepke ke jerû ati wong-wong niku (kecintoan nyemba) anak sapi kareno kekafirannyo. Kelapkela: " jahat nian [^74] damelan yên sampun dikengken iman niko kepado niko kalu betul niko beriman (kepado Taurat).
 
-[^74]: damelan jahat yên wong-wong niku damelke nikula nyemba anak sapi, munu nabi-nabi serto ngesertoggar semayoan.
-
 ## 2:94
 
 Kelapkela: "Kalu niko (nganggep bahwo) kampung akhirat (suargo) niku khusus peranti niko di sisi Allah, didinyo peranti wong lian, Dadesnyo pengenila [^75] kepademan (niko), kalu nikonyo memang leser.
-
-[^75]: Maksudnyo: kelapla supayo niko dipademke mak niki dinten jugo.
 
 ## 2:95
 
@@ -591,14 +441,6 @@ Serto sesampun rawu kepado wong-wong niku sios Rasul dari sisi Allah yên ngeles
 
 Serto wong-wong niku numuti napi [^76] yên dibaco ole belis-belis [^77] pado maso kerajoan Sulaiman (serto wong-wong niku ngelapke bahwo Sulaiman niku namelke sihir), Padohal Sulaiman nano kafir (nano namelke sihir), belis-belis saosla yên kafir (namelke sihir). wong-wong niku ngajarke sihir kepado wong serto napi yên diturunke kepado duo malaikat [^78] di negeri Babil nikula Harut serto Marut, deng keduonyo nano ngajarke (sesios kepado sios wong sedereng ngelapke: "Selesernyo kame’ saos cobaan (bagi niko), sebab niku nano angsal niko kafir". Dadesnyo wong-wong niku melajari dari keduo Malaikat niku napi yên dengen sihir niku, wong-wong niku angsal nyereike antara sios wong (domik) sami semanyo [^79] . serto wong-wong niku (ahli sihir) nano ngesung mudharat dengen sihirnyo kepado sios wong jugo, kacowali dengen izin Allah. serto wong-wong niku melajari sesios yên nano ngesung mudharat kepadonyo serto nano ngesung manfaat. Demi, selesernyo wong-wong niku sampun yakin bahwo sinten saos yên nukarnyo (kitab Allah) dengen sihir niku, nano wêntenla baginyo keuntungan di akhirat, serto jahat nian damelan wong-wong niku besadi awaknyo dengen sihir, kalu wong-wong niku wikan.
 
-[^76]: Maksudnyo: Kitab-Kitab sihir.
-
-[^77]: Belis-belis niku nyebarke berito-berito bohong, bahwo Nabi Sulaiman nyimpen lembaran-lembaran sihir (Ibnu Katsir).
-
-[^78]: Sedanten mufassirin berlianan Pendapet tentang yên dimaksud dengen 2 wong Malaikat niku. wênten yên bependapet, wong-wong niku selesernyo Malaikat serto wênten pulo yên bependapet wong yên dipandang sole pecak Malaikat serto wênten pulo yên bependapet dua wong jahat yên eca’-eca’ sole pecak malaikat.
-
-[^79]: macem-macem sihir yên didamelke wong Yahudi, sampi kepado sihir peranti nyerei-bereike masyarakat pecak nyerei-bereike laki bini.
-
 ## 2:103
 
 Selesernyo kalau wong-wong niku beriman serto betakwa, (cengki wong-wong niku akan angsal pahalo), serto selesernyo pahalo dari sisi Allah wêntenla langkung sae, kalau wong-wong niku wikan.
@@ -607,8 +449,6 @@ Selesernyo kalau wong-wong niku beriman serto betakwa, (cengki wong-wong niku ak
 
 Hei sedanten wong yên beriman, nano angsal niko kelapke (kepado Muhammad): "Raa'ina", tapi Kelapkela: "Unzhurna", serto "rungula". Serto bagi sedanten wong kafir siksoan yên pedi [^80] .
 
-[^80]: Raa 'ina retinyo: sudila kironyo niko merhatike Kame’. Sewaktu sedanten rencang ngadepke kelap niki kepado Rasulullah, wong Yahudi nadeske kelap niki dengen digumam mak kayo kelap Raa'ina Padohal yên wong-wong niku kelapke nikula Ru'uunah yên retinyo benga’ nian, sebagi olo’an kepado Rasulullah. Nikula sebabnyo Tuhan ngengken supayo rencang-rencang nukar kelapan Raa'ina dengen Unzhurna yên jugo sami retinyo dengen Raa'ina.
-
 ## 2:105
 
 Wong-wong kafir dari ahli kitab serto wong-wong musyrik nano pengen diturunkenya sesios kesaean kepado niko dari Tuhan niko. Serto Allah nentuke sinten yên diayuni-Nyo (peranti disung) rahmat-Nyo (kenabian); serto Allah wênten karunia yên ageng.
@@ -616,8 +456,6 @@ Wong-wong kafir dari ahli kitab serto wong-wong musyrik nano pengen diturunkenya
 ## 2:106
 
 Ayat pundi saos [^81] yên Kame’ nasakhkan, atawa Kame’ dadeske (wong) lali kepadonyo, Kame’ rawuke yên langkung sae daripadonyo atawa yên sebanding ngennyo. Nano ka niko wikan bahwo selesernyo Allah Maha Kuasa atas sedanten sesios ?
-
-[^81]: Sedanten mufassirin berlianan pendapet tentang arti ayat niki, wênten yên ngertike ayat Al Quran, serti wênten yên ngertike mukjizat.
 
 ## 2:107
 
@@ -630,8 +468,6 @@ Napika niko ngayuni peranti nedo kepado Rasul niko pecak Bani Israil nedo kepado
 ## 2:109
 
 Sebagian ageng ahli kitab menginginkan supayo wong-wong niku angsal mantu’ke niko kepado kekafiran sesampun niko beriman, kerno dengki yên (metu) dari diri wong-wong niku dewek, sesampun nyato bagi wong-wong niku keleseran. dades ma'afkela serto biarkela wong-wong niku, sampi Allah nurunke perinta-Nyo [^82] . Selesernyo Allah Maha Kuaso atas sedanten sesios .
-
-[^82]: Maksudnyo: keizinan merangi serto ngusir wong Yahudi.
 
 ## 2:110
 
@@ -657,8 +493,6 @@ Serto sinten saos yên langkung aniayo daripado wong yên ngalangi wong ngelapke
 
 Serto milik Allah-la saos timur serto barat, dades kepundi jugo niko ngadep di ngerikula rai Allah [^83] . Selesernyo Allah Maha Luas (rahmat-Nyo) male Maha wikan.
 
-[^83]: Dingeriku rai Allah Maksudnyo; kekuasoan Allah ngelingkupi sedanten alam; sebab niku di pundi saos wong wênten, Allah wikan damelannyo, kerno io sesampun niku berhadapan dengen Allah.
-
 ## 2:116
 
 Wong-wong kafir niku bekelap: "Allah ngewênteni anak". Maha suci Allah, bahkan napi yên wênten di langit serto di bumi wêntenla milik Allah; sedanten tunduk kepado-Nyo.
@@ -683,33 +517,21 @@ Sedanten wong Yahudi serto Nasrani nano ayun demen kepado niko hinggo niko numut
 
 Sedanten wong yên sampun Kame’ sungke Al kitab kepadonyo, wong-wong niku maconyo ngen bacoan yen selesernyo [^84] , wong-wong niku beriman kepadonyo. Serto sinten saos yên ingkar kepadonyo, dades wong-wong niku la sedanten wong yên rugi.
 
-[^84]: Maksudnyo: nano ngeroba serto nakwilke Al kitab seayun atinyo.
-
 ## 2:122
 
 Hei Bani Israil, imutla sami nikmat-Kulo yên sampun Kulo anugerake kepado niko serto kulo sampun langkungke niko atas sedanten umat [^85] .
-
-[^85]: Maksudnyo: umat yên semaso dengen Bani Israil.
 
 ## 2:123
 
 Serto wedhila niko kepado siodinten sewaktu sesios wong nano angsal ngentike [^86] sesios wong lian setiti’ jugo serto nano ayun diterimo sios tebusan daripadonyo serto nano ayun ngesung manfaat sesios syafa'at kepadonyo serto nano (pulo) wong-wong niku ayun ditolong.
 
-[^86]: Maksudnyo: doso serto pahalo sesios wong nano angsal dipindake kepado wong lian.
-
 ## 2:124
 
 Serto (imutla), sewaktu Ibrahim diuji [^87] Tuhannyo dengen pinten-pinten kalimat (perinta serto larangan), sampun niku Ibrahim nunaikenyo. Allah befirman: "Selesernyo kulo ayun dadeske niko imam peranti sedanten wong". Ibrahim bekelap: "(serto kulo mohon jugo) dari beroyot kulo" [^88] . Allah befirman: "Semayoan Kulo (niki) nano ngenai wong yên zalim".
 
-[^87]: Ujian tehadep Nabi Ibrahim a.s. di antaronyo: mangun Ka'bah, mersike ka'bah dari musyrik, ngorbanke anaknyo Ismail, ngadepi raja Namrudz dan liannyo.
-
-[^88]: Allah sampun ngabulke doa Nabi Ibrahim a.s., kerno kata di antara Rasul-rasul niku wêntenla keturunan Nabi Ibrahim a.s.
-
 ## 2:125
 
 Serto (imutla), sewaktu Kame’ dadeske rompok niku (Baitullah) panggonan haderengan bagi wong serto panggonan yên aman. serto dadeskela sebagian maqom Ibrahim [^89] panggona semayang. serto sampun Kame’ perintake kepado Ibrahim serto Ismail: "Bersikela rompok Kulo peranti sedanten wong yên thawaf, yên i'tikaf, yên ruku' serto yen sujud".
-
-[^89]: Nikula panggonan tegak Nabi Ibrahim a.s. sewaktu namelke Ka'bah.
 
 ## 2:126
 
@@ -730,8 +552,6 @@ Ya Tuhan kame’, kengkenla peranti wong-wong niku sios Rasul dari gugu'wong-won
 ## 2:130
 
 Serto nano wênten yên benci kepado agami Ibrahim, melianke wong yên mem- benga’i awaknyo dewek, serto selesernyo kame’ sampun milinyo [^90] di dunio serto selesernyo dio di akhirat selesernyo temasuk sedanten wong yên sole.
-
-[^90]: Di antaronyo dades; Imam, rasul, kata keturunannyo yên dades Nabi, disung gelar khalilullah.
 
 ## 2:131
 
@@ -765,8 +585,6 @@ Dadesnyo kalu wong-wong niku beriman kepado napi yên niko sampun beriman kepado
 
 Shibghah Allah [^91] . Serto sinten yen langkung sae shibghahnyo dari pado Allah? serto kepado-Nya-lah kame’ nyemba.
 
-[^91]: Shibghah retinyo celupan. Shibghah Allah: celupan Allah yên retinyo iman kepado Allah yên nano disertoi dedengen kemusyrikan.
-
 ## 2:139
 
 Kelapkela: "Napi dio yen niko perdebatke ngen kame’ tentang Allah, Padohal Dia wêntenla Tuhan kame’ serto Tuhan niko; bagi kame’ amalan kame’, serto bagi niko amalan niko serto cuma kepado-Nya kame’ ngikhlaske ati,
@@ -774,8 +592,6 @@ Kelapkela: "Napi dio yen niko perdebatke ngen kame’ tentang Allah, Padohal Dia
 ## 2:140
 
 Atawaka niko (hei sedanten wong Yahudi serto Nasrani) ngelapke bahwo Ibrahim, Isma'il, Ishaq, Ya'qub serto anak cucungnyo, wêntenla penganut agamo Yahudi atawa Nasrani?" Kelapkela: "Napika niko langkung wikan atawaka Allah, serto sinten yên langkung zalim dari pado wong yên nyingitke syahada dari Allah [^92] yên wênten padonyo?" serto Allah selesernyo nano lenga dari napi yên niko damelke.
-
-[^92]: Syahadah dari Allah nikula persaksian Allah yen tersebut di jerû Taurat dan Injil bahwo Ibrahim a.s. serto beroyot ondon didinyo penganut agama Yahudi atawa Nasrani serto bahwo Allah ayun ngkengken Muhammad s.a.w.
 
 ## 2:141
 
@@ -785,21 +601,13 @@ Niku wêntenla umat yên sampun lambat; baginyo napi yên diusahokenyo serto bag
 
 Wong-wong yen kirang akalnyo [^93] diantaro wong ayun bekelap: "Napi dio yen malingke wong-wong niku (umat Islam) dari kiblatnyo (Baitul Maqdis) yen dumin wong-wong niku sampun bekiblat kepadonya?" Kelapkela: "Milik Allah-la saos timur serto barat; Dia ngesung hidayah kepado sinten yen diayuni-Nyo ke jalan yen sae" [^94] .
 
-[^93]: Maksudnyo: nikula sedanten wong yen kirang pikirannyo sehinggo nano angsal mahami maksud pemindahan kiblat.
-
-[^94]: Sewaktu Nabi Muhammad s.a.w. wênten di Mekah di tengah-tengah gugu' musyirikin beliau bekiblat ke Baitul Maqdis. tapi sesampun 16 atawa 17 bulan Nabi wênten di Madinah ditenga-tengah\ wong Yahudi serto Nasrani beliau dikengken ole Tuhan peranti ngembil ka'bah dades kiblat, terutamo sekali peranti ngesung pengertian bahwo jerû ibadat semayang niku didinyola ara Baitul Maqdis serto ka'bah niku dades tujuan, tapi ngadepke diri kepado Tuhan. peranti persiosan umat Islam, Allah dadeske ka'bah sebagi kiblat.
-
 ## 2:143
 
 Serto mak niku (pulo') Kame’ sampun dadeske niko (umat Islam), umat yen adil serto pilenan [^95] supayo niko dades saksi atas (damelan) wong serto supayo Rasul (Muhammad) dades saksi atas (damelan) niko. Serto Kame’ nano netepke kiblat yen dades kiblat niko (mak niki dinten) melianke supayo Kame’ wikan (supayo nyato) sinten yen numuti Rasul serto sinten yen mbelot. Serto selesernyo (pemindaan kiblat) niku teraso berat nian, kacowali peranti sedanten wong yen sampun disung hidayah ole Allah; serto Allah nano ayun nyio-nyioke iman niko. Selesernyo Allah Maha Pengasih lagi Maha Penyayang kepado wong.
 
-[^95]: Umat Islam didadeske umat yen adil serto pilenan, kareno wong-wong niku ayun dades saksi peranti damelan wong yen nyimpang dari keleseran sae di dunio jugo di akhirat.
-
 ## 2:144
 
 Selesernyo Kame’ (kerep) ningal rai niko nengada ke langit [^96] , mako selesernyo Kame’ ayun malingke niko ke kiblat yen niko demeni. Palingkela rai niko ke ara Masjidil Haram. serto dipundi saos niko wênten, Palingkela rai niko ke arahnyo. serto selesernyo sedanten wong (Yahudi serto Nasrani) yen disung Al kitab (Taurat serto Injil) memang wikan, bahwo bepaling ke Masjidil Haram niku wêntenla leser dari Tuhannyo; serto Allah selesernyo nano lenga dari napi yen wong-wong niku damelke.
-
-[^96]: Maksudnyo nikula Nabi Muhammad s.a.w. kerep meningal ke langit bedoa serto nunggu-nunggu turunnyo wahyu yen merintake beliau ngadep ke Baitullah.
 
 ## 2:145
 
@@ -808,8 +616,6 @@ Serto selesernyo kalu niko ngesungke kepado sedanten wong (Yahudi serto Nasrani)
 ## 2:146
 
 Sedanten wong (Yahudi serto Nasrani) yen sampun Kame’ sung Al kitab (Taurat serto Injil) ngenal Muhammad pecak wong-wong niku ngenal budak-budaknyo dewek [^97] . serto Selesernyo sebagian di antaro wong-wong niku nyingitke keleseran, Padohal wong-wong niku wikan.
-
-[^97]: Wikan Muhammad s.a.w. nikula ngenal sipat-sipatnyo sebagi yen tesebut jerû Taurat serto Injil.
 
 ## 2:147
 
@@ -835,19 +641,13 @@ Sepeca’ (Kame’ sampun nyempurnoke nikmat Kame’ kepado niko) Kame’ sampun
 
 Kareno niku, imutla niko kepado Kulo cengki Kulo imut (pulo') kepado niko [^98] , serto besyukurla kepado Kulo, serto nano angsal niko ngingkari (nikmat) Kulo.
 
-[^98]: Maksudnyo: kulo limpake rahmat serto ampunan Kulo kepado niko.
-
 ## 2:153
 
 Hei sedanten wong yen beriman, dadeskela sabar serto semayang sebagi penolong niko [^99] , Selesernyo Allah besami sedanten wong yen sabar.
 
-[^99]: Wênten pulo' yen ngertike: nedola petolongan (kepado Allah) dengen sabar serto semayang.
-
 ## 2:154
 
 Serto nano angsal niko ngelapke tehadep sedanten wong yen gugur di jalan Allah, (bahwo wong-wong niku ) padem; bahkan (selesernyo) wong-wong niku idup [^100] , tapi niko nano nyadarinyo.
-
-[^100]: Yakni idup di jerû alam yen lian yen didinyo alam kito niki, dipundi wong-wong niku angsal kenikmatan-kenikmatan di sisi Allah, serto Allah saosla yen wikan mak pundi kewêntenan idup niku.
 
 ## 2:155
 
@@ -857,8 +657,6 @@ Serto selesernyo ayun Kame’ sungke cobaan kepado niko, dengen setiti’ kewedh
 
 (Nikula) sedanten wong yen napi bilo ditimpo bala’, wong-wong niku ngelapke: "Inna lillaahi wa innaa ilaihi raaji'uun" [^101] .
 
-[^101]: Retinyo: Selesernyo kame’ wêntenla punyo Allah serto kepado-Nyo-la kame’ mantu’. kalimat niki dinamike kalimat istirjaa (penyatoan mantu’ kepado Allah). Disunatke ngelapnyo waktu ditimpo bahayo ageng jugo alit.
-
 ## 2:157
 
 Wong-wong niku, nikula yen angsal keberkatan yen sempurno serto rahmat dari Tuhan wong-wong niku serto wong-wong niku nikula sedanten wong yen angsal hidayah.
@@ -867,12 +665,6 @@ Wong-wong niku, nikula yen angsal keberkatan yen sempurno serto rahmat dari Tuha
 
 Selesernyo Shafaa serto Marwa wêntenla sebagian dari syi'ar Allah [^102] . Dadesnyo Sinten saos yen beribada haji ke Baitullah atawa beumra, Dadesnyo nano wênten doso baginyo [^103] namelke sa'i antaro keduonyo. serto Sinten saos yen namelke sios kebajikan dengen kereloan ati, Dadesnyo, selesernyo Allah Maha Menyukuri [^104] kesaean lagi Maha wikan.
 
-[^102]: Syi'ar-syi'ar Allah: alamat atawa panggonan beribada kepado Allah.
-
-[^103]: Tuhan ngungkapke dengen kelapan nano wênten doso sebab sebagian rencang ngeraso keberatan namelkenyo sa'i di ngeriku, kareno panggonan niku bekas panggona behala. serto di masa jahiliyah jugo panggona niku digunoke sebagi panggonan sa'i. peranti ngelengetke raso keberatan niku Allah nurunke ayat niki.
-
-[^104]: Allah nyukuri hamba-Nyo: ngesung pahalo tehadep amal-amal hamba-Nyo, ma'afke kesalahannyo, namba nikmat-Nyo serto liannyo.
-
 ## 2:159
 
 Selesernyo sedanten wong yen nyingitke napi yen sampun Kame’ turunke berupa keterangan-keterangan (yen nyato) serto hidayah, sesampun Kame’ nerangkenyo kepado wong di jerû Al Kitab, wong-wong niku dila'nati Allah serto dila'nati (pulo') ole sedanten (mahluk) yen angsal mela'nati,
@@ -880,8 +672,6 @@ Selesernyo sedanten wong yen nyingitke napi yen sampun Kame’ turunke berupa ke
 ## 2:160
 
 Kacowali wong-wong niku yen sampun taubat serto ngadoke persaean [^105] serto nerangke (keleseran), Dadesnyo tehadep wong-wong niku, nikula Kulo nerimo taubatnyo serto Kulo Yen Maha nerimo taubat lagi Maha Penyayang.
-
-[^105]: Ngewêntenke pesaean retinyo namelke damelan-damelan yen sae peranti ngelengetke akibat-akibat yen jahat dari kesalahan-kesalahan yen didamelke.
 
 ## 2:161
 
@@ -927,8 +717,6 @@ Serto apobilo dikelapke kepado wong-wong niku: "tumutila napi yen sampun diturun
 
 Serto perumpamoan (sedanten wong yen nyeru) sedanten wong kafir wêntenla peca’ pengembala yen mekik binatang yen nano ngerungu selian panggilan serto kengkenan saos [^106] . wong-wong niku peka', bisu serto buta, dadesnyo (ole sebab niku) wong-wong niku nano wikan.
 
-[^106]: Jerû ayat niki wong kafir disamike dengen binatang yen nano wikan reti aranan penggembalanyo.
-
 ## 2:172
 
 Hei sedanten wong yen beriman, nedola di antaro rezki yen sae-sae yen Kame’ sungke kepado niko serto besyukurla kepado Allah, kalu selesernyo kepado-Nyo niko nyemba.
@@ -937,15 +725,9 @@ Hei sedanten wong yen beriman, nedola di antaro rezki yen sae-sae yen Kame’ su
 
 Selesernyo Allah ngaramke bagi niko saos bangki, dara, daging babi, serto binatang yen (seketiko disembeli) dikelapke (nami) selian Allah [^107] . tapi Sinten saos tepakso (nedonyo) sedeng dio nano ayun serto nano (pulo') belebi, dadesnyo nano doso baginyo. Selesernyo Allah Maha Pengampun jugo Maha Penyayang.
 
-[^107]: Haram jugo kelap ayat niki daging yen berasal dari sembelian yen ngelap nami Allah tapi dikelapke pulo' nami selian Allah.
-
 ## 2:174
 
 Selesernyo sedanten wong yen nyingitke napi yen sampun diturunke Allah, nikula Al kitab serto besadinyo dengen rego yen setiti’ (murah), wong-wong niku selesernyo nano menedo (nano nelen) ke jerû perutnyo melianke api [^108] , serto Allah nano ayun bekelap [^109] kepado wong-wong niku pado dinten kiamat serto nano nyucike wong-wong niku serto bagi wong-wong niku sikso yen pedi nian.
-
-[^108]: Maksudnyo nikula nedoan yen ditedonyo yen berasal dari hasil nyingitke ayat-ayat yen diturunke Allah, nyebabke wong-wong niku mlebet api nerako.
-
-[^109]: Maksudnyo: Allah nano bekelap kepado wong-wong niku dengen kasih sayang, tapi bekelap dengen kelapan yen nano ngelema’ke ati.
 
 ## 2:175
 
@@ -963,8 +745,6 @@ Didinyola ngadepke rai niko ke ara timur serto barat niku sesios kebajikan, tapi
 
 Hei sedanten wong yen beriman, diwajibke peranti niko qishaash bekenoan dengen sedanten wong yen dibunu; wong merdeka dengen wong merdeka, budak belian dengen budak belian, serto betino dengen betino. Dadesnyo Sinten saos yen angsal ma'apke dulunyo, ayunla (yen ma'apke) numuti dengen caro yen sae, serto ayunla (yen disung ma'ap) mayar (diat) kepado yen ngesung ma'ap dengen caro yen sae (pulo'). Yen mak niku wêntenla sios keringanan dari Tuhan niko serto sios rahmat. Sinten saos yen ngelampaui bates sesampun niku, dadesnyo baginyo sikso yen pedi nian [^110] .
 
-[^110]: Qishaash nikula ngembil balesan yen sami. qishaash niku nano didamelke, kalu yen munu angsal dimaapke ole ahli waris yen tebunu nikula dengen mayar diat (ganti rugi) yen wajar. mayar diat dinedo dengen sae, umpamonyo dengen nano nesak yen munu, serto yen munu ayunla mayarnyo dengen sae, umpamonyo nano nanggu-nanggukenyo. Kalu ahli waris si korban, sesampun Tuhan nyelaske hukum-hukum niki, munu yen didinyo si pembunuh, atawa munu si pembunuh sesampun nerimo diat, dadesnyo tehadepnyo di dunio diembil qishaash serto di dinten kiamat dio angsal sikso yen pedi.
-
 ## 2:179
 
 Serto jerû qishaash niku wênten (jaminan kelanggenan) idup bagi niko, hei sedanten wong yen berakal, supayo niko betakwa.
@@ -972,8 +752,6 @@ Serto jerû qishaash niku wênten (jaminan kelanggenan) idup bagi niko, hei seda
 ## 2:180
 
 Diwajibke atas niko, napi bilo sios wong di antaro niko kerawuan (alamat) maut, kalu dio ninggalke herto yen kata, Bewasiat peranti mbik-bak serto sanak kadangnyo secaro ma'rup [^111] , (niki wêntenla) kewajiban peranti sedanten wong yen betakwa.
-
-[^111]: Ma'rup nikula adil serto sae. wasiat niku nano melebihi sepertigo dari sedanten herto wong yen ayun padem niku. Ayat niki dinasakhke dengen ayat mewaris.
 
 ## 2:181
 
@@ -983,8 +761,6 @@ Mako, sinten saos yen nguba wasiat niku, sesampun dio ngerungunyo, dadesnyo sele
 
 (Tetapi) Sinten saos kuwatir tehadep wong yen bewasiat niku, belaku berat sebela atawa bedamel doso, sampun niku dio namaike [^112] antaro wong-wong niku, dadesnyo nanola wênten doso baginyo. Selesernyo Allah Maha Pengampun lagi Maha Penyayang.
 
-[^112]: Namaike nikula ngengken wong yen bewasiat belaku adil sewaktu ngewasiatke sesuai dengen bates-bates yen dicengkike syara'.
-
 ## 2:183
 
 Hei sedanten wong yen beriman, diwajibke peranti niko bepuaso peca’ diwajibke peranti sedanten wong sedereng niko supayo niko betakwa,
@@ -992,8 +768,6 @@ Hei sedanten wong yen beriman, diwajibke peranti niko bepuaso peca’ diwajibke 
 ## 2:184
 
 (Nikula) sepinten-pinten dinten yen tetentu. Mako sinten saos diantaro niko wênten yen sare atawa musapir (sampun niku dio bebuko), mako (wajibla baginyo bepuaso) sekata dinten yen ditinggalke niku pado dinten-dinten yen lian. serto wajib bagi sedanten wong yen berat nyalankenyo (kalu wong-wong niku nano bepuaso) mayar pidyah, (nikula): ngesung nedo sios wong miskin. Sinten saos yen dengen kereloan ati namelke kebajikan [^113] , mako nikula yen lebi sae baginyo. serto bepuaso lebi sae bagi niko kalu niko wikan.
-
-[^113]: Maksudnyo ngesung Nedo lebi dari sios wong miskin peranti sios dinten.
 
 ## 2:185
 
@@ -1007,8 +781,6 @@ Derto napi bilo hamba-hamba-Kulo betaken kepado niko tentang Kulo, mako (jawabla
 
 Dihalalke bagi niko pado dinten bulan puaso becampur dengen sema-sema niko; wong-wong niku wêntenla kelambi bagi niko, serto niko jugo wêntenla kelambi bagi wong-wong niku. Allah wikan bahwosanyo niko nano angsal nahan napsu niko, kareno niku Allah ngampuni niko serto ngesung ma'ap kepado niko. Dadesnyo mak niki dinten campurila wong-wong niku serto tumutila napi yen sampun ditetepke Allah peranti niko, serto nedo ngumbila hinggo terang bagi niko benang puti dari benang item, nikula pajar. Sampun niku sempurnokela puaso niku sampi (rawu) wengi, (tapi) nano angsal niko campuri wong-wong niku, sedeng niko i'tikap [^114] di jerû mesjid. Nikula larangan Allah, Dadesnyo nano angsal niko mara’inyo. Mak nikula Allah nerangke ayat-ayat-Nyo kepado wong, supayo wong-wong niku betakwa.
 
-[^114]: I'tikaf nikula berada di jerû mesjid dengen niat mendekatkan diri kepado Allah.
-
 ## 2:188
 
 Serto nano angsal sebagian niko nedo herto sebagian yen lian di antaro niko dengen jalan yen bathil serto (nano angsal) niko makto (urusan) herto niku kepado hakim, supayo niko angsal menedo sebagian daripado herto bendo wong lian niku dengen (jalan bedamel) doso, padohal niko wikan.
@@ -1017,8 +789,6 @@ Serto nano angsal sebagian niko nedo herto sebagian yen lian di antaro niko deng
 
 Wong-wong niku betaken kepado niko tentang bulan sabit. Kelapkela: "Bulan sabit niku wêntenla alamat waktu bagi wong serto (bagi ibadat) haji; serto didinyola kebajikan melebu rompok-rompok dari burinyo [^115] , tapi kebajikan niku nikula kebajikan wong yen betakwa. serto melebula ke rompok-rompok niku dari lawang-lawangnyo; serto betakwala kepado Allah supayo niko beruntung.
 
-[^115]: Pado masa jahiliyah, sedanten wong yen berihram sewaktu haji, wong-wong niku memasuki rompok  dari belakang didinyo dari depan. hal niki ditanyakan pula ole sedanten rencang kepado Rasulullah s.a.w., dades diturunkelah ayat niki
-
 ## 2:190
 
 Serto perangila di jalan Allah sedanten wong yen merangi niko, (tapi) nano angsal niko ngelampaui bates, kareno selesernyo Allah nano demen sedanten wong yen ngelampaui bates.
@@ -1026,8 +796,6 @@ Serto perangila di jalan Allah sedanten wong yen merangi niko, (tapi) nano angsa
 ## 2:191
 
 Serto bunula wong-wong niku di pundi saos niko jumpai wong-wong niku, serto usirla wong-wong niku dari panggonan wong-wong niku sampun ngusir niko (Mekah); serto pitna [^116] niku luwe ageng bahayonyo dari pembunuan, serto nano angsal niko merangi wong-wong niku di Masjidil haram, kacowali kalu wong-wong niku merangi niko di panggona niku. kalu wong-wong niku merangi niko (di panggona niku), mako bunula wong-wong niku. maknikula balesan bagi sedanten wong kapir.
-
-[^116]: Fitnah (menimbulkan kekacauan), pecak mengusir rencang dari kampung halamannya, merampas harta wong-wong niku dan menyakiti atawa nano ayun nuggu kebebasan wong-wong niku beragama.
 
 ## 2:192
 
@@ -1041,10 +809,6 @@ Serto perangila wong-wong niku, sehinggo nano wênten pitnah lagi serto (sehingg
 
 bulan haram dengen bulan haram [^117] , serto pado sesios yen patut dihorpadem [^118] , belaku hukum qishaash. ole sebab niku sinten saos yen nyerang niko, mako serangla dio, seimbang dengen serangannyo tehadep niko. Betakwala kepado Allah serto wikanila, bahwo Allah beseta sedanten wong yen betakwa.
 
-[^117]: Kalu umat Islam diserang di bulan haram, yen selesernyo di bulan niku nano bole beperang, mako diboleke males serangan niku di bulan niku jugo.
-
-[^118]: Maksudnyo antaro lian nikula: bulan Haram (bulan Zulkaidah, Zulhijjah, Muharram serto Rajab), tanah Haram (Mekah) serto ihram.
-
 ## 2:195
 
 Serto sadikela (herto bendo niko) di jalan Allah, serto nano angsal niko nyampa’ke awak niko dewek ke jerû kebinasoan, serto bedamel saela, kareno selesernyo Allah nemeni sedanten wong yen bedamel sae.
@@ -1053,25 +817,13 @@ Serto sadikela (herto bendo niko) di jalan Allah, serto nano angsal niko nyampa�
 
 Serto sempurnokenla ibada aji serto 'umra kareno Allah. kalu niko tekepung (tehalang ole musu atawa kareno sare), Dadesnyo (semelela) korban [^119]  yen muda diangsal, serto jangan niko nyukur sira niko [^120] , sedereng korban sampi di panggona sembelihannyo. kalu wênten di antaro niko yen sare atawa wênten gangguan di siranyo (sampun niku dio becukur), Dadesnyo wajibla atasnyo bepidyah, nikula: bepuaso atawa besedekah\ atawa bekorban. napi bilo niko sampun (ngeraso) aman, Dadesnyo bagi sinten yen ayun namelke 'umra sedereng aji (di jerû bulan aji), (wajibla dio nyemele) korban yen muda diangsal. tapi kalu dio nano nemuke (binatang korban atawa nano mampu), mako wajib bepuaso tigo dinten di jerû masa haji serto pitu dinten (lagi) napi bilo niko sampun mantu’ . Nikula sedoso (dinten) yen sempurno. mak niku (kewajiban mayar pidyah) bagi sedanten wong yen keluargonyo nano wênten (di sekiter) Masjidil Haram (sedanten wong yen didinyo penduduk kota Meka). serto betakwala kepado Allah serto wikanila bahwo Allah keras nian siksoan-Nyo.
 
-[^119]: Yang dimaksud dengen korban di ngeriki nikula nyemele binatang korban sebagai pengganti damelan wajib haji yen ditinggalke; atawa sebagi dendo kareno ngelanggar hal-hal yen nano angsal namelkenyo di jerû ibada haji.
-
-[^120]: Nyukur sira wêntenla sala sios damelan wajib jerû haji, sebagi tando sampun ihram.
-
 ## 2:197
 
 (Musim) haji wêntenla pinten-pinten bulan yen dimaklumi [^121] , Sinten saos yen netepke niatnyo di jerû bulan niku ayun namelke haji, Dadesnyo nano bole rafats [^122] , bedamel pasik serto bebanta-bantaan di jerû maso namelke haji. serto napi yen niko damelke berupo kesaean, cengki Allah wikannyo. Bebekala, serto selesernyo sesae-sae bekal wêntenla takwa [^123] serto betakwala kepado-Kulo hei sedanten wong yen berakal.
 
-[^121]: Nikula bulan Syawal, Zulkaidah serto Zulhijjah.
-
-[^122]: Rafats retinyo metuke kelapan yen munculke berahi yen nano senono atawa besebadan.
-
-[^123]: Maksud bekal takwa di ngeriki nikula bekal yen cukup supayo angsal meliharo diri dari damelan hino atawa nedo-nedo selambat pejalanan haji.
-
 ## 2:198
 
 Nano wênten doso bagi niko peranti nyari karunio (rezki hasil sadian) dari Tuhan niko. Dadesnyo napi bilo niko sampun betolak dari 'Arafat, bedzikirla kepado Allah di Masy'aril haram [^124]. serto bedzikirla (dengen ngelap) Allah peca’ yang ditunjukke-Nyo kepado niko; serto selesernyo niko sedereng niku selesernyo temasuk sedanten wong yen seset.
-
-[^124]: Nikula bukit Quzah di Muzdalifah.
 
 ## 2:199
 
@@ -1081,13 +833,9 @@ Sampun niku betolakla niko dari panggona betolaknyo sedanten wong kata ('Arafa) 
 
 Apobilo niko sampun ngerampungke ibada haji niko, dadesnyo bedzikirla dengen ngelap Allah, peca’ niko ngelap-nyebut (mangga-manggake) nenek moyang niko [^125] , atawa (bahkan) bedzikirla luwe kata dari niku. Dadesnyo di antaro wong wênten wong yen bedoa: "Ya Tuhan kame’, sungla kame’ (kesaean) di dunio", serto nano wêntenla baginyo bagian (yen nemeni ati) di akhirat.
 
-[^125]: wêntenla dades kebiasoan sedanten wong Arab Jahiliyah sesampun nunaike haji sampun niku bemega-megaan tentang keagengan nenek moyangnyo. Sesampun ayat niki diturunke dadesnyo memega-megake nenek moyangnyo niku digenti dengen dzikir kepado Allah.
-
 ## 2:201
 
 Serto di antaro wong-wong niku wênten wong yen bedoa: "Ya Tuhan kame’, sungla kame’ kesaean di dunio serto kesaean di akhirat serto peliharola kame’ dari sikso nerako" [^126] .
-
-[^126]: Nikila doa yen sesae-saenyo bagi sios wong Muslim.
 
 ## 2:202
 
@@ -1097,10 +845,6 @@ Wong-wong nikulla wong yen angsal bagian daripado napi yen diusohokenyo; serto A
 
 Serto bedzikirla (dengen ngelap) Allah dipinten-pinten dinten yen bebilang [^127] . Sinten saos yen ayun cepet kesa (dari Mina) sesampun duo dinten, dadesnyo nano wênten doso baginyo. Serto Sinten saos yen ayun nangguke (kesanyo dari duo dinten niku), dadesnyo nano wênten doso pulo' baginyo [^128] , bagi wong yen betakwa. Serto betakwala kepado Allah, serto wikanila, bahwo niko ayun dikumpulke kepado-Nyo.
 
-[^127]: Maksud dzikir di ngeriki nikula maco takbir, tasbih, tahmid, talbiah dan liannyo. pinten-pinten dinten yen bebilang nikula telu dinten sesampun dinten rayo haji, nikula tanggal 11, 12, serto 13 bulan Zulhijjah. dinten-dinten niku dinamike dinten-dinten tasy'riq.
-
-[^128]: Sesaenyo wong haji ninggalke Mina pado sore dinten terakhir dari dinten tasy'riq, wong-wong niku bole jugo ninggalke Mina pado sore dinten keduo.
-
 ## 2:204
 
 Serto di antaro wong-wong, wênten wong yen kelapannyo tentang keidupan dunio narik ati niko, serto dipesaksikenyo kepado Allah (peranti keleseran) isi atinyo, padohal dio wêntenla penantang yen paling keras.
@@ -1108,8 +852,6 @@ Serto di antaro wong-wong, wênten wong yen kelapannyo tentang keidupan dunio na
 ## 2:205
 
 Serto apobilo dio bepaling (dari niko), dio bejalan di bumi peranti muat kerusakan padonyo, serto ngerusak tanaman serto binatang ternak, serto Allah nano nemeni kebinasoan [^129] .
-
-[^129]: Ungkapan niki wêntenla ibarat dari sedanten wong yen berusaha nggoncangke iman sedanten wong mukmin serto sesampun niku ngewêntenke pengacauan.
 
 ## 2:206
 
@@ -1131,15 +873,9 @@ Tapi kalu niko nyimpang (dari jalan Allah) sesampun rawu kepado niko bukti-bukti
 
 Nano wênten yen wong-wong niku enten-enteni melianke rawunya Allah serto Malaikat (pado dinten kiamat) di jerû naungan awan [^130] , serto diputuskela pekaronyo. serto kepado Allah saosla dimantu’ke sedanten urusan.
 
-[^130]: Naungan awan besami Malaikat biasonyo nurunke ujan yen retinyo rahmat, tapi rahmat yen diarep-arepke niku nanola rawu melianke azab Allah-la yen rawu.
-
 ## 2:211
 
 Takenkela kepado Bani Israil: "sepinten katanya alamat (keleseran) [^131]  yen nyato, yen sampun Kame’ sungke kepado wong-wong niku". serto sinten saos yen nukar nikmat Allah [^132] sesampun rawu nikmat niku kepadonyo, Dadesnyo selesernyo Allah sangat keras sikso-Nyo.
-
-[^131]: Nikula alamat keleseran yen dibakto nabi-nabi wong-wong niku, yen nunju’ke kepado keesaan Allah, serto keleseran nabi-nabi niku sesampun niku wong-wong niku tolak.
-
-[^132]: Yen dimaksud dengen nikmat Allah di ngeriki nikula perinta-perinta serto ajaran-ajaran Allah.
 
 ## 2:212
 
@@ -1165,10 +901,6 @@ Diwajibke atas niko beperang, padohal beperang niku wêntenla sesios yen niko be
 
 Wong-wong niku betaken kepado niko tentang beperang pado bulan Haram. Kelapkela: "Beperang di bulan niku wêntenla duso ageng; tapi ngalangi (wong) dari jalan Allah, kapir kepado Allah, (ngalangi mlebet) Masjidil haram serto ngusir penduduknyo dari sekitarnyo, lebi ageng (dusonyo) di sisi Allah [^133] . serto bedamel pitna [^134] lebi ageng (dusonyo) dari pado munu. Wong-wong niku nano brenti-brentinyo merangi niko sampi wong-wong niku (angsal) mantu’ke niko dari agami niko (kepado kekapiran), kalu wong-wong niku sanggup. Sinten saos yen murtad di antara niko dari agaminyo, sampun niku dio padem di jerû kekapiran, dadesnyo wong-wong niku nikula yen sio-sio amalannyo di dunio serto di akhirat, serto wong-wong niku, nikula penunggu nerako, wong-wong niku kekel di jerûnyo.
 
-[^133]: Pendapet Ar Razy, tejema ayat niku wêntenla: Kelapkela: "Beperang di jerû bulan niku wêntenla doso ageng, serto (wêntenla retinyo) ngalangi (wong) dari jalan Allah, kapir kepado Allah serto (ngalangi wong dari) Masjidil haram. Tapi ngusir penduduknyo dari Masjidil haram (Mekah) lebi ageng lagi (dusonyo) di sisi Allah." Pendapet Ar Razy niki mengkin bedasarke petimbangan, bahwo ngusir Nabi serto rencang-rencangnyo dari Masjidil haram sami dengen numpas agami Islam.
-
-[^134]: pitnah di ngeriki retinyo penganiayoan serto sedanten damelan yen dimaksudke peranti nindas Islam serto muslimin.
-
 ## 2:218
 
 Selesernyo wong-wong yen beriman, wong-wong yen behijrah serto bejihad di jalan Allah, wong-wong niku ngarepke rahmat Allah, serto Allah Maha Pengampun jugo Maha Penyayang.
@@ -1176,8 +908,6 @@ Selesernyo wong-wong yen beriman, wong-wong yen behijrah serto bejihad di jalan 
 ## 2:219
 
 Wong-wong niku betaken kepado niko tentang khamar [^135] serto judi. Kelapkela: "Pado keduonyo terangsal doso yen ageng serto pinten-pinten manpaat bagi wong, tapi duso keduonyo lebi ageng dari manpaatnyo". serto wong-wong niku betaken kepado niko napi yen wong-wong niku napkake. Kelapkela: " yen lebi dari keperluan." Mak nikula Allah nerangke ayat-ayat-Nyo kepado niko supayo niko bepikir,
-
-[^135]: Sedanten umbian yen mabukke.
 
 ## 2:220
 
@@ -1191,10 +921,6 @@ Serto nano angsal niko nikai betino-betino musyrik, sedereng wong-wong niku beri
 
 Wong-wong niku betaken kepado niko tentang haidh. Kelapkela: "Haidh niku wêntenla sios kotoran". ole sebab niku ayunla niko nyauke dewe' [^136] dari betino di waktu haidh; serto nano angsal niko mara’i wong-wong niku, sedereng wong-wong niku suci [^137] . apobilo wong-wong niku sampun suci, dadesnyo campurila wong-wong niku di panggonan yen dikengken Allah kepado niko. Selesernyo Allah nemeni sedanten wong yen betobat serto nemeni sedanten wong yen nyucike dewe'.
 
-[^136]: Maksudnyo nyebadani betino sewaktu haidh.
-
-[^137]: Nikula sesampun mandi. wênten jugo yen napsirke sesampun berenti dara metu.
-
 ## 2:223
 
 Sema-sema niko wêntenla (peca’) tana panggonan niko becocok tanem, dadesnyo rawuila tana tempat becocok-tanam niko niku mak pundi saos niko ayuni. serto damelkela (amal yen sae) peranti awak niko, serto betakwala kepado Allah serto wikanila bahwo niko mengkin angsal mangge-Nyo. serto sungla kabar gembiro sedanten wong yen beriman.
@@ -1203,19 +929,13 @@ Sema-sema niko wêntenla (peca’) tana panggonan niko becocok tanem, dadesnyo r
 
 Nano angsal niko dadeske (nami) Allah jerû sumpa niko sebagi pengalang peranti bedamel kebajikan, betakwa serto ngewêntenke ishlah di antaro wong [^138] . serto Allah Maha ngerungu jugo Maha wikan.
 
-[^138]: Maksudnyo: ngelarang besumpa dengen ngunoke nami Allah peranti nano namelke yen sae, peca’: demi Allah, kulo nano ayun nolong budak yatim. tapi apobilo sumpa niku sampun tekelapke, mestila dilanggar dengen mayar kafarat.
-
 ## 2:225
 
 Allah nano ngukum niko disebabke sumpa niko yen nano dimaksud (peranti besumpa), tapi Allah ngukum niko disebabke (sumpa niko) yen disengajo (peranti besumpa) ole ati niko. Serto Allah Maha Pengampun jugo Maha Penyantun [^139] .
 
-[^139]: Halim retinyo penyantun, nano segero nyikso wong yen damelke duso.
-
 ## 2:226
 
 Kepado sedanten wong yen nge-ilaa' semanyo [^140] disung tanggu sekawan bulan (lambatnyo). Sampun niku kalu wong-wong niku mantu’(kepado semanyo), Dadesnyo selesernyo Allah Maha Pengampun jugo Maha Penyayang.
-
-[^140]: Nge-ilaa' sema maksudnyo: besumpa nano ayun nyampuri sema. dengen sumpa niki sios wong betino menderito, kareno nano disebadani serto nano pulo' dicereike. Dengen turunnyo ayat niki, dadesnyo domik sesampun sekawan bulan mesti mili antaro nyebadani semanyo lagi dengen mayar kafarat sumpa atawa nyereike.
 
 ## 2:227
 
@@ -1225,15 +945,9 @@ Serto kalu wong-wong niku ber'azam (betetep ati peranti) talak, Dadesnyo seleser
 
 Betino-betino yen ditalak mestila nahan dewe' (ngenteni) tigo kali quru' [^141] . nano bole wong-wong niku nyingitke napi yen diciptoke Allah di jerû rahimnyo, kalu wong-wong niku beriman kepado Allah serto dinten akhirat. Serto sema-semanyo wênten hak ngerujukinyo di jerû masa ngenteni niku, kalu wong-wong niku (sedanten sema) ngayuni ishlah. Serto sedanten betino ngewênteni hak yen seimbang dengen kewajibannyo nurut caro yen ma'rup. Namun sedanten domik, ngewênteni sios tingkatan kelebian daripado semanyo [^142] . Serto Allah Maha Perkasa jugo Maha Bijaksana.
 
-[^141]: Quru' angsal diretike suci atawa haidh.
-
-[^142]: Hal niki disebabke kareno domik betanggung jawab tehadep keselamatan serto kesejahteroan rompok tanggo (tingal surat An Nisaa' ayat 34).
-
 ## 2:229
 
 Talak (yen angsal dirujuk’i) duo kali. Sesampun niku bole rujuk lagi dengen caro yen ma'rup atawa nyereike dengen caro yen sae. Nano halal bagi niko ngembil sesios dari yen sampun niko sungke kepado wong-wong niku, kacowali kalu keduonyo kuatir nano angsal nyalanke hukum-hukum Allah. Kalu niko kuatir bahwo keduonyo (domik sema) nano angsal nyalanke hukum-hukum Allah, dadesnyo nano wênten duso atas keduonyo tentang bayaran yen disungke ole sema peranti nebus awaknyo [^143] . Nikula hukum-hukum Allah, Dadesnyo nano angsal niko ngelanggarnyo. Sinten saos yen ngelanggar hukum-hukum Allah nikula wong-wong yen zalim.
-
-[^143]: Ayat nikila yen dades dasar hukum khulu' serto penerimoan 'iwadh. Kulu' yakni penedoan cerei kepado domik dengen pembayaran yen dikelapke 'iwadh.
 
 ## 2:230
 
@@ -1247,8 +961,6 @@ Apobilo niko nalak sema-sema niko, sampun niku wong-wong niku mara’i akhir idd
 
 Apobilo niko nalak sema-sema niko, sampun niku telas masa iddahnyo, dadesnyo nano angsal niko (sedanten wali) ngalangi sema-sema niku ayun kawin lagi dengen bakal domiknya [^144] , apobilo sampun terangsal kerelaan di antara wong-wong niku dengen cara yen ma'ruf. Nikula yen dinasehatkan kepado sedanten wong yen beriman di antara niko kepado Allah serto dinten sampun niku. niku lebi sae bagi niko serto lebi suci. Allah wikan, sedeng niko nano wikan.
 
-[^144]: Kawin lagi dengen bekas domik atawa dengen laki-laki yen lian.
-
 ## 2:233
 
 Sedanten emak ayunla nyusuke anak-anaknyo selambat kale taun penu, ya’niku bagi yen ayun nyempurnoke penyusuan. Serto kewajiban bak ngesung nedo serto kelambi kepado sedanten emak dengen caro ma'ruf. Sesios wong nano angsal dibebani melianke nurut kadar kesanggupannyo. nano angsal sios emak menderito kemelaratan kareno anaknyo serto sios bak kareno anaknyo, serto warispun berkewajiban mak niku. apobilo keduonyo ayun nyapi (sedereng kale taun) dengen kereloan keduonyo serto permusyawaratan, Dadesnyo nano wênten doso atas keduonyo. Serto kalu niko ingin anak niko disusukan ole wong lian, nano wênten doso bagi niko apobilo niko ngesungke bayaran nurut yen patut. betakwalah niko kepado Allah dan wikanila bahwo Allah Maha ningal napi yen niko damelke.
@@ -1257,17 +969,9 @@ Sedanten emak ayunla nyusuke anak-anaknyo selambat kale taun penu, ya’niku bag
 
 Sedanten wong yen padem di antaramu dengen ninggalke sema-sema (ayunla sedanten sema niku) nangguke awaknyo (ber'iddah) sekawan bulan sedoso dinten. sampun niku apobilo sampun habis 'iddahnya, mako nano doso bagi niko (sedanten wali) nala’ke sema-sema niku bebuat sesios damelan tehadep dewe'nyo [^145] nurut yen patut. Allah wikan napi saos yen niko damelke.
 
-[^145]: Berhias, atawa bepergian, atawa nerimo pinangan.
-
 ## 2:235
 
 Serto nano wênten doso bagi niko minang betino-betino niku [^146] dengen sindiran [^147] atawa niko nyingitke (keinginan ngawini wong betino niku) jerû ati niko. Allah wikan bahwo niko ayun ngelap-menggil wong-wong niku, jerû pado niku nano angsal niko ngewêntenke semayoan kawin dengen wong betino niku secaro rahasio, kacowali sekedar ngucapke (kepado wong-wong niku) kelapan yen ma'rup [^148] . Serto nano angsal niko be'azam (betetap ati) peranti beaqad nika, sedereng abis 'iddahnyo. serto wikanila bahwosanyo Allah wikan napi yen wênten di jerû ati niko; Dadesnyo wedhila kepado-Nyo, serta wikanila bahwo Allah Maha Pengampun jugo Maha Penyantun.
-
-[^146]: Yen domiknya sampun padem dan maler jerû 'iddah.
-
-[^147]: Betino yen bole dipinang secaro sindiran nikula betino yen jerû 'iddah kareno padem domiknyo, atawa kareno talak bain, sedeng betino yen jerû 'iddah talak raji'i nano bole dipinang walau dengen sindiran.
-
-[^148]: Kelapan sindiran yen sae.
 
 ## 2:236
 
@@ -1277,13 +981,9 @@ Nano wênten kewajiban mayar (mahar) peranti niko, kalu niko nyereike sema-sema 
 
 Kalu niko nyereike sema-sema niko sedereng niko becampur dengen dio niku, padohal selesernyo niko sampun nentuke maharnyo, dadesnyo bayarla seperduo dari mahar yen sampun niko tetepke niku, kacowali kalu sema-sema niko niku ma'afke atawa dima'afke ole wong yen nyekel ikatan nika [^149] , serto pema'afan niko niku lebi para’ kepado takwa. serto nano angsal niko melalike keutamoan di antaro niko. Selesernyo Allah Maha ningal sedanten napi yen niko damelke.
 
-[^149]: Nikula domik atawa wali. kalu Wali ma'apke, dadesnyo domik dibebaske dari mayar mahar yen seperduo, sedeng kalu domik yen ma'apke, dadesnyo dio mayar sedanten mahar.
-
 ## 2:238
 
 Peliharola sedanten semayang(niko), serto (peliharola) semayang wusthaa [^150] . Tega’la peranti Allah (jerû semayang niko) dengen khusyu'.
-
-[^150]: Semayang wusthaa nikula semayang yen di tenga-tenga serto yen paling utamo. wênten yen bependapet, bahwo yen dimaksud dengen semayang wusthaa nikula semayang Ashar. Kelap ahli hadits, ayat niki nekenke supayo sedanten semayang niku didamelke dengen sesae-saenyo
 
 ## 2:239
 
@@ -1297,8 +997,6 @@ Serto sedanten wong yen ayun padem di antaro niko serto ninggalke sema, ayunla b
 
 Kepado betino-betino yen dicereike (ayunla disungke ole domiknya) mut'ah [^151] nurut yen ma'rup, sebagi sios kewajiban bagi sedanten wong yen betakwa.
 
-[^151]: Mut'ah (pengesungan) nikula sesios yen disungke ole domik kepado sema yen dicereikenyo sebagi pengibur, selian napkah sesuai dengen kemampuannyo.
-
 ## 2:242
 
 Mak nikula Allah nerangke kepado niko ayat-ayat-Nyo (hukum-hukum-Nyo) supayo niko mahaminyo.
@@ -1306,8 +1004,6 @@ Mak nikula Allah nerangke kepado niko ayat-ayat-Nyo (hukum-hukum-Nyo) supayo nik
 ## 2:243
 
 Napika niko nano merhatike sedanten wong yen metu dari kampung halamannyo sedeng wong-wong niku beribu-ribu (jumlanyo) kareno wedhi padem; Dadesnyo Allah befirman kepado wong-wong niku: "Pademla niko" [^152] , sampun niku Allah ngidupke wong-wong niku. Selesernyo Allah ngewênteni karunia tehadep wong niku, tapi kekataan wong nano besyukur.
-
-[^152]: Sebagian ahli tapsir (peca’ Al-Thabari serto Ibnu Katsir) ngertike padem dingeriki dengen padem yen selesernyo; sedengke sebagian ahli tapsir yen lian ngertikenyo dengen padem semangat.
 
 ## 2:244
 
@@ -1321,8 +1017,6 @@ Sinten yen ayun ngesung pinjeman kepado Allah, pinjeman yen sae (napkake hertony
 
 Napika niko nano merhatike pemuko-pemuko Bani Israil sesampun Nabi Musa, ya’ niki sewaktu wong-wong niku bekelap kepado sios Nabi wong-wong niku: "sung la peranti kame’ sios rajo supayo kame’ beperang (di bawa pimpinannyo) di jalan Allah". Nabi wong-wong niku nyawab: "mengkin kalu niko mengkin diwajibke beperang, niko nano ayun beperang". wong-wong niku nyawab: "Menapi kame’ nano ayun beperang di jalan Allah, padohal selesernyo kame’ sampun diusir dari kampung halaman serto dari budak-budak kame’?" [^153] . Dadesnyo manokalo perang niku diwajibke peranti wong-wong niku, wong-wong niku bepaling, kacowali pinten-pinten saos di antaro wong-wong niku. serto Allah Maha wikan sinten sedanten wong yen zalim.
 
-[^153]: Maksudnyo: wong-wong niku diusir serto budak-budak wong-wong niku ditawan.
-
 ## 2:247
 
 Nabi wong-wong niku ngelapke kepado wong-wong niku: "Selesernyo Allah sampun ngangkat Thalut dades rajo niko." wong-wong niku nyawab: "Mak pundi Thalut merinta kame’, padohal kame’ lebi wênten hak ngendalike pemerintahan daripado dio, sedeng dio jugo nano disung kekayoan yen cukup kata?" Nabi (wong-wong niku) bekelap: "Selesernyo Allah sampun mili rajo niko serto nganugerainyo ilmu yen luas serto badan yen pekaso." Allah ngesungke kekuasoan kepado sinten saos yen diayuni-Nyo. Serto Allah Maha Luas pengesungan-Nyo jugo Maha wikan.
@@ -1330,8 +1024,6 @@ Nabi wong-wong niku ngelapke kepado wong-wong niku: "Selesernyo Allah sampun nga
 ## 2:248
 
 Serto Nabi wong-wong niku ngelapke kepado wong-wong niku: "Selesernyo tando dio ayun dades Rajo, nikula mantu’nyo tabut kepado niko, di jerûnyo teangsal ketenengan [^154] dari Tuhan niko serto sisa dari peninggalan keluargo Musa serto keluargo Harun; tabut niku dibakto malaikat. Selesernyo pado yen mak niku teangsal tando bagi niko, kalu niko wong yen beriman.
-
-[^154]: Tabut nikula peti tempat nyimpen Taurat yen makto ketenangan bagi wong-wong niku.
 
 ## 2:249
 
@@ -1345,8 +1037,6 @@ Tatkalo wong-wong niku ketingalan ole Jalut serto tentaronyo, Thalut serto tetar
 
 Wong-wong niku (tentaro Thalut) ngalake tentaro Jalut dengen izin Allah serto (di jerû peperangan niku) Daud munu Jalut, sampun niku Allah ngesungke kepadonyo (Daud) pemerintahan serto hikmah [^155] (sesampun pademnyo Thalut) serto gajarke kepadonyo napi yen diayuni-Nyo. kalu Allah nano nolak (keganasan) sebagian umat dengen sebagian yen lian, pasti rusakla bumi niki. Tapi Allah ngewênteni karunia (yen dicurake) peranti semesto alam.
 
-[^155]: Yen dimaksud dingeriki nikula kenabian serto kitab Zabur
-
 ## 2:252
 
 Niku wêntenla ayat-ayat dari Allah, Kame’ bacoke kepado niko dengen hak (leser) serto selesernyo niko selesernyo sala sios wong di antaro nabi-nabi yen diutus.
@@ -1359,19 +1049,13 @@ Rasul-rasul niku Kame’ langkungke sebagian (dari) wong-wong niku atas sebagian
 
 Hai sedanten wong yên beriman, tumbaskela (di jalan Allah) sebagian dari rezki yên sampun Kame’ sungkan kepado niko sedereng rawu dinten yên pado dinten niku nano wênten lagi sade-tumbas lan nano wênten lagi pertemanan serto nano wênten syafa'at [^156] . Dadesnyo, wong-wong kafir nikula wong-wong yên zalim.
 
-[^156]: Syafa'at: usaha perantaraan jiru ngesungkan sesuatu manfaat bagi wong lian atawa mengelakkan sesios mudharat bagi wong lian. syafa'at yen nano diterimo di sisi Allah wêntenla syafa'at bagi sedanten wong kafir.
-
 ## 2:255
 
 Allah, nano wênten Tuhan (yên berhak disembah) melainkan Dio yên idup kekal lagi terus-menerus ngurus (makhluk-Nya); nano ngantuk serto nano tilem. Kewêntenan-Nyala napi-napi yên di langit serto di bumi. Nano wênten yên angsal ngesung syafa'at [^157]  di sisi Allah tanpo izin-Nya? Allah wikan napi-napi yên di luan serto di buri wong-wong niku, serto wong-wong niku nano wikan napi-napi dari ilmu Allah kacowali napi yên diayuni-Nya. Kursi2 Allah meliputi langit serto bumi. Dan Allah nano meraso berat menjago keduonya, serto Allah Maha Tinggi lagi Maha besar.yo
 
-[^157]: Kursi jiru ayat niki ole sebagian mufassirin diretike dengen ilmu Allah serto wênten  pulo yên ngertike dengen kekuasoan-Nyo.
-
 ## 2:256
 
 Nano wênten paksoan perante (memasuki) agama (Islam); Selesernyo sampun jelas jalan yên leser daripado jalan yên seset. Kerno niku, sinten saos yên ingkar kepado Thaghut [^158] dan beriman kepado Allah, dadesnyo selesernyo io sampun berpegang kepado buhul tali yên amat kuat yên nano aken putus. serto Allah Maha ngerungu lagi Maha wikan.
-
-[^158]: Thaghut wêntenla setan serto napi saos yên disemba selian dari Allah s.w\.t.
 
 ## 2:257
 
@@ -1381,10 +1065,6 @@ Allah pelindung sedanten wong yên beriman; Dio ngeluarken wong-wong niku dari k
 
 Napila kamu nano memerhatiken wong [^159] yên manta Ibrahim tentang Tuhannya (Allah) kerno Allah sampun ngesungkan kepado wong niku kesirahan (pemimpin/pemerintahan). ketiko Ibrahim ngelapke: "Tuhanku nikulah yên ngidupke serto mademke," wong niku bekelap: "Kulo angsal ngidupke serto mademke". [^160] Ibrahim bekelap: "Selesernyo Allah nerbitke matadinten dari timur, dadesnyo terbitkela dio dari barat," sampun niku tediemla wong kafir niku; serto Allah nano ngesung petunjuk kepado sedanten wong yên zalim.
 
-[^159]: Ya’ niki Namrudz dari Babilonia.
-
-[^160]: Maksudnyo raja Namrudz dengen nguripke wêntenla nala’ke urip, serto yên dimaksudnyo dengen mademke wêntenla munu. kelapan itu perante nguyok Nabi Ibrahim a.s.
-
 ## 2:259
 
 Atawa (niko nano memerhatike) wong yên mesampun nikui sesios negeri yên (temboknya) sampun roboh menutupi atapnya. Dia berkata: "Ma’ pundi Allah ngidupke kembali negeri niki sesampun ancur?" Dadesnyo Allah memademke wong niku seratus taun, dados ngidupkenyo kembali. Allah bekelap: "Pinten laminyo niko bediem di ngeriki?" io nyawab: "Kulo tinggal di ngeriki sedinten atawa setengah dinten." Allah berfirman: "Selesernyo niko sampun bediem di ngeriki seratus taon laminya; tingalila kepado nedoan serto ngumbean niko yên dereng lagi beubah; dan tinglila kepado keledai niko (yên sampun dados tulang belulang); Kame’ akan nyadiken niko tando kekuasaan Kame’ bagi wong; dan tingalila kepado tulang belulang keledai niku, dados Kame’ nyusunnyo kembali, dados Kame’ membalutnyo dengen daging." Dadesnyo tatkala sampun nyato kepadonyo (ma’ pundi Allah ngidupke yên sampun padem) diopun bekelap: "Kulo yakin bahwo Allah Maha Kuaso atas sedanten sesios."
@@ -1392,8 +1072,6 @@ Atawa (niko nano memerhatike) wong yên mesampun nikui sesios negeri yên (tembo
 ## 2:260
 
 Dan (imutla) ketiko Ibrahim bekelap: "Ya Tuhanku, tingalkela kepadoku ma’ pundi Niko ngidupke sedanten wong padem." Allah berfirman: "Dereng yakinkah niko?" Ibrahim nyawab: "Kulo sampun yakin, aken tetapi agar ati kulo tetap mantep (dengen imanku). Allah berfirman: "(Kalu ma’ niku) embila sekawan iko’ burung, sampun niku cincangla sedanten ole niko. (Allah berfirman) “sampun niku lepekke dipucuk saben-saben satu bukit satu bagian dari saben-saben bagian niku, sesampun niku panggilla mereka, niscayo mereka rawu kepado niko dengen gancang”. [^161]  Dadesnyo, ketahuila bahwo Allah Maha Perkaso lagi Maha Bijaksano.
-
-[^161]: Penangsal di pucu' wêntenla kelap At-Thabari serto Ibnu Katsir, deng kelap Abu Muslim Al Ashfahani pengertian ayat di pucu' bahwa Allah ngesung penjelasan kepado Nabi Ibrahim a.s. tentang caro Dio nguripke sedanten wong yên padem. dikengken-Nyo Nabi Ibrahim a.s. ngembil sekawan ikok burung sampun niku nyagonyo serto nyinakkenyo hinggo burung niku angsal rawu timpa’-tumpa’, napibilo dipenggil. Sesampun niku, burung-burung yên sampun pinter niku, dilepekke di pucu' saben-saben bukit siko’, sampun niku burung-burung niku dipanggil dengen sios tepukan/seruan, niscayo burung-burung niku ayun rawu dengen gancang, walau tenggonnyo tepisa-pisa serto tebî. Dadesnyo ma’ nikula Allah nguripke sedanten wong yên padem yên tesebar di pundi-pundi, ngen sios kalimat cipta uripla niko sedanten cengkila wong-wong niku niku urip lagi. dades kelap Abu Muslim sighat amr (bentuk kata perintah) jiru ayat niki, pengertiannyo khabar (bentuk berita) sebagi caro penjelasan. kelapan beliau niki dianut pulo ole Ar Razy  serto Rasyid Ridha.
 
 ## 2:261
 
@@ -1435,8 +1113,6 @@ Allah nganugerahken Al Hikmah (kefahaman yên jiru tentang Al Quran serto As Sun
 
 Napi saos yên niko nafkake atawa napi saos yên niko nazarke [^162] , dadesnyo selesernyo Allah ngewikaninyo. Sedanten wong yên bedamel zalim nano wênten sios wong penolongpun baginya.
 
-[^162]: Nazar ya’niki janji perante melakukan sesios kebaktian terhadap Allah s.w\.t. perante menpara'kan diri kepado-Nya sae dengen syarat atawapun nano.
-
 ## 2:271
 
 Napi bilo niko nampakke sedeka (niko), dadesnyo niku wêntenla sae sekali. Serto  jika niko nyingitkenyo serto niko sungke kepado sedanten wong fakir, Dadesnyo nyingitke (sodako) niku langkung sae bagi niko. Serto Allah ayun ngapuske dari niko sebagian kesalahan-kesalahan niko; serto Allah ngewikani napi yên niko damelke.
@@ -1457,17 +1133,9 @@ Sedanten wong yên menafkake hartonyo di wengi serto di siang dinten secaro sing
 
 Sedanten wong yên nedo (ngembil) riba [^163] nano angsal tega’ melainke pecak tega’ nyo wong yên kerasukan setan lantaran (tekanan) penyakit gila. Keadaan wong-wong niku yên demikian niku, wêntenla disebabke wong-wong niku bekelap (berpenangsal), selesernyo numbas-besade niku samin saos dengen riba, Padohal Allah sampun menghalalkan numbas-besade serto ngaramke riba’. Sedanten wong yên sampun rawu kepadonya larangan dari Tuhannyo, sampun niku terus berenti (dari ngembil riba), Dadesnyo baginyo napi yên sampun diembilnya dahulu [^164] (sedereng rawu larangan); serto pekaronyo (terserah) kepado Allah. Wong yên bali (ngembil riba), dadesnyo wong niku wêntenla penghuni-penghuni nerako; wong-wong niku kekal dijirunyo.
 
-[^163]: Maksudnyo: wong yên ngembil Riba nano tenteram jiwonya pecak wong kemasukan setan.
-
-[^164]: Riba yên sampun diembil (dipungut) sedereng turun ayat niki, boleh nano dilagikan.
-
 ## 2:276
 
 Allah musnahke riba serto nyemara’ke sedeka [^165] . serto  Allah nano demen sedanten wong yên tetep jerû kekafiran, serto sesampun niku bedamel doso [^166] .
-
-[^165]: Yên dimaksud dengen musnake Riba nikula musnake harto niku atawa niadoke berkanyo. Serto  yên dimaksud dengen nyuburke sodako nikula ngembangke harto yên sampun dimetuke sodakonyo atawa lipet gandoke berkanyo.
-
-[^166]: Maksudnyo nikula sedanten wong yên ngehalalke Riba serto tetap melakukannya.
 
 ## 2:277
 
@@ -1493,13 +1161,9 @@ Serto jagola diri niko dari (azab yên terjadi pado) dinten yên pado waktu niku
 
 Hai sedanten wong yên beriman, napibilo niko bermu'amalah [^167] nano secaro tunai perante waktu yên ditentuke, ayunla niko menuliskannya. Serto hendakla wong penulis di antara kamu menuliskannya dengen leser. Serto janganlah penulis enggan menuliskannya peca’ Allah mengajarkannya, mako ayunla ia menyirat, serto ayunla wong yên berutang niku nyerioske (napi yên ayun disiratke itu), serto hendakla io betakwa kepado Allah Tuhannya, serto janganlah ia mengurangi sedikitpun daripada hutangnya. jika yên berhutang itu wong yên lemah akalnya atawa lemah (keadaannya) atawa Dia dewek nano mampu mengimlakkan, Dadesnyo hendaklah walinya menyerioske dengen jujur. Serto  persaksikela dengen duo saksi dari sedanten wong lanang (di antaro niko). kalu nano wênten duo wong lanang, mako (leser) sios wong lanang serto duo iko’ wong betino dari saksi-saksi yen niko ridhoi, supayo jiko sios wong lali mako yên sesios wong ngimutke. Nano angsal saksi-saksi niku nano ayun (ngesung keterangan) napibilo wong-wong niku dipeke’; serto  nano angsal niko jemu nyiratke utang niku, sae alit maupun ageng sampai batas waktu membayarnyo. Yên demikian niku, langkung adil di sisi Allah serto langkung menguatkan pesaksian serto langkung para' kepado nano (nimbulke) keraguan niko. (Siratkela mu'amalah niko niku), kecowali jiko mu'amalah niku tumbas-sade tunai yên niko jalanke diantaro niko, dadesnyo nano wênten doso bagi niko, (jiko) niko nano nyiratkenyo. serto persaksikela apobilo niko betumbas-sade; serto nano angsal penulis serto saksi saling sulit-menyulitke. Kalu niko damelke (yên demikian), dadesnyo selesernyo hal niku wêntenla sesios kefasikan pado diri niko. serto bertakwala kepado Allah; Allah mengajar niko; serto Allah Maha wikan sedanten sesios.
 
-[^167]: Bermuamalah nikulah pecak besade numbas, hutang piutang, atawa sewa menyewa serto liannyo.
-
 ## 2:283
 
 Jiko niko di jiru perjalanan (serto bemu'amala nano secara tunai) deng niko nano mangge sesios wong penulis, dadesnyo ayunla wênten bendo tanggungan yên dipegang [^168] (ole yên berpiutang). Akan tetapi kalu sebagian niko percayo atas sebagian yên lian, dadesnyo ayunla yên dipercayo niku menunaike amanatnyo (utangnyo) serto ayunla io bertakwa kepado Allah Tuhannya; serto jannganlah kamu (para saksi) nyingitke persaksian. Serto sinten saos yên nyingitkenyo, dadesnyo selesernyo io wêntenla wong yên bedoso atinya; serto Allah Maha wikan napi yên niko damelke.
-
-[^168]: Barang tanggungan (borg) itu diadakan bila sios sama lain nano percaya mempercayai.
 
 ## 2:284
 
@@ -1521,8 +1185,6 @@ Alif Lam Mim.
 
 Allah, nano wenten tuhan selian Dio. Yên Maha idup, yên terus-menerus ngurusi (makhluk-Nyo). [^169]
 
-[^169]: Maksudnyo: Allah ngatur langit serto bumi serta seisinyo.
-
 ## 3:3
 
 Dio nurunke Kitab (al-Qur’an) kepado niko (Muhammad) yên ngandung keleseran, ngeleserke (kitab-kitab) sederengnyo, serto nurunke Taurot teko Injil.
@@ -1530,8 +1192,6 @@ Dio nurunke Kitab (al-Qur’an) kepado niko (Muhammad) yên ngandung keleseran, 
 ## 3:4
 
 Sederengnyo (Al Qur’an), sebage hidayah bagi wong, serto Dio nurunke al-Furqon. [^170] seniannyo, wong-wong yên ingkar sami ayat-ayat Allah ayun angsal azab yên berat. Allah Mahapekaso lagi mempunyoi balesan sikso (hukuman).
-
-[^170]: Al Furqaan wêntenla kitab yên medoke antaro yên benar serto yên salah.
 
 ## 3:5
 
@@ -1544,10 +1204,6 @@ Diola yên mentuk niko di jiru rahim sebagaimano yên Dio ayuni. Nano wenten tuh
 ## 3:7
 
 Diola yên nurunke Kitab (al-Qur’an) kepado niko (Muhammad). Di antaronyo wenten ayat-ayat yên muhkamat, [^171] nikula pokok-pokok Kitab (al-Qur’an) serto yên lian mutasyabihat. [^172] wentenpun wong-wong yên jiru atinyo condong pado kesesetan, wong-wong niku melok-i yên mutasyabihat peranti nyari-nyari fitnah teko peranti nyari-nyari takwilnyo, padohal nano wenten yên ngewikani takwilnyo melianke Allah. Teko wong-wong yên ilmunyo jiru nian bekelap, “Kame’ beiman kepadonyo (al-Qur’an), sedantennyo dari sisi Tuhan kame’.” Nano wenten yên angsal ngembil pelajaran selian wong yên berakal.
-
-[^171]: Ayat yên muhkamaat wêntenla ayat-ayat yên terang serto teges Maksudnyo, angsal dipahami dengen muda.
-
-[^172]: Temasû' jerû pengertian ayat-ayat mutasyaabihaat: ayat-ayat yên ngandûng pinten-pinten pengertian serto nano angsal ditentuke reti pundi yên dimaksud kecuali sesampun diselidiki secaro mendalam; atawa ayat-ayat yên retinyo cuman Allah yên wikan ma'kayo ayat-ayat yên behubungan dengen yên ghaib-ghaib peca' ayat-ayat  dinten kiamat, surga, neraka serto liannyo.
 
 ## 3:8
 
@@ -1573,13 +1229,9 @@ Kelapkela (Muhammad) kepado wong-wong kafir, “niko (cengki) ayun dikalake sert
 
 Selesernyo, sampun wenten tando bagi niko pado kale golongan yên beadep-adepan. Sios golongan beperang [^173] di jalan  Allah serto yên lian (golongan) kafir yên ningali dengen mato siro, bahwa wong-wong niku (golongan muslim) kale kali lipet wong-wong niku. Allah nguatke dengen tolongan-Nyo bagi sinten yên Dio ayuni. Selesernyo, pado yên ma’niku wenten pelajaran bagi wong-wong yên wenten peningalan (mato ati).
 
-[^173]: Haderengan duo iko' gûgû' niku - antaro kaum muslimin dengen kaum musyrikin - tedades jerû perang Bwêntenr. Bwêntenr nami sios enggon yên terletak antaro Mekah dengen Madinah dipundi terangsal mato banyu.
-
 ## 3:14
 
 Didadeske teraso sae pado (peningalan) wong cinto teadep napi yên diayuni, berupo betino-betino, bugak-budak, harto bendo yên betumpuk bebentuk emas serto perak, kudo pilian, binatang ternak [^174] serto sawah ladang. Nikula keladasan idup di dunio, serto di sisi Allah-la panggonan mantu’ yên sae.
-
-[^174]: Yên dimaksud dengen binatang ternak di ngeriki wêntenla binatang-binatang yên temasû' jenis unto, sapi, kambing serto biri-biri.
 
 ## 3:15
 
@@ -1593,25 +1245,17 @@ Kelapkela, “Ayunka kulo kabarke kepado niko napi yên gangsal sae dari yên ma
 
 (Ya’niku) wong yên sobar, wong yên leser, wong yên tetep taat, wong yên nginfakke hartonyo, serto wong yên ngarep ampunan pado saat sedereng pajar. [^175]
 
-[^175]: Sahur: waktu sedereng fajar nyingsing para' subuh.
-
 ## 3:18
 
 Allah nyatoke bahwo nano wenten tuhan selian Dio; (ma’niku pulo’) para malaikat teko wong beilmu [^176] yên negakke keadilan, nano wenten tuhan selian Dio, Yên Mahaperkaso, Mahabijaksano.
-
-[^176]: Ayat niki peranti nyelaske martabat wong-wong berilmu.
 
 ## 3:19
 
 Selesernyo agamo di sisi Allah wentenla Islam. Nanola beselisi wong-wong yên sampun disung Kitab [^177] melianke sesampun wong-wong niku angsal ilmu, kerno kedengkian di antaro wong-wong niku. Sinten saos ingkar teadep ayat-ayat Allah, mako selesernyo, Allah cepet nian perikinan-Nyo.
 
-[^177]: Maksudnyo wêntenla Kitab-Kitab yên ditûrûnke sedereng Al Quran.
-
 ## 3:20
 
 Sampun niku, kalu wong-wong niku manta niko (Muhammad) kelapkela, “Kulo beserah diri kepado Allah serto (ma’niku pulo’) wong-wong yên tumut kulo.” Serto kelapke kepado wong-wong yên sampun disungi Kitab serto kepado wong-wong buto hurup, [^178] “Napika niko (ayun) masok Islam?” Kalu wong-wong niku masok Islam, bearti wong-wong niku sampun angsal hidayah, tapi kalu wong-wong niku bepaling, mako kewajiban niko wentenla cuman nyampeke. Serto Allah Maha Ningali hambo-hambo-Nyo.
-
-[^178]: Ummi retinya wêntenla wong yên nano wikan tulis baco. nurut sebagêan ahli tafsir yên dimaksud dengen Ummi wêntenla wong musyrik Arab yên nano wikan tulis baco. nurut sebagêan yên lian wêntenla wong-wong yên nano di sung Al Kitab.
 
 ## 3:21
 
@@ -1641,13 +1285,9 @@ Kelapkela (Muhammad), “Wahai Tuhan yên punyo kekuasoan, Niko sungke kekuasoan
 
 Niko masokke malem ke jiru siang serto Niko masokke siang ke jiru malem. Serto Niko metuke yên idup dari yên padem, serto Niko metuke yên padem dari yên idup. [^179] Serto Niko sungke rezeki kepado sinten yên Niko ayuni nano berikinan.”
 
-[^179]: Sebagêan mufassirin ngesung pecak' peranti ayat niki dengen metuke anak ayam dari telo', serto telo' dari ayam. serto angsal juga diretike bahwo giliran kekuasoan diantaro bangso-bangso serto timbul tenggelemnya sesios umat wêntenla nurut hukum Allah.
-
 ## 3:28
 
 Nano angsal wong-wong beiman dadeske wong kafir sebagei wali, [^180] melianke wong-wong beiman. Sinten saos namelke ma’niki, cengkila dio nano ayun peroleh napi saos dari Allah, melianke kerno (siasat) nyago diri dari sesios yên niko takuti dari wong-wong niku. Serto Allah ngimutke niko aken diri (sikso)-Nyo, serto cuman kepado Allah panggonan mantu’.
-
-[^180]: Wali jamaknya auliyaa: retinyo rencang yên akrab, juga retinyo pemimpin, pelindung atawa penolong.
 
 ## 3:29
 
@@ -1693,8 +1333,6 @@ Di ngerikola Zakaria bedo’a kepado Tuhan-nyo, serto bekelap, “Wahai Tuhan ku
 
 Sesampun niku, Malaikat (Jibril) manggil Zakaria, ketiko dio tegak namelke solat di mihrob, “Allah nyampeke kabar gembiro kepado niko dengen beranak (sesios putero) Yahya, yên meleserke kalimat (firman) [^181] dari Allah, dades panutan, yên angsal nahan diri (dari hawo nafsu) serto sesios Nabi dari beroyot wong-wong soleh.”
 
-[^181]: Maksudnyo: ngeleserke rawunyo sios Nabi yên diciptoke dengen kalimat kun (dadesla) tanpa bapak ya'niku Nabi Isa a.s.
-
 ## 3:40
 
 Zakaria bekelap, “Wahai Tuhan kulo, makpundi kulo angsal angsal anak, deng kulo sampun sepuh nian serto sema kulo jugo mandul?” Dio (Allah) befirman, “Maknikila, Allah bedamel napi saos yên Dio ayuni.”
@@ -1711,8 +1349,6 @@ Serto (imutla) ketiko Malaikat (Jiril) bekelap, “Wahai Maryam! Selesernyo Alla
 
 Wahai Maryam! Taatila Tuhan niko, sujud serto rukukla sami wong-wong yên rukuk.” [^182]
 
-[^182]: Semayangla dengen berjama'ah.
-
 ## 3:44
 
 Nikula sebagian dari berito-berito gaib yên Kame’ wahyuke kepado niko (Muhammad), padohal niko nano besami wong-wong niku ketiko wong-wong niku nyawatke anak panah\* wong-wong niku (peranti ngundi) sinten di antaro wong-wong niku yên ayun menjago Maryam. Serto niko jugo nano besami wong-wong niku ketiko wong-wong niku betengker.
@@ -1720,8 +1356,6 @@ Nikula sebagian dari berito-berito gaib yên Kame’ wahyuke kepado niko (Muhamm
 ## 3:45
 
 (Imutla), ketiko Malaikat bekelap, “Wahai Maryam! Selesernyo Allah nyampeke kabar gembiro kepado niko tentang sios kalimat [^183] (firman) dari-Nyo (yakni sios anak lanang), naminyo al-Masih Isa anak Maryam, sios wong tekemuko di dunia serto di akhirat, serto temasok wong-wong yên diparakke (kepado Allah),
-
-[^183]: Maksudnyo: ngeleserke rawunyo sios Nabi yên diciptoke dengen kalimat kun (dadesla) tanpa bapak ya'niku Nabi Isa a.s.
 
 ## 3:46
 
@@ -1734,8 +1368,6 @@ Maryam bekelap, “Wahai Tuhan kulo, makpundi caronyo kulo ayun punyo anak, pado
 ## 3:48
 
 Serto Allah ayun ngajarke kapadonyo (Isa) Al-Kitab [^184] Hikmah, Taurot, sertoInjil.
-
-[^184]: Al kitab di ngeriki wênten yên nafsirke dengen pelajaran nulis, serto wênten pulo' yên nafsirkenya dengen Kitab-Kitab yên ditûrûnke Allah sederengnyo selian Taurat serto Injil.
 
 ## 3:49
 
@@ -1789,8 +1421,6 @@ Selesernyo perumpamoan (penciptoan) Isa bagi Allah, ma’kayo (penciptoan) Adam.
 
 Sinten yên manta niko jiru hal Isa sesampun rawu ilmu (yên meyakinke niko), mako kelapkela (Muhammad), “Majengla kito panggel anak-anak kame’ serto anak-anak niko, sema-sema kame’ serto sema-sema niko, diri kame’ serto diri niko; sesampun niku majeng kito be-mubahalah supayo laknat Allah ditimpoke kepado wong-wong yên mudike.” [^185]
 
-[^185]: Mubahalah wêntenla dewe'-dewe' pihak diantaro wong-wong yên bebeda Pendapet bedoa kepado Allah dengen selesernyo, supayo Allah nyampa’ke la'nat kapado pihak yên ngota'i. Nabi ngaja' utusan Nasrani Najran bermubahalah tapi wong-wong niku nano berani serto niki dades bukti keleseran Nabi Muhammad s.a.w.
-
 ## 3:62
 
 Selesernyo, niki wentenla keso yên leser, serto nano wenten tuhan (yên berhak disembah) selian Allah; serto selesernyo Allah, Diola yên Mahaperkaso serto Mahabijaksano.
@@ -1807,21 +1437,13 @@ Kelapkela (Muhammad): “Wahai Ahli Kitab! Majengla (kito) menuju kepado sios ka
 
 Wahai Ahli Kitab! ngapo niko bebantah-bantahan [^186] tentang Ibrahim, padohal Taurot serto Injil nano diturunke melianke sesampun dio (Ibrahim)? Napi niko nano bepikir?
 
-[^186]: Wong Yahudi serto Nasrani dewe'-dewe' nganggep Ibrahim a.s. niku dari gûgû'nya. sampun niku Allah manta wong-wong niku dengen alesan bahwo Ibrahim a.s. niku rawu sedereng wong-wong niku.
-
 ## 3:66
 
 Ma’nikila niko! niko bebantah-bantahan tentang napi yên niko wikani, [^187] tapi ngapo niko bebanta-bantahan jugo tentang napi yên nano niko wikani? [^188] Allah wikan deng niko nano mewikani
 
-[^187]: Yakni tentang Nabi Musa a.s., Isa a.s. serto Muhammad s.a.w.
-
-[^188]: Yakni tentang hal Ibrahim a.s
-
 ## 3:67
 
 Ibrahim nanola sios wong Yahudi serto nano (jugo) sios wong Nasrani, tapi dio wentenla sios wong yên lurus, [^189] serto besera diri (kepado Allah), serto selesernyo nanola dio temasok wong-wong musyrik.
-
-[^189]: Lurus retinyo tebî dari syirik (nuoke Allah) serto tebî dari kesesetan.
 
 ## 3:68
 
@@ -1835,15 +1457,9 @@ Segolongan Ahli Kitab ayun nyesetke niko. Padohal (selesernyo), wong-wong niku n
 
 Wahai Ahli Kitab, ngapo niko mungkiri ayat-ayat Allah, [^190] padohal niko ngewikani (keleserannyo).
 
-[^190]: Yakni: ayat-ayat Allah ditûrûnke kapado Nabi Muhammad s.a.w.
-
 ## 3:71
 
 Wahai Ahli Kitab, ngapo niko nyampur adukke keleseran dengen kebatilan, [^191]serto niko nyingitke keleseran, [^192] padohal niko ngewikani?
-
-[^191]: ya'niku: nutupi firman-firman Allah yên temaktub jerû Taurat serto Injil dengen kelapan-kelapan yên dibuat-buat wong-wong niku (ahli Kitab) dewe'.
-
-[^192]: Maksudnyo: keleseran tentang kenabian Muhammad s.a.w. yên tesebut jerû Taurat serto Injil.
 
 ## 3:72
 
@@ -1852,8 +1468,6 @@ Sesios golongan Ahli Kitab bekelap (kepado sesaminyo), “Tingalkela (seola-ola)
 ## 3:73
 
 Serto nano angsal niko pecayo kacuali kepado wong yên numuti agamo niko. [^193] Kelapkela (Muhammad): “Selesernyo hidayah (yên mesti ditumuti) wentela hidayah Allah, serto (nano angsal niko pecayo) bahwa ayun disungke kepado sesio wong makkayo napi yên disungke kepado niko, serto (nano angsal pulo niko percayo) bahwa wong-wong niku ayun ngalake hujjah niko di adepan Tuhan niko”. Kelapkela (Muhammad): “Selesernyo karunio niku di tangan Allah, Dio ngesungke karunio-Nyo kepado sinten yên diayuni-Nyo; serto Allah Maha Luas (karunio-Nya) lagi Maha Ngewikani.
-
-[^193]: Kapado wong-wong yên tumut igamo niko Maksudnyo: kapado wong yên seigamo dengen niko (Yahudi/Nasrani) supayo wong-wong niku nano dades melebet Islam atawa kapado wong-wong Islam yên berasal dari igamo niko supayo goncang iman wong-wong niku serto mantu' kapado kekafiran.
 
 ## 3:74
 
@@ -1887,13 +1501,9 @@ Serto (nano wajar pulo baginyo) ngengkên niko dedeske malaikat-malaikat serto n
 
 Serto (imutla), ketika Allah ngembil pejanjian dari nabi-nabi: ”Leser nian, napi saos yên Kulo sungke kepado niko berupo kitab serto hikmah, sesampun niku rawu kepado niko sios Rosul yên ngeleserke napi yên wenten pado niko, cengkila niko ayun senianan beiman kepadonyo serto nolongnyo.” [^194] Allah befirman, “Napi niko setuju serto nerimo pejanjian dengen Kulo ates yên demikian niku?” wong-wong niku nyimbat, “kame’ setuju”. Allah befirman, “”Kalu ma’niku besaksila niko (hai para nabi) serto Kulo dades besaksi (pulo) besami niko.”
 
-[^194]: Sedanten Nabi bejanji kapado Allah s.w\.t. bahwo bila pundi rawu sios Rasul benami Muhammad wong-wong niku ayun iman kepadonyo serto nolongnyo. semayoan nabi-nabi niki ngiket pulo' sedanten ummatnyo.
-
 ## 3:82
 
 Sinten saos yên bepaling sesampun niku, wong-wong niku nikula wong yên fasik. [^195]
-
-[^195]: Fasik wêntenla wong yên nano ngindakan perintah Allah s.w\.t.
 
 ## 3:83
 
@@ -1939,8 +1549,6 @@ Niko nano ayun angsal kebajikan (yên sempurno), sedereng niko nafkake sebagian 
 
 Sedanten tedoan niku halal peranti Bani Isroil, selian tedoan yên diharamke ole Israil (Yakub) peranti dirinyo sedereng Taurot diturunke [^196] . Kelapkela (Muhammad), “Kalu niko ngelapke wênten tedoan yên diharamke sedereng turun Taurat, dades baktola Taurot niku serto bacola dio, kalu niko wong-wong yên leser.”
 
-[^196]: Dusta tehadep Allah wêntenla dengen ngelapke bahwo sedereng Taurat ditûrûnke, Allah sampun ngeharamke pinten-pinten tedoan kapado Bani Israil.
-
 ## 3:94
 
 Dades sinten saos ngado-ngadoke mudike teadep Allah\* sesampun niku, dades wong-wong niku nikula wong-wong yên zolim.
@@ -1953,13 +1561,9 @@ Kelapkela (Muhammad): “Leserla (napi yên difirmanke) Allah”. dades tumutla 
 
 Selesernyo rompok pertamo yên digawek peranti tenggon ibada wong, wentela Baitullah yên di Bakkah (Mekah)\* yên diberkati serto dades petunjuk peranti sedanten wong. [^197]
 
-[^197]: Ahli kitab ngelapke bahwo rompo’ niku yên bungaran dibangun wênten di Baitul Maqdis, dadesnyo Allah mantanyo.
-
 ## 3:97
 
 Di ngeriko wênten tando-tando yên jelas, (di antaronyo) maqom Ibrahim [^198] , sinten saos masokinyo (Baitulla niku) dades amanla dio; ngedamelke ibadah haji wentela kawajiban wong teadep Allah, ya’ niki peranti wong-wong yên mampu\* ngadoke pejasertoan ke ngeriko. Sinten saos ngingkari (kewajiban haji), dades wikanila bahwo selesernyo Allah Maha kayo (nano merluke sesios napipun) dari sedanten alam.
-
-[^198]: Wêntenla: enggon Nabi Ibrahim a.s. tega’ mangun Ka'bah
 
 ## 3:98
 
@@ -1988,8 +1592,6 @@ Serto becekel tegula niko sedantennyo pado tali (agamo) Allah, serto janganla ni
 ## 3:104
 
 Serto ayunla di antaro niko wênten sios golongan wong yên nyeru kepado kebajikan, ngengkên (bebuat) yên makruf, serto nyega dari yên mungkar [^199] ; Wong-wong niku nikula yên beruntung.
-
-[^199]: Ma'ruf: sedanten damelan yên mara’ke kitp kapado Allah; sedengke Munkar wêntenla sedanten damelan yên nebîke kito dari pado-Nyo.
 
 ## 3:105
 
@@ -2022,8 +1624,6 @@ Wong-wong niku sekali-kali nano angsal bahayoke niko, selian gangguan-gangguan c
 ## 3:112
 
 Wong-wong niku diliputi kehinoan di pundi saos wong-wong niku wênten, selian kalu wong-wong niku (becekel) pado tali (agamo) Allah serto tali (perjanjian) dengen wong. [^200] Wong-wong niku angsal murko dari Allah serto (kerep) diliputi melarat. Yên ma’niku kereno wong-wong niku ngingkari ayat-ayat Allah serto munu nabi-nabi, nano hak (alesan yên leser). Yên ma’niku kerno wong-wong niku durhako serto tepeliwat batas.
-
-[^200]: Maksudnyo: pelindungan yên ditetepke Allah jerû Al Quran serto perlindungan yên di sungke ole pemerintah Islam peranti wong-wong niku.
 
 ## 3:113
 
@@ -2061,8 +1661,6 @@ Kalu niko angsal kebaekan, (niscayo) wong-wong niku besedi ati, tapi kalu niko t
 
 Serto (imutla), ketiko niko (Muhammad) berangkat di pagi dinten inggalke keluargo niko peranti ngatur wong-wong beriman pado pos-pos peperangan. [^201] Allah Maha Nenger, Maha Wikan.
 
-[^201]: Peristiwa niki tedades pado perang Uhud yên nurut ahli sejarah tedades pado tahun ke 3 H.
-
 ## 3:122
 
 Ketiko kale golongan dari piak niko ayun (mundur) kereno takut, padohal Allah wêntenla penolong peranti kekale golongan niku. Kerno niku, ayunla kepado Allah saos wong-wong mukmin betawakkal.
@@ -2070,8 +1668,6 @@ Ketiko kale golongan dari piak niko ayun (mundur) kereno takut, padohal Allah w�
 ## 3:123
 
 Nian, Allah sampun nolong niko jerû perang Badar, padohal niko jerû keadaan lemah [^202] . Kerno niku betakwalah kepada Allah, supayo niko nyukuri-Nyo.
-
-[^202]: Kaum muslimin lemah kareno bilangan wong-wong niku setiti’ serto pelengkapan wong-wong niku kirang cungkup.
 
 ## 3:124
 
@@ -2089,8 +1685,6 @@ Serto Allah nano dadeske (sungan bala-bantuan niku) melianke sebagai kabar gembi
 
 (Allah nolong niko jerû perang Badar serto ngesung bantuan niku) peranti binasoke sios golongan wong kafir [^203] , atawa peranti dadeske wong-wong niku hino, hinggo wong-wong niku mantu’ nano angsal napi saos.
 
-[^203]: Wêntenla dades kebiasoan wong-wong Arab Jahiliyah sesampun haji niku Bermegah-megahan tentang keagengan nenek moyangnyo. sesampun ayat niki ditûrûnke dades memegah-megahke nenek moyangnyo niku digenti dengen dzikir kapado Allah.
-
 ## 3:128
 
 Nano wênten setitikpun campur-tangan niko (Muhammad) di jerû urus wong-wong niku atawa Allah nerimo tobat wong-wong niku, atawa ngazabnyo, kerno selesernyo wong-wong niku wong-wong yên zolim.
@@ -2102,8 +1696,6 @@ Punyo Allah-la napi yên wênten di sertogit serto yên wênten di bumi. Dio nga
 ## 3:130
 
 Wahai wong-wong yên beriman, nano angsal niko nedo riba dengen belipet gando [^204] serto betakwala niko kepado Allah supayo niko beruntung.
-
-[^204]: Yên dimaksud Riba di ngeriki wêntenla Riba nasi'ah. nurut sebagêan ageng ulama bahwo Riba nasi'ah niku selamanya haram, walaupun nano berlipat ganda. Riba niku wênten duo iko' macam: nasiah serto fadhl. Riba nasiah wêntenla pembayaran langkung yên disyaratke ole wong yên minjemke. Riba fadhl wêntenla penukaran sios barang dengen barang yên sejenis, tapi langkung kata rikinannyo kareno wong yên nukarke nyaratke ma’niku, ma'kayo nuker emas dengen emas, padi dengen padi, serto sebagainya. Riba yên dimaksud jerû ayat niki Riba nasiah yên belipet ganda yên umum tedades jerû masyarakat Arab zaman jahiliyah.
 
 ## 3:131
 
@@ -2153,19 +1745,13 @@ Serto supayo Allah mersike wong-wong yên beriman (dari doso wong-wong niku) ser
 
 Napika niko ngiro bahwa niko ayun masok suargo, padohal dereng nyato peranti Allah wong-wong yên bejihad [^205] di antaro niko, serto dereng nyato wong-wong yên sobar.
 
-[^205]: Jihad angsal retinyo: 1. berperang peranti menegakkan Islam serto melindungi wong-wong Islam; 2. merangi hawa nafsu; 3. mendermake harta benda peranti kesaêan Islam serto umat Islam; 4. merantas yên batil serto menegakkan yên hak.
-
 ## 3:143
 
 Selesernyo niko ngarepke padem (syahid) sedereng niko ngadepinyo; (ma’niki) selesernyo niko sampun ningalinyo serto niko nyaksikenyo. [^206]
 
-[^206]: Maksudnyo: sedereng perang Uhud kata Para sahabat terutamo yên nano turut perang Bwêntenr menganjurkan supayo Nabi Muhammad s.a.w. metu dari kota Madinah merangi wong-wong kafir.
-
 ## 3:144
 
 Muhammad niku nano lian cuman sesios Rosul; sederengnyo sampun liwat bepinten rosul. [^207] Napika kalu dio padem atawa dibunu, niko bebalik ke buri (murtad)? sinten saos bebalik ke buri, dades dio nano angsal ngerawoke mudhorat pado Allah setitikpun; serto Allah ayun ngesung balesan kepado wong-wong yên besyukur.
-
-[^207]: Maksudnyo: Nabi Muhammad s.a.w. wêntenla sios wong yên diangkat Allah dades rasul. Rasul-rasul sederengnyo sampun wafat. wênten yên wafat kareno tebunuh wênten pulo' yên kareno sakit biasa. kareno niku Nabi Muhammad s.a.w. juga akan wafat ma'kayo halnya Rasul-rasul yên dumin niku. di waktu bekecamuknya perang Uhud tersiarlah berita bahwo Nabi Muhammad s.a.w. mati terbunuh. berita niki ngacaukan kaum muslimin, sehingga wênten yên bermaksud nedo perlindungan kapado Abu Sufyan (pemimpin kaum Quraisy). Sementara niku wong-wong munafik ngelapke bahwo kalu Nabi Muhammad niku sios Nabi cengkila Dia nano akan mati terbunuh. Maka Allah menurunkan ayat niki peranti menenteramkan hati kaum muslimin serto manta kata-kata wong-wong munafik niku. (Sahih Bukhari bab Jihad). Abu Bakar r.a. ngelapke ayat niki di pundi tedades pulo' kegelisahan di kalangan Para sahabat di dinten wafatnya Nabi Muhammad s.a.w. peranti nenteremke Umar Ibnul Khaththab r.a. serto sahabat-sahabat yên nano pecaya tentang kewafatan Nabi niku. (Sahih Bukhari bab Ketakwaan Sahabat).
 
 ## 3:145
 
@@ -2287,8 +1873,6 @@ Wong-wong niku begirang ati dengen nikmat serto kurnio dari Allah, serto bahwo A
 
 Dades wong-wong niku mantu’ dengen nikmat serto kurnio (yên ageng) dari Allah, wong-wong niku nano ditimpo bencano napi-napi serto wong-wong niku numuti keridoan Allah. Serto Allah punyo kurnio yên ageng. [^208]
 
-[^208]: Ayat 172, 173, serto 174, di pucu’ ngelapke tentang Peristiwa perang Badar Shughra (Badar kecil) yên tedades sewikan sesampun perang Uhud. sewaktu ninggalke perang Uhud niku, Abu Sufyan pemimpin wong Quraisy nantang Nabi serto sahabat-sahabat beliau bahwo Dia besedio panggî mantu' dengen kaum muslimin pado tahun berikutnyo di Badar. tapi kareno tahun niku (4 H) musim paceklik serto Abu Sufyan dewe' waktu niku merasa takut, dades Dio beserto tentaronyo nano dades neruske pejalanan ke Badar, sampun niku Dio ngengken Nu'aim Ibnu Mas'ud serto kawan-kawan kesa ke Madinah peranti nakut-nakuti kaum muslimin dengen nyebarke kabar bohong, ma'kayo yên disebut jerû ayat 173. Namun ma’niku Nabi beserto sahabat-sahabat tetep maju ke Badar. oleh kareno nano tedades perang, serto pado waktu niku di Badar kebetulan musim pasar,dads kaum muslimin namelke pedagangan serto angsal laba yên ageng. Keuntungan niki wong-wong niku bawa pulo'ng ke Madinah ma'kayo yên tesebut pado ayat 174.
-
 ## 3:175
 
 Selesernyo wong-wong niku nano lian wêntenla setan yên ngewedhi-wedhii (niko) dengen rencang-rencangnyo (wong-wong musyrik Quraisy), kerno niku janganla niko wedhi kepado wong-wong niku, tapi wedhila kepado-Kulo, kalu niko leser-leser wong-wong yên beriman.
@@ -2308,8 +1892,6 @@ Serto jangan sekali-kali wong-wong kafir niku ngiro bahwa pengesungan tanggu (ba
 ## 3:179
 
 Allah nano ayun nala'ke wong-wong yên beriman sema’pundi jerû keadaan niko ma’niki, [^209] sehinggo Dio medake yen buruk (munafik) dari yên saê (mu’min). Allah nano ayun ningalke kepado niko hal-hal yên gaib, tapi Allah ngelimbang (milih) sinten yên Dio ayuni di antaro rosul-rosul-Nyo. Kerno niku berimanla kepado Allah serto rosul-rosul-Nyo, serto kalu niko beriman serto bertakwa, dades peranti niko pahalo yên ageng.
-
-[^209]: Ya'niku: Kewêntenan kaum muslimin bercampur baur dengen kaum munafikin.
 
 ## 3:180
 
@@ -2331,8 +1913,6 @@ Selesernyo Allah sampun nenger kelapnyo wong-wong (Yahudi) yên ngelapke: “Sel
 
 Kalu wong-wong niku nustoke niko (Muhammad), dades seleresnyo rosul-rosul sedereng niko pun sampun dibudike (pulok), Rasul-rasul niku makto makto mukjizat-mukjizat yên nyato, Zubur serto kitab yên ngesung penerangan yên sempurno. [^210]
 
-[^210]: Yakni: Kitab-Kitab yên ditûrûnke kapado nabi-nabi yên berisi hukum syari'at ma'kayo Taurat, Injil serto Zabur.
-
 ## 3:185
 
 Setiap yên benyawo ayun ngerasoke padem. serto selesernyo pado dinten Kiamat saos disungke dengen sempurno balesan niko. sinten saos ditebeke dari nerako serto dimasokke ke jerû suargo, nian, dio angsal kemenangan. Keidopan dunio niku nano lian cuman kedemenan yên mempedayo.
@@ -2344,8 +1924,6 @@ Niko’ cengki ayun diujidengen harto niko serto diri niko. Serto (jugo) niko ay
 ## 3:187
 
 Serto (imutla), ketiko Allah ngembil janji dari wong-wong yên sampun disung Kitab (ya’niki): “Hendakla niko leser-leser nerangkenyo (isi Kitab niku) kepado wong, serto janganla niko nyingitkenyo”. Laju wong-wong niku mabitke (janji niku) [^211] ke buri punggung wong-wong niku serto nyadenyo dengen rego mura. Buruk nian sadean yên wong-wong niku damelke.
-
-[^211]: Di antaro keterangan yên disembunyikan niku wêntenla tentang rawunyo Nabi Muhammad s.a.w.
 
 ## 3:188
 
@@ -2379,13 +1957,9 @@ Wahai Tuhan kamek, sungila kame’ napi yên sampun Niko janjike kepado kame’ 
 
 Dades Tuhan wong-wong niku ngangsalke pemohonannyo (dengen befirman): “Selesernyo Kulo nnano nyio-nyioke amal wong yên beramal di antaro niko, baek lanang atawa betino, (kerno) sebagian niko wêntenla (keturunan) dari sebagian yên lian. [^212]  dades wong yên behijrah, yên diusir dari gugu' pejerûannyo, yên disaketi pado jalan Kulo, yên beperang serto yên padem, cengki ayun Kulo apus kesalahan wong-wong niku serto cengki Kulo masokke wong-wong niku ke jerû suargo-suargo yên ngalir di bawanyo sungi-sungi, sebagai pahalo dari Allah. Serto disisi Allah wênten pahalo yên sae.”
 
-[^212]: Maksudnyo sebagaipundi laki-laki berasal dari laki-laki serto perempuan, Maka demikian pulo' halnya perempuan berasal dari laki-laki serto perempuan. Keduo iko'-duo iko'nya sama-sama wong, tak wênten kelangkungan yên satu dari yên lian tentang penilaian iman serto amalnya
-
 ## 3:196
 
 Jangan sekali-kali niko tepedayo ole gawean wong-wong kafir (yên beringgut) [^213] di sedanten negeri.
-
-[^213]: Yakni: kelancaran serto kemajuan jerû perdagangan serto perusahaan wong-wong niku.
 
 ## 3:197
 
@@ -2394,10 +1968,6 @@ Niki keladasan sedenget saos tula, sampun niku panggonan mantu’ wong-wong niku
 ## 3:198
 
 Tapi wong-wong yên betakwa kepado Tuhannyo, wong-wong niku ayun angsal suargo-suargo yên ngalir di bawanyo sungi-sungi, wong-wong niku kekel di jerûnyo sebagai kurnio dari Allah. [^214] Serto napi yên di sisi Allah langkung saê peranti wong-wong yên bebakti. [^215]
-
-[^214]: Yakni: enggon tinggal beserta perlengkapan-perlengkapannya ma'kayo tedoan, minuman serto liannyo.
-
-[^215]: Maksudnyo wêntenla penghargaan dari Allah disamping enggon tinggal beserta perlengkapan-perlengkapannya niku, wêntenla langkung saê daripwênten kesenangan duniawi yên dnikikmati wong-wong kafir niku.
 
 ## 3:199
 
@@ -2411,10 +1981,6 @@ Wahai wong-wong yên beriman, besobarla niko serto tegukela kesobaran niko serto
 
 Hei wong, betakwala kepado Tuhan niko yên sampun nyiptoke niko dari awa' dewe’ (Adam), [^216] serto (Allah) nyiptoke pasangannyo (Hawa) dari (awa')nyo; serto dari keduonyo Allah ngembang biakke lanang serto betino yên kata. Betakwala kepado Allah yên dengen nami-Nyo niko saleng tedo [^217] serto (peliarola) hubungan keluargo. Selesernyo Allah kerep nyago serto ningali niko.
 
-[^216]: Maksud dari padonyo nûrût jumhur mufassirin ya'ni dari bagêan badan (tulang rusuk) Adam a.s. bedasarke hadis riwayat Bukhari serto Muslim. di samping niku wênten pulo' yên nafsîrke dari padonyo ya'ni dari unsur yên serupo ya'ni tanah yên dari padonyo Adam a.s. diciptoke.
-
-[^217]: nûrût adat wong Arab, napibilo wong-wong niku nakenke sesios atawa nedonyo kepado wong lian wong-wong niku ngelapke nami Allah peca': As aluka billah retinyo kulo betaken atawa nedo kepado niko dengen nami Allah.
-
 ## 4:2
 
 Serto sungkela kepado anak-anak yatim (yên sampun dewasa) herto mereka, janganla niko nukar yên sae dengen yên buruk, serto janganla niko nedo herto mereka besami herto niko. Nian, (namelke nukar teko nedo) niku wêntenla doso yên ageng.
@@ -2423,27 +1989,17 @@ Serto sungkela kepado anak-anak yatim (yên sampun dewasa) herto mereka, janganl
 
 Serto kalu niko khawatir nano ayun sanggup belaku adil teadep (hak-hak) betino yatim (kalu niko ngaweninyo), dades kawenila betino (lian) yên niko demeni kale, tigo atawa sekawan. Tapi kalu niko khawatir nano ayun sanggup belaku adil3, dades (kawenila) sios saos [^218] , atawa babu betino yên niko punyo. [^219] Yên ma’niku langkung parak supayo niko nano bebuat zolim.
 
-[^218]: Belaku adil ya'ni pelakuan yên adil ketiko ngago'i sema peca' kelambi, enggon, gîlîran serto lian-lian yên besifat lahiriyah.
-
-[^219]: Islam molêke kata sema dengen syarat-syarat tetentu. sedêrêng tûrûn ayat niki kata sema sampun wênten, serto perna pulo' dijalanke olê sedanten Nabi sedêrêng Nabi Muhammad s.a.w. ayat niki matesi kata sema sampe sekawan wong saos.
-
 ## 4:4
 
 Sungkela maskawen (mahar) kepado betino (yên niko kaweni) sebagî sungan yên kebek kerelaan. [^220] Sesampun niku kalu wong-wong niku nyerake kepado sebagian dari (maskawen) niku dengen suko ati, dades terimola serto nikmatila sungan niku dengen seneng ati.
-
-[^220]: Sungan niku ya'ni maskawen yên ageng alîtnyo ditetepke pucu' semayoan opihak, kerno sungan niku mesti didamelke dengen ikhlas.
 
 ## 4:5
 
 Janganla niko serake kepado wong yên dereng sempurno akalnyo, [^221] herto (mereka yên wênten jerû kekuasoan) niko yên didadeske Allah sebagî pokok keuripan. Sungla mereka tumbasan serto kelambi (dari hasil herto niku) serto kelapkela kepado wong-wong niku kelapan yên sae.
 
-[^221]: Wong yên dêrêng sempurno akalnyo ya'ni anak yatim yên dêrêng balig atawa wong dewasa yên nano angsal ngatûr herto bendonyo.
-
 ## 4:6
 
 Serto ujila [^222] anak-anak yatim niku sampe dio niku cungkup umur peranti kawen. Sampun niku kalu nurut pendapet niko dio niku sampun celeketan (pinter meliaro herto), mangko serahkela kepado dio niku hertonyo. Serto janganla niko nedonyo (herto anak yatim) langkung bates sepantesnyo serto (janganla niko) tekacar-kacar (nyerenkenyo) sedereng dio niku dewasa. sinten saos (di antaro yên meliaro niku) sanggup, dades ayunla dio nahan awa' (dari nedo herto anak yatim niku) serto sinten saos miskin, mangko angsal dio nedo herto niku nurut caro yên leser. Sampun niku, napibilo niko nyerenke herto niku kepado dio-dio niku, dadesnyo niko wêntenke nian saksi-saksi. Serto cungkupla Allah sebagî penilik.
-
-[^222]: Ya'ni: madêk tehadep wong-wong niku tentang keigamoan, usoho-usoho wong-wong niku, kelakuan serto lian-lian sampe wikan bahwo anak niku angsal dipercayoi.
 
 ## 4:7
 
@@ -2452,10 +2008,6 @@ Bagi lanang wênten hak bagian dari herto warisan keduo wong sepuh serto sana'ny
 ## 4:8
 
 Serto napibilo sewaktu magike niku rawo bepinten-pinten sana', [^223] anak-anak yatim serto wong-wong miskin, dades sungla dio-dio niku dari herto niku (ala kadarnyo) [^224] serto kelapkela kepado dio-dio niku kelapan yên sae.
-
-[^223]: Sana' di ngeriki maksudnyo : sana' yên nano wênten hek warîsan dari herto bendo pusako
-
-[^224]: Sungan ala kadarnyo niku nano bolê langkung dari sepertigo herto warisan.
 
 ## 4:9
 
@@ -2469,15 +2021,9 @@ Selesernyo wong-wong yên nedo herto anak yatim secoro zolim, selesernyo wong-wo
 
 Allah menyareatke (mewajibke) kepado niko tentang (pembagian warisan peranti) anak-anak niko, (ya’niki) bagian sios wong anak lanang sami dengen bagian kale wong anak betino. [^225] Serto kalu anak niku sedantennyo betino yên rikinannyo langkung dari kale, [^226] dades bagian dio-dio niku kale sepertigo dari herto yên ditinggalke. Kalu dio (anak betino) niku sios wong saos, mangko dio dapet setengah (herto yên ditinggalke). Serto peranti keduo embi'-aba, bagian dewe'-dewe' seperenem dari herto yên ditinggalke, kalu dio (yên padem) punyo anak. Kalu dio (yên padem) nano punyo anak serto dio diwarisi ole keduo embi'-abahnyo (saos), dades mêknyo dapet sepertigo. Kalu dio (yên padem) punyo bepinten dulur, dades embi'nyo dapet seperenem. (bagian-bagian tesebut di pucuk) sesampun (dipenui) wasiat yên didamelnyo atawa (serto sesampun dibayar) utangnyo. (Tentang) wong sepuh niko teko anak-anak niko, niko nano wikan sinten di antaro wong-wong niku yên langkung kata manfaatnyo bagi niko. Niki wêntenla ketetepan Allah. Nian, Allah Maha Wikan, Maha Bijaksano.
 
-[^225]: Bagêan lanang duo kali bagêan betino wêntenla kerno kewajiban lanang langkung berat dari betino, peca' kewajiban mayar maskawen serto ngesung nafkah. (tingali surat An Nisaa ayat 34).
-
-[^226]: Langkung dari duo maksudnyo : duo atawa langkung klop dengen yên diamalke Nabi.
-
 ## 4:12
 
 Serto bagean niko (domik-domik) wêntenla seperduo dari herto yên ditinggalke ole sema-sema niko, kalu dio-dio niku nano punyo anak. Kalu dio-dio niku (sema-sema niko) niku punyo anak, dades niko dapet seper sekawan dari herto yên ditinggalkenyo sesampun (dipenui) wasiat yên dio-dio niku gawek atawa (sesampun dibayar) utangnyo. Sema-sema dapet sepersekawan herto yên niko tinggalke kalu niko nano punyo anak. Kalu niko punyo anak, mangko sema-sema dapet seperwolu dari herto yên niko tinggalke (sesampun dipenui) wasiat yên niko gawek atawa (serto sesampun dibayar) utang-utang niko. Kalu sesios wong padem, baek lanang atawa betino yên nano ninggalke aba serto nano ninggalke anak, tapi punyo sios dulur lanang (seembi') atawa sesios dulur betino (seembi'), dades bagi dewe'-dewe' dari keduo jenis dulur niku seperenem herto. Tapi kalu dulur-dulur se-embi' niku langkung dari sios wong, dades wong-wong niku besami-sami jerû bagian yên sepertigo niku, sesampun (dipenui wasiat) yên digaweknyo atawa (serto sesampun dibayar) utangnyo dengen nano nyaroke (kepado ahli waris). [^227] Ma’nikula ketentuan Allah. Allah Maha Wikan, Maha Penyantun.
-
-[^227]: Ngesung mudharat kepado waris niku ya'ni tindakan peca': a. ngewasiatke langkung dari sepertigo herto pusako. b. Bewasiat dengen maksud ngirangi herto warisan. meski kirang dari sepertigo kalu wênten niat ngirangi hek waris, jugo nano dibolêke.
 
 ## 4:13
 
@@ -2491,10 +2037,6 @@ Serto sinten saos mendurhakoi Allah serto Rosul-Nyo serto teka' bates-bates huku
 
 Serto betino-betino yên namelke gawean keji [^228] di antaro betino-betino niko, kendaknyo teadep wong-wong niku wênten sekawan wong saksi di antaro niko (yên nyaksike). Napibilo wong-wong niku sampun ngesung kesaksian, dades kurungla wong-wong niku (betino niku) jerû rompok sampe dio niku nemui ajalnyo, atawa sampe Allah ngesung jalan (yên lian) kepadonyo. [^229]
 
-[^228]: Damelan keji: nûrût jumhur mufassirin yên dimaksud damelan keji ya'ni damelan zina, sedengke nûrût pendapet yên lian ya'ni sedanten damelan mesum peca' : zina, homo sek serto yên sejenisnyo. nûrût pendapet Muslim serto Mujahid yên dimaksud dengen damelan keji ya'ni musahaqah (homosek antaro betino dengen betino).
-
-[^229]: Nûrût jumhur mufassirin jalan yên lian niku ya'ni dengen tûrûnnyo ayat 2 surat An Nuur.
-
 ## 4:16
 
 Serto teadep kale wong yên namelke damelan keji di antaro niko, dades sungla hukuman kepado keduonyo. Kalu keduonyo tobat teko meneri awa', dades kayonkela wong-wong niku. Nian, Allah Maha Penerimo tobat, Maha Penyayang.
@@ -2502,8 +2044,6 @@ Serto teadep kale wong yên namelke damelan keji di antaro niko, dades sungla hu
 ## 4:17
 
 Selesernyo betobat kepado Allah niku cuman (pantes) bagi wong-wong niku yên namelke kejahatan kereno kejahelan, [^230] sampun niko gancang betobat. Tobat wong-wong niku nikula yên diterimo Allah. Allah Maha Wikan, Maha Bijaksano.
-
-[^230]: Maksudnyo ya'ni: 1. wong yên bedamel maksiat dengen nano wikan bahwo damelan niku wêntenla maksiat kacuali kalu dipikirke dumin. 2. wong yên durhako kepado Allah sengajo atawa nano. 3. wong yên namelke kejahatan kerno kirang kesadaran lantaran murko atawa kerno dorongan hawo nafsu.
 
 ## 4:18
 
@@ -2513,15 +2053,9 @@ Serto nanola tobat niku (diterimo Allah) dari wong-wong niku yên namelke kejaha
 
 Wahai wong-wong yên beriman! Nano halal bagi niko mewarisi betino dengen jalan pakso [^231] serto janganla niko nyaroke wong-wong niku kerno ayun ngembil male sebagian dari napi yên sampun niko sungke kepadonyo, melianke napibilo wong-wong niku namelke gawean keji yên katon. [^232] Serto begaolla dengen wong-wong niku caro yên leser. Kalu niko nano demen sami wong-wong niku, (dades besobarla) kerno angsal dades niko nano demeni sesuatu, padohal Allah dadeske kesaean yên kata padonyo.
 
-[^231]: Ayat niki nano nûnju'ke bahwo ngewarîske betino nano dengen jalan pakso dibolêke. Nûrût adat sebagîan Arab Jahiliyah napibilo sios wong padem, dades anaknyo yên tetuo atawa anggota keluargonyo yên lian ngewaresi jando niku. jando niku bolê dikaweni dewe' atawa dikawenke dengen wong lian yên maharnya diembil olê pewaris atawa nano dibolêke kawen male.
-
-[^232]: maksudnyo: bezina atawa teka'.
-
 ## 4:20
 
 Serto kalu niko ayun ngenti sema niko dengen sema yên lian, [^233] sedeng niko sampun ngesungke kepado sios wong di antaro dio-dio niku herto yên kata, dades janganla niko ngembil male setitik jugo darinyo. Napi niko ayun ngembilnyo male dengen jalan tudoan yên mudike serto dengen (nanggung) doso yên katon?
-
-[^233]: Maksudnyo ya'ni: pegat sema yên nano demeni serto kawen dengen sema yên daru. Meski io pegat sema yên lami niku dêdê tujuan peranti kawen, Namun nedo kembali sungan-sungan niku nano dibolêke.
 
 ## 4:21
 
@@ -2535,23 +2069,13 @@ Janganla niko ngaweni betino-betino yên sampun dikaweni ole aba niko, melianke 
 
 Diharamke peranti niko (ngaweni) embi'-embi' niko, ana'-ana' niko yên betino, [^234] dulur-dulur niko yên betino, dulur-dulur abah niko yên betino, dulur-dulur embi' niko yên betino, ana'-ana' betino dari dulur-dulur niko yên lanang, ana'-ana' betino dari dulur-dulor niko yên betino, embi'-embi' yên nyusui kamo’, dulur-dulur betino niko sesuson, embi'-embi' sema niko (mertuo), ana'-ana' betino dari sema niko (ana' tiri) yên jerû peliaroan niko dari sema yên sampun niko campuri, tapi kalu niko dereng campor dengen sema niko niku (serto sampun niko pegatke), dades nano bedoso niko (ngawenginyo), (serto diharamke bagi niko) sema-sema ana' kandung niko (mantu), serto (diharamke) ngumpulke (jerû pekawenan) duo iko' betino yên bedulur, melianke yên sampun tedades pado maso kerihin. Nian, Allah Maha Pengampun, Maha Penyayang.
 
-[^234]: Maksud embi’ di ngeriki ya'ni embi’, nenek serto seterusnyo ke pucu'. serto yên dimaksud dengen ana’ betino ya'ni ana' betino, cucu betino serto seterusnyo ke bawa, ma'niku jugo yên lian-liannya. sedengke yên dimaksud dengen ana'-ana' sema niko yên jerû tanggungan niko, nûrût jumhur ulami temasû' jugo ana' tiri yên nano jerû tanggungannyo.
-
 ## 4:24
 
 Serto (diharamke jugo niko ngaweni) wadon yên sampun domik, kecuali buda'-buda' wadon (ungkepan perang) yên niko miliki [^235] sebagê ketetepan Allah atas niko. serto dihalalke peranti niko selian (wadon-wadon) yên ma’ niku [^236] kalu niko bedamel dengen redanoperanti ngaweninyo dêdê peranti belanja’an. dades keo kelema’an yên sampun niko embil dari wong-wong niku, sungla maskawen kepado wong-wong niku sebagê suatu kewajiban. Tapi nano napi kalu tenyato di antaro niko sampun salîng ngikhlaske, sesampun ditetepke. [^237] selesernyo Allah Maha Wikan, Maha Bijaksano.
 
-[^235]: Maksudnyo: budak-budak yên dihek-i yên domiknyo nano tumut tetawan besami-saminyo.
-
-[^236]: Ya'ni: selian dari macem-macem betino yên tekelap jerû surat An Nisaa' ayat 23 serto 24.
-
-[^237]: Ya'ni: namba, ngirangi atawa nano mayar sami sekali maskawen yên sampun ditetepke.
-
 ## 4:25
 
 Serto sinten saos di antaro niko nano wênten redanoperanti ngaweni wadon merdeka yên be’iman, dades (dihalalke ngaweni wadon) yên be’iman dari buda' yên niko punyo. Allah wikan keimanan niko. Sebagêan niko niku dari sebagêan yên lian (sami-sami keturunan Adam-Hawa), [^238] kerno niku kawenila wong-wong niku dengen izin tuannyo, serto sungla wong-wong niku maskawen yên saê, kerno wong-wong niku nikula wadon-wadon yên meliaro awa’ dewe’, dêdê pezina serto dêdê (saos) wadon yên ngembil lanang lian sebagê piaroannyo. Kalu wong-wong niku sampun kawen (belaki), tapi damelke damelan keji (belanja'an), dades (hukuman) peranti wong-wong niku separû (hukuman) dari hukuman wadon-wadon merdeka (yên nano bedomik). (Kebolehan ngaweni buda') niku, nikula peranti wong-wong yên takut kepado kesulitan jago awa’ (dari damel belanja'an), tapi kalu niko besabar niku langkung saê peranti niko. Allah Maha Pengampun, Maha Penyayang.
-
-[^238]: Maksudnyo: wong merdeka serto budak yên dikaweninyo niku wêntenla sami-sami ketûrûnan Adam serto hawa serto sami-sami beriman.
 
 ## 4:26
 
@@ -2565,13 +2089,9 @@ Serto Allah ayun nerimo tobat niko, dengke wong-wong yên numuti kedaknyo ngayun
 
 Allah ayun ngesung kemudahan kepado niko, [^239] kerno wong didadeske (besifat) lemah.
 
-[^239]: Ya'ni jerû syari'at di antaronyo bolê ngaweni budak kalu sampun cungkup syarat-syaratnyo.
-
 ## 4:29
 
 Hei wong-wong yên beiman! nanola niko saling nedo harto sesami niko dengen jalan yên batil (nano selesernyo), kecuali lebet besade yên belaku atas dasar gala’ sami gala’ di antaro niko.serto nanola niko munuh awa’ niko. [^240] selesernyo, Allah Maha Penyayang kepado niko.
-
-[^240]: Larangan munu awa' dewe' mencangkup jugo larangan munu wong lian, sebab munu wong lian retinyo munu awa' dewe', kerno umat ngerupoke sios kesatuan.
 
 ## 4:30
 
@@ -2589,45 +2109,25 @@ Serto nanola niko dengki ati tehadep kurnio yên sampun dilangkungke Allah kepad
 
 Serto peranti masing-masing (lanang serto wadon) Kame’ sampun netepke sedanten ahli waris atas napi yên ditinggalke oleh keduo walidnyo serto sohib dulurnyo. [^241] serto wong-wong yên niko sampun setio sami wong-wong niku, dades sungla sami wong-wong niku bagêannyo. selesernyo, Allah Maha Ningal sedantennyo.
 
-[^241]: Tingali wong-wong yên temasû' ahli waris jerû surat An Nisaa' ayat 11 serto 12.
-
 ## 4:34
 
 Lanang (domik) niku pelîndÛng peranti wadon (sema), kerno Allah sampun ngelangkungke sebagian wong-wong niku (lanang) atas sebagian yên lian (wadon), serto kerno wong-wong niku (lanang) sampun lesung nafkah dari redanonyo. dades wadon-wadon yên saê nikula wong-wong niku yên bakto (kepado Allah ) serto njago awa’ [^242] sewaktu (domiknyo) nano wênten, kerno Allah sampun jago (wong-wong niku) [^243] Wadon-wadon yên niko khawatirke ayun nusyūz, [^244] ayunla niko sung wejangan kepadowong-wong niku, tinggalkela wong-wong niku di pedaleman tilem (pisah ranjang), serto (kalu perlu) gebukla wong-wong niku. Tapi kalu wong-wong niku bebakti sami niko, dades nanola niko nyari-nyari alasan peranti nyarokenyo. [^245] selesernyo, Allah Maha Tinggi, Maha Ageng.
-
-[^242]: Maksudnyo: nano sekewet serto meliaro resio serto herto domiknyo.
-
-[^243]: Maksudnyo: Allah sampun ngewajibke kepado domik supayo ngauli semanya dengen saê.
-
-[^244]: Nusyuz: ya'ni ninggalke kewajiban domik-sema. nusyuz dari pihak sema peca' ninggalke rompo' tanpa izin domiknyo.
-
-[^245]: Maksudnyo: peranti ngesung pelajaran kepado sema yên dikhawatirke teka’nyo. mestila mulo-mulo di sung nasehat, kalu nasehat nano bemanfaat darula dipisake dari enggon tilem wong-wong niku, kalu nano bemanfaat jugo darula dibolêke ngebûg wong-wong niku dengen pukulan yên nano ninggalke bekas. kalu caro petamo sampun wênten manfaatnyo jangan dijalanke caro yên lian serto seterusnyo.
 
 ## 4:35
 
 Serto kalu niko khawatir tedades bebala antaro keduonyo, dades kirimla sios hakim [^246] yên nyapeke dari zuriyat lanang serto sios wong yên nyapeke dari zuriyat wadon. Kalu keduonyo (wong yên nyampeke niku) bembi'sud ngadoke perbaikan, niscayo Allah ngesung taufik sami domik-sema niku. selesernyo, Allah Maha Teliti, Maha Wikan.
 
-[^246]: Hakim ya'ni juru damî.
-
 ## 4:36
 
 Serto sembahla Allah serto nanola niko dadeske-Nyo rewang sami sedantennyo. serto damelkela yên saê sami keduo walid, sana' dulur, buda’-buda’ yatim, wong-wong saro, tetanggo para’ serto tetanggo tebî, [^247] rencang sejawat, ibnu sabīl [^248] serto buda' sahaya yên niko punyo. selesernyo, Allah nano galak wong yên sombong serto banggoke awa’,
-
-[^247]: Para' serto tebî' di ngeriki wênten yên ngertike dengen enggon, hubungan kekeluargoan, serto wênten pulo' antaro yên Muslim serto yên dêdê Muslim.
-
-[^248]: Ibnus sabil ya'ni wong yên jerû lawatan yên dêdê ma'shiat yên sampun abîs sangu. temasû' jugo ana' yên nano wikan embi’ abanyo.
 
 ## 4:37
 
 (Ya'ni) wong yên pelit, serto kegke wong lian bedamel pelit, serto nyingiti karunio yên sampun disung Allah kepadonyo. Kame’ sampun nyaweske peranti wong-wong kafir [^249] , azab yên nginoke.
 
-[^249]: Maksudnyo kafir tehadep nikmat Allah, ya'ni kerno medit, ngengken wong lian medit. nyingitke karunia Allah retinyo nano nyukuri nikmat Allah.
-
 ## 4:38
 
 Serto (jugo) wong-wong yên nginfakke redanonyo kerno sombong [^250] serto kepado wong lian (ayun ditingali serto dikelapke saê), serto wong-wong yên nano beiman kepado Allah serto kepado dinten mengkîn. Sinten saosnya dike setan sebagê rencangnyo, dades (wikanila) dio (setan niku) nikula rencang yên sangat jahat.
-
-[^250]: Riya ya'ni namelke sesios kerno pengen ditingali serto dipuji wong.
 
 ## 4:39
 
@@ -2637,8 +2137,6 @@ Serto napi (keberatan) peranti wong-wong niku kalu wong-wong niku beiman kepado 
 
 Selesernyo, Allah nano ayun zolimi wong walaupun seageng żarrah, serto kalu wênten kebajikan (sealit żarrah), niscayo Allah ayun ngelipat gandokenyo serto ngesung pahalo yên ageng dari sisi-Nyo. [^251]
 
-[^251]: Maksudnyo: Allah nano ayun ngirangi pahalo wong-wong yên namelke kejahatan meski seageng zarrah, bahkan kalu dia bedamel saê pahalonya ayun dilipet gandoke olê Allah.
-
 ## 4:41
 
 Serto ma’ pundila (keadoan wong kafir mengkîn), kalu Kame’ rawûke sios wong saksi (Rasul) dari saben umat serto Kame’ rawûke niko (Muhammad) sebagê saksi peranti umat niku.
@@ -2647,15 +2145,9 @@ Serto ma’ pundila (keadoan wong kafir mengkîn), kalu Kame’ rawûke sios won
 
 Pado dinten niku, wong yên kafir serto wong yên nurhakoi Rasul (Muhammad), ngarep kalu waya-waya wong-wong niku diratoke dengen tanah [^252] (di kubur atawa hancur nian dades tanah), padohal wong-wong niku nano wikan nyingitke sesios kejadian napi saos dari Allah .
 
-[^252]: Maksudnyo: wong-wong niku dikuburke atawa wong-wong niku hancur dades tanah.
-
 ## 4:43
 
 Wahai wong yên beiman! nanola niko mara’i semayang kalu niko maler tenggeng, sampe niko wikan napi yên niko kelapke, serto nanola pulo’ (niko mara’i mesjid sewaktu niko) maler junub [^253] kacuwali sekadar ngelewati jalan saos, sampe niko mandi (mandi junub). wênten jugo kalu niko sakit atawa deng lebet pejalanan atawa sampun kûyû atawa niko sampun nyênggol wadon, [^254]  sedengke niko nano wikan toya, dades tayamumla niko sami debu yên saê (suci); usapla rai niko serto tangan niko sami (debu) niku. selesernyo, Allah Maha Pemaaf, Maha Pengampun.
-
-[^253]: Nûrût sebagean ahli tafsir jerû ayat niki temuat jugo larangan semayang peranti wong junub yên dêrêng mandi.
-
-[^254]: Sebagean ageng ulama ngelapke, nyenggol di ngeriki nyenggol kulit. Serto sebagean lian ngelapke becampurnyo sema-domik.
 
 ## 4:44
 
@@ -2669,21 +2161,9 @@ Serto Allah langkung wikan tentang musu-musu niko. Cungkupla Allah dades pelindu
 
 (Ya'ni) di antaro wong Yahudi, yên ngubah kelapan dari enggonnyo. [^255] serto wong-wong niku bekelap, “Kame’ denger, tapi kame’ nano galak nurutinyo.” [^256] serto (wong-wong niku bekelap pulo’), “Dengerla,” sedeng (niko Muhammad selesernyo) nano denger napi saos. [^257] serto (wong-wong niku bekelap), “Rā‘inā” [^258] dengen memuter-balîkke ilatnyo serto nguyo’ igamo. Sekironyo wong-wong niku bekelap, “Kame’ denger serto bakto, serto dengerla, serto ningali kela kame’,” selesernyo niku langkung saê peranti wong-wong niku serto langkung selesernyo, tapi Allah ngelaknat wong-wong niku, kerno kekafiran wong-wong niku. Wong-wong niku nano beiman kacuwali setîtî’ nian. [^259]
 
-[^255]: Maksudnyo: nguba reti kelap-kelap, enggon atawa namba serto ngirangi.
-
-[^256]: Maksudnyo wong-wong niku ngelapke : kame' ngerungu, sedengke ati wong-wong niku ngelapke: kame' nano ayun nûrûti.
-
-[^257]: Maksudnyo wong-wong niku ngelapke: dengerla, tetapi ati wong-wong niku ngelapke: Mudah-mudahan niko nano angsal ngerunguke (tuli).
-
-[^258]: Raa 'ina retinyo: sudila kironyo niko masati kame'. sewaktu sedanten rencang ngadepke kelap niki kepado Rasulullah, wong Yahudi make kelap niki dengen berûtû’ peca’ nyebût Raa'ina padohal yên wong-wong niku kelapke ya'ni Ru'uunah yên retinyo benga’ nian, sebagî uyo’an kepado Rasulullah. nikula sebabnyo Tuhan ngengken supayo rencang-rencang nuker kelapan Raa'ina dengen Unzhurna yên jugo sami retinyo dengen Raa'ina.
-
-[^259]: Wênten yên ngelapke kadar keimanan yên setîtî’ wênten yên ngelapke wong yên setîtî’
-
 ## 4:47
 
 Hei wong-wong yên sampun disung Kitab! Beimanla niko sami napi yên sampun Kame’ turunke (Al-Qur'an) yên meselesernyoke Kitab yên wênten pado niko, sedereng Kame’ ngubah rai-rai (niko), sampun niku Kame’ puter ke buri [^260] atawa Kame’ laknat wong-wong niku sema’ pundi Kame’ ngelaknat wong-wong (yên damelke maksiat) pado dinten Sabat (Sabtu). serto ketetepan Allah cengki belaku.
-
-[^260]: Nûrût pinten-pinten mufassirin, maksudnyo ya'ni nguba rai wong-wong niku sampun niku diputer ke buri sebagî uyo’an.
 
 ## 4:48
 
@@ -2693,8 +2173,6 @@ Selesernyo Allah nano ayun ngampuni (duso) kerno dadeske-Nyo rewang (sirik), ser
 
 Napi nano niko ningali wong-wong yên nganggap awa’nyo suci [^261] selesernyo Allah nyucike sinten yên Dio ayuni serto wong-wong niku nano dizalimi setîtî' saos.
 
-[^261]: Yên dimaksud di ngeriki ya'ni wong-wong Yahudi serto Nasrani yên nganggep awa' wong-wong niku bersî. tingali surat Al Baqarah ayat 80 serto ayat 111 serto surat Al Maa-idah ayat 18.
-
 ## 4:50
 
 Ningalilah, betapo wong-wong niku mengado-adoke mudike tehadep Allah! serto cungkupla damelan niku dades doso yên nyato (peranti wong-wong niku).
@@ -2703,8 +2181,6 @@ Ningalilah, betapo wong-wong niku mengado-adoke mudike tehadep Allah! serto cung
 
 Napi nano niko ningalke wong-wong yên dilesung perantian dari Kitab (Taurat)? Wong-wong niku pecayo kepado Jibt serto Tāgut, [^262] serto bekelap kepado wong-wong kafir (musyrik Mekah), bahwo wong-wong niku langkung selesernyo jalannyo daripado wong-wong yên beiman.
 
-[^262]: Jibt serto Thaghut ya'ni syaitan serto napi saos yên disemba selian Allah s.w\.t.
-
 ## 4:52
 
 Wong-wong nikula wong-wong yên dilaknat Allah. serto sinten saos dilaknat Allah, niscayo niko nano ayun angsalke penolong perantinyo.
@@ -2712,8 +2188,6 @@ Wong-wong nikula wong-wong yên dilaknat Allah. serto sinten saos dilaknat Allah
 ## 4:53
 
 Atawakah wong-wong niku punyo bagêan dari keratin (kekuasoan), meskipun wong-wong niku nano ayun ngesung setîtî'pun (kebajikan) kepado wong [^263]
-
-[^263]: Maksudnyo: wong-wong yên nano angsal ngesungke kesaêan kepado wong atawa masyarakatnyo, nano selaya’nyo tumut megang jabatan jerû pemerintahan.
 
 ## 4:54
 
@@ -2739,13 +2213,9 @@ Selesernyo, Allahkegke niko nyampêke amanat kepado yên berhak nerimonyo, serto
 
 Wahai wong-wong yên beiman! baktola Allah serto baktola Rasul (Muhammad), serto Ulil Amri (nyekêl kekuasoan) [^264] di antaro niko. Sampun niku, kalu niko bebedo penangsal tenteng sesios, dades mantu’ kela kepado Allah (Al-Qur'an) serto Rasul (sunnahnyo), kalu niko beiman kepado Allahserto dinten mengke. Yên ma'niku lebî utamo (peranti niko) serto langkung saê akibatnyo.
 
-[^264]: Selami ulil amri nyekel kepado Allah serto sunnah Rosul.
-
 ## 4:60
 
 Napi nano niko (Muhammad) ningali wong-wong yên ngaku kalu wong-wong niku sampun beiman kepado napi yên diturunke kepado niko serto kepado napi yên diturunke sedereng niko? Tapi wong-wong niku [^265] maler nginginke ketetepan hukum kepado Tagut, padohal wong-wong niku sampun diperintake peranti ngingkari Tagut niku. serto setan ayun nyesetke wong-wong niku (dengen) kesesetan yên setebî-tebînyo.
-
-[^265]: Yên sesampun niku musuhi Nabi serto kaum muslimin serto wênten yên ngelapke Abu Barzah sios wong tukang tenung di maso Nabi, serto wênten yên ngelapke Ka’ab bin Asy’raf (wong munafiq)
 
 ## 4:61
 
@@ -2762,8 +2232,6 @@ Wong-wong niku nikula wong-wong yên (selesernyo) Allah wikan napi yên wênten 
 ## 4:64
 
 Serto Kame’ nano ngkegke sios rasul melainke peranti dibakto dengen izin Allah . serto selesernyo, kalu wong-wong niku sampun menzalimi awa’nyo [^266] rawu kepado niko (Muhammad), sampun niku mohon ampunan kepado Allah , serto Rasul pun mohonke ampunan peranti wong-wong niku, niscayo wong-wong niku angsali Allah Maha Nerimo tobat, Maha Penyayang.
-
-[^266]: Ya'ni: behakim kepado selian Nabi Muhammad s.a.w.
 
 ## 4:65
 
@@ -2817,13 +2285,9 @@ Wong-wong yên beiman beperang di jalan Allah , serto wong-wong yên kafir beper
 
 Napi nano niko ningali wong-wong yên dikelapke kepado wong-wong niku [^267] , ”Tahanla tangan niko (dari beperang), damelkela semayang serto sungkela zakat!” Sewaktu wong-wong niku diwajibke beperang, tibo-tibo sebagian wong-wong niku (gûgû' munafik) takut kepado wong (musu), peca' takutnyo kepado Allah , bahkan langkung takut (dari niku).Wong-wong niku bekelap, “Ya Tuhan kame’, napi Niko wajibke beperang kepado kame’?Napi nano Niko tundo (kewajiban beperang) kepado kame’ beberapo waktu male?” Kelapkela, “Kesenangan di dunio niki cuma setîtî' serto akhirat niku langkung saêperanti wong-wong yên betakwa (menangsal pahalo tumut beperang) serto niko nano ayun dizolimi setiti’ saos”
 
-[^267]: Wong-wong yên nampa'ke awa'nya beriman serto nedo izin beperang sedêrêng wênten perinta perang.
-
 ## 4:78
 
 Di pundipun niko wênten, kepademan ayun dapatke niko, meskipun niko wênten di lebet benteng yên tinggi serto kuat. Kalu wong-wong niku memperoleh saê, wong-wong niku bekelap, “Niki dari sisi Allah ,” serto kalu wong-wong niku dicampakke suatu keburukan, wong-wong niku bekelap, “Niki dari niko (Muhammad). ”Kelapkela, “sedantennyo (rawû) dari sisi Allah .” dades napi wong-wong niku (wong-wong munafik) tembes saos nano mahami kelapan (setiti’ saos)?” [^268]
-
-[^268]: Retinyo pahalo tûrût perang nano ayun dikirangi setîtî' saos.
 
 ## 4:79
 
@@ -2832,8 +2296,6 @@ Saê napi saos yên niko terimo, nikula dari sisi Allah , serto keburukan napi p
 ## 4:80
 
 Sinten saos bakto sami Rasul (Muhammad), dades selesernyo dio sampun bakto sami Allah. serto sinten saos bepaling (dari kebaktoan niku), dades (wikanila) Kame’ nano ngkegke niko (Muhammad) peranti dades penjago wong-wong niku. [^269]
-
-[^269]: Rasul nano tanggung jawab tehadep damelan-damelan wong-wong niku serto nano jamin supayo wong-wong niku nano bedamel kesalahan.
 
 ## 4:81
 
@@ -2847,27 +2309,17 @@ Dades nanola wong-wong niku menghayati (melebeti) Al-Qur'an? Sekironyo (Al-Qur'a
 
 Serto napibilo sampe kepado wong-wong niku suatu kabar tentang keamanan atawapun ketakutan, wong-wong niku (langsung) nyiarkenyo. (Padohal) napibilo wong-wong niku nyerahkenyo kepado Rasul serto Ulil Amri [^270] di antaro wong-wong niku, cengkila wong-wong yên ayun wikan kesaêannyo (ayun angsal) wikaninyo (secaro resmi) dari wong-wong niku (Rasul serto Ulil Amri). [^271] Sekironyo nano kerno karunio serto rahmat Allah kepado niko, cengkila niko numuti setan, kecuali sebagian alit saos (di antaro niko).
 
-[^270]: Ya'ni: tokoh-tokoh rencang serto sedanten cendekiawan di antaro wong-wong niku.
-
-[^271]: Nûrût mufassirin yên lian maksudnyo ya'ni: kalu sios kabar tentang keamanan serto ketakutan niku disampeke kepado Rasul serto ulil Amri, cengki Rasul serto ulil amri yên ahli angsal netepke simpulan (istimbat) dari kabar niku.
-
 ## 4:84
 
 Dades beperangla niko (Muhammad) di jalan Allah , niko nanola dibebani melainke tehadep awa’ niko dewe’. [^272] Kobarkela (semangat) wong-wong beiman (peranti beperang). Mudah-mudahan Allah nula’ (matake) serangan wong-wong yên kafir niku. Allah ageng nian kekuatan(-Nyo) serto keras nian siksoan(-Nyo).
-
-[^272]: Kengkenan perang niku mesti didamelke olê Nabi Muhammad s.a.w kerno yên dibebani wêntenla awa' beliau dewe'. ayat niki behûbûngan dengen lesunyo sebagêan ageng wong Madinah peranti tumut perang besami Nabi ke Badar Shughra. dades tûrûnla ayat niki yên ngengken supaya Nabi Muhammad s.a.w. kesa perang walau dewe'an saos.
 
 ## 4:85
 
 Sinten saos ngesung petolongan dengen petolongan yên saê, [^273] niscayo dio ayun nerimo bagêan dari (pahalo)nyo. serto sinten saos ngesung petolongan dengen petolongan yên nano saê, niscayo dio ayun mikul perantian dari (duso)nyo. Allah Maha Kuaso atas sedantennyo.
 
-[^273]: Syafa'at yên saê ya'ni: Sesaben sya'faat yên ditujuke peranti ngelindungi hek sios wong Muslim atawa nginderkenyo dari sesios kemudharatan.
-
 ## 4:86
 
 Serto napibilo niko dihorpadem dengen suatu (salam) tabe’, dades balesla tabe’an niku dengen yên langkung saê, atawa balasla (tabe’an niku, yên sami) dengennyo. [^274] selesernyo, Allah memperhitungke sedantennyo.
-
-[^274]: Penghormatan jerû Islam ya'ni: dengen ngelapke Assalamu'alaikum.
 
 ## 4:87
 
@@ -2877,23 +2329,13 @@ Allah, nano wênten tuhan selian Dio. Dio cengki ayun ngumpulke niko pado dinten
 
 Dades napi niko (tebela) dades duo gûgû' [^275] lebet (ngadepi) wong-wong munafik, padohal Allah sampun mantû’ke wong-wong niku (kepado kekafiran), disebabke damelan wong-wong niku dewe’? Napi niko ayun ngesung petunjuk kepado wong yên sampun dilanta’ke seset oleh Allah? [^276] Sinten saos dilanta’ke seset oleh Allah, niko nano ayun napatke jalan (peranti ngesung petunjuk) perantinyo.
 
-[^275]: Maksudnyo: gûgû' wong-wong mukmin yên mela wong-wong munafîk serto gûgû' wong-wong mukmin yên musuhi wong-wong niku.
-
-[^276]: Disesetke Allah retinyo: bahwo wong niku seset behûbûng keingkarannya serto nano ayun mahami petûnjû’-petûnjû’ Allah. jerû ayat niki, kerno wong-wong niku niku ingkar serto nano ayun mahami napi sebabnyo Allah dadeske nyamuk sebagî perumpamoan, dades wong-wong niku niku dades seset.
-
 ## 4:89
 
 Wong-wong niku ayun supayo niko dades kafir peca’ wong-wong niku sampun dades kafir, sehinggo niko dades sami (dengen wong-wong niku). nanola niko dadeske dari antaro wong-wong niku sebagê rencang-rencang(niko), sedereng wong-wong niku ngaleh pado jalan Allah . Napibilo wong-wong niku bepaling, [^277] dades tawanla wong-wong niku serto bunula wong-wong niku di pundi pun wong-wong niku niko temuke, serto nanola niko dadeske sios wong saos di antaro wong-wong niku sebagê rencang setio serto penolong,
 
-[^277]: Diriwayatke bahwo pinten-pinten wong Arab rawû kepado Rasulullah s.a.w. di Madinah. sampun niku wong-wong niku melebet Islam, sampun niku wong-wong niku keno demem Madinah, kerno niku wong-wong niku kafîr male sampun niku wong-wong niku metu dari Madinah. sampun niku wong-wong niku panggî dengen rencang Nabi, sampun niku rencang nakenke sebab-sebab wong-wong niku ninggalke Madinah. wong-wong niku nerangke bahwo wong-wong niku keno demem Madinah. rencang-rencang berkelap: napi nian niko nano ngembil teladan yên saê dari Rasulullah? rencang-rencang tebagî kepado dua gûgû', yên sebagîan bependapet bahwo wong-wong niku sampun dades munafik, sedengke yên sebagian maler bependapet bahwo wong-wong niku maler Islam. sampun niku tûrûnla ayat niki yên nyelo kaum muslimin kerno dades dua gûgû' niku, serto ngengken supaya wong-wong Arab niku ditawan serto dibunu, kalu wong-wong niku nano hijra ke Madinah, kerno wong-wong niku disamike dengen kaum musyrikin yên lian.
-
 ## 4:90
 
 Kecuali wong-wong yên tedo pelindungan kepado suatu gûgû', yên antaro niko serto gûgû' niku sampun wênten semayoan (damêi) [^278] atawa wong yên rawu kepado niko deng ati wong-wong niku ngeraso keberatan peranti memerangi niko atawa merangi gûgû'nyo. [^279] Kalu Allah ayuni, niscayo disungke-Nyo kekuasoan kepado wong-wong niku (jerû) ngadepi niko, dades cengkila wong-wong niku memerangi niko. Tapi kalu wong-wong niku melanta’ke niko, serto nano merangi niko serto menawarke perdamêan kepado niko (nyerah), dades Allah nano ngesung jalan peranti niko (peranti menawan serto munu) wong-wong niku.
-
-[^278]: Ayat niki dades dasar hukum suaka
-
-[^279]: Nano mihak serto sampun ngewêntenke hubungan dengen kaum muslimin.
 
 ## 4:91
 
@@ -2903,10 +2345,6 @@ Mengke ayun niko angsali (gûgû'-gûgû') yên lian, yên ayun supayo wong-wong
 
 Serto nano patut peranti wong yên beiman munuh wong yên beiman (yên lian), kecuali kerno tesala (nano sengajo). [^280] Sinten saos munu wong yên beiman kerno tesala (ayunla) dio merdekake wong buda’ sahayo yên beiman serto (ngesung) diat [^281] yên disungke kepado zuriyatnyo (si tebunuh niku), kecuali kalu wong-wong niku (zuriyat si tebunuh) mebaske sungan. Kalu dio (si tebunu) dari gûgû' yên musui niko, padohal dio wong beiman, dades (hendakla si pembunu) merdekake buda’ yên beiman. serto kalu dio (si terbunuh) dari gûgû' (kafir) yên wênten semayoan (damêi) antaro wong-wong niku dengen niko, dades (ayunla si pembunu) ngesung tebusan yên disungke sami zuriyatnyo (si terbunuh) serto memerdekake buda’ yên beiman. Sinten saos nano dapatke (buda’), dades hendakla dio (si pembunu) bepuaso duo bulan beturut-turut sebagê tobat sami Allah . serto Allah Maha Wikan, Maha Bijaksano.
 
-[^280]: Peca': nemba’ burung tekeno sios wong mukmin.
-
-[^281]: Diat ya'ni pembayaran sejumla herto kerno sesios tindak pidana tehadep sesios jiwa atawa anggota badan.
-
 ## 4:93
 
 Serto sinten saos munu wong yên beiman dengen sengajo, dades balasannyo nikula nerako Jahanam, dio kekel di lebetnyo. Allah murko sami dio, serto ngelaknatnyo serto nyaweske azab yên ageng perantinyo.
@@ -2914,10 +2352,6 @@ Serto sinten saos munu wong yên beiman dengen sengajo, dades balasannyo nikula 
 ## 4:94
 
 Wahai wong-wong yên beiman! Napibilo niko pegi (beperang) di jalan Allah , dades telitila (carila keterangan) serto nanola niko bekelap sami wong yên bekelap ”salam” sami niko, [^282]  ”Niko nano wong yên beiman,” (sampun niku niko munuhnyo), dengen maksud nyari harto bendo keuripan dunio, padohal di sisi Allah wênten harto yên katah. ma'niku saos keadaan niko kerihin, [^283] sampun niku Allah ngesung nikmat-Nyo kepado niko, dades telitila. selesernyo, Allah Maha Teliti sami napi yên niko damelke.
-
-[^282]: Dimaksud jugo dengen wong yên ngelapke kalimat: laa ilaaha illallah.
-
-[^283]: Maksudnyo: wong niku dêrêng katon keislamannyo olê wong rame niko ma'niku pulo' dumin.
 
 ## 4:95
 
@@ -2930,8 +2364,6 @@ Nanola sami antaro wong beiman yên linggi (yên nano tumut beperang) tanpo puny
 ## 4:97
 
 Selesernyowong-wong yên diembe’ nyawonyo oleh malaikat jerû keadaan menzolimi awa’ dewe', [^284] wong-wong niku (paro malaikat) betake, “Makpundi niko niki?” Wong-wong niku menjawab, “Kame’ wong-wong yên tetindas di bumi (Mekah).”Wong-wong niku (paro malaikat) betake, “napi nano bumi Allahitu luas, sehinggo niko wikan behijrah (bepindah-pindah) di bumi niku?” dades wong-wong niku pedalemannyo di nerako Jahanam, serto (Jahanam) niku sejahat-jahatnyo ’pedaleman mantuk,
-
-[^284]: Yên dimaksud dengen wong yên nganiayo awa' dewe' di ngeriki, ya'ni wong-wong muslimin Mekah yên nano ayun hijrah besami Nabi sedengke wong-wong niku sanggup. wong-wong niku ditindas serto dipaksa olê wong-wong kafir tumut besami wong-wong niku kesa ke perang Badar; akhirnya di antaro wong-wong niku wênten yên tebunu jerû peperangan niku.
 
 ## 4:98
 
@@ -2949,17 +2381,9 @@ Serto barang sinten kesah di jalan Allah, niscayo wong-wong niku ayun angsal di 
 
 Serto napibilo niko bepegian di bumi, dades nanola beduso niko meng-qasar [^285] semayang, kalu niko takut diserang wong kafir. Seselesernyo nyo wong kafir niku nikula musu yên nyato peranti niko.
 
-[^285]: Nûrût pendapet jumhur reti qashar di ngeriki ya'ni: semayang yên sekawan rakaat didadeske duo rakaat. ngashar di ngeriki wênten kalonyo dengen ngirangi jumlah rakaat dari 4 dades 2, ya'ni di waktu kesa serto suasano aman serto wênten kalonyo dengen ngeringanke rukun-rukun dari yên 2 rakaat niku, ya'ni di waktu kesa suasanonyo khauf. serto wênten kalonyo male ngeringanke rukun-rukun yên 4 rakaat suasanonyo khauf di waktu hadhar.
-
 ## 4:102
 
 Serto napibilo niko (Muhammad) wênten di tengah-tengah wong-wong niku (rencang niko) sampun niku niko ayun menamelke semayang besami-sami wong-wong niku, dades ayunla segûgû' dari wong-wong niku tega’ (semayang) sami niko serto megang senjato wong-wong niku, sampun niku napibilo wong-wong niku (yên semayang sami niko) sujud (sampun nyempurnoke sios roka’at), [^286] dades ayunla wong-wong niku pindah dari wengkeg niko (peranti ngadepi musu) serto ayunla rawu gûgû' yên lian yên dereng semayang, sampun niku wong-wong niku semayang sami niko, [^287] serto ayunla wong-wong niku besiap siago serto megang senjato wong-wong niku. Wong-wong kafir ayun supayo niko lengah sami senjato niko serto harto bendo niko, sampun niku wong-wong niku nyerang niko sekaligus. serto nano napi niko nudukke senjato-senjato niko, kalu niko wênten suatu kesusahan kerno hujan atawa kerno niko sakit, serto besiap siagola niko. [^288] selesernyo, Allah sampun nyaweske azab yên nginoke peranti wong-wong kafir niku.
-
-[^286]: Nûrût jumhur mufassirin kalu sampun selesai serakaat, dades diselesaikan satu rakaat male dewe', serto Nabi duduk menunggu golongan yên kedua.
-
-[^287]: Ya'ni rakaat yên petamo, sedengke rakaat yên keduo wong-wong niku nuntaske dewe' pulo' serto wong-wong niku ngakhiri semayang wong-wong niku besami-sami Nabi.
-
-[^288]: Caro semayang khauf, ma’kayo wênten pado ayat 102 niki didamelke kalu maler mungkin namelkenyo. Napibilo nano mungkin, dades semayang niku didamelke seangsalnyo saos, walau dengen ngelap tasbî saos.
 
 ## 4:103
 
@@ -2972,8 +2396,6 @@ Serto nanola niko beati lemah jerû ngejer wong-wong niku (musu niko). Kalu niko
 ## 4:105
 
 Selesernyo, Kame’ sampun nurunke Kitab (Al-Qur'an) kepado niko (Muhammad) bawa’ saê, supayo niko mengadili antaro wong dengen napi yên sampun diajarke Allahsami niko, serto nanola niko dades penentang (wong yên nano besala), kerno (belo) wong yên bekhianat, [^289]
-
-[^289]: Ayat niki serto pinten-pinten ayat selanjutnyo ditûrûnke behûbûngan dengen kemalingan yên didamelke Thu'mah serto ia nyingitke barang palengan niku di rompo' sios wong Yahudi. Thu'mah nano ngakui damelannya niku malahan nudu bahwo yên maleng barang niku wong Yahudi. hal niki diajuke olê kerabat-kerabat Thu'mah kepado Nabi s.a.w. serto wong-wong niku nedo supayo Nabi mela Thu'mah serto ngukum wong-wong Yahudi, meski wong-wong niku wikan bahwo yên maleng barang niku ya'ni Thu'mah, Nabi dewe' Hampir saos ngeleserke tuduhan Thu'mah serto kerabatnyo niku tehadep wong Yahudi.
 
 ## 4:106
 
@@ -3023,21 +2445,13 @@ Allahnano ayun ngampuni doso dengki (memperrewangke Allahdengen sesios), serto D
 
 Yên wong-wong niku sembah selian Allahniku nano lian cuma ināṡan (berhalo), [^290] serto wong-wong niku nano lian cuma nyembah setan yên durhako,
 
-[^290]: Asak makna Inaatsan ya'ni betino-betino. patung-patung behalo yên disembah Arab Jahiliyah niku biasonyo di sung nami dengen nami-nami betino sebagi Laata, Al Uzza serto Manah. angsal jugo retinyo di ngeriki wong-wong padem, bendo-bendo yên nano berjenis serto bendo-bendo yên lemah.
-
 ## 4:118
 
 Yên dilaknati Allah, serto (setan) niku bekelap, “Aku cengki ayun ngembil bagêan tetentu dari hamba-hamba-Niko, [^291]
 
-[^291]: Pado saben-saben wong wênten potensi peranti damelke kesaêan jugo peranti kejahatan, syaitan ayun ngunoke potensi jahat peranti nyelakoke wong.
-
 ## 4:119
 
 Serto cengki kusesetke wong-wong niku, serto ayun kulo ngesungke cito-cito kosong pado wong-wong niku serto ayun kulo kegke wong-wong niku neta’ kuping-kuping binatang ternak, (sampun niku wong-wong niku nianan neta’nyo), [^292] serto ayun kulo kegke wong-wong niku ngubah ciptaan Allah , (sampun niku wong-wong niku nianan ngubanyo).” [^293] Sinten saos dadeske setan sebagê pelindung selian Allah, dades selesernyo, dio menderito kerugian yên nyato.
-
-[^292]: Nûrût kepercayaan Arab jahiliyah, binatang-binatang yên ayun dipersembahkan kepado patung-patung berhala, mestila dipotong kupingnyo dumin, serto binatang yên peca' niki nano bolê dikendarai serto nano digunoke male, serto mesti dilepaske saos.
-
-[^293]: ngeruba ciptoan Allah angsal retinyo, nguba yên diciptoke Allah peca' ngebiri binatang. wênten yên ngertikenyo dengen meruba igamo Allah.
 
 ## 4:120
 
@@ -3055,8 +2469,6 @@ Serto wong yên beiman serto damelke amal saê, mengkin ayun Kame’ lebetke ke 
 
 (Pahalo dari Allah ) niku nanola angan-angan niko [^294] serto nano (pulo’) cito-cito Ahli Kitab. Sinten saos damelke kejahatan, niscayo ayun dibales sesuai dengen kejahatan niku, serto dio nano ayun dapatke pelîndûng serto penolong selian Allah .
 
-[^294]: Niko di ngeriki wênten yên ngertike dengen kaum muslimin serto wênten pulo' yên ngertike kaum musyrikin. maksudnyo ya'ni pahalo di akhirat dêdêla nûrûti angan-angan serto cito-cito wong-wong niku, tapi klop dengen ketentuan-ketentuan igamo.
-
 ## 4:124
 
 Serto sinten saos damelke amal saê, baik lanang maupun wadon deng dio beiman, dades wong-wong niku ayunlebet ke jerû suargo serto wong-wong niku nano dizolimi setîtî' pun.
@@ -3073,19 +2485,9 @@ Serto punyo Allah-la napi yên wênten di langit serto napi yên wênten di bumi
 
 Serto wong-wong niku minta’ fatwa kepado niko masala wadon. Kelapkela, “Allah ngesung fatwa kepado niko tenteng wong-wong niku, [^295] serto napi yên dibacoke kepado niko jerû Al-Qur'an (jugo memfatwake) tentang paro wadon yatim yên nano niko sung sesios (maskawen) yên ditetepke peranti wong-wong niku, deng niko pîngîn ngawini wong-wong niku [^296] serto (tenteng) buda'-buda' yên maler ditingali lemah. serto (Allah kegke niko) supayo ngurus buda’-buda’ yatim secaro adil.serto saê napi pun yên niko damelke, selesernyo Allah Maha Wikan.”
 
-[^295]: Baco surat an-Nisa’ ayat 2 serto 3
-
-[^296]: Nûrût adat Arab Jahiliyah sios wong Wali bekuaso tehadep betino yatim yên jerû asuhannyo serto bekuaso tehadep hertonyo. kalu betino yatim niku cantî’ dikaweni serto diembil hertonya. kalu betino niku buruk rainyo, dihalanginya kawen dengen lanang yên lian supaya Dia tetap angsal nguasai hertonyo. kebiasoan di pucu’ dilarang namelkenya olê ayat niki.
-
 ## 4:128
 
 Serto kalu sios wadon hawatir domiknyo ayun nusyūz [^297] atawa peca' nano ago’, dades keduonyo wikan nyaweske pedamêan yên selesernyo, [^298] serto pedamêan niku langkung saê (peranti wong-wong niku) kalupun wong niku nurut tabiatnyo kikir. [^299] serto kalu niko meselesernyoke (pegaulan sami sema niko) serto nyago awa’ niko (dari nusyūz serto sikap ago’ nano ago’), dades selesernyo, AllahMahateliti sami napi yên niko damelke.
-
-[^297]: Nusyuz: ya'ni ninggalke kewajiban domik-sema. nusyuz dari pihak sema peca' ninggalke rompo' nano izin domiknya. nusyuz dari pihak domik ya'ni besikap keras tehadep semanyo; nano ayun ngaulinyo serto nano ayun ngesungke hek-nyo.
-
-[^298]: Peca' sema besedio pinten-pinten heknya dikirangi asak domiknyo ayun saê male.
-
-[^299]: Maksudnyo: tabi'at wong niku nano ayun ngelepaske sebagîan heknya kepado wong lian dengen seikhlas atinyo, meski ma'niku kalu sema ngelepaske sebagian hek-heknyo, dades bolê domik nerimonyo.
 
 ## 4:129
 
@@ -3139,15 +2541,9 @@ Serto selesernyo, Allah sampun nurunke (ketentuan) peranti niko di lebet Kitab (
 
 (Ya'ni) wong yên menganten-anten (kejadian) yên ayun tejadi sami awa’ niko. Napibilo niko angsal kemenangan dari Allahwong-wong niku bekelap, “nanola kame’ (tumut beperang) sami niko?” serto kalu wong kafir angsal bagêan, wong-wong niku bekelap, “nanola kame’ tumut menangke niko, [^300] serto belo niko dari wong mukmin?” dades Allahayun ngesung kepkegkean di antaro niko pado dinten telas. Allahnano ayun ngesung jalan sami wong kafir peranti ngalake wong-wong beiman.
 
-[^300]: Ya'ni dengen jalan muka’ke resio-resio wong mukmin serto nyampeke hal ihwal wong-wong niku kepado wong-wong kafir atawa kalu wong-wong niku perang di pihak wong mukmin wong-wong niku perang dengen nano sepenu ati.
-
 ## 4:142
 
 Selesernyowong munafik niku ayun mudike Allah , tapi Allah-la yên mudike wong-wong niku. [^301] Napibilo wong-wong niku tega’ peranti semayang, wong-wong niku damelke dengen males. Wong-wong niku bembi'sud beambok (dengen dipuji) di hadepan wong. serto wong-wong niku nano ingat Allah kecuali setîtî' nian. [^302]
-
-[^301]: Maksudnyo: Alah ngelanta’ke wong-wong niku jerû pengakuan beriman, sebab niku wong-wong niku dilayani sebagi melayani sedanten mukmin. Pado waktu niku Allah sampun nyaweske nerako peranti wong-wong niku sebagi balesan tipuan wong-wong niku niku.
-
-[^302]: Maksudnyo: wong-wong niku semayang cuman sekali-sekali saos, ya'ni kalu wong-wong niku wênten di muko wong.
 
 ## 4:143
 
@@ -3165,19 +2561,13 @@ Selesernyo, wong-wong munafik niku (dienggonke) pado tingkatan yên langkung baw
 
 Kecuali wong-wong yên betobat serto leseri awa’nyo [^303] serto becekela teguh sami (agamo) Allah serto dengen tulus ikhlas (jalanke) igamowong-wong niku kerno Allah. Mako wong-wong niku besami-sami wong-wong yênbeiman serto mengken Allah ayun ngesung pahalo yên ageng sami wong-wong yên beiman.
 
-[^303]: Leseri awa’ retinyo damelke kesaêan peranti ngilangke akibat bûrû’ dari kesalahan yên didamelke.
-
 ## 4:147
 
 Allah nano ayun nyikso niko, kalu niko besyukur serto beiman. serto Allah Maha Mensyukuri, [^304] Maha Wikan.
 
-[^304]: Ngesung pahalo tehadep amal hambo-Nyo, maafke kesalahannyo, serto namba nikmat-Nyo.
-
 ## 4:148
 
 Allah nano demen kelap nano saê, (yên dikelapke) secaro terus terang kecuali oleh wong yên dizolimi. [^305] serto Allah Maha Nenger, Maha Wikan.
-
-[^305]: Maksudnya: wong yên keniayo olê kerno ngelapke kepado hakim atawa Penguaso keburukan-keburukan wong yên nganiayonyo.
 
 ## 4:149
 
@@ -3186,8 +2576,6 @@ Kalu niko bekelap sesios keleseran, nyingitinyo atawa maafke sios kesalaan (wong
 ## 4:150
 
 Selesernyo wong-wong yên ingkar kepado Allah serto rasul-rasul-Nyo, serto ayun membedo-bedoke [^306] antaro (keimanan kepado) Allah serto rasul-rasul-Nyo, dengen bekelap, “Kame’ beiman sami sebagêan serto kame’ ngingkari sebagêan (yên lian),” serto ayun ngembil jalan tengah (iman atawa kafir),
-
-[^306]: Maksudnyo: beriman kepado Allah, nano beriman kepado rosul-rosul-Nyo.
 
 ## 4:151
 
@@ -3201,19 +2589,13 @@ Wênten jugo wong-wong yên beiman sami Allah serto rosul-rosul-Nyo serto nano m
 
 (Wong-wong) Ahli Kitab nedosami niko (Muhammad) supayo niko nurunke sios kitab dari langit sami wong-wong niku. Selesernyo wong-wong niku sampun nedosami Musa yên lebih ageng dari niku. Wong-wong niku bekelap, “Tingalkela Allah sami kame’ secaro nyato.”Mangko wong-wong niku disamber petir kerno kezolimannyo.Sampun niku wong-wong niku nyembah ana’ sapi, [^307] sampun wong-wong niku tingal bukti-bukti yên nyato, namun ma’ niku Kame’ maafke wong-wong niku, serto sampun Kame’ sung sami Musa kekuasaan yên nyato.
 
-[^307]: Anak sapi niku didamel wong-wong niku dari emas peranti disemba.
-
 ## 4:154
 
 Serto Kame’ angkat gunung (Sinai) di pucu’wong-wong nikuperanti (nguatke) semayoan wong-wong niku. Serto Kame’ perintahke kepado wong-wong niku, “Lebetila pintu gerbang (Baitulmaqdis) niku sambil besujud,” serto Kame’ perintahke (pulo’) kepado wong-wong niku, “Nanola niko ngelanggar peraturan ngenoi dinten Sabat.” [^308] serto Kame’sampun ngembil dari wong-wong niku semayoan yên kuat.
 
-[^308]: Dinten Sabtu ya’ni dinten Sabbat yên khusus peranti ibadat wong Yahudi.
-
 ## 4:155
 
 Mangko (Kame’ hukum wong-wong niku), [^309] kerno wong-wong  niku ngelanggar semayoan niku, serto kerno kekafiran wong-wong niku tehadep cerios Allah, sami kerno wong-wong niku sampun munuh nabi-nabi tanpo hak (alesan yên leser), serto kerno wong-wong niku bekelap, “Ati kame’ tetutup.” Selesernyo, Allah sampun ngunci ati wong-wong niku kerno kekafirannyo, kerno niku cuman sebagêan alit dari wong-wong niku yên beiman.
-
-[^309]: Tindakan-tindakan niku ya’ni ngûtû’ wong-wong niku, wong-wong niku disamber petîr, jelmake wog-wong niku dades kero, serto liannyo.
 
 ## 4:156
 
@@ -3223,19 +2605,13 @@ Serto (Kame’ hukum jugo) kerno kekafiran wong-wong niku (tehadep Isa), serto t
 
 Serto (Kame’ hukum jugo) kerno kelap wong-wong niku, "Selesernyo kame’ sampun munuh Al Masih, Isa putra Maryam, Rasul Allah," [^310] padohal wong-wong niku nano munuhnyo serto nano (pulo) nyalibnyo, tapi (yênwong-wong niku munuh iola) wong yên nyerupoi sami Isa. Selesernyo wong-wong niku yên berselisih penangsal tenteng (pemunuhan) Isa, sesampun niku jerû keragu-raguan tenteng yên dema'nuh niku. Wong-wong niku selesernyo nano wikan (sinten sebenarnyo yên dema'nuh niku), melainke tumut perasaan saos, dades wong-wong niku nano yakin sampun mununyo.
 
-[^310]: Wong-wong niku ngelap Isa putera Maryam niku Rasul Allah wêntenla dades uyo’an, kereno wong-wong niku dewe’  nano pecayo kerasulan Isa niku.
-
 ## 4:158
 
 Tetapi Allah sampun munggahke Isa kehadirat-Nyo. [^311] Allah Maha perkaso, Maha Bijaksano.
 
-[^311]: Ayat niki wêntenla sebagî bantahan tehadap anggepan wong-wong Yahudi, bahwo wong-wong niku sampun munu Nabi Isa a.s.
-
 ## 4:159
 
 Nano wênten sesios wong pun di antaro Ahli Kitab yên nano beiman sami dio (Isa) nak mara’ pademnyo. [^312] serto pado dinten Kiamat dio (Isa) ayun dades saksi wong-wong niku.
-
-[^312]: Saben-saben wong Yahudi serto Nasrani ayun beriman kepada Isa sedereng pademnyo, bahwo Dio wêntenla Rasulullah, dêdênyo anak Allah. sebagîan mufassirin bependapet bahwo wong-wong niku ngimani pekaro niku sedereng padem.
 
 ## 4:160
 
@@ -3256,8 +2632,6 @@ Selesernyo Kami ngesung wahyu sami niko (Muhammad) pecak Kame’ sampun mewahyuk
 ## 4:164
 
 Serto wênten beberapo rasul yên sampun Kame’ cerioske wong-wong niku sami niko kerihin, serto wênten beberapo rasul (lian) yên nano Kame’ cerioske wong-wong niku sami niko. serto sami Musa, Allah bekelap langsung. [^313]
-
-[^313]: Allah bekelap langsung dengen Nabi Musa a.s. ngerupoke keistimewaan Nabi Musa a.s., serto kereno Nabi Musa a.s. dikelap: Kalimullah sedeng Rasul-rasul yên lian angsal wahyu dari Allah dengen perantaro Jibril. Pado waktu niku Nabi Muhammad s.a.w. perna bekelap secaro langsung dengen Allah pado malem mi'raj.
 
 ## 4:165
 
@@ -3283,23 +2657,13 @@ Kecuali jalan ke nerako Jahannam; wong-wong niku kekel di lebetnyo selambat-lamb
 
 Hei wong! Leser, sampun rawû Rasul (Muhammad) kepado niko dengen (bakto) keleseran dari Tuhan niko, mangko beimanla (saminyo), niku lebih saê peranti niko.serto kalu niko kafir, (niku nano merugike Allah setîtî' saos kerno seleser nyo punyo Allah-la napi yên di langit teko di bumi. [^314] Allah Maha Wikan, Maha bijak sano.
 
-[^314]: Hek Allah sedanten yên di langit serto di bumi tentu saos nano bekenda’ kepado sinten saos kereno niku cengki saos kekafiran niko nano angsal natangke kerugian setîtî’ saos kepado-Nyo.
-
 ## 4:171
 
 Hei Ahli Kitab! Nanola niko tepeliwat jerû igamo niko, [^315] serto nanola niko bekelap tehadap Allah kacuwali yên saê. Selesernyo, Al Masih Isa putro Maryam niku, iola kengkenan Allah serto (yên didadeske sami) kalimat-Nyo [^316] yên dikelapken-Nyo sami Maryam, serto (sami budian) roh dari-Nyo. [^317] Mangko beimanla sami Allah serto rasul-rasul-Nyo serto nanola niko bekelap, “(Tuhan niku) telu”, stopla (dari kelap niku). (Niku) lebih saê peranti niko.Selesernyo Allah Tuhan Yên Maha Esa, Mahasuci Dio dari (anggepan) wênten ana'. Punyo-Nyola napi yên wênten di langit serto napi yên wênten di bumi. serto cungkupla Allah sebagai pelindung.
 
-[^315]: Maksudnyo: jangan niko ngelapke Nabi Isa a.s. niku Allah, peca’ yên dikelapke ole wong-wong Nasrani.
-
-[^316]: Maksudnyo: ngeleserke  sampun rawû sios Nabi yên diciptoke dengan kalimat kun (dadesla) tanpa aba Ya’ni Nabi Isa a.s.
-
-[^317]: Dikelap tiupan dari Allah kereno tiupan niku berasal dari perînta Allah.
-
 ## 4:172
 
 Al Masih sami sios nano sungkan dades hamba Allah, serto ma’ niku saos sedanten malaikat yên para’ (sami Allah). [^318] serto barangsinten sungkan nyembah-Nyo, serto sombong awak dewe’, mangko Allah ayun ngumpulke wong-wong niku sedanten kepado-Nyo.
-
-[^318]: Ya’ni Malaikat yên wênten di sekiter Arsy peca’ Jibril, Mikail, Israfil serto malaikat-malaikat yên setingkat dengen wong-wong niku.
 
 ## 4:173
 
@@ -3321,63 +2685,29 @@ Wong-wong niku nedo fatwa kepado niko (tenteng kalala). Kelapkela, “Allah nges
 
 Hei wong-wong yên beiman Penuila janji-janji. [^319] Binatang ternak dihalalke buat niko  danten, kecuali yên ayûn dicerioske sami niko , nano angsal  beburu sewaktu niko sedeng beihrom (haji atawa umroh). Leser nian,  Allah netepke hȗkȗm napi yên Dio ayuni
 
-[^319]: Semayoan di ngeriki ya'ni semayoan setio hambo kepado Allah serto semayoan yen digawé’ wong dengen sesamo wong.
-
 ## 5:2
 
 Hei wong-wong yên beiman! Nano angsal niko ngelanggar syi'ar-syi'ar kesucian Allah, [^320] serto nano angsal (ngelanggar kehormatan) bulan-bulan haram, [^321] nano angsal (ngȗsik/ngucak) hadya (binatang-binatang  kurban) [^322] , serto qalā’id (binatang-binatang kurban yên disȗng tando), [^323] serto nano (pulo’)nguca’ wong-wong yên nyanjoi Baitulharam; wong-wong niku nyari kurnio serto keridaan Tuhannyo. [^324] Tapi kalu niko sampȗn nelaske ihram, mako niko angsal  beburu. Serto nano angsal nggût kebencian (niko) kepado sios kaȗm kerno wong-wong niku ngalangi niko dari Masjidil haram, nggût perangi niko neliwati wates . Serto saling tȗlȗngla  niko dijerô damelan saê serto takwa, serto nano saling tȗlȗng dijerô bedamel doso serto bebala. Betakwala ngen  Allah., Enggě nian, Allah niku berat nian sikso-Nyo.
-
-[^320]: Syiar kesucian Allah ya'ni sedanten amalan yên didamel waktu ibadat hajji, peca’ tata caro tawaf, sa’i serto enggon-enggon ngedamelkenyo ka’bah serto Sofa –Marwah.
-
-[^321]: Bulan-bulan haram: Zulkaidah, Zul hijjah, Muharram  serto Rajab.
-
-[^322]: Hadyu  binatang yên disemelê peranti dam (dendo pelanggaran atawa ketinggalan wajib hajji).
-
-[^323]: Qolaa’id. ya'ni Hadyu yên sampûn ditandoi peranti dibakto ke ka’bah.
-
-[^324]: Karunio: Keuntungan yên disûng Allah sewaktu lawatan hajji, keridhoan ya'ni pahalo amalan hajji.
 
 ## 5:3
 
 Diharamke peranti niko  sedanten  (nedo) bangkê, darah, [^325]daging babi, serto (daging) binatang yên disemelê nano ngelapke (nami) Allah, yên tecekék, yên digebuk, yên nyampak; yên ditandȗk,  serto yên diterkem binatang buas, kecuali yên kodak niko semelê. [^326]  serto (diharamke pulo’) yên disemelê bakal berhalo.  serto (diharamke pulo’) ngundi nasib dengen azlam (ana' panah), [^327] (kerno) niku sios damelan fasîk. Pado dinten niki [^328] wong-wong kafir sampȗn pȗtȗs arepan peranti (ngalake) igamo niko, sebab niku nano angsal niko takȗt sami wong-wong niku, tapi takȗtla ngen Kulo. Pado dinten niki sampȗn Kulo sempȗrnoke igamo niko peranti niko,  serto sampȗn Kulo cȗngkȗpke nikmat Kulo peranti niko,  serto sampȗn Kulo rédo Islam sebagai igamo niko.Tapi sinten saos tepaksokerno lapar nano kerno pengen bedamel doso, mako leser nian Allah Maha Pengampun Maha Penyayang.
 
-[^325]: Dara yên metu dari badan, peca’ yên dikelapke di Surah al an’am 145
-
-[^326]: Maksudnyo ya'ni: binatang yên tecekî’, yên digebug, yên nyampa’, yên ditanduk serto yên diterkem binatang buas wêntenla halal kalu sekawan semelê sedêrêng padem.
-
-[^327]: Al Azlaam retinyo: anak pana yên dêrêng pake bulu. wong Arab Jahiliyah ngunoke ana’ pana yên dêrêng pake bulu peranti nentuke napi wong-wong niku ayun namelke sios damelan atawa nano. caronyo ya'ni: wong-wong niku ngembil tigo ikok’ ana’ pana yên dêrêng pake bulu. sesampun ditulis dewe’-dewe’ ya'ni dengen: damelke, nano damelke, sedengke yên ketigo nano ditulîs napi-napi, dilepê’ke jerû enggon serto disimpen jerû Ka'bah. kalu wong-wong niku ayun namelke sesios dades wong-wong niku nedo supayo juru kunci ka'bah ngembil sios ana’ pana niku. Basengnyo megkîn napi wong-wong niku ayun namelke atawa nano namelke sesios, klop dengen tulîsan ana’ pana yên diembil niku. kalu yên teembil ana’ panah yên nano wênten tulîsannyo, dades undian diulang male.
-
-[^328]: Yên dimaksud dengen dinten ya'ni: waktu, ya'ni: waktu haji wênten', haji terakhir yên didamelke olê Nabi Muhammad s.a.w.
-
 ## 5:4
 
 Wong-wong niku betakén sami niko (Muhammad), “Napidio yên dihalalke peranti wong niku?” Cerioskela, “Yên dihalalke peranti niko (nikula tedoan) yên saê-saê  serto (buruan yên ditingkep) oleh binatang pemburu yên sampun niko ajari peranti beburu, yên niko ajarke nȗrȗt napi yên sampȗn diajarke Allah sami niko. [^329] Mako tedola napi yên ditingkepnyo peranti niko, [^330] serto kelapkela nami Allah (waktu ngêcȗlkenyo). [^331]  serto betakwala sami Allah, Leser nian, Allah gancang nian pehitungan-Nyo.
-
-[^329]: Maksudnyo: binatang buas niku dilatê nûrût kepandaian yên diperolênyo dari pengalaman; pîkîran wong serto ilham dari Allah tentang melatî binatang buas serto caro beburu.
-
-[^330]: Ya'ni: buruan yên ditangkep binatang buas semato-mato peranti niko serto nano didades setîtî' saos olê binatang niku.
-
-[^331]: Maksudnyo: di waktu ngelepaske binatang buas niku dikelapke nami Allah sebagî genti binatang buruan niku dewe' nyebûtke waktu nerkem buruan.
 
 ## 5:5
 
 Pado dinten niki dihalalke peranti niko se danten yên saê-saê, tedoan (semelêan) Ahli Kitab niku halal buat niko,  serto tedoan niko halal buat wong-wong niku. serto (dihalalke peranti niko nikahi) wadon-wadon yên nyago kehormatan [^332] di antaro wadon-wadon yên beiman  serto wadon-wadon yên nyago kehormatan di antaro wong-wong yên disȗng kitab sedéréng niko, kalu niko mayar wong-wong niku maskawin peranti nikahinyo, dêdênyo dengen maksȗd bezina  serto nano peranti didadeske wadon piaroan. Sinten saos yên kafȋr sesampȗnnyo beiman mangko leser nian, sio-sio amal wong-wong niku serto di akhirat dio temasok wong-wong yên rugi.
 
-[^332]: Wênten yên ngelapke betino-betino yên merdeka.
-
 ## 5:6
 
 Hei wong-wong yên beiman! kalu niko ayun ndamelke solat, mako basȗla rai niko serto tangan niko nggût ke siku,  serto sapula pala’ niko serto (basȗ) keduo kaki niko nggût dengen keduo mato kaki. Kalu niko junub mako mandila. Serto kalu niko sakit [^333] atawa dijerȗ  pejalanan atawa metu dari enggon buang toya (kakus) atawa nyênggol [^334] wadon, mako kalu nano wênten toya, mangko betayamumla dengen lebu yên saê (suci); usapke ke rai niko serto tangan niko ngen (debu) niku. Allah nano ayȗn nyaroke niko, tapi Dio ayȗn mersîke niko  serto nyempurnoke nikmat-Nyo peranti niko, supayo niko besyȗkȗr.
 
-[^333]: Maksudnyo: sakit yên nano bolê keno banyu
-
-[^334]: Retinyo: nyenggol. nûrût jumhur ya'ni: nyenggol sedengke sebagêan mufassirin ya'ni: sebadan sema-domik.
-
 ## 5:7
 
 Serto ingatla ayȗn karunio Allah sami niko  serto janji-Nyo [^335] yên sampȗn ditetepke sami niko, sewaktu niko becerios, “Kame’ nenger  serto kame’ naati”  serto betakwala sami Allah, leser, Allah Maha Wikan jerȗ ati.
-
-[^335]: Semayoan niku ya'ni: semayoan ayun ngerungu serto numut Nabi dengen sedanten kewêntenan yên diikrarke waktu bai'ah.
 
 ## 5:8
 
@@ -3399,13 +2729,9 @@ Hei wong-wong yên beiman! imutla nikmat Allah (yên disȗngke) sami niko, sewak
 
 Serto leser, Allah sampȗn ngembil janji dari Bani Isroil,  serto Kame’ sampȗn munggake duo belas wong di antaro wong-wong niku.  serto Allah becerios, “Kulo sami niko”.Leser, kalu niko damelke solat  serto metuke zakat serto beiman kepado rasul-rasul Kulo  serto niko bantu wong-wong niku  serto niko minjemke kepado Allah pinjeman yên saê, [^336] cengki ayȗn Kulo apus kesalahan-kesalahan niko,  serto cengki ayn Kulo melebetke ke jerû suargo yên ngalir di bawahnyo sungi-sungi. Tapi sinten saos kafir di antaro niko sampȗn niku, mangko selesernyo dio sampȗn tesasar dari jalan yên leser.
 
-[^336]: Maksudnyo ya'ni: nafkahke herto peranti nunaike kewajiban dengen ati yên ikhlas.
-
 ## 5:13
 
 (Tapi) kerno wong-wong niku ngelanggar janjinyo, mako Kame’ melaknat wong-wong niku,  serto Kame’ dadeske ati wong-wong niku keras pecak batu.Wong-wong niku gala’ ngubah kelap (Allah) dari pedaleman-Nyo, [^337]  serto wong-wong niku (sengajo) ngelupoke sebagêan pesen yên sampȗn diperingetke kepado wong-wong niku. niko (Muhammad) senantiaso ayȗn tingal pengkhianatan dari wong-wong niku kecuali sekelompok alit di antaro wong-wong niku (yên nano bekhianat), mangko maafkela wong-wong niku  serto ngelanta'ke wong-wong niku. Leser, Allah menyukai wong-wong yên bedamel saê.
-
-[^337]: Maksudnyo: meroba reti kelap-kelap, enggon atawa namba serto ngirangi.
 
 ## 5:14
 
@@ -3414,8 +2740,6 @@ Serto di antaro wong-wong yên becerios “Kame’ niki wong Nasroni,” Kame’
 ## 5:15
 
 Hei Ahli Kitab! Leser, Rasul Kame’ sampun rawȗ kepado niku, nyatoke kepado niku kata hal dari (isi) kitab yên niko singitke,  serto kata (pulo’) yên ngelanta'kennyo. Leser, sampȋn rawuh kepado niko cahayo dari Allah,  serto Kitab yên nyatokenyo. [^338]
-
-[^338]: Cahayo maksudnyo: Nabi Muhammad s.a.w. serto kitab maksudnyo: Al Quran.
 
 ## 5:16
 
@@ -3441,8 +2765,6 @@ Serto (imutla), sewaktu Musa becerios kepado kaȗmnyo, “hei kaȗm kulo! imutla
 
 Hei gugu' kulo! Jerla ke tanah suci (Palestin) yên sampun ditentuke Allah peranti niko, [^339]  serto nanola niko bebali’ ke buri (kerno takut kepado musuh), mengkȋn niko dades wong yên rugi.
 
-[^339]: Maksudnyo: tanah Palestina niku ditentuke Allah peranti kaum Yahudi selami wong-wong niku iman serto taat kepado Allah.
-
 ## 5:22
 
 Wong-wong niku bekelap, “hei Musa! Selesernya di dalam negeri itu ada orang-orang yên sangat kuat  serto kejam, kame' nano ayȗn memelebetinya sedereng wong-wong niku metu dari ngeriku. kalu wong-wong niku metu dari ngeriku, niscaya kame' ayȗn melebet.”
@@ -3467,8 +2789,6 @@ Dio Musa bekelap, “Ya Tuhan kulo, kulo cuma nguasoi awa’ kulo  serto dulur k
 
 Serto cerioskela (Muhammad) yên selesernyo kepado wong-wong niku masalah kisah keduo ana’ Adam, [^340] sewaktu keduonyo ngesȗngke korban, mako yên sios dari wong niku diterimo serto dari yên lian nano diterimo. Kelapnyo (Qobil):”Cengki kulo na’ munu niko”. Kelap Habil:”Sesunggunyo Allah cuma nerimo (amal) dari wong yên taqwa”
 
-[^340]: Sedanten ngelapke Qabil serto Habil
-
 ## 5:28
 
 “Leser, kalu niko (Qobil) nggerakke tangan niko kepado kulo peranti munu kulo, kulo nano ayȗn nggerakke tangan kulo buat munu niko. Kulo takut kepado Allah, Tuhan se danten alam.”
@@ -3485,21 +2805,13 @@ Mangko nafsu (Qobil) ngedorongnyo peranti munuh dûlûrnyo, sampûn niku dio (le
 
 Sampûn niku Allah ngûtûs sios bûrûng gagak ngedû’ tanah peranti ditingalke kepadonyo (Qobil) ma’pundi dio selesernyo ngûbûrke mayat dûlûrnyo. [^341] Qabil bekelap, “Oi, celako kulo!Napi kulo nano wikan bedamel peca’ bûrûng gagak niki, nggût kulo wikan ngûbûrke mayat dûlûr kulo niki?”Mangko dadesla dio temelebet wong yên nyesel.
 
-[^341]: Dipahami dari ayat niki bahwo wong kata pulo' ngembil pelajaran dari alam serto jangan segen-segen ngembil pelajaran dari yên langkung renda tingketan ilmunyo.
-
 ## 5:32
 
 Oleh kerno niku, Kame’ tetepke (sios hûkûm) peranti Bani Isroil, bahwo sinten saos munu wong, nano kerno wong niku munu wong lian, [^342] atawa nano kerno bedamel kerusa’an di bumi, mako peca’ dio sampûn munu sedanten wong. [^343] Sinten saos miaro keuripan sios wong, mangko pecak dio sampûn miaro kehuripan se danten wong. Selesernyo Rosul Kame’ sampûn (bakto) keterangan-keterangan yên leser.Tapi sampûn niku kata di antaro wong-wong niku sampûn niku tepeliwat di bumi.
 
-[^342]: Ya'ni: munu wong dêdê kerno qishaash.
-
-[^343]: Hukum niki dêdêla ngenoi Bani Israil saos, tapi jugo ngenoi wong sedantennyo. Allah mandang bahwo munu sios niku wêntenla sebagî munu wong sedantennyo, kerno wong niku wêntenla anggota masyarakat serto kerno munu sios wong retinyo jugo munu ketûrûnannyo.
-
 ## 5:33
 
 Hukuman peranti wong-wong yên merangi Allah  serto Rosul-Nyo  serto damel kerusa’an di bumi, cuma bunu atawa disalib, atawa diteta’ tangan  serto kaki wong-wong niku secaro silang, [^344] atawa dibuang dari enggon pedalemannyo. Yên ma'niku kehinoan peranti wong-wong niku di dunio,  serto di akhîrat wong-wong niku angsal azab yên ageng.
-
-[^344]: Maksudnyo ya'ni: neta' tangan kanan serto kaki kiri; serto kalu namelke male dades diteta' tangan kiri serto kaki kanan.
 
 ## 5:34
 
@@ -3533,13 +2845,9 @@ Napi niko nano’ wikan, bahwo Allah punyo se danten keraton langit  serto bumi,
 
 Hei Rasul (Muhammad)! Nano patût niko sedêh kerno wong-wong niku beladasan dijerû kekafirannyo. ya'ni wong-wong (munafik) yên bekelap dengen mûlûtnyo, “Kame’ sampûn beiman,” padohal ati wong-wong niku déréng beiman;  serto jugo wong-wong Yahudi yên demen nian nenger (berito-berito) yên mudike [^345] serto nenger (cerios) wong lian yên dereng kalo rawû kepado niko. Wong-wong niku ngobah isi (Taurot) dari ma’no yên selesernyo. Kelap wong-wong niku: “Kalu niki yên disûngke kepado niko (yên sampûn di ubah) terimola,  serto kalu niko disûng ddnyo yên niki, mangko behati-hatila.”Sinten saos diayuni Allah peranti dingelanta'ke seset, setitikpun niko nano ayun wikan nula’ sesios pun dari Allah (peranti nolongnyo). Wong-wong niku nikula, yên nano diayuni Allah peranti nyucike ati wong-wong niku.Di dunio wong-wong niku angsal kehinoan  serto di akhirat ayûn angsal azab yên ageng.
 
-[^345]: Maksudnyo ya'ni: wong Yahudi demen nian ngerungu kelapan-kelapan pendeta wong-wong niku yên bohong, atawa demen nian ngerungu kelapan-kelapan Nabi Muhammad s.a.w peranti dinggûtkan kepado pendeta-pendeta serto kawan-kawan wong-wong niku dengen caro yên nano jujur.
-
 ## 5:42
 
 Wong-wong niku gala’ nian nenger kabar mudike, kata nedo (tedoan) yên haram. [^346] Kalu wong-wong niku (wong Yahudi) rawû kepado niko (Muhammad ayûn minta’ putusan), mangko sûngla putusan di antaro wong-wong niku atawa bebîlûkla dari wong-wong niku,  serto kalu niko bebîlûk, mako wong-wong niku nano wikan mbahayoke niko setitik jugo. Tapi kalu niko mȗtȗske (pekaro wong-wong niku), mangko pȗtȗskela dengen adil.Selesernyo Allah cinto sami wong-wong yên adil.
-
-[^346]: Peca' duet sogokan serto sebagînyo.
 
 ## 5:43
 
@@ -3561,17 +2869,9 @@ Serto Kame’ terûske jejak wong-wong niku dengen ngûtûs Isa ana’ Maryam, n
 
 Serto mestila wong yên tumut Injil mutuske pekaro nurut napi yên diturunke Allah di jerûnyo. [^347] Sinten saos nano mutuske pekaro tumut napi yên ditûrûnkan Allah, mangko wong-wong nikula wong-wong fasik. [^348]
 
-[^347]: Penumut penumut Injil niku cengki mûtûske pekaro nûrût napi yên ditûrûnke Allah dijerû Injil niku, nggût sami maso ditûrûnke Al Quran
-
-[^348]: Wong yên nano mutûske pekaro nûrût hukum Allah, wênten tigo macem: a. kerno benci serto ingkarnyo kepado hukum Allah, wong yên ca’ niki kafir (surat Al Maa-idah ayat 44). b. kerno nûrût hawa nafsu serto rugike wong lian dinamike zalim (surat Al Maa-idah ayat 45). c. kerno fasik peca' ditunju’ olê ayat 47 surat niki.
-
 ## 5:48
 
 Serto Kame’ sampûn nûrûnke Kitab (Al-Qur’an) kepado niko (Muhammad) dengen bakto keleseran, yên meleserke kitab-kitab yên ditûrûnke sederengnyo  serto nyagonyo, [^349] mangko pûtûskela pekaro wong-wong niku nûrût napi yên ditûrûnke Allah  serto nano angsal niko tumut ayun wong-wong niku dengen ninggalke keleseran yên sampûn rawûh kepado niko. Peranti sedanten umat di antaro niko, [^350] Kame’ sûngke atûran  serto jalan yên terang. Kalu Allah ngenda’i, niscayo niko dijadiken-Nyo sios umat (saos), tapi Allah ayûn nguji niko tehadep karunio yên sampûn disungke-Nyo kepado niko, mangko belumbanla bedamel kebakalun. Hanyo kepado Allah niko se danten mantû’, sampun niku dihabarke-Nyo kepado niko tehadep napi yên kerîhîn niko selîsîke,
-
-[^349]: Maksudnyo: Al Quran wêntenlah ukuran peranti nentuke saê sami nanonyo ayat-ayat yên ditûrûnke jerû Kitab-Kitab sedêrêngnyo.
-
-[^350]: Maksudnyo: umat Nabi Muhammad s.a.w. serto umat-umat yên sedêrêngnyo.
 
 ## 5:49
 
@@ -3605,8 +2905,6 @@ Selesernyo penolong niko cuma Allah, Rosul-Nyo,  serto wong-wong yên beiman, y�
 
 Serto sinten saos ndadeske Allah, Rasul-Nyo  serto wong-wong yên beiman sebage penolongnyo, mangko leser, pengikut (agamo) Allah [^351] nikula yên menang.
 
-[^351]: Ya'ni: wong-wong yên dadeske Allah, Rasul-Nya serto wong-wong yên beriman sebagî penolongnyo.
-
 ## 5:57
 
 Hei wong-wong yên beiman! Nano angsal niko munggake sirah niko wong-wong yên muat agami niko dades bahan uyo’an  serto maênan, (ya'ni) di antaro wong-wong yên sampun disûng kitab sedereng niko,  serto wong-wong yên kafir (wong musyrik).  serto betakwala kepado Allah kalu niko wong-wong beiman.
@@ -3622,8 +2920,6 @@ Kelapkela, “hei Ahli Kitab! Napi niko ningal mbenci kame’, cuma kerno kame�
 ## 5:60
 
 Kelapkela (Muhammad), “Napi ayun kulo beritoke kepado niko tentang wong yên langkung bûrûk pembalesannyo dari (wong fasik) di sisi Allah? ya'ni, wong yên dilaknat  serto dimurkai Allah, di antaro wong-wong niku (wênten) yên didadeske keřo  serto babi [^352]  serto (wong yên) nyembah Toghut?.” Wong-wong niku langkung bûřuk pedalemannyo  serto langkung teseset dari jalan yên leser.
-
-[^352]: Yên dimaksud dingeriki ya'ni: wong-wong Yahudi yên ngelanggar kehormatan dinten Sabtu (tingali surat Al Baqarah ayat 65).
 
 ## 5:61
 
@@ -3641,12 +2937,6 @@ Napi sebab se danten ulama’ serto pendeta wong-wong niku nano nega wong-wong n
 
 Serto wong-wong Yahudi bekelap, “Tangan Allah tekebet,” [^353] Selesernyo tangan wong-wong nikula yên dikebet [^354]  serto wong-wong nikula yên dilaknat dikernoke napi yên sampûn wong-wong niku kcerioske, padohal keduo tangan Allah [^355] tebuka’; Dio ngesûng rezeki sema’ pundi Dio ayuni.  serto (Al-Quran) yên ditûrûnke kepado niko dari Tuhan niko niku cengki ayûn nambah kedurhakaan  serto kekafiran peranti kekataan wong-wong niku. serto Kame’ timbûlke pemûsûhan  serto kebencian di antaro wong-wong niku nggût dinten Kiamat. saben wong-wong niku mûrûpke api peperangan, Allah mademkenyo.  serto wong-wong niku beusaho (nongolke) kerusa’an di bumi. serto Allah nano ayûn wong-wong yên bedamel kerusa’an.
 
-[^353]: Maksudnyo ya'ni medit.
-
-[^354]: Kalimat-kalimat niki wêntenla kutukan dari Allah tehadep wong-wong Yahudi retinyo bahwo wong-wong niku ayun tebelenggu di bawa kekuasoan bangsa-bangsa lian selami di dunio serto ayun disikso dengen belenggu nerako di akhirat mengkîn.
-
-[^355]: Tangan Allah nano sami dengen tangan wong.
-
 ## 5:65
 
 Serto sekironyo Ahli Kitab niku beiman  serto betakwa, niscayo Kame’ apûs kesalahan-kesalahan wong-wong niku  serto wong-wong niku tentu Kame’ maso’ke ke jerû suargo-suargo yên kebeg keni’matan.
@@ -3655,13 +2945,9 @@ Serto sekironyo Ahli Kitab niku beiman  serto betakwa, niscayo Kame’ apûs kes
 
 Serto sekironyo wong-wong niku leser-leser mendamelke (hûkûm) Taurat, Injil  serto (Al-Qur’an) yên ditûrûnke kepado wong-wong niku dari Tuhannyo, niscayo wong-wong niku ayûn angsal tedoan dari pûcû’ wong-wong niku  serto dari bawah sîkîl wong-wong niku. [^356] Di antaro wong-wong niku wênten sekelompok yên jujur  serto taat. serto kata di antaro wong-wong niku bûrû’ nian napi yên wong-wong niku damelke.
 
-[^356]: Maksudnyo: Allah ayun ngelimpahke rahmat-Nyo dari langit dengen nûrûnke ujan serto nimbûlke rahmat-Nyo dari bumi dengen nûmbûke tûmbûan yên buanyo belimpa.
-
 ## 5:67
 
 Hei Rasul! Cerioskela napi yên ditûrûnke Tuhan niko kepado niko.Kalu nano niko damelke (napi yên dikengkenke niku) bearti niko nano nyampeke amanat-Nyo. Serto Allah miaro niko dari (gangguan) wong. [^357] Leser nian, Allah nano ngesûng petûnjûk kepado wong-wong kafir.
-
-[^357]: Maksudnyo:  nano sios wong saos yên angsal munu Nabi Muhammad s.a.w.
 
 ## 5:68
 
@@ -3671,13 +2957,9 @@ Cerioskela (Muhammad), “hei Ahli Kitab! niko nano dipandang beigamo setîtîk 
 
 Selesernyo wong-wong yên beiman, wong-wong Yahudi, Ṣābiīn  serto wong-wong Nasrani, sinten saos [^358] beiman kepado Allah, kepado dinten mengkin  serto bedamel keleseran, mengko nano wênten raso hawatir padonyo  serto wong-wong niku nano besedî ati.
 
-[^358]: Wong-wong mukmin ma’niku pulo' wong Yahudi, Nasrani serto Shabiin yên beriman kepado Allah temasû' iman kepado Muhammad s.a.w., pecayo kepado dinten akhirat serto namelke amalan yên saleh, wong-wong niku angsal pahalo dari Allah.
-
 ## 5:70
 
 Selesernyo Kame’ sampûn ngembîl semayoan dari Bani Israil, [^359]  serto sampûn Kame’ ûtûs kepado wong-wong niku rasul-rasul. Tapi saben rasul rawû kepado wong-wong niku dengen mbakto napi yên nano sesuai dengen ayunnyo, (mangko) sebagêan (dari rasul niku) dibohongke  serto sebagêan yên lian wong-wong niku bunu.
-
-[^359]: Semayoan niku ya'ni: wong-wong niku beriman kepado Allah serto rasul-rasulNyo.
 
 ## 5:71
 
@@ -3698,8 +2980,6 @@ Napi wong-wong niku nano betobat kepado Allah  serto mohon ampûnan kepado-Nyo? 
 ## 5:75
 
 Al-Masih putro Maryam cuman Rasul saos. Sedêrêngnyo saos sampûn liwat pinten-pinten rasul.  serto embi'nyo wong yên cekelean teguh pado keleseran. Keduonyo wikan nedo tedoan. [^360] Tingalila ma’ pundi Kame’ nyatoke ayat-ayat (tando-tando kekuasoan) kepado wong-wong niku (Ahli Kitab), sampûn niku tingali ma’ pundi wong-wong niku dibîlûkke (oleh keinginan wong-wong niku).
-
-[^360]: Maksudnyo ya'ni: bahwo Isa a.s. serto embi’nyo wêntenla wong, yên merluke napi yên diperluke wong, peca' dadesnyo, minum serto sebagînyo.
 
 ## 5:76
 
@@ -3761,8 +3041,6 @@ Allah nano ngûkûm niko kereno sumpa-sumpa yên nano disengajo, tapi Allah nguk
 
 Hei wong-wong yên beiman, selesernyo minuman keras, bejudi, bekorban peranti berhalo serto ngundi nasîb dengen ana' pana, [^361] nikula damelan keji serto temasu' damelan setan. dadesnyo tebîkela damelan-damelan niku supayo niko betuwa.
 
-[^361]: Al Azlaam retinyo: anak pana yên dêrêng pake bulu. wong Arab Jahiliyah ngunoke ana’ pana yên dêrêng pake bulu peranti nentuke napi wong-wong niku ayun namelke sios damelan atawa nano. caronyo ya'ni: wong-wong niku ngembil tigo ikok’ ana’ pana yên dêrêng pake bulu. sesampun ditulis dewe’-dewe’ ya'ni dengen: damelke, nano damelke, sedengke yên ketigo nano ditulis napi-napi, dilepê’ke jerû enggon serto disimpen jerû Ka'bah. kalu wong-wong niku ayun namelke sesios dades wong-wong niku nedo supayo juru kunci ka'bah ngembil sios ana’ pana niku. Basengnyo megkîn napi wong-wong niku ayun namelke atawa nano namelke sesios, klop dengen tulisan ana’ panah yên diembil niku. kalu yên teembil ana’ panah yên nano wênten tulisannyo, dades undian diulang male.
-
 ## 5:91
 
 Dengen minuman keras serto bejudi niku, setan cuman bemaksud nadeske pemusuan serto kebencian diantaro niko dari imut kepado Allah serto semayang (sholat); dades napi niko nano ayun berenti?.
@@ -3779,41 +3057,17 @@ Nano bedoso buat wong-wong yên beiman serto beamal soléh tentang napi yên won
 
 Hei wong-wong yên beiman, Allah cengki bakal nguji niko dengen binatang buruan yên dengen muda niko angsalke dengen tangan, serto tumbak niko, [^362] supayo Allah wikan, sinten yên takut kepado yên ghoib. Sinten saos tepeliwat sesampun niku, dades bagî dio bakal azab yên pedî.
 
-[^362]: Allah nguji kaum muslimin yên sedeng make ihram dengen ngelepaske binatang-binatang buruan, nggût muda ditangkep.
-
 ## 5:95
 
 Hei wong-wong yên beriman, nano angsal niko munu binatang buruan [^363] waktu niko sedeng ihrom, haji atawa umroh. Sinten saos di antaro niko yên mununyo dengen sengajo, mangko dendonyo ya'ni nggenti dengen binatang ternak yên sepadan dengen buruan yên dema'nunyo, nurut pûtûsan duo wong yên adil diantaro niko sebagî hadyu [^364] yên dibakto ke Ka’bah [^365] atawa kafaratnyo (mayar tebusan dengen) ngesûng tedoan kepado wong-wong mîskîn atawa bepuaso, seimbang dengen tedoan yên disûngke niku, [^366] supayo dio merasoke akibat bûrûk/jahat dari damelannyo Allah sampûn maafke napi yên sampûn liwat [^367], serto sinten saos bali ndamelkenyo niscayo Allah bakal nyiksonyo. Allah Maha Pekaso, punyo kekuasoan peranti nyikso.
-
-[^363]: Ya'ni: binatang buruan saê yên bolê ditedo atawa nano, kacuwali burung gagak, burung elang, kalajengking, tikus serto anjing buas. jerû suatu riwayat temasû' jugo ulo.
-
-[^364]: Ya'ni: binatang (unto, sapi, kambing, biri-biri) yên dibakto ke ka'bah peranti mara'ke awa' kepado Allah, semelê ditana Haram serto dagingnyo dihadiahke kepado fakir mîskîn pado rangka abadat haji.
-
-[^365]: Yên dibakto sampe ke daerah Haram peranti semelê di ngeriko serto dagingnyo disungke kepado fakir mîskîn.
-
-[^366]: Ya'ni puaso yên itûngan dintennyo sekata mud yên di sungke kepado fakîr mîskîn, dengen catetan: sios wong fakîr mîskîn angsal sios mud (langkung kurang 6,5 ons).
-
-[^367]: Maksudnyo: munu binatang sedêrêng tûrûn ayat yên ngaramke niki.
 
 ## 5:96
 
 Dihalalke buat niko binatang buruan laut [^368] serto tedoan yên berasal dari laût, [^369] sebagai tedoan yên lemak bage niko, serto bagê wong-wong yên jerû lawatan; serto diharamke niko ningkep binatang darat, waktu niko sedeng ihrom serto betakwala kepado Allah yên kepadonyo niko ayûn dikumpulke.
 
-[^368]: Maksudnyo: binatang buruan laut yên diperolê dengen jalan usoho peca' ngaîl, merait serto liannyo. temasû' jugo pado reti  laut di ngeriki ya'ni: sungi, danau, kambang serto liannyo.
-
-[^369]: Maksudnyo: iwa’ atawa binatang laut yên diperolê dengen gampang, kerno sampun padem terapung atawa tedampar dipantai serto liannyo.
-
 ## 5:97
 
 Allah sampûn ndadeske Ka’bah rompok suci enggon wong [^370] bekûmpûl ma'niku pulo bulan haram, [^371] hadyu [^372] serto qolaid, [^373] yên ma'niku supayo niko wikan bahwa Allah wikan napi yên wênten di langit serto napi yên wênten di bumi, serto Allah maha wikan sedanten-dantennyo.
-
-[^370]: Ka'bah serto sekiternyo dades enggon yên aman peranti wong peranti namelke luruan-luruannyo yên behûbûngan dengen duniawi serto ukhrawi, serto pusat amalan haji. dengen wênten ka'bah niku, urîp wong dades kuat.
-
-[^371]: Maksudnyo antaro lian ya'ni: bulan Haram (bulan Zulkaidah, Zulhijjah, Muharram serto Rajab), tanah Haram (Mekah) serto Ihram., maksudnyo ya'ni: dilarang namelke perangan di bulan-bulan niku.
-
-[^372]: Ya'ni: binatang (unta, sapi, kambing, biri-biri) yên dibakto ke ka'bah peranti mara'ke awa' kepado Allah, semelê ditanah Haram serto dagingnyo dihadiahke kepado fakir mîskîn pado rangka abadat haji.
-
-[^373]: Dengen sembelîhan had-ya serto qalaid, wong yên bekorban angsal pahalo yên ageng serto fakir mîskîn angsal bagêan dari daging binatang-binatang semelêan niku.
 
 ## 5:98
 
@@ -3839,14 +3093,6 @@ Selesernyo, sedéréng niko, sampûn wênten segolongan wong yên nakénke hal-h
 
 Allah nano kalo nyariatke, wêntennyo Bahirah, [^374] Sa’ibah, [^375] Wasila [^376] serto Ham [^377] tapi wong-wong kafir muat-muat kebohongan teradep Allah, serto kata dari wong-wong niku nano berakal.
 
-[^374]: Bahiirah: ya'ni unto betino yên sampun berana’ limo kali serto ana’ kelimo niku jantan, sampun niku unto betino niku dibela kupîngnyo, dilepaske, nano bolê dinae’i male serto nano bolê diembil banyu susunyo.
-
-[^375]: Saaibah: ya'ni unto betino yên ditala’ke kesa kepundi saos lantaran sesios nazar. peca', kalu sios wong Arab Jahiliyah ayun namelke sesios atawa lawatan yên berat, dades dio biaso benazar ayun dadeske untonyo saaibah kalu maksud atawa lawatannyo behasil dengen selamat.
-
-[^376]: Washiilah: sios domba betino ngelahîrke ana’ kembar yên tediri dari jantan serto betino, dades yên jantan niki disebut washiilah, nano semelê serto diserenke kepado behalo.
-
-[^377]: Haam: unto jantan yên nano bolê diganggu male, kerno sampun angsal mûntîngke unto betino sedoso kali. pelakuan tehadep bahiirah, saaibah, washiilah serto haam niki wêntenlah kepercayaan Arab jahiliyah.
-
 ## 5:104
 
 Serto kalu dicerioske kepado wong-wong niku, supayo tumut napi yên ditûrûnke Allah serto kepado Rosul, wong-wong niku nyimbat, cûngkûpla buat kame' napi yên kame' terimo dari nênêk puyang kame' (didamelkenyo). meski nênêk puyang wong-wong niku nano wikan napi-napi serto nano pulo’ wênten petunju’.
@@ -3855,25 +3101,17 @@ Serto kalu dicerioske kepado wong-wong niku, supayo tumut napi yên ditûrûnke 
 
 Hei wong-wong yên beriman, jagola awa' niko, kerno wong yên kesasar niku nano bakal mbahayoke kalu niko sampûn wênten petûnjûk. [^378] cuman kepado Allah niko sedantennyo bakal mantû’. dades Dio bakal nyelaske kepado niko napi yên sampûn niko damelke.
 
-[^378]: Saksudnyo: kesesetan wong lian niku nano ayun ngesung mudharat kepado niko, asak niko sampun angsal petûnjû’. tapi nanola retinyo bahwo wong nano dikengken bedamel yên ma'ruf serto nyega dari yên munkar.
-
 ## 5:106
 
 Hei wong-wong yên beriman, Kalu wênten wong di antaro niko ngadepi maut, serto dio na’ bewasiat, dades wasiat niku disaksike ole duo wong yên adil di antaro niko atawa duo wong yên belianan igamonyo dengen niko; [^379] kalu niko di jerû lawatan, niko ditimpo bahayo’ wênten yên padem, niko tahan keduo saksi niku sesampunnyo semayang , supayo keduonyo besumpa dengen nami Allah, kalu niko ragu-ragu:” Demi Allah, kame' nano bakal ngembil keuntungan, dengen sumpa niki meski dio sana' kadang kame’, serto kamé’ nano nyingitke kesaksian Allah, selesernyo kalu ma'niku cengki kamé’ telînggî wong-wong yên bedoso”.
-
-[^379]: Ya'ni: ngembil wong lian yên nano seigamo dengen niko sebagî saksi dibolêke, kalu nano wênten wong Islam yên ayun didadeske saksi.
 
 ## 5:107
 
 Kalu tebukti kedua saksen niku bedoso [^380] mangko keduo wong yên lian ngentike kedudukannyo, ya'ni di antaro ahli waris yên berhak serto lebi parak kepado wong yên padem, laju keduonyo besumpa dengen nami Allah. Lesernyo kesaksian kame', saênyo diterimo daripado kesaksian keduo saksi niku serto kame' nano ngeliwati wates, selesernyo kalu niko bedamel ma'niku, cengki kame' telînggî wong-wong yên zolim.
 
-[^380]: Maksudnyo: sekewet dengen semayoannyo, serto hal niki wikan sesampun io namelke sumpah.
-
 ## 5:108
 
 Dengen caro niku, wong-wong niku pantes diesungke kesaksiannyo tumut yên selesernyo, serto wong-wong niku meraso takut bakal dibalike sumpanyo kepado ahli warisnyo sesampunnyo wong-wong niku besumpa. [^381] Betakwala kepado Allah serto dengerkela perentanyo, serto Allah nano ngesung petunjuk kepado wong-wong yên fasik.
-
-[^381]: Maksud sumpah niku dimantû’ke, ya'ni saksi-saksi yên belianan igamo niku ditola’ dengen besumpanyo saksi-saksi yên tediri dari sana’ kadang, atawa retinyo wong-wong yên besumpa niku ayun angsal balesan di dunio serto akhîrat, kerno namelke sumpa palsu.
 
 ## 5:109
 
@@ -3919,8 +3157,6 @@ Kalu niko nyikso wong-wong niku, mangko selesernyo wong-wong niku adola hambo-ha
 
 Allah befirman,:”Nikila waktu wong-wong yên leser angsal manfaat dari keleserannyo wong-wong niku disûng suargo yên ngalîr di bawanyo sungi-sungi, wong-wong niku mantep di jerûnyo selambat-lambatnyo. Allah redho kepado wong-wong niku serto wong-wong niku saos redho kepadonyo, [^382] nikula kemenangan yên ageng.
 
-[^382]: Maksudnyo: Allah ridho dengen sedanten damelan-damelan wong-wong niku, serto wong-wong niku ngeraso puas tehadep nikmat yên sampun dicurake Allah kepado wong-wong niku.
-
 ## 5:120
 
 Allah punyo kerajaan langit serto bumi serto napi yên wênten di jerûnyo serto Dio Maha Kuaso ates sedantennyo.
@@ -3941,8 +3177,6 @@ Serto diola Allah yên disemba di langit serto di bumi. Dio Wikan napi yên niko
 
 Serto saben ayat dari ayat-ayat [^383] Tuhan yên rawû kepado wong-wong niku, kecuali, sedantennyo selelu diingkarinyo.
 
-[^383]: Ayat di ngeriki retinyo mukjizat atawa ayat Al-Quran atawa peristiwa-peristiwa yên tedades jerû alam yên nûnju'ke kekuasaan Allah.
-
 ## 6:5
 
 Selesernyo,, wong-wong niku mudike keleseran Al-Qur’an waktu sampê kepado wong-wong niku, dades mengkîn bakal sampê kepado wong-wong niku, (keyatoan dari) kabar-kabar yên selelu diuyo’-uyo’nyo
@@ -3960,15 +3194,9 @@ Serto biarpun Kame’ tûrûnke kepado niko (Muhammad) tulisan di kertas, sampe 
 
 Serto wong-wong niku becerios:”Napi sebab nano diturunke malaêkat [^384] kepadonyo (Muhammad)”. Kalu Kame’ turunke malaêkat, (wong niku maler nano percayo), beresla urusannyo niku, [^385] wong-wong niku nano disûng pengunduran waktu.
 
-[^384]: Maksudnyo: peranti nerangke bahwo Muhammad s.a.w. niku sios Nabi
-
-[^385]: Maksudnyo: kalu ditûrûnke kepado wong-wong niku malaikat, sedengke wong-wong niku nano jugo beriman, cengki wong-wong niku ayun diazab Allah seketiko, nggût wong-wong niku binasa sedantennyo.
-
 ## 6:9
 
 Serto sekironyo Rosul niku kame' dadeske dio dari malaikat bewujud lanang, serto dengen mak niku cengki Kame’ bakal dadeske wong-wong niku pecak maknikila, maler tetep ragu. [^386]
-
-[^386]: Maksudnyo: kalu Allah ngutus sios Malaikat sebagi rasul, cengki Allah ngutusnyo jerû bentuk sios wong-wong, kerno wong nano angsal ningal malaikat, serto cengki jugo wong-wong niku ayun bekelap: niki dêdê malaikat, cuman wong peca' kame' jugo, dades wong-wong niku maler tetep ragu-ragu.
 
 ## 6:10
 
@@ -3981,10 +3209,6 @@ Cerioskela Muhammad:”Ngiderla di bumi, sampûn niku pasatila ma’pundi akibat
 ## 6:12
 
 Cerioskela hai Muhammad, punyo sinten napi yên wênten dilangit serto yên di bumi. Cerioskela: “Punyo Allah. Dio sampûn netepke sifat kasê sayang [^387] pada awa'nyo”. Niscayo Dio bakal ngûmpûlke niko pado dinten kiamat yên nano diraguke lagi”. Wong-wong yên ngerugike awa'nyo dêwê', dades wong niku nano beiman. [^388]
-
-[^387]: Maksudnyo: Allah sampun janji sebagî kemurahan-Nyo ayun ngelimpake rahmat kepado mahluk-Nyo.
-
-[^388]: Maksudnyo: wong-wong yên nano ngunoke akal-fikirannyo, nano ayun beriman.
 
 ## 6:13
 
@@ -4026,13 +3250,9 @@ Serto sintenla yên lebih zolim daripado wong yên moncolke bebudi teradep Allah
 
 Serto pado dinten Kame’ ngumpulke wong-wong niku danten. [^389] selanjutnyo kame' befirman kepado wong-wong yên nyekutuke Kame’:”Dipundi sembahan-sembahan niko kerihin, yên niko sangko sekutu-sekutu kame'”.
 
-[^389]: Sedanten makhluk Allah yên raillaf.
-
 ## 6:23
 
 Sampun niku nano wênten jawaban fitnah [^390] wong-wong niku, kecuali kelapnyo:”Demi Allah , Ya Tuhan kame', nanola kame' dades musyrikin”.
-
-[^390]: Yên dimaksud dengen fitnah di ngeriki ya'ni jawaban yên berupa bebudian.
 
 ## 6:24
 
@@ -4054,13 +3274,9 @@ Seumpamonyo  niko (Muhammad) ningali waktu wong-wong niku diadepke dengen nerako
 
 Tapi selesernyo saos bagi wong-wong niku sampûn nyato kejahatannyo, yên disingitkenyo [^391]  kerihin. Seumpamonyo wong-wong niku dibalike ke dunio, cengki wong-wong niku, bakal maleni lagi damelan yên sampûn ditega niku. Wong-wong niku memang pembohong.
 
-[^391]: Maksudnyo: wong-wong niku selesernyo nano becito-cito pengen dimantû’ke ke dunio peranti beriman kepado Allah, tetapi kelapan niku semato-mato dikelapke kerno ningali dahsyatnyo nerako.
-
 ## 6:29
 
 Cengki wong-wong niku bakal nyerioske :” ûrîp niki cuman di dunio niki saos, serto nanola kito bakal dibangkîtke”. [^392]
-
-[^392]: Maksudnyo: kalu wong-wong niku dimantû’ke ke dunio, wong-wong niku ayun ngelapke ma'niku.
 
 ## 6:30
 
@@ -4074,13 +3290,9 @@ Selesernyo,, rugi wong-wong yên mudike hadrengan ngen Allah, nggût kapan kiama
 
 Serto nanola keûrîpan dunio niki cuman pemaenan serto belêgê’an saos, [^393] sedengke negeri akhêrat niku selesernyo, langkung saê peranti wong-wong yên bertakwa. Napi niko nano ngunoke akal.
 
-[^393]: Maksudnyo: beladasan-beladasan duniawi niku cuman sedenget serto nano kekel. janganla wong tepedayo dengen beladasan-beladasan dunio, serto lalai dari luruan akhirat.
-
 ## 6:33
 
 Selesernyo, Kame’ wikan bahwo napi yên wong-wong niku cerioske niku nyedêke ati niko (Muhammad), (niko  nano angsal besede ati), kerno selesernyo, wong-wong niku dêdênyo mudike niko, tapi wong-wong yên zolim niku ngingkari ayat-ayat Allah. [^394]
-
-[^394]: Jerû ayat niki Allah ngibur Nabi Muhammad s.a.w. dengen ngelapke bahwo wong-wong musyrikin yên mudike Nabi, sami hakekatnyo dengen mudike Allah dewe', kerno Nabi niku diutus peranti nyampîkan ayat-ayat Allah.
 
 ## 6:34
 
@@ -4090,13 +3302,9 @@ Serto selesernyo, selesernyo Rosul-rosul sedêrêng niko sampûn dibohongke wong
 
 Serto kalu melengosnyo wong-wong niku teraso berat bagê niko (Muhammad) dades sekironyo niko wikan namel lubang di bumi atawa tanggo ke langit, serto niko angsal rawûke mu’jizat kepado wong-wong niku (dades damelkela) [^395] Serto sekironyo Allah ngendakinyo cengki dio dadeske wong-wong niku numut petûnjû’, dades, niko nano angsal nian niko tegolong wong-wong yên buyan.
 
-[^395]: Maksudnyo ya'ni: janganla niko ngeraso keberatan tehadep sikap wong-wong niku niku ngelengos dari kame'. kalu niko ngeraso keberatan cubola usohoke sios mukjizat yên angsal muaske ati wong-wong niku, serto niko cengki nano ayun sanggup.
-
 ## 6:36
 
 Cuman wong-wong yên nenger saos yên nûrûti (seruan Allah). Serto wong-wong yên padem atinyo, [^396] mengkîn bakal dibangkîtke olê Allah, sampûn niku wong-wong niku bakal di dimantu’ke (kepado Allah).
-
-[^396]: Maksudnyo wong-wong yên kafir nano ngerunguke serto nano matuhi seruan Allah.
 
 ## 6:37
 
@@ -4106,13 +3314,9 @@ Serto wong-wong niku (yên musyrik) becerios, napi sebab nano diturunke kepadony
 
 Serto nano wênten dari binatang-binatang di bumi serto burung-burung yên terbang dengen keduo sayapnyo, melianke sedantennyo merupoke umat-umat (jugo) ma’kayo niko. Nano wênten napi saos yên Kame’ lengetke dari kitab, [^397] sampun niku kepado Tuhan wong-wong niku dikumpulke.
 
-[^397]: Sebagîan mufassirin nafsîrke Al-Kitab niku dengen Lauhul mahfudz dengen reti bahwo nasib sedanten makhluk niku sampun ditulîske (ditetepke) jerû Lauhul mahfudz. serto wênten pulo' yên nafsîrkenyo dengen Al-Quran dengen reti: jerû Al-Quran niku sampun wênten pokok-pokok igamo, norma-norma, hukum-hukum, hikmah-hikmah serto pimpinan peranti kebahagiaan wong di dunio serto akhirat, serto kebahagiaan makhluk sami umumnyo.
-
 ## 6:39
 
 Serto wong-wong yêng mudike  ayat-ayat kame', pekak, bisu, serto ado dijerû gelep gulito. Sinten saos dikedaki Allah (jerû kesesetan), niscayo disasarkenyo. [^398] Serto sinten saos dikedaki Allah, didadeskeyo liwat di jalan lempeng.
-
-[^398]: Disesetke Allah retinyo: bahwo wong niku seset behubung keingkarannyo serto nano ayun mahami petûnjû’-petûnjû’ Allah. jerû ayat niki, kerno wong-wong niku niku ingkar serto nano ayun mahami napi sebabnyo Allah dadeske nyamuk sebagî perumpamoan, dades wong-wong niku niku dades seset.
 
 ## 6:40
 
@@ -4150,8 +3354,6 @@ Cerioskela (Muhammad) jelaskela kepado kulo, kalu siksoan Allah sampe kepado nik
 
 Nano Kame’ ûtûs sedanten Rosul niku,kecuali peranti ngesûng kabar ragap serto perêngetan. dades sinten yên beiman serto mewêntenke yên saê, [^399] dades nano wênten raso takût pado wong-wong niku serto wong niku nano besedî ati.
 
-[^399]: Ngewêntenke pesaêan retinyo namelke damelan-damelan yên saê peranti ngilangke akibat-akibat yên jahat dari kesalahan-kesalahan yên didamelke.
-
 ## 6:49
 
 Serto wong-wong niku yên mudike ayat-ayat Kame’, bakal ditimpo azab, kerno wong-wong niku selelu bedamel fasik (damel doso).
@@ -4168,8 +3370,6 @@ Imutkela dengen-nyo (Al-Qur’an) niku, wong yên takût ayun dikumpulke ngadep 
 
 Nano angsal niko ngusîr wong-wong yên nyeru Tuhannyo di waktu pagi serto sorê wong-wong niku ngarepke keredhoan Allah. niko nano mîkûl tanggung jawab setîtî’ saos tehadep damelan niko yên nyebabke niko (behak) ngusir wong-wong niku, dades niko tegolong wong-wong yên zolim. [^400]
 
-[^400]: Ketiko Rasulullah s.a.w. lînggî-lînggî besami wong mukmin yên dianggep êndep serto miskin olê kaum Quraisy, rawûla pinten-pinten perai Quraisy ayun bekelap dengen Rasulullah, tapi wong-wong niku enggan lînggî bersami mukmin niku, serto wong-wong niku mengusulkan supaya wong-wong mukmin niku diusir saos, sampun niku tûrûnlah ayat niki.
-
 ## 6:53
 
 Serto nikula kame' sampûn nguji sebagean wong-wong niku (yên sûgî) dengen sebagean liannyo (wong miskin) supayo wong-wong niku (sûgî) becerios:”Napi wong-wong nikila di antaro kito yên disûng anugera olê Allah ?”. (Allah befirman):”Napi Allah nano langkung wikan tentang wong yên besyukur (kepadonyo).
@@ -4177,12 +3377,6 @@ Serto nikula kame' sampûn nguji sebagean wong-wong niku (yên sûgî) dengen se
 ## 6:54
 
 Serto kalu rawu wong-wong beriman kepado ayat-ayat Kame’ kepado niko  (Muham-mad), dades cerioskela “Salamun ‘alaikum [^401] (selamet sejatero peranti niko). Tuhan niko sampûn netepke sifat kasih sayang [^402] pado awa'nyo”; (Yaitu) sinten saos bedamel kejahatan di antaro niko kerno buyannyo, [^403] sampûn niku dio betobat sesampûn niku, serto metulke awa', dades selesernyo, Dio Maha Pengampûn Maha Penyayang,.
-
-[^401]: Salaamun 'alikum retinyo mugi-mugi Allah ngelimpake Kesejahteraan tehadep niko.
-
-[^402]: maksudnyo: Allah sampun janji sebagî dengan kasî-Nyo ayun ngelimpke rahmat kepado mahluk-Nyo.
-
-[^403]: maksudnyo ya'ni: 1. wong yên bedamel maksiat dengen nano wikan bahwo damelan niku wêntenla maksiat kacuali kalu dipîkirke dumin. 2. wong yên durhaka kepado Allah saê dengen sengajo atawa nano. 3. wong yên namelke kejahatan kerno kurang kesadaran lantaran mara nian atawa kerno dorongan hawo nafsu.
 
 ## 6:55
 
@@ -4196,13 +3390,9 @@ Cerioskela (Muhammad) kulo nano angsal nyemba Tuhan-Tuhan yên niko semba selian
 
 Cerioskela (ya Muhammad) kulo niki (wênten) di pûcûk penjelasan yên nyato (Al-Qur’an) dari Tuhan kulo, [^404] sedengke niko mudikenyo. nanola kewênangan kulo (peranti nûrûnke azab) yên niko tûntût peranti digancangke rawûnyo. Netepke (ngûkûm niku) cumanla hek Allah. Dio nerangke yên leser serto Diola yên ngesûng kepûtûsan yên langkung saê.
 
-[^404]: Maksudnyo: Nabi Muhammad s.a.w. wênten bukti yên nyato tehadep keleserannyo.
-
 ## 6:58
 
 Cerioskela (Muhammad):” kalu wênten dengen kulo napi yên niko nedo (azab) supayo digancangke rawûnyo, cengki kelarla sedanten pekaro kulo dengen niko, [^405] serto Allah langkung wikan ngenoi wong-wong yên zolim.
-
-[^405]: Maksudnyo: cengki Allah sampun nûrûnke azab kepado niko sampe niko binaso.
 
 ## 6:59
 
@@ -4211,8 +3401,6 @@ Serto wênten dengen Dio kunci-kunci sedanten yên ghoib nano wênten yên wikan
 ## 6:60
 
 Serto diola yên nilemke niko waktu malem serto dio wikan napi yên niko damelke pado awan dinten. Sampûn niku dio nangike niko waktu awan supayo disempurnoke umur niko yên sampûn ditetepke. [^406] Sampun niku kepadonyo enggon niko mantû’, laju dio ngesûng wikan kepado niko napi yên sampûn niko damelke.
-
-[^406]: Niko ditilemke di malam dinten serto dibangunke di siang dinten, supaya dengen puteran waktu niku abes umur niko yên sampun dicengkike.
 
 ## 6:61
 
@@ -4234,15 +3422,9 @@ Cerioskela (ya Muhammad),” Allah yên nyelametke niko dari bencano serto dari 
 
 Cerioskela (Muhammad):”Diola yên bekuaso ngesûng azab kepado niko, dari pûcûk atawa dari bawa sîkîl niko, [^407] atawa dio nyampûrke niko ke jerû gûgû'-gûgû' (yên salîng betentangan) serto ngerasoke kepado sebagêan niko, kebengisan sebagêan yên lian. pasatila ma'pundi Kame’ nyelaske bebalên-balên [^408] tando-tando (kekuasoan Kame’) supayo wong-wong niku wikan.
 
-[^407]: Azab yên rawû dari pûcû’ peca'  ujan batu, petîr serto lian lian. yên rawû dari bawa peca' gempa bumi, banjir serto sebagînyo.
-
-[^408]: Maksudnyo: Allah s.w\.t. ngerawûke tando-tando keagengan-Nyo dengen rupo-rupo serto caro yên begenti-genti. Wênten pulo' sedanten mufassirin yên ngertike ayat di ngeriki dengen ayat-ayat Al-Quran yên retinyo bahwo ayat Al-Quran niku ditûrûnke wênten yên berupo kabar gembiro, wênten yên berupo peringatan, cerios, hukum-hukum serto lian-lian.
-
 ## 6:66
 
 Serto kaum niku mudikenyo (azab), [^409] padohal (azab) niku leser, Cerioske (ya Muhammad), kulo niki dêdênyo penanggung jawab niko.
-
-[^409]: Sebagîan mufassirin ngelapke bahwo yên dibudike niku ya'ni Al-Quran.
 
 ## 6:67
 
@@ -4260,17 +3442,9 @@ Nano wênten tanggung jawab setîtî’ saos wong-wong yên betakwa dengen (doso
 
 Tinggalkela wong-wong yên dadeske igamo [^410] dades penesanan serto nguca’-uca’, [^411] serto wong-wong niku sampûn tebudi olê keûripan dunio. Imutkela (wong-wong niku) dengen Al-Qur’an supayo wong-wong niku nano tejerûmus (ke jerû nerako), kerno damelannyo dêwê'. Nano wênten perantinyo pelîndung serto pengesûng syafaat [^412] (petûlûngan) selian Allah. Serto kalu dio ayûn nebûs sedanten mecem tebûsan napi saos, niscayo nano bakal diterimo. Wong-wong nikula, wong-wong yên dijerûmûske (ke jerû nerako) kerno damelan wong-wong niku dêwê'. Wong-wong niku disûng minuman dari toyo yêng umep serto azab yên pedi kerno kekafiran wong-wong niku kerîhîn.
 
-[^410]: Ya'ni igamo Islam yên dikengken wong-wong niku matuinya dengen selesernyo.
-
-[^411]: Reti dadeske igamo sebagî penesan serto uca’-uca’ ya'ni nguyo’-nguyo’ igamo niku namelke perînta-perînta serto nebîkei larangan-Nya dengen dasar penesan serto nano selesernyo.
-
-[^412]: Syafa'at: usoho perantaro ngesûngke sesios manfaat peranti wong lian atawa ngela’ke sesios mudharat peranti wong lian. syafa'at yên nano diterimo di sisi Allah wêntenla syafa'at peranti wong-wong kafir.
-
 ## 6:71
 
 Cerioskela (ya Muhammad), napi kito ayûn bedoa dengen yên  lian dari Allah, yên nano wikan ngesûng manfaat serto nano (pulo') ngesung mudhorat kepado kito, serto (napila) kito bakal dibêlû’ke ke buri [^413] sesampûnnyo Allah ngesûng petunju’ kepado kito, ma’kayo wong yên disasarke olê sêtan di bumi, di jerû kebingungan. Rêncang-rêncangnyo ngajak ke jalan yên leser, (dengen ngelapke)” tumutla dengen Kame’”. Cerioskela:” Lesernyo petûnjû’ Allah nikula petunju’ (yên lesernyo); serto kito diperêntake supayo pasra kepado Tuhan sedanten alam.
-
-[^413]: Maksudnyo: syirik.
 
 ## 6:72
 
@@ -4283,8 +3457,6 @@ Diola yên ngawe’ langit serto bumi dengen hak (cengki nian), waktu dio beceri
 ## 6:74
 
 Serto (imutla) waktu Ibrahim becerios kepado abinyo Azar [^414] :”Napi  pantes niko ngangkat berhalo-berhalo niku dades Tuhan? selesernyo, kulo ningali niko serto gûgû' niko jerû kesesetan yên nyato.
-
-[^414]: Di antaro mufassirin wênten yên bependapet bahwo yên dimaksud dengen Abiihi (abanyo) ya'ni mamangnyo.
 
 ## 6:75
 
@@ -4313,8 +3485,6 @@ Serto kaumnyo manta, dio (Ibrahim) becerios, napi niko ayûn manta kulo tentang 
 ## 6:81
 
 Ma'pundi kulo takut dengen napi yên niko duoke (dengen Allah), padohal niko nano takut dengen napi yên Allah dêwê' nano nurunke keterangan kepado niko peranti nuoke Dio. yên pundi dari keduo gûgû' niku yên langkung punyo hak kebagêan raso aman dari (malapetako), kalu nian leser niko niku wikan. [^415]
-
-[^415]: Sesampun ditingalike Allah kepado Nabi Ibrahim a.s. tando-tando keagungan-Nyo serto dengen niku tegûla imannyo kepado Allah (ayat 75), dades Ibrahim, mîmpîn kaumnyo kepado tauhid dengen numuti alam pikîran wong-wong niku peranti sampun niku dibantanyo.
 
 ## 6:82
 
@@ -4356,13 +3526,9 @@ Wong-wong nikula (sedanten nabi) yên sampûn disung petunju’ olê Allah, dade
 
 Serto nanola wong-wong ngagengke Allah ma'pundi mestinyo waktu wong-wong niku becerios, “Allah nano nûrûnke napi saos kepado wong” cerioskela (Muhammad), sintenla yên nûrûnke kitab (Taurot) yên dibakto Musa dades cahayo serto petûnjû’ peranti wong, niko dadeske kitab niku lembaran-lembaran kertas yên belamburan niko tinggalke (sebageannyo) serto kata yên niko singitke, padohal sampun diajarke kepado niko napi yên niko, ma'niku jugo nênêk puyang niko yên nano wikan . Cerioskela:” Allah-la (yên nûrûnkenyo)”, Sampûn niku, tala’kela wong-wong bemaen-maen di jerû kesasarnyo. [^416]
 
-[^416]: Kelap lanta’la wong-wong niku bemaen-maen dengen kesesetannyo wêntenla sebagî sindiran kepado wong-wong niku, peca’ wong-wong niku maler buda’ yên dêrêng berakal.
-
 ## 6:92
 
 Serto niki kitab (Al-Qur’an), yên Kamê tûrûnke dengen penu berkat, ngeleserke kitab-kitab yên (ditûrûnke) sedêrêngnyo [^417] serto supayo niko ngesûng perengetan kepado wargo Ummul Qura’ (Mekka) serto wong yên wênten di sekiternyo. Wong-wong yên beiman kepado (ûrip) akhêrat cengki beiman kepadonyo (Al-Qur’an) serto semayang wong-wong niku selelu tepiaro.
-
-[^417]: Ya'ni kitab kitab serto shahifah shahifah yên ditûrûnke sedêrêng Al Quran.
 
 ## 6:93
 
@@ -4388,10 +3554,6 @@ Serto diola Allah yên dadeske peranti niko bintang-bintang, supayo dades petûn
 
 Serto diola yên ngawe’ niko dari awa' [^418] yên sios (Adam) dades (peranti niko) wênten enggon netep (Rompok/dunio) serto enggon simpenan(raim/kuburan). [^419] selesernyo, sampun Kame’ jelaske tando-tando (keagengan) Kame’ kepado wong-wong yên wikan.
 
-[^418]: Ma’sudyo: Adam a.s.
-
-[^419]: Ma’sudnyo: Adam a.s.
-
 ## 6:99
 
 Serto diola yên nûrûnke toyo dari langit, dades kame' tûmbûke dengen toyo niku sedanten mecem tanem-taneman, dades Kame’ metuke dari niku taneman yên ngijo. Kame’ metuke dari taneman yên ngijo niku kata biji-bijian, serto dari mayang kurmo, moncol tangkê-tangkê yên nyolor, serto kebon-kebon anggûr, serto (Kame’ metuke pulo') zaitun serto delimo yên sami serto yên nano sami. pasatila buanyo pado waktu bebua serto dades masak. selesernyo, pado yên ma’ niku-niku wênten tando-tando (kekuasoan) Allah bage wong-wong yên beiman.
@@ -4399,8 +3561,6 @@ Serto diola yên nûrûnke toyo dari langit, dades kame' tûmbûke dengen toyo n
 ## 6:100
 
 Serto wong musyrik niku dadeske sekutu-sekutu Allah dari gûgû' jin, padohal Diola (Allah) yên ngawe’nyo (jin-jin niku), serto wong-wong niku bebohong (dengen nyerioske), Allah punyo zuriat lanang serto zuriat wadon, nano wênten dasar ilmunyo. pengetauannyo. [^420] Maha suci Allah serta Maha tinggi dari sifat-sifat yên wong-wong niku gambarke.
-
-[^420]: Wong-wong niku ngelapke bahwo Allah wênten anak peca' wong Yahudi ngelapke Uzair putera Allah serto wong musyrikin ngelapke Malaikat putra-putra Allah. wong-wong niku ngelapke ma'niku kerno tolol nian.
 
 ## 6:101
 
@@ -4417,8 +3577,6 @@ Dio nano wikan digari/dipara’i dengen peningalan mato, sedengke Dio wikan ngar
 ## 6:104
 
 Selesernyo,, bukti-bukti yên nyato sampûn rawû dari Tuhan niko, sinten saos ningali (keleseran niku), dades (manfaatnyo) peranti awa'nyo dewek, serto sinten yên buto (nano ningali keleseran niku) [^421] dades diola yên rugi, serto kulo (Muhammad) nanola penjago niko
-
-[^421]: Ma’sudnyo ya'ni sinten saos wikan keleseran serto namelke amal saleh, serto perolê petûnjû’, dades Dio sampun nyapmî puncak kebahagiaan.
 
 ## 6:105
 
@@ -4440,8 +3598,6 @@ Serto nano angsal niko nyega’ sesembahan yên wong niku semba selian Allah ker
 
 Serto wong-wong niku besumpa dengen nami Allah, dengen sedanten keleseran, bahwo kalu rawunyo ayat-ayat kepado wong-wong niku cengkila wong-wong niku bakal beiman kepadonyo. Cerioskela, ayat-ayat niku cuman wênten dari Allah, serto wikan nano niko, bahwo meski mukjizat (ayat-ayat) rawu, wong-wong niku nano jugo ayun beriman. [^422]
 
-[^422]: Ma’sudnyo: wong-wong musyrikin besumpa bahwo kalu rawû mukjizat, wong-wong niku ayun beriman, kerno niku wong-wong muslimin ngarep kepado Nabi supayo Allah nûrûnke mukjizat yên dimaksud. Allah nola’ harepan kaum mukmnikin dengen ayat niki. \[498] ma’sudnyo peranti dades saksi bahwo Muhammad wêntenla Rasulullah.
-
 ## 6:110
 
 Serto (ma'niku pulo') Kame’ belû’ke ati serto peningalan wong-wong niku, ma’kayo awal wong-wong niku nano beriman kepadonyo (Al-Qur’an) serto Kame’ tala'ke wong-wong niku bingung dijerû kesesetan.
@@ -4450,13 +3606,9 @@ Serto (ma'niku pulo') Kame’ belû’ke ati serto peningalan wong-wong niku, ma
 
 Serto sekali saos kame' leser-leser nûrûnke malaêkat kepado wong-wong niku, [^423] serto wong yên sampun padem bekelap dengen wong-wong niku serto kame' kûmpûlke (pulo') dihadepan wong-wong niku sedanten napi saos (yên wong-wong niku pengeni), wong-wong niku nano jugo ayun beiman, kacuwali kalu Allah ayunnyo, tapi kata nian wong-wong niku nano wikan (reti keleseran).
 
-[^423]: Ma’sudnyo peranti dades saksen bahwo Muhammad wêntenla Rasulullah.
-
 ## 6:112
 
 Serto ma'nikula peranti saben nabi kame' dadeske musu yên teawa' dari setan-setan, wong serto jin, sebagêan wong-wong niku mese’ke kepado sebagêan yên lian kelapan yên sae sebagê tipuan peranti wong, [^424] serto kalu tuhan niko ayun niscayo wong-wong niku nano ayun namelkenyo, dades tala’kela wong-wong niku besami napi (kebohongan) yên wong-wong niku wênten-wêntenke.
-
-[^424]: Ma’sudnyo syaitan-syaitan jenis jin serto wong berupaya menipu wong supayo nano beriman kepado Nabi.
 
 ## 6:113
 
@@ -4473,8 +3625,6 @@ Serto sampun sempurno firman tuhan niko (Al-Qur’an) dengen leser serto adîl. 
 ## 6:116
 
 Serto kalu niko tumuti kata nian wong di bumi niki, niscayo wong-wong niku ayun nyesetke niko dari jalan Allah. yên wong-wong niku tumut cuman sangkoan saos serto wong-wong niku cumanla namel kebohongan. [^425]
-
-[^425]: Peca' ngehalalke napi yên sampun diharamke Allah serto ngeharamke napi yên sampun dihalalke Allah, ngelapke bahwo Allah wênten ana’.
 
 ## 6:117
 
@@ -4496,13 +3646,9 @@ Serto tinggalkela doso yên ketingalan/ tejingok atawa yên nano ketingalan/ tes
 
 Serto nano angsal niko nedo dari napi (daging binatang) yên (waktu disemelê/dilelek) [^426] nano nyebût nami Allah, damelan niku nano leser-leser sesios kefasîkan. Selesernyo setan-setan ayun mesî’ke kepado rencang-rencangnyo supayo wong-wong niku nedo niko. Serto kalu niko nuruti wong-wong niku cengki niko sampun dades wong musyrik.
 
-[^426]: Ya'ni dengen ngelapke nami selian Allah.
-
 ## 6:122
 
 Serto napi wong yên sampun padem [^427] sampun niku kame' uripke serto kame' sung dio cahayo yên umatnyo angsal ke jalan di tenga-tenga wong rami, sami dengen wong yên jeru kegelepan, sehinggo dio nano angsal metu dari sano (ngeriku)? ma'nikula didadeske teraso cindo peranti wong-wong kafîr tehadep napi yên wong-wong niku damelke.
-
-[^427]: Ma’sudnyo ya'ni wong yên sampun padem atinyo ya'ni wong-wong kafir serto sebagînyo.
 
 ## 6:123
 
@@ -4516,8 +3662,6 @@ Serto kapan rawunyo sesios ayat kepado wong-wong niku, wong-wong niku bekelap, k
 
 Sinten saos dikendak-i Allah angsal hidayah (petunjuk), Dio ayun muka’ dadonyo peranti (nerimo) Islam. Serto sinten saos dikendak-inyo dades seset, [^428] dio dadeske dadonyo sempit serto sesek, ma’kayo niko (sedeng) munggah ke langit. ma'nikula Allah nimpoke sikso kepado wong-wong yên nano beiman.
 
-[^428]: Disesetke Allah retinyo: bahwo wong niku seset behubung keingkerannyo serto nano ayun mahami petûnjû’-petûnjû’ Allah. jerû ayat niki, kerno wong-wong niku niku ingkar serto nano ayun mahami napi sebabnyo Allah dadeske nyamuk sebagî perumpamoan, dades wong-wong niku niku dades seset.
-
 ## 6:126
 
 Serto nikila jalan tuhan niko yên leser, kame' sampun nyelaske ayat-ayat (kame') kepado wong-wong yên nerimo perengetan.
@@ -4530,8 +3674,6 @@ Bagi wong-wong niku (dicaweske) enggon yên dami (suargo) di sisi tuhannyo. Sert
 
 Serto (imutla) pado dinten waktu dio ngumpulke wong-wong niku sedantennyo (serto Allah befirman) hei golongan jin! Niko sampun kata (nyesetke) wong. Serto rencang-rencang wong-wong niku dari golongan wong bekelap, ya tuhan kame' selesernyo sebagêan kame’sampun angsal  kedemenan dari sebagêan yên lian, [^429] serto ma’niki waktu yên sampun niku tamtuke peranti kame' sampun rawu. Allah befirman, nerakola enggon niko selambat-lambatnyo. Kacuwali kalu Allah ayun lian, leser, Tuhan niko Maha Bijaksano, Maha Wikan.
 
-[^429]: Ma’sudnyo syaitan sampun behasil pedayoke wong nggût wong numuti perînta-perînta serto petûnjû’-petûnjû’nyo, serto wong sampun angsal hasil kelezatan-kelezatan duniawi kerno numuti bûjûkan-bujukan syaitan niku.
-
 ## 6:129
 
 Serto mak nikula kame' dadeske sebagêan wong-wong zolim berencang dengen sesaminyo, sesuai dengen napi yên wong-wong niku damelke.
@@ -4543,8 +3685,6 @@ Hei golongan jin serto wong, nanola sampun rawu kepado niko rosul-rosul dari gol
 ## 6:131
 
 Ma'nikula (rosul-rosul) diutus kerno Tuhan niko nano ayun minasoke sesios negeri secaro zolim, sedengke penduduknyo leno (dereng wikan). [^430]
-
-[^430]: Ma’sudnyo: pendûdû’ sios kota nano ayun diazab, sedêrêng diûtûs sios wong Rasul yên ayun ngesung peringetan kepado wong-wong niku.
 
 ## 6:132
 
@@ -4562,41 +3702,25 @@ Selesernyo napi saos yên disemayoke peranti niko cengki rawu serto niko nano an
 
 Kelapkela (Muhammad), hei kaum kulo, bedamîla nurut kesanggûpan niko, [^431] kulo saos bedamel (ma’ niku) mengkîn niko ayun wikan, sinten yên ayun angsal enggon (saê) di akhîrat (mengkîn), [^432] selesernyo wong-wong yên zolim niku nano ayun betuwa.
 
-[^431]: Retinyo: tetepla jerû kekafiran niko peca' kulo tetep jerû keislaman kulo.
-
-[^432]: Maksudnyo: Allah dadeske dunia sebagî enggon ngerunut (hasil) yên saê ya'ni kebahagiaan diakhirat.
-
 ## 6:136
 
 Serto wong-wong niku nyaweske sebagêan hasîl tanduran serto binatang (bagîan) peranti Allah sambêl bekelap nûrût sangkoan wong-wong niku, niki peranti Allah serto yên niki peranti berhalo-halo kame'. perantian yên peranti berhalo-berhalo wong-wong niku nano ayun sampî kepado Allah, serto perantian yên peranti Allah ayun sampe kepado berhalo-berhalo wong-wong niku. [^433] Jahat nian ketetepan wong-wong niku.
-
-[^433]: Nûrût yên diriwayatke bahwo hasil tanaman serto binatang terna’ yên wong-wong niku gunoke peranti Allah, wong-wong niku gunoke peranti ngesung tedoan wong-wong fakir, wong-wong miskin, serto bebagai amal sosial, serto yên digunoke peranti berhala-berhala di sungke kepado penjago berhala niku. napi yên disajike peranti berhala-berhala nano angsal di sungke kepado fakir miskin, serto amal sosial sedengke sebagian yên disajike peranti Allah (fakir miskin serto amal sosial) angsal di sungke kepado berhala-berhala niku. kebiasoan yên peca' niki Amat dikutu’ Allah.
 
 ## 6:137
 
 Serto ma'nikula berhalo-berhalo wong-wong niku (setan) nadeske teraso cindo peranti kata wong-wong musyrik peranti zuriat-zuriat wong-wong niku, peranti minasoke wong-wong niku serto ngacauke igamo wong-wong niku dewe'. [^434] Serto kalu Allah ayun niscayo wong-wong niku nano ayun namelkenyo. Tala’kela wong-wong niku besami napi (budian) yên wong-wong niku wênten-wêntenke.
 
-[^434]: Sebagian wong Arab niku wêntenla penganut syariat Ibrahim. Ibrahim a.s. perna diperintake Allah ngorbanke ana’nyo Isma'il. sampun niku pemimpin-pemimpin igamo wong-wong niku ngabûrke pengertian berkorban niku, nggût wong-wong niku angsal nanemke kepado penumutnyo, raso mandang saê munu anak-anak wong-wong niku dengen alasan mara'ke awa' kepado Allah, padohal alasan yên selesernyo ya'ni kerno takut miskin serto takut tenoda.
-
 ## 6:138
 
 Serto wong-wong niku bekelap (nûrût anggepan wong-wong niku) [^435] nikila binatang ternak serto hasil bumi yên ditega, nano angsal ditedo, kacowali olê wong yên kame' ayuni. Serto wênten pulo’ binatang yên diharamke (nano angsal ditunggangi), serto wênten binatang ternak yên (waktu disemelê/ dilelek) nano ngelap nami Allah, [^436] niku merupoke bebudian tehadep Allah. Mengkîn Allah ayun males sedanten yên wong-wong niku wênten-wêntenke.
-
-[^435]: Ya'ni: wong-wong niku sering nian nentuke binatang-binatang peranti pujaan serto binatang-binatang niki cuman angsal didadeske wong-wong cengki saos.
-
-[^436]: Maksudnyo ya'ni binatang-binatang yên semelê peranti berhala.
 
 ## 6:139
 
 Serto wong-wong niku bekelap (pulo') napi yên wênten di jeru perut binatang ternak niki [^437] khusus peranti kaum lanang-lanang kame', haram peranti sema-sema kame', serto kalu yên jeru perut niku (dilahirken) padem, dades sedanten angsal (ditedo). Mengkîn Allah ayun males tehadep ketetepan wong-wong niku. Selesernyo Allah Maha Bijaksano, Maha Wikan.
 
-[^437]: Maksudnyo ya'ni binatang-binatang ternak yên nano bolê ditunggangi peca' Bahiirah serto Saaibah.
-
 ## 6:140
 
 Leser rugi, wong-wong niku yên munu zuriat-zuriatnyo kerno kebuyanan nano wênten pengetahuan [^438] serto ngeharamke rezeki yên dikaruniake Allah kepado wong-wong niku dengen semato-mato namel-namelke kebohongan tehadep Allah. Leser, wong-wong niku sampun seset serto angsal petunju’.
-
-[^438]: Bahwo Allahlah yên ngesung rezki kepado hamba-hambaNyo.
 
 ## 6:141
 
@@ -4610,12 +3734,6 @@ Serto di antaro binatang-binatang ternak niku wênten yên didadeske ngangkut ba
 
 Wênten lapan binatang ternak yên bepasangan (empat pasang). [^439] Sepasang domba [^440] serto sepasang kambing. [^441] Kelapkela, napi yên diharamke Allah duo yên lanang atawa duo yên betino atawa yên wênten jeru kandungan keduo betinonyo? Jelaskela kepado kulo bedasarke pengetahuan kalu niko wong yên leser.
 
-[^439]: Retinyo sekawan pasang, ya'ni sepasang biri-biri, sepasang kambing sepasang unta serto sepasang lembu
-
-[^440]: Maksudnyo domba jantan serto betino
-
-[^441]: Maksudnyo kambing jantan serto betino
-
 ## 6:144
 
 Serto dari unto sepasang serto dari sapi sepasang, kelapkela, napila yên diharamke, duo yên lanang atawa duo yên betino, atawa yên wênten jeru kandungan keduo betinonyo ? Napila dades saksen waktu Allah netepke niki peranti niko ? Sintenla yên langkung zholim daripado wong-wong yên ngewêntenke kebohongan tehadep Allah peranti nyesetke wong-wong yên nano wênten pengetahuan? Selesernyo Allah nano ayun ngesung petunjuk kepado wong-wong yên zolim.
@@ -4627,8 +3745,6 @@ Kelapkela, kulo nano angsal di jeru napi yên diwahyuke kepado niko, napi yên d
 ## 6:146
 
 Serto kepado wong-wong Yahudi, kame' haramke sedanten (binatang yên bekuku), [^442] serto kame' haramke wong-wong niku lemak/minyak sapi serto domba, kacowali yên meleket di punggungnyo, atawa yên becampur dengen tulang-tulang. ma'nikula, kame' ngukum wong-wong niku kerno kedurhakoannyo, serto leser, Kame' Maha Leser.
-
-[^442]: Yên dimaksud dengen binatang bekuku di ngeriki ya'ni binatang-binatang yên jari-jarinyo nano terpsah antaro sios dengen yên lian, peca': unta, iti;, angsa serto lian-lian. sebagian ahli tafsir ngertike dengen hewan yên bekuku sios peca' kudo, keledai serto lian-lian.
 
 ## 6:147
 
@@ -4650,21 +3766,13 @@ Kelapkela (Muhammad) baktola sakso saksen niko yên angsal muktike bahwo Allah n
 
 Kelapkela (Muhammad), majengla kulo bacoke napi yên diharamke tuhan pado niko. Nano angsal nuokenyo dengen napi saos, bedamel yên sae kepado aba embi’ nano angsal munu zuriat-zuriat niko kerno miskin. kame'la yên ngesung rezeki kepado niko serto kepado wong-wong niku, nano angsal niko marak-i damelan yên keji, saê yên ketingalan atawa saos yên tesingit/nano ketingalan. Nano angsal niko munu yên diharamke Allah kacowali dengen alesan yên leser. [^443] ma'nikula dio ngengken kepado niko supayo niko mafhum/ngerti.
 
-[^443]: Maksudnyo yên dileserke olê syara' peca' qishash munu wong murtad, rajam serto sebagînyo.
-
 ## 6:152
 
 Serto nano angsal niko marak-i harto anak yatim dengen caro yên langkung bemanafaat, nggût dio (umur) balihg (dewasa) serto sempurnokela takeran serto timbangan yên adil. kame' nano mebani sios wong melianke nurut kesanggupannyo, kapan niko bekelap, bekelapla sejujurnyo, meski saos dio kerabat (niko) [^444] serto penuila/tepatila janji Allah. [^445] ma'nikula dio ngengken kepado niko supayo niko imut.
 
-[^444]: Maksudnyo ngelapke yên selesernyo meski  ngerugike sana’ dewe’
-
-[^445]: Maksudnyo penuila sedanten perintah-perintah-Nyo.
-
 ## 6:153
 
 Serto leser, nikila jalan kulo yên leser. dades tumutla, nano angsal niko tumut-i jalan-jalan (yên lian) [^446] yên ayun misake niko dari jalannyo. ma'nikula dio ngengken kepado niko supayo niko betakwo.
-
-[^446]: Semayang wusthaa ya'ni semayang yên di tenga-tenga serto yên langkung utamo. wênten yên bependapet, bahwo yên dimaksud dengen semayang wusthaa ya'ni semayang Ashar. nûrût pinten-pinten ahli hadits, ayat niki nekenke supayo sedanten semayang niku didamelke dengen sesaê-saênyo.
 
 ## 6:154
 
@@ -4678,10 +3786,6 @@ Serto niki nikula kitab (Al-Qur’an) yên kame' turunke dengen penu berkat. tum
 
 (Kame' turunke Al-Qur’an niku) supayo niko (nano) ngelapke, kitab niku cuman diturunke kepado duo golongan saos [^447] sedereng kame' (Yahudi serto Nasrani) serto leser, kame' nano meratike napi yên wong-wong niku baco. [^448]
 
-[^447]: Ya'ni wong-wong Yahudi serto Nasrani.
-
-[^448]: Ditûrûnke Al Quran jerû bahasa Arab supayo wong musyrikin Mekah nano angsal ngelapke bahwo wong-wong niku nano wênten kitab kerno kitab yên ditûrûnke kepado golongan Yahudi serto Nasrani ditûrûnke jerû bahasa yên nano wikan wong-wong niku.
-
 ## 6:157
 
 Atawa supayo niko (nano) ngelapke kalu kitab niku diturunke kepado kame', cengkila kame' langkung angsal petunju’ daripado wong-wong niku. Leser, sampun rawu kepado niko penjelasan yên nyato, petunju’ serto rohmat dari tuhan niko. Sintenla yên zolim daripado wong yên mudike ayat-ayat Allah serto bepalîng daripadonyo. Mengkin, kame' ayun ngesung balesan kepado wong-wong yên bepalîng dari ayat-ayat kame' dengen azab yên keras kerno wong-wong niku selelu bepalîng.
@@ -4690,13 +3794,9 @@ Atawa supayo niko (nano) ngelapke kalu kitab niku diturunke kepado kame', cengki
 
 Yên wong-wong niku tunggu-tungguke cumanla rawunyo malaêkat kepado wong-wong niku atawa rawunyo tuhan niko [^449] atawa sebagêan tando-tando dari tuhan niko. Pado dinten rawunyo sebagêan tando-tando tuhan niko nano beguno lagi iman sesios wong yên dereng beiman sederengnyo niku, atawa (dereng) beusoho damelke kebajekan dengen imannyo niku. Kelapkela, entenila kame' saos nhenteni.
 
-[^449]: Maksudnyo: tando-tando kiamat.
-
 ## 6:159
 
 Selesernyo wong yên meca bela igamonyo serto wong-wong niku dades (tepeca) jeru golongan-golongan, [^450] setitik saos bukan tanggung jawab niko (Muhammad) peranti wong-wong niku. Selesernyo urusan wong-wong niku (tesera) kepada Allah. Sampun niku dio bakan ngesung wikan kepado wong-wong niku napi yên sampun wong-wong niku damelke.
-
-[^450]: Maksudnyo: ya'ni golongan yên fanatik nian kepado pemimpin-pemimpinnyo.
 
 ## 6:160
 
@@ -4718,8 +3818,6 @@ Nano wênten sekutu perantinyo, serto ma'nikula yên dikengken kepado kulo serto
 
 Kelapkela (Muhammad) napi (patut) kulo ngerunut tuhan selian Allah padohal diola tuhan peranti sedanten-dantennyo. Saben damelan doso, sesios wong, awa'nyo dewe' yên betanggung jawab serto sesios wong nano ayun mikul beban doso wong lian. [^451] Sampun niku kepado tuhan nikola niko mantu’, serto ayun disung wikankenyo kepado niko napi yên senantu niko selîsîke.
 
-[^451]: Maksudnyo: dewe’-dewe; wong mikul dosonyo.
-
 ## 6:165
 
 Serto diola yên nadeske niko dades kafila-kafila di bumi serto diola yên ngangkat derajat sebagêan niko di pucuk yên lian, peranti nguji niko ates (kurnia) yên disungkennyo kepado niko. Selesernyo tuhan niko cepet nian ngesung hukuman serto leser, diola maha pengampun maha penyayang.
@@ -4728,8 +3826,6 @@ Serto diola yên nadeske niko dades kafila-kafila di bumi serto diola yên ngang
 
 Alif – Lam – Mim – Shod  [^452]
 
-[^452]: Nikula huruf-huruf abjad yên teletak pado awal sebagian dari surat-surat Al Quran pecak: Alif laam miim, Alif laam raa, Alif laam miim shaad serto liannyo. diantaro Ahli-ahli tafsir wênten yên nyerake pengertiannyo kepado Allah kerno dipandang temasuk ayat-ayat mutasyaabihaat, serto wênten pulo golongan yên nafsirkenyo atawa yên mandangnyo sebagî nami surat, serto wênten pulo yên bependapet bahwo huruf-huruf abjad niku gunonyo peranti narîk pehatian sedanten pendengêr supayo merhatike Al Quran niku, serto peranti ngisyaratke bahwo Al Quran niku diturunke dari Allah jerû baso Arab yên tesusun dari huruf-huruf abjad. Kalu wong-wong niku nano yakin bahwo Al Quran niku diturunke dari Allah serto dîdînyo buatan Nabi Muhammad s.a.w.,  cobola wong-wong niku damel pecak Al Quran niku.
-
 ## 7:2
 
 (Nikila) kitab yên diturunke Allah kepado niko (Muhammad) dades nano angsal niko sesek dado kernonyo, supayo niko ngesûng peringatan dengen (kitab) niku serto dades pelajaran bagi wong-wong yên beiman.
@@ -4737,8 +3833,6 @@ Alif – Lam – Mim – Shod  [^452]
 ## 7:3
 
 Tumutla napi yên diturunke kepado niko dari Tuhan niko, serto nano angsal niko tumut pemimpin selian Dio, [^453] setitik nian niko ngembil pelajaran.
-
-[^453]: Maksudnyo: pemimpin-pemimpin yên makto niko kepado kesesetan.
 
 ## 7:4
 
@@ -4783,8 +3877,6 @@ Serto selesernyo, Kame’ sampûn ngawê’ niko, sampûn niku mentuk (badan) ni
 ## 7:14
 
 (Iblis) nyawab, sûngla kulo ûndûr waktu, [^454] sampe dinten wong-wong niku dibangkitke.
-
-[^454]: Maksudnyo: janganlah kulo serto anak cucung kulo dipademke nggût dinten kiamat nggût kulo wênten waktu ngolo’i Adam serto anak cucungnyo.
 
 ## 7:15
 
@@ -4834,10 +3926,6 @@ Kelap keduonyo:”Ya Tuhan kame', sampûn zolim kame’ dengen awa' Kame’ dêw
 
 Hei anak cûcûng Adam [^455] ! Selesernyo Kame’ sampûn nyedioke pakean peranti aurat niko serto peranti aêsan peranti niko. Tapi kelambi takwa [^456] , nikula yên langkung saê. ma'nikula sebagian tando-tando kekuasoan Allah, mugo-mugo wong-wong niku imut.
 
-[^455]: Ma’sudnyo ya'ni: umat wong
-
-[^456]: Ma’sudnyo ya'ni: sesampun niku bertakwa kepado Allah.
-
 ## 7:27
 
 Hei anak cûcûng Adam ! Nano angsal niko sampe tebudi ole sêtan ma’kayo halnyo (setan) sampûn metuke walid niko dari suargo, dengen muka’ke/mecati pakêan keduonyo peranti ningali aurat keduonyo. Selesernyo Dio serto ana’ buanyo angsal ningali niko dari enggon yên niko nano wikan ningalinyo.. Selesernyo Kame’ sampûn nadoske sêtan-sêtan niku pemimpin peranti wong-wong yên nano beriman.
@@ -4846,13 +3934,9 @@ Hei anak cûcûng Adam ! Nano angsal niko sampe tebudi ole sêtan ma’kayo haln
 
 Serto kapan wong-wong niku ngadoke damelan keji [^457] , wong-wong niku becerios: “kame' ningali nenek puyang kame' ngadoke yên ma’niku serto Allah ngêngkên Kame’ namelkenyo”. Kelapke:”Selesernyo Allah nano kalo ngêngkên bedamel keji, napi niko nyerioske Allah tentang napi yên niko nano wikan”.
 
-[^457]: Peca': syirik, thawaf telanjang di sekeliling ka'bah serto sebaginya.
-
 ## 7:29
 
 Cerioskela, Tuhan kulo ngêngkên belaku adîl; adepkela rai niko (kepado Allah) [^458] saben niko semayang serto sembala Dio dengen suko redho ibadat semato-mato kepadonyo, niko bakal dimantû’ke kepado-nyo ma’kayo niko diciptoke semulo.
-
-[^458]: Maksudnyo: tumpakela peratian niko kepado semayang niku serto pusatkela peratian niko semato-mato kepado Allah.
 
 ## 7:30
 
@@ -4862,15 +3946,9 @@ Sebagean disûngnyo petûnjûk serto sebagean lagi sepantesnyo Kame’dadeske ke
 
 Hei anak cûcûng Adam ! Pakêla pakêan niko yên saê pado saben (ngelebet) ke mesjid, [^459] nedo serto minumla, tapi nano angsal rakus. [^460] selesernyo, Allah nano demen dengen wong yên tepeliwat.
 
-[^459]: Ma’sudnyo: saben-saben ayun namelke semayang atawa thawaf keliling ka'bah atawa abadat-abadat yên lian.
-
-[^460]: Ma’sudnyo: janganlah tepeliwat yên dibutuke olê badan serto jangan pulo' tepeliwat tehadep tedoan yên dihalalke.
-
 ## 7:32
 
 Cerioske (ya Muhammad) sinten yên ngeharamke aêsan dari Allah yên sampûn dinyaweskeperanti hambo-hambonyo serto rezeki yên saê-saê. Cerioske, sedanten niku peranti wong-wong yên beriman jerû keûripan dunio, serto khusus (peranti wong-wong niku saos) pado dinten kiamat. [^461] ma'nikula kame' njelaske ayat-ayat niku peranti kaûm yên sampûn maklûm
-
-[^461]: Ma’sudnyo: aêsan- dari Allah serto dadesnan yên saê niku angsal dinikmati di dunio niki olê wong-wong yên beriman serto wong-wong yên nano beriman, sedengke di akhirat nanti wêntenla semato-mato peranti wong-wong yên beriman saos.
 
 ## 7:33
 
@@ -4879,8 +3957,6 @@ Cerioske (ya Muhammad), Tuhan kulo cuma ngeharamke sedanten damelan keji yên ke
 ## 7:34
 
 Serto saben umat punyo ajal (bates waktu) [^462] dades kalu ajalnyo rawû, wong-wong niku nano wikan nyatu mûndûr atawa digancangke walaupun sedenget saos.
-
-[^462]: Ma’sudnyo: saben-saben bangsa wênten bates waktu kejayaan atawa keruntuhan.
 
 ## 7:35
 
@@ -4898,10 +3974,6 @@ Dades sinten yên langkung zolim, wong yên ngawê’ kebohongan tehadep Allah a
 
 Allah befirman, ngelebetla niko ke jerû api nerako sami dengen golongan jin serto wong yên sampûn nulu dari niko. Saben kali umat yên ngelebet, dio melaknat dûlûrnyo, sehinggo kapan wong-wong niku sampûn ngelebet sedantennyo, beceriosla wong yên (ngelebet) karang buri [^463] kepado yên nulu [^464] :”Ya Tuhan Kame’, wong-wong niku sampûn nyasarke Kame’. Rawûkela siksoan api nerako yên belipet gando kepado wong-wong niku”. Allah befirman:”Sêwang-sêwang nerimo (siksoan) yên belipet gando tapi niko nano wikan”.
 
-[^463]: Ma’sudnyo: penumut
-
-[^464]: Ma’sudnyo: pemimpin-pemimpin
-
 ## 7:39
 
 Serto wong yên (ngelebet) nulu becerios kepado yên (ngelebet) karang buri:”niko nano punyo kelangkungan setitik saos dari kame'. dades rasokela azab niku kerno damelan yên sampûn niko damelke”.
@@ -4910,15 +3982,9 @@ Serto wong yên (ngelebet) nulu becerios kepado yên (ngelebet) karang buri:”n
 
 Selesernyo wong-wong yên ngebohongke ayat-ayat kame' serto nyombongke awa' tehadepnyo, nano ayûn dibuka’ke lawang-lawang langit [^465] peranti wong-wong niku serto wong-wong niku nano wikan ngelebet ke suargo, sedêrêng onto ngelebet ke jerû lubang jarum. [^466] ma'nikula kame' ngesûng balesan kepado wong-wong yên bedamel jahat.
 
-[^465]: Retinyo: doa serto amal wong-wong niku nano diterimo Allah.
-
-[^466]: Retinyo: wong-wong niku nano mungkin melebet suarga peca' nano mungkin melebetnyo unto ke lubang jarum.
-
 ## 7:41
 
 Peranti wong-wong niku lamat/lihab dari api nerako serto di pûcûk wong-wong niku wênten kemûl (selimut) api nerako. [^467] ma'nikula kame' ngesûng balesan kepado wong-wong yên zolim.
-
-[^467]: Ma’sudnyo: wong-wong niku tekepung jerû api nerako.
 
 ## 7:42
 
@@ -4940,10 +4006,6 @@ Serto becerios sedanten penunggu suargo, kepado penunggu nerako:”selesernyo, k
 
 Serto di antaro keduonyo (penduduk suargo serto nerako) wênten tabir; serto di pûcûk A’raf (enggon yên paling tinggi) [^468] wênten wong-wong yên sewawûan, dengen tando dêwê’-dêwê'. Wong-wong niku ngesûng wikan penduduk suargo “Salamun ‘alaikum” [^469] (salam sejatera peranti niko). Wong-wong niku dêrêng angsal ngelebet, tapi wong-wong niku pêngên gacang (ngelebet).
 
-[^468]: Al A'raaf retinyo: enggon yên tertinggi di antaro suarga serto nerako.
-
-[^469]: Retinyo: Mudah-mudahan Allah ngeelimpake Kesejahteraan tehadep niko.
-
 ## 7:47
 
 Serto kapan pandangan wong-wong niku dialihke ke penduduk nerako, wong-wong niku becerios:”Ya Tuhan Kame’, mugola niko’ dadeske Kame’ sami-sami wong-wong zolim niku”.
@@ -4955,8 +4017,6 @@ Serto wong-wong di pucuk A’raf (enggon yên paling tinggi) nyemayoi wong-wong 
 ## 7:49
 
 Napi niku wong-wong [^470] yên sampun niko sumpai, bawa nano bakal angsal rohmat Allah ? (Allah befirman):” ngelebetla niko ke jerû suargo ! Nano wênten raso wedhi' pado niko serto niko nano bakal sedî”.
-
-[^470]: Ma’sudnyo: penghuni syurgo.
 
 ## 7:50
 
@@ -4970,8 +4030,6 @@ Serto beteriak pendûdûk nerako kepado penduduk suargo:” Cûrûke (setîtîk)
 
 Selesernyo, Kame’ sampûn merawûke kepado wong-wong niku, kitab (Al Quran) yên njelaske dengen dasar ilmu, [^471] dades petunju’ dan rohmat bagi wong beiman.
 
-[^471]: Ma’sudnyo: tehadep dasar wikanmyo kame' tentang napi yên dades kemashlahatan peranti hamba-hamba kame' di dunio serto akhirat.
-
 ## 7:53
 
 Napi wong niku cuma nunggu-nunggu bukti keleseran (Al-Qur’an). Pado dinten bukti keleseran niku rawû, wong-wong yên sedêrêng niku nano semayo, kelapnyo: ”selesernyo, Rosul-rosul Tuhan kame' sampûn rawu makto keleseran. dades wênten nano pengesung syafaat bagi Kame’ yên ayûn nulung Kame’ atawa supayo kame' dibalike (ke dunio) sehinggo Kame’ ayûn beramal, dêdênyo pecak damelan yên Kame’ damelke kerihin?”- Selesernyo wong niku ngerugike awa'nyo dêwê' serto sampûn lenget napi yên wong-wong niku damel kerîhîn .
@@ -4980,13 +4038,9 @@ Napi wong niku cuma nunggu-nunggu bukti keleseran (Al-Qur’an). Pado dinten buk
 
 Selesernyo, Tuhan niko (ya'ni) Allah yên ngawê’ langit serto bumi lambatnyo enem maso, sampûn niku Dio tinggal di pûcûk “Arsy”. [^472] Dio nûtûpke malem kepado siang yên numutinyo dengen sigero. (Dio ngawe’) matoari, bulan, serto bintang-bintang, tûndûk dengen perêntanyo. Imutla ! damelan serto sedanten ûrûsan dades he’Nyo. Maha suci Allah, Tuhan sedanten alam.
 
-[^472]: Besemayam di pûcû 'Arsy ya'ni sios sifat Allah yên wajib kito imani, klop dengen keagengan Allah serto kesucian-Nyo.
-
 ## 7:55
 
 Bedo’ala kpado Tuhan niko dengen tawadhu’ serto suaro yên lembut. selesernyo, Dio nano demen dengen yên tepeliwat. [^473]
-
-[^473]: Ma’sudnyo: tepeliwat tentang yên ditedo serto caro nedo.
 
 ## 7:56
 
@@ -5011,8 +4065,6 @@ Kelap pemuko-pemuko kaûmnyo:”Seleser-nyo kame' ningali niko dijerû kesesetan
 ## 7:61
 
 Dio (Nuh) nyimbat:”hei kaûm kulo ! Kulo nano kesasar, tapi kulo niki Rosul dari Tuhan sedanten alam”. [^474]
-
-[^474]: Ma’sudnyo: kulo wikan hel-hel yên ghaib, yên nano angsal wikan cuman dengen jalan wahyu dari Allah.
 
 ## 7:62
 
@@ -5090,8 +4142,6 @@ Sampun niku Dio (nabi Solih) kesa ninggalke wong-wong niku sambil becerios: “h
 
 Serto (Kame’ jugo sampûn ngûtûs) Luth, waktu Dio becerios kaûmnyo:”Napi sebab niko bedamel keji, [^475] yên dêreng kalo dida-melke oleh sios wong saos sedêrêng niko (di dunio niki)”.
 
-[^475]: Damelan faahisyah di ngeriki ya'ni: homoseksual peca' diterangke jerû ayat 81
-
 ## 7:81
 
 Leser, niko sampun ngelampiaske syawat niko kepado sesami lanang, dêdênyo dengen wadon. niko leser-leser kaum yên tepeliwat.
@@ -5111,8 +4161,6 @@ Serto kame' ujani wong-wong niku dengen ujan (batu). dades tingalila ma’pundi 
 ## 7:85
 
 Serto kepado pendudu' Madyan, [^476] (Kame’ utus nabi) Syuaib, dulur wong niku dêwê’. Kelapnyo: ”hei kaum kulo Sembala Allah ! Nano wênten Tuhan peranti niko selian dio. Selesernyo sampun rawu kepado niko petunju’ yên nyato dari Tuhan niko. Sempurnokela takeran serto timbangan, serto nano angsal niko ngerugike wong setitik saos. Nano angsal niko ngerusa’ di bumi sesampûn (diciptake) dengen saê. Nikula yên langkung saê peranti niko kalu niko wong beiman.
-
-[^476]: Mad-yan wêntenla nami putera Nabi Ibrahim a.s. sampun niku dades nami kakaluh yên tediri dari anak cucu Mad-yan niku. Kkaluh niki diam di suatu enggon yên jugo dinamii Mad-yan yên teletak di pantai laut merah di tenggara gunung Sinai.
 
 ## 7:86
 
@@ -5186,8 +4234,6 @@ Kame' nano kepanggî kata dari wong-wong niku nepati janji, tapi kata dari wong-
 
 Sampûn niku Kame’ ûtûs Nabi Musa, sesampûn rosul-rosul niku, ngebakto ayat-ayat kame' kepado Fir’aun [^477] serto pemuko-pemuko kaûmnyo, dades wong niku zolim. Tingalila ma'pundi akibat wong-wong yên damelannyo ngerusak.
 
-[^477]: Fir'aun wêntenla gelar peranti raja-raja Mesir purbakala. nûrût sejarah, Fir'aun di maso Nabi Musa a.s. ya'ni Menephthah (1232-1224 S.M.) anak dari Ramses.
-
 ## 7:104
 
 Serto kelap Nabi Musa: “Hei Fir’aun. Selesernyo Kulo niki ûtûsan dari Tuhan sedanten alam
@@ -5240,8 +4286,6 @@ Kelap Tukang-tukang sihir niku:” Hei Musa! napi niko yên ayun mguntalke dumin
 
 Kelap Nabi Musa: “Untalkela dumin he’ niko”. Tukang-tukang sihir niku nguntalke (tali-tali yên ageng serto kayu-kayu yên panjang) [^478] , nyulap mato wong-wong (yên haderangan di ngriku), dadeske wong niku kata yên keri.Wong niku nûnjû’ke sihir yên ageng
 
-[^478]: Menurut Ibnu Abbas di Tafsir al-Maroghi, Terj, Barun Abu Bakar LC, Semarang,CV Toha Putra, 1987, jilid  9, h, 51
-
 ## 7:117
 
 Kame' (Allah) ngesûng wayu Kepado Nabi Musa: “Untalkela tongkat niko”. dades tongkat niku nego’ napi yên diuntalke tukang- tukang sihir niku sedantennyo.
@@ -5258,8 +4302,6 @@ Dades tukang sihir niku kala, serto dades tehino.
 
 Tukang-tukang sihir niku langsung mûngkû’- ke badannyo besûjûd ( kepado Allah) [^479]
 
-[^479]: Wong-wong tukang sihir niku besujud sami Allah karno yakin ajaran yên dibakto Nabi Musa niku leser, napi yang wong-wong niku kiro Nabi Musa niku tukang sihir nano leser.
-
 ## 7:121
 
 Kelap wong niku (tukang sihir):” Kame’ beriman sami Allah Tuhan sedanten alam”
@@ -5275,8 +4317,6 @@ Kelap Fir’aun:”Napi niko beriman sami Musa sedêrêng kulo ngesûng izin sam
 ## 7:124
 
 “Cengki kulo tetak tangan serto sikil niko besilang-seli [^480] . Sampûn niku. Kulo pasti ayûn nyalib niko di kayu danten.
-
-[^480]: Retinyo: kalu tangan kanan yên diteta’, dades kaki yên diteta’ kaki kiri, mak niku  juga kalu tangan kiri yên diteta’, kaki kanan yên diteta’
 
 ## 7:125
 
@@ -5298,10 +4338,6 @@ Musa bepesen sami kaûmnyo:”Nyatu tolong sami Allah serto sabar.Selesernyo bum
 
 Wong-wong niku (kaum Musa) becerios: “Kame’ sampûn dianiayo (ole Fir’aun) dari niko dêrêng rawu sampê niko  sampûn rawû [^481] ”. Kelap Nabi Musa:” Mugo Allah minasoke musu-musu niko, serto mantep-ke niko dades Kholipa di bumi (Nyo), Allah ayun ningali ma'pundi amal-amal niko [^482]
 
-[^481]: Kaum Nabi Musa ngadu sami Nabi Musa, kalu naseb wong-wong niku sami saos, sedereng, jugo sampun rawunyo Nabi Musa guno ngajak wong-wong niku melebet igamo Allah, jugo ayun lepaske dades budak Fir’aun, Mak niki , sung wikan nano wênten semangat wong-wong niku peranti bejuang
-
-[^482]: Maknonyo: Allah ayun bales amal niko yên leser di bales leser, amal jahat di bales jahat
-
 ## 7:130
 
 Selesernyo Kame’ ngûkûm keluargo Fir’aun dengen  musim panas yên lambat serto kirangnyo bua-buaan, supayo dades perêngetan.
@@ -5318,13 +4354,9 @@ Wong-wong niku becerios ( kepado Nabi Musa ):”Napi saos bukti yên niko bakto 
 
 Kame' kîrîm kepado wong niku angin topan, belasertog, tumo, kodok serto dara [^483] peranti conto yên nyato, tapi, wong-wong niku masê tetep bongka’, wong-wong niku dades kaum yên bedoso
 
-[^483]: Ma’sudnyo banyu minum wong-wong niku beruba dades dara
-
 ## 7:134
 
 Serto waktu  wong niku keo azab (yên  sampûn dijelaske niku), kelapnyo:” Hey Musa nyatula ke Tuhan niko peranti Kame’ dengan janjinyo dengen  niko [^484]  .Kalu niko wikan nelaske azab niku dari Kame’, pasti Kame’  ayun beriman sami niko, kame' jugo ayûn biarke kêsa berencang niko wong Bani Israel
-
-[^484]: Ma’sudnyo, sebab Musa alaihissalam  sampun di sung pangkat nabi (keabian) dari Allah, dadesnyo wong-wong niku nedo dengan perantaro pangkat nabi (keabian) niku supayo Musa alaissalam nedo sami Allah.
 
 ## 7:135
 
@@ -5338,15 +4370,9 @@ Dades Kame’ azab sebagean wong niku, Kame’ lelepke ke dasar laut akibat wong
 
 Kame’ wariske kepado kaûm yên sampûn ditindes niku negeri-negeri sebela Timur serto sebela baratnyo [^485] yên sampûn Kame’ berkai. Serto sempurnola kalimat Tuhan niko yên saê peranti Bani Israel disebabke kesabaran wong-wong niku. Jugo Kame’ ancûrke napi yên sampûn didamelke Fir’aun serto kaumnyo, jugo napi yên sampûn ditegakke wong-wong niku [^486] .
 
-[^485]: Ma’sudnyo negeri Syam dan negeri Mesir jugo negeri-negeri sekiter keduonyo yên dikuasai Fir aun dizaman krihin. Sampun Kerajaan Fir’aun rubu negeri-negeri niku diwarisi Bani Israel
-
-[^486]: Yên dimaksud dengan napi-napi yên ditega’ke  Fir’aun yên sampun diancurke Allah niku wêntenla napi yên ditegakke Fir’aun dengan caro menindes Bani Israel, peca’ kota Romses, menaro yên diperintake  HaMahan negakkeyo, jugo yên lian-liannyo
-
 ## 7:138
 
 Serto Kame’ anterke Bani Israel ke seberang Lautan [^487] , dades wong-wong niku kepanggî penyemba behalo; kelap wong-wong niku (Bani Israel): “hei Musa : gawê’ke Kame’ behalo peca' sembahan wong-wong niku. Nabi Musa nyimbat: “Selesernyo niko niki kaum yên buyan”.
-
-[^487]: Maksudnyo yên sebela Utara dari Laut Abang (Laut Mera)
 
 ## 7:139
 
@@ -5356,8 +4382,6 @@ Selesernyo wong-wong niku bakal diancurke keyakinannyo dewê’, serto sio-siola
 
 Dio (Nabi Musa) becerios: “Napi pantes kulo ayûn ngerunut Tuhan selian Allah peranti niko ?, padaal Dio (Allah) sampûn dadeske niko langkung saê dari sedanten umat [^488] .
 
-[^488]: Bani Israel yên sampun disung rahmat ole Allah jugo di utamoke dari sedanten umat wentela nenek moyang yên wênten di zaman Nabi Musa alaihissalam  \\
-
 ## 7:141
 
 Serto (ingetla hei Bani Israel), waktu kame' nyelametke niko dari keluargo Fir’aun yên nyikso niko dengan siksoan teliwat kejem , munu anak-anak sertoang niko, anak-anak wadonnyo angsal ûrîp. Nikula bala’/ujian yên ageng dari Tuhan niko
@@ -5366,13 +4390,9 @@ Serto (ingetla hei Bani Israel), waktu kame' nyelametke niko dari keluargo Fir�
 
 Serto Kame’ janjike kepado (Nabi) Musa tigo pûlû malem, serto Kame’ cûngkûpke sepûlû malem lagi dades sempûrnola waktu yên sampûn ditetepke Tuhannyo empat pûlû malem. Serto Musa becerios kepado dûlûr-nyo (yaitu Harun): Gentike kulo (mimpin) kaum kulo serto benerila [^489] , serto nano angsal niko tumuti jalan yên ayûn ngerusak.
 
-[^489]: Ma’sudnyo benerila awa' niko jugo kaum niko serto hal ihwal wong-wong niku
-
 ## 7:143
 
 Ketiko Nabi Musa nggût ke waktu yên sampûn Kame’ tentuke, serto befirman langsung kepadonyo, (nabi) Musa becerios: “hei Tuhan kulo,tûnjû’ke kepado kulo supayo kulo wikan ningali Zat  niko”. Allah befirman: niko nano bakal wikan ningali Kulo, tapi tingalila bukit niku, kalu bukit niku maler tega’ pado tempatnyo dades niko angsal ningali kulo”. Manokalo Tuhannyo menampa’ke Zat nyo ke bukit niku [^490] , dades dadesla bukit niku pero, serto Nabi Musa tesûngkûr kesambet. Sampûn ênget dari pingsannyo, Nabi Musa becerios: “ Maha Suci Niko hei Tuhan Kulo, kulo betobat kepado niko . Kulo niki temaso’ wong yên awal beriman”.
-
-[^490]: Wong-wong ali Tafsir wênten yên ngesung makno yên ditingal bukit niku wentela Keagengan serto Kuaso  Allah , ali tafsir yên lian napsirke yang ditingali niku cahayo Allah. Allah niku nano angsal diukur cak ukuran makhluk. Allah  nano sami dengen makhluk.
 
 ## 7:144
 
@@ -5382,13 +4402,9 @@ Allah befirman: “hei  Musa! Selesernyo Kulo mili ( ngelebêke) niko dari wong 
 
 Kame' sampûn tûliske peranti Musa di Luh-Luh [^491] (Taurot) pelajaran serto penjelasan sedantennyo: dades cekella tegû-tegû serto kêngkên jugo kaum niko becekeserto dengan sesaê-saênyo. Kulo ayûn tunjû’ke dengen niko negeri-negeri wong-wong yên fasiq.
 
-[^491]: “Luh” wentela kepingan batu , jugo kayu,  tetulis pado luh niku isi Taurot yên sampun diterimo Nabi Musa alaihissalam sesampun Munajatat di bukit Thursina
-
 ## 7:146
 
 Kulo ayûn ngelêngoske dari ayat-ayat Kulo, si bongka’ di bumi niki dari yên leser, serto kalu wong-wong niku ningali ayat-ayat kame' [^492] , wong-wong niku nano ayûn beriman  dengennyo. Jugo kalu wong-wong niku ningali jalan petûnjûk, nano ayûn ditumutinyo; kalu wong-wong niku ningali jalan yên nyasar, jalan niku di embilnyo. Nikula wong-wong yên mudike ayat-ayat kame' , serto wong-wong nikula yên lali/lênga.
-
-[^492]: Yên diayuni dari ayat-ayat di ngriki wêntenla ayat-ayat Taurot, tando-tando keAgengan serto Kuaso Allah
 
 ## 7:147
 
@@ -5398,8 +4414,6 @@ Wong-wong yên mohongke ayat-ayat Kame’, jugo mudike wêntennyo haderengan akh
 
 Sampûnnyo Nabi Musa kêsa ke bukit Thur, kaumnyo ngawê’patung anak sapi dari emas, yên wikan munyi (melenguh) [^493] . Napi wong niku nano wikan anak sapi niku nano wikan becerios serto nano wikan ngesûng jalan yên leser/saê. dengen ma’niku, wong-wong niku zolim.
 
-[^493]: Wong-wong niku muat anak sapi dari emas. Wong ali Tafsir bekelap: patung anak sapi niku tetepla patung, nano wênten nyawonyo, jugo lengu peca' lengu sapi niku akibat lengu angin yên lînggî  kejero rongga patung niku dengen teknik yên diwikan ole Samiri saat niku.wênten jugo ahli tafsir bekelap patung niku dari emas,  wênten badan yên punyo nyawo, punyo lengu sapi.
-
 ## 7:149
 
 Sesampûn wong-wong niku nyesel dengen napi yên didamelke serto sampûn ma’lûm kalu damelan niku nyasar, kelap wong niku: “ Selesernyo, kalu Tuhan Kame’ nano ngerahmati Kame’, jugo nano ngampûni dadesla Kame’ wong yên rugi”.
@@ -5407,10 +4421,6 @@ Sesampûn wong-wong niku nyesel dengen napi yên didamelke serto sampûn ma’l�
 ## 7:150
 
 Waktu Nabi Musa mantû’ kepado kaumnyo, dio ngeringas serto sedî; kelapnyo: “ alangke jahatnyo damelan niko sesampunnyo kulo kesa. Napi niko ayûn nului janji Tuhan niko [^494] . Nabi Musa nguntalke luh-luh [^495] (Taurot) niku serto nyekel sira dûlûrnyo (Harun) , Nabi Musa jugo narî’ke dûlûrnyo keara dio. Dûlûrnyo ( Harun) becerios: “hei, anak mak kulo, kaum niki nganggap kulo lema, ampîr saos wong-wong niku munu kulo, dades nano leser niko ngeragapke mûsû-mûsû niku ladas atinyo ningali kulo, jugo nano angsal niko ngelebetke kulo sami-sami wong-wong yên zolim
-
-[^494]: Ma’sudnyo: napi niko nano sabar nunggu kuli rawu sampun kulo munajat sami Allah nggût-nggût niko muat patung peranti disemba peca' nyemba Allah
-
-[^495]: Tingali no 15
 
 ## 7:151
 
@@ -5432,8 +4442,6 @@ Sesampûn mara Nabi Musa lîpûr, dio nggemeti luh-luh (Taurot) niku, di jerûny
 
 Nabi Musa mîlî tûjû pûlû wong dari kaûmnyo peranti waktu yên sampun Kame’ tetepke (betobat kepado kame'). Ketiko wong-wong niku keo lindu, Nabi Musa becerios: “Ya Tuhan, kalu niko ayûn binasoke wong niku sedêrêng niki, cengkila celako danten, temasok kulo. Napi niko binasoke Kame’ sebab damelan wong-wong buyan yên wênten diantaro Kame’? Napi niku ya'ni ujian dari niko. niko sasarke sinten yên Niko ayuni [^496] serto niko bimbing sinten yên niko ayuni. nikola Pemimpin Kame’ ampunila Kame’, serto rahmati Kame’. nikola sesaê-saê Pengampun.
 
-[^496]: Napi yên didamelke wong-wong niku muat patung anak sapi, sampun niku disembanyo, yên ma’niki wêntenla ujian dari Allah peranti nguji wong-wong niku, sinten yên selesernyo kuat imannyo serto sinten yên ragu-ragu. Wong-wong  yên lema imannyo nikula yên ayun tumut Samiri, nyemba patung anak sapi niku. Wong-wong yên kuat imannyo,  mantep imannyo.
-
 ## 7:156
 
 Tetepkela peranti Kame’ napi-napi yên saê di dunio serto di akhirat: Sunggu Kame’ betobat kepado niko . Allah befirman: “Siksoan Kulo, ayûn Kulo timpoke kepado sinten yên Kulo ayuni, namun, rahmat Kulo ngeraûp sedantennyo. Ayun Kulo tetepke rahmat Kulo peranti wong-wong yên betakwa, yên bezakat, serto wong-wong yên beiman kepado ayat-ayat kame'.
@@ -5454,10 +4462,6 @@ Diantaro kaum Nabi Musa niku wênten umat yên ngesûng petunjuk (kepado manmusi
 
 Serto Kame’ bagî wong-wong niku dades duabelas suku yên rîkînannyo ageng. Kame’ wayuke kepado Musa, waktu kaumnyo nyatu toyo kepadonyo: “Catok dengan tongkat niko batu niku” dades mancer dari batu niku duabelas mato toyo. dades wong-wong niku wikan yên pundi enggonnyo minum. kame' kûdûngi wong-wong niku dengen mego, serto Kame’ turunke bakal wong –wong niku manna serto salwa [^497] . Kame’ befirman: “ Tedola yên saê-saê dari rezeki yên sampun Kame’ sungke dengen niko. Nanola Kame’ ngeniayo wong niku, tapi wong-wong nikula yên ngeniayo awa'nyo dewek.
 
-[^497]: Diantaro nikmat Allah kepado wong-wong niku wêntenla : wong-wong niku  kerep dinaungi awan waktu wong-wong niku bejalan saat panas terik matoari padang pasir.
-
-    Manna wêntenla tedoan manis ca’ madu. Salwa wêntenla burung mirip puyuh
-
 ## 7:161
 
 Imutla waktu dicerioske dengen wong-wong niku (bani Israel): “Mantep-mantepla di ngeri niki (Baitul Maqdis) serto nedola dari (hasil buminyo ) di pundi saos niko ayuni. Serto kelapkela :” Icûlke Kame’ dari doso-doso kame', serto ngelebetla ke lawang sambîl mûngkûkke badan bersûjûd, pastila Kame’ampûni doso-doso niko”. Mengkin ayûn Kame’ tambai (pahalo) peranti wong-wong yên beperanti saê.
@@ -5466,19 +4470,13 @@ Imutla waktu dicerioske dengen wong-wong niku (bani Israel): “Mantep-mantepla 
 
 Dades wong zolim diantaro wong-wong niku nggenti (cerios) dengen cerios yên nano dicerioske kepado wong-wong niku [^498] , dades kame' timpoke kepado wong-wong niku azab dari langit akibat wong-wong niku bedamel keiayo.
 
-[^498]: Wêntenla damelan yên sa’i yên dikegkeke agama Islam, yên wênten kaitannnyo dengen igamo napi yên nano  wênten kaitannyo.
-
 ## 7:163
 
 Serto takei wong niku (Bani Israel) kêso negeri-negeri yên wênten di para' laut, waktu wong niku ngelanggar aturan pado dinten Sabat [^499] , saat kata iwak yên rawu pado dinten Sabat. Padohal pado dinten –dinten lian, iwak-iwak niku nano moncol. Ma’nikula. kame' menguji wong-wong niku sebab wong-wong niku bedamel fasêq
 
-[^499]: Aturan niku wêntenla wong-wong niku nano angsal bedamel pado dinten Sabtu, sebab dinten Sabtu niku wêntenla dinten peranti ibadat
-
 ## 7:164
 
 Imutla, waktu umat dari wong-wong niku betakên: “ Ngapo niko ngêngetke kaum yên ayûn dibinasoke Allah, yên ayûn diazab Allah dengan sikso yên dasyat ?” Wong-wong niku nyawab:” Supayo Kame’ wênten alesan ( ngelepaske tanggung jawab) kepado Tuhan niko [^500]  , serto supayo wong-wong niku betakwa
-
-[^500]: Alesan wong niku wêntenla : wong-wong niku sampun damelke  perenta  Allah   ngesung peringetan
 
 ## 7:165
 
@@ -5487,8 +4485,6 @@ Dades saat wong niku sampûn lali dengen yên diperêngetke sami wong-wong niku,
 ## 7:166
 
 Saat wong-wong niku besikap bongka’ tehadep napi yên damelkeyo. Kame’ cerioske kepadonyo:” dadesla niko kero yên hino” [^501]
-
-[^501]: Separo ali Tafsir bependapat kalu niku Cuma kiasan, maknonyo ati wong niku peca' beruk, sebab sami-sami nano nerimo nasehat serto nano nerimo diingetke. yên liannyo ( Jumhur ali tafsir) ngatoke wong-wong niku dades beruk nian, tapi, nano beranak, nano nedo, nano minum serto uripnyo nano langkung dari tigo ari.
 
 ## 7:167
 
@@ -5538,8 +4534,6 @@ Kêra’ nian tamsilan wong-wong yên nano beriman dengen ayat-ayat Kame’ sert
 
 Sinten  saos yên ditûntûn Allah, nikula wong yên disûng hidaya; sinten yên disasarke Allah [^502] , dades wong nikûla wong yên rugi.
 
-[^502]: Disesetke Allah retinyo wong niku seset keo keingkarannyo serto nano ayun usaho peranti paham hidayah-hidayah Allah. Jero ayat niki, akibat wong-wong niku ingkar serto nano ayun usao peranti paam napi sebabnyo Allah nadeske nyamuk peranti kiasan, laju wong-wong niku dades seset.
-
 ## 7:179
 
 Selesernyo Kame’ caweske peranti (nerako) Jaannam yên kata dari jîn serto wong; wong-wong niku punyo ati, nano dipakênyo supayo paam (ayat-ayat Allah), wong niku punyo mato, (tapi) nano di pakê peranti ningali (ayat-ayat Allah), serto wong niku punyo kûpîng, (tapi) nano dipakê peranti nenger (ayat-ayat Allah). Wong-wong niku ma’kayo binatang piaroan, bahkan wong-wong niku langkung kesasar  lagi dari binatang. Nikula wong-wong yên leno (nano imut)
@@ -5547,8 +4541,6 @@ Selesernyo Kame’ caweske peranti (nerako) Jaannam yên kata dari jîn serto wo
 ## 7:180
 
 Serto he’  Allah niku “ Asma’ul Husna” dades bedo’ala dengen nami-nami niku; serto tinggalkela wong-wong yên nano ayûn nyebut Nami-Nami niku [^503] .Wong-wong niku bakal nerimo balesan dari damelannyo.
-
-[^503]: Ma’sudnyo: Nami-nami yên Mulio yên pas dengen sifat-siat Allah
 
 ## 7:181
 
@@ -5574,8 +4566,6 @@ Napi wong niku nano meratike kerajaan langit serto bumi serto sedanten yên dici
 
 Sinten-sinten yên disasarke Allah [^504] , dades nano wênten hidaya peranti dio; serto Allah nalakke wong niku kebingungan.
 
-[^504]: Tingali nomer 26
-
 ## 7:187
 
 Wong-wong niku betakên dengen niko (Muhammad) hal kiamat, kapan dadesnyo. Cerioskeke: “ Selesernyo ilmu hal ihwal kiamat niku urusan Tuhan kulo; nano wênten yên angsal nyerioske waktunyo selian Dio (Allah). Kiamat niku dasyat nian (hal ihwalnyo bagi makhluk) yên di langit serto dibumi. Nano rawu ke niko melianke ngejut. Wong-wong niku betakên dengen niko peca'nyo niko wikan nian. Cerioske: “ Selesernyo ilmu hal ihwal kiamat niku he’ Allah, tapi  kata wong niku nano tereti”.
@@ -5591,8 +4581,6 @@ Diola (Allah) yên nyiptake niko dari awa' yên sios, serto (Allah) dadeske sêm
 ## 7:190
 
 Dades waktu Allah ngesung kepado keduonyo sios anak yên sholêh, wong-wong niku (domik-sema niku) [^505] nadeske sekutu kepado Allah anak yên sampûn disûngke-Nyo kepado keduonyo niku. dades Maha Tinggi Allah dari napi-napi yên wong-wong niku sekutuke.
-
-[^505]: Ma’nonyo: wong-wong musyrik nadeske sekutu (rewang) selian Tuhan nyiptoke sios anak niku, yakni anak niku jugo peranti hamba berhala yên wong-wong niku semba, dadesnyo wong-wong niku ngesung nami  anak niku dengen “Abdul Uzza, Abdul Manaa, Abdu Syams serto lian-liannyo.
 
 ## 7:191
 
@@ -5614,8 +4602,6 @@ Selesernyo behalo-behalo yên niko semba selian Allah ya'ni hambo Allah peca' ni
 
 Napi behalo-behalo niku punyo sîkîl, peranti bejalan, napi dio punyo tangan peranti nyekel napi-napi dengan kuat [^506] , atawa punyo mato peranti ningali;  atawa  punyo kûpîng peranti nenger ?. Kelapke (ya Muhammad): “ Bedo’ala dengen (behalo-behalo) yên niko dadeske sekutu Allah; sampûn niku damella tipu dayo ( bakal nyeba’ke) Kulo, nano perlu diûndûr lagi.
 
-[^506]: يبطشون  di ngeriki ma’nonyo wêntenla besikap dengen keras, peca' nabok, numpeske, ngoco wong, merengut , jugo lian-liannyo.
-
 ## 7:196
 
 Selesernyo, pelîndûng kulo ya'ni Allah yên sampun nurunke al-Qur’an serto Dio pulo' ngelîndûngi wong-wong yên sholêh
@@ -5636,8 +4622,6 @@ Dadesla niko wong yên peMahaf, serto kêngkênla wong damelke yên leser serto 
 
 Kalu niko keo olo’an syetan, dades niko nyatula pelindûngan kepado Allah [^507] Selesernyo Diola  Zat yên Maha Nenger lagi Maha  Ma’lûm,
 
-[^507]: Maksudnyo : Baco  اعوذ باالله من الشيطان الرجيم
-
 ## 7:201
 
 Selesernyo wong-wong yên betakwa, kalu wong-wong niku ditimpo pikiran jahat dari sêtan, ketiko wong niku imut dengen Allah, dades saat niku jugo dio ningali kesalahan-kesalahannyo.
@@ -5654,8 +4638,6 @@ Kalu niko (Muhammad) nano macoke  sios ayat kepado wong-wong niku, kelapnyo: “
 
 Kalu al-Qur’an dibacoke kepado niko, dades dengerkela leser-leser, serto diem supayo niko disûng rahmat [^508]
 
-[^508]: Maksudnyo: kalu dibacoke al-qur’an kito wajib nengernyo serto meratikeyo sambîl bediem awa', sami wênten waktu sholat atawa nano diwaktu sholat, selian waktu sholat bejema‘a, makmum angsal maco suro al-fatiha dewe’ waktu Imam maco ayat-ayat al-qur’an.
-
 ## 7:205
 
 Imutla ( nami) Tuhan niko di jero ati niko dengan ngerendake awa' serto raso wedhi', jugo nano angsal nyega’-nyega’, pado pagi serto sorê , serto nano angsal dades wong-wong yên lali/leno
@@ -5668,13 +4650,9 @@ Selesernyo, malaêkat-malaêkat yên wênten disisi Tuhan niko nano bongka’ket
 
 Wong-wong niku betaken kepado niko (Muhammad) pekaro harto rampasan perang. Cerioskela, harto rampasan perang niku hê’ Allah serto Rasul-Nyo [^509] ; dades betakwala kepado Allah, serto leserkela silaturrahim antaro niko; serto ta’atila Allah serto Rasul-Nyo. Kalu niko wong yên beiman
 
-[^509]: Maksudnyo: caro mage harto rampasan perang niku nurut ketetepan Allah, jugo ketetepan Rasul-Nyo
-
 ## 8:2
 
 Selesernyo, wong-wong beiman [^510] nikula yên kalu diêngetke nami Allah gemeter ati nyo, serto kalu dibacoke ayat-ayat Nyo betambala imannyo; Serto cuman kepado Allah saos. wong-wong niku betawakal.
-
-[^510]: Maksudnyo: wong-wong yên sempurmo imannyo
 
 ## 8:3
 
@@ -5688,8 +4666,6 @@ Wong-wong nikula yên mu’min selesernyo. peranti wong niku derajat ( yên ting
 
 Maknikula Tuhan niko ngêngkên niko kesa dari rompok niko (pegi beperang) dengen caro-caro yên leser [^511] , serto wênten sebagean dari wong-wong beiman niku nano ayûn
 
-[^511]: Maksudnyo: Allah ngatur caro mage harto rampasan perang niku dengen caro-caro yên sa’i, maknikula Allah ngengken kesa dari rompok ( Di Madina) kesa beperang ke Badar dengen caro-caro yên leser jugo
-
 ## 8:6
 
 Wong-wong niku mbantah niko (Muham-mad) tentang yên leser sesampunnyo hal yên nyato ( wong niku cengki menang), peca’ wong niku diburu nuju maut, padohal wong-wong niku ningalinyo (sebab-sebab pademnyo )
@@ -5697,8 +4673,6 @@ Wong-wong niku mbantah niko (Muham-mad) tentang yên leser sesampunnyo hal yên 
 ## 8:7
 
 Imutla waktu Allah njanjike kepado niko, sios dari duo golongan ( yên wênten diluan ) nikula peranti niko, sedengke kenda’ niko nikula yên senjatonyo lema [^512] .yên Allah ayuni, ngeleserke yên leser dengen kalimat-Nyo serto ngalake wong kafir sedantennyo.
-
-[^512]: Maksudnyo: Kapila Abu Sofyan yên ngebakto sadian dari Syria.Sedengke yên senjatonyo wênten dayo wêntenla  yên rawu dari Mekka yên kepalak rombongan niku  utbah bin rabiah besami abu jahal.
 
 ## 8:8
 
@@ -5715,8 +4689,6 @@ Nanolah Allah dadeskenyo (ngîrîm malaikat-malaikat niku), selian ngesûng kaba
 ## 8:11
 
 (Imutla), saat niko didadoske Allah “ngantuk”, yên mak niku dari Allah, supayo niko ngeraso tentrem. Allah jugo nurunke toyo (ujan) dari langit , toyo ujan niku peranti nyucike niko, serto ngilangke kuca’an sêtan-sêtan dari niko, serto nguatke ati niko serto nguatke tapak sîkil (niko) [^513] (tegû penawa'an)
-
-[^513]: Neguke tapak sikil di ngriki dimaknoke jugo tegu ati jugo tegu pendirian
 
 ## 8:12
 
@@ -5750,12 +4722,6 @@ Maknikula (kurnia Allah yên disûngke kepado niko), Serto selesernyo Allah ngel
 
 Kalu niko (wong-wong musyrik) nyatu keputusan, dades selesernyo, keputusan menang sampun rawuh; kalu niko berenti [^514] niku yên langkung sae peranti niko. Kalu niko bebiluk [^515] cengkila Kamek bebiluk (pulok) [^516] , serto pasukan perang niko nano wikan nolak bala’ yên nimpo niko, biarpun pasukan perang niko niku kata, tetep saos nano wikan nulaknyo, Selesernyo , Allah rembak ngen wong-wong yên beiman.
 
-[^514]: Maksudnyo berenti dari musui serto merangi Rasul
-
-[^515]: Maksudnyo: mantuk musui serto merangi Rasul
-
-[^516]: Maksudnyo: Allah mantuk ngesung petolongan kepado Rasul
-
 ## 8:20
 
 Wahai wong-wong yên beiman, ta’atla kepado Allah serto Rosul-Nyo, niko nano angsal bebiluk (ninggalke Allah serto Rosul-Nyo), niko niku wong-wong yên nenger (perintah-perintah-Nyo).
@@ -5764,13 +4730,9 @@ Wahai wong-wong yên beiman, ta’atla kepado Allah serto Rosul-Nyo, niko nano a
 
 Nano angsal niko (wong-wong beiman) dados ma’kayo wong-wong (munafik) yên becerios:”kamê’ nengerke [^517] padohal wong-wong niku nano nenger .
 
-[^517]: Maksudnyo: wong-wong niku nenger  padohal atinyo ingkar
-
 ## 8:22
 
 Selesernyo, sejahat- jahat binatang/ mahluk nurut Allah nikula wong-wong yên pekak, bisu [^518] , yên nano bepikir.
-
-[^518]: Maksudnyo: wong yên jahat nian ( yên langkûng nano sa’i) nurut Allah wêntenla yên nano ayun nenger, nuturke jugo ayun wikan yên bener
 
 ## 8:23
 
@@ -5799,8 +4761,6 @@ Serto taonila , kalu harto serto anak-anak niko niku nikula cobaan saos, serto s
 ## 8:29
 
 Wahai wong-wong yên beiman ! Kalu niko betakwa kepado Allah, cengkila Allah ayun ngesung niko pembezo [^519] ( antaro yên haq serto batil) jugo ngapuske damelan yên sala sedantennyo serto ngampuni niko. Serto Allah punyo karunio yên ageng.
-
-[^519]: Maknonyo: petunjuk yên angsal membezoke antaro yên haq dengen yên bathisertogsal jugo diretike dengen petolongan.
 
 ## 8:30
 
@@ -5838,17 +4798,9 @@ Supayo Allah misake (golongan) yên jahat dari yên sae serto dadeske (golongan)
 
 Cerioskela kepado wong-wong kafir niku [^520] : Kalu wong-wong niku berenti (dari kekafirannyo), Allah ayûn ngampûni doso-dosonyo kerîhîn. Kalu wong-wong niku bebalên lagi [^521] , Selesernyo, ayûn belaku (kepado wong-wong niku) sunah ( Allah kepado) wong-wong kerihin (dibinasoken).
 
-[^520]: Wêntenla; Abu Sufyan serto rencang-rencangnyo
-
-[^521]: Maksudnyo: kalu wong-wong niku  kafir serto mantuk merangi Nabi
-
 ## 8:39
 
 Serto perangila wong-wong niku supayo nano wênten lagi fitna [^522] , serto supayo igamo niku cuman bagi Allah [^523] saos. Kalu wong-wong niku berenti (dari kekafiran) , Selesernyo Allah Maha Ningali napi yên wong-wong niku damelke.
-
-[^522]: Maksudnyo: gangguan-ganggguan kepado umat Islam serto Igamo islam
-
-[^523]: Maksudnyo supayo wong-wong bebas meluk igamo
 
 ## 8:40
 
@@ -5858,33 +4810,9 @@ Kalu wong-wong niku bebiluk, dades ma’lumila, Seleserenyo Allahlah pelindung n
 
 Taonila, Selesernyo napi saos yên angsal niko embil dari rampasan perang [^524] . Selesernyo seperlimo peranti Allah, Rosul, kerabat Rosul, budak-budak yatim, wong-wong miskin, serto ibnu sabil [^525] , kalu niko beiman kepado Allah serto kepado napi [^526] yên Kamek turunke kepado hambo Kamê’ (Muhammad } pado dinten furqon [^527] , pado dinten niku pangginyo duo pasukan. Serto Allah niku, pado sedantennyo Maha Kuaso.
 
-[^524]: Yên dimaksud dengen rampasan perang (ghonimah) wêntenla harto yên berasal dari wong-wong kaper yên diembek dengen caro beperang, kalu harto yên diembek nano dengen peperangan dinamai fa’i. Caro pembagian yên wênten pado ayat niki wêntenla yên wênten hubungan dengen ghanima
-
-
-[^525]: Maksudnyo: seperlimo dari ghonimah niku dibage kepado:
-    a. Allah serto Rasul=Nyo
-    b. Kerabat Rasul, (Banu Hasyim jugo Banu Mutholib}
-    c. Budak-budak yatim
-    d. Wong miskin
-    e. Ibnusabil
-    yên empat perlimo dari ghonima dibageke kepado yên melok perang
-
-
-[^526]: Yên dimaksud dengen napi wêntenla ayat-ayat al-Qur’an, Malaikat serto petolongan
-
-
-[^527]: Furqon wêntenla yên misake antaro yên haq dengen yên batil.
-    Maksud dinten al-furqon wêntenla dinten nyatonyo wong-wong islam yên menang  serto wong-wong kaper kala. Dinten niku wêntenla pangginyo  duo pasukan waktu perang Badar, pado dinten Jum’at 17 Romadon tahun duo Hijrrah, Separo dari wong ahli tafsir bekelap kalu ayat niki meng-isyaratke ari  petamo kali diturunke nyo al-qur’an pado malem 17 Romadhon
-
 ## 8:42
 
 Waktu niko wênten di pinggir lembah yên para’, serto wong-wong niku wênten di pinggir lembah yên tebê serto enggon kapila niku wênten lebi êndêp dari niko [^528] . Sekironyo niko berembuk (peranti netepke dinten beperang), cengkila niko beselîsî di perjanjian niku; tapi Allah netepke pekaro yên mesti didamelke [^529] . Supayo wong yên binaso, serto  wong-wong yên urip niku wênten keterangan yên jelas [^530] . Selesernyo Allah niku Maha Nenger Maha Naoni.
-
-[^528]: Maksudnyo: kaum Muslimin saat niku wênten di pinggir lembah yên nano tebi ke Madinah, dan wong-wong kaper wênten di pinggir lembah yên tebi dari Madinah. Kafila yên dipimpin Abu Sufyan niku wênten di tepi pantai kiro-kiro 5 mil dari Badar
-
-[^529]: Maksudnyo: menangnyo kaum Muslimin serto kalahnyo kaum Musyrikin
-
-[^530]: Maksudnyo: supayo wong-wong yên mantep atinyo kaper nano wênten alesan piranti mantep kapernyo niku, jugo wong-wong yên imannyo leser wêntenla yên wênten bukti atawa dalil yên jelas nyato
 
 ## 8:43
 
@@ -5897,8 +4825,6 @@ Saat Allah ningalke wong-wong niku ngen niko waktu kepanggî,  rîkînannyo set�
 ## 8:45
 
 Wahai wong-wong yên beiman, kalu niko kepangge pasukan (mûsû) tegûke ati niko serto bezikirla nyebût Allah sekata-katanyo [^531] supayo niko berûntûng.
-
-[^531]: Maksudnyo: ngatake zikir serto doa’
 
 ## 8:46
 
@@ -5972,8 +4898,6 @@ Kalu wong-wong niku na’ mudike niko, dades cungkupla Allah saos ( yên ngelin-
 
 Serto Dio (Allah) yên nyatuke ati wong-wong niku ( yên beiman) [^532] ;  kalu niko belanjo-ke sedanten (harto bendo) yên wênten di bumi, cengkila niko nano wikan nyatuke ati wong-wong niku, tapi Allah, sampûn nyatuke ati wong-wong niku . Selesernyo Dio Maha Pekaso jugo Maha Bijaksano.
 
-[^532]: Wong-wong yên pedalemannyo  di Madinah, wêntenla dari guguk Auz serto guguk Khazraj yên kerep bebala  sedereng Nabi Muhammad ShollAllahu alaihi wasallam pinda ke Madina. Sampun Nabi Muhammad ShollAllahu alaihi wasallam pinda ke Madina, wong-wong niku masuk Islam, ayun bebala niku ilang.
-
 ## 8:64
 
 Wahai Nabi (Muhammad) Cûngkûpla Allah serto wong beiman yên tumut sami niko.
@@ -5981,8 +4905,6 @@ Wahai Nabi (Muhammad) Cûngkûpla Allah serto wong beiman yên tumut sami niko.
 ## 8:65
 
 Wahai Nabi (Muhammad) murupke napsu wong mukmin niku peranti beperang. Kalu wênten duo pûlû wong-wong yên sabar diantaro niko, wikan ngalake duo ratûs mûsû Serto, kalu wênten seratus wong (yên sabar) diantaro niko , cengkila wikan ngalake seribu wong kaper sebab wong-wong kaper niku kaum yên nano tereti [^533]
-
-[^533]: Maksudnyo; wong-wong niku nano wikan kalu beperang niku mesti piranti mela npi-napi yên kito yakini, jugo piranti kito ta’at sami perinta Allah. Wong-wong niku (wong kaper) beperang dengen niat piranti ngekelke tradisi jahiliya saos,  jugo piranti dunio serto lian-liannyo
 
 ## 8:66
 
@@ -6012,13 +4934,9 @@ Kalu tawanan-tawanan niku ayûn behianat kepado ampêan , selesernyo wong-wong n
 
 Selesernyo, wong-wong yên beiman, wong-wong yên hijra, wong-wong yên bejihad dengen harto serto jiwonyo di jalan Allah, jugo wong-wong yên ngesûng pedaleman, ngesung pertûlûngan (kepado wong-wong muhajirin). Wong-wong niku separûnyo ngelindungi separû liannyo [^534] . Serto wong-wong yên beiman tapi dêrêng hijra, nano wênten kewajiban bagi ampean ngelindungi- nyo sampe wong-wong niku hijra, (tapi) kalu wong-wong niku nyatu pertûlûngan kepado niko (hal ihwal mbela) igamo, wajibla niko ngesûng pertûlûngan, kecuali kepado kaum-kaum yên sampûn wênten pejanjian ngen niko. Serto Allah niku Maha Ningali damelan niko
 
-[^534]: Maksudnyo: antaro wong-wong Muhajirin jugo wong-wong Anshor wênten tali ukhuwah yên tegu nian, piranti mewêntenke rakyat yên sa’i. Maknikilatali ukhuwah wong-wong  niku, wêntenla wong-wong niku pado maso-maso awal Islam wong-wong niku pecak sedulur seumak sebapak
-
 ## 8:73
 
 Wong-wong kafer niku, separû dari wong-wong niku ngelindungi separû yên lian. Kalu niko nano ngedamelkenyo napi yên dipe-rentake Allah niku [^535] (samo-samo ngelin-dungi), cengkila timbul kacau balau di bumi niki serto wênten kerusa’an yên ageng.
-
-[^535]: Yên dimaksud dengen napi yên sampun dikengken Allah niku nano angsal nano wêntennyo tali ukhuwah yên tegu antaro kaum Mukminin
 
 ## 8:74
 
@@ -6028,8 +4946,6 @@ Wong-wong yên beiman, wong-wong yên tumut hijra serto bejihad fi sabilillah ,w
 
 Wong-wong yên beiman sesampun niku, serto hijra, serto jihad bareng niko, dades wong niku temaso’ golongan niko. Wong-wong yên wênten hubungan kerabat niku langkûng punyo ha’ daripado separo yên liannyo (yên nano wênten hubungan kerabat) [^536] , (ngeruju’ dari) Jerû Kitab Allah. Selesernyo, Allah Maha Ma’lum dengen sedanten yên wênten.
 
-[^536]: Maksudnyo: yên dades dasar hukum waris nurut ajaran islam  wêntenla hubungan kerabat, nano tebates pado hubungan beduluran secaro igamo pecak wong Muhajirin dengen Anshor pado pemulaan islam.
-
 ## 9:1
 
 (Nikila penyataan) pemutusan hubungan dari Allah serto Rasul-Nyo kepado wong-wong musyrikin) yên sampûn ngawe’ pejanjian (dengen niko).
@@ -6038,27 +4954,17 @@ Wong-wong yên beiman sesampun niku, serto hijra, serto jihad bareng niko, dades
 
 Dades bejalanlah niko (kaum musyrikin) di bumi selambat sekawan bulan serto ma’lumi-la bahwo selesernyo niko nano wikan ngelemake Allah, serto selesernyo Allah ngehinoke wong kafir. [^537]
 
-[^537]: Sedêrêng tûrûnnyo ayat niki wênten semayoan damai antaro Nabi Muhammad s.a.w. dengen wong-wong musyrikin. di antaro isi semayoan niku wêntenla nano wêntennyo perangan antaro Nabi Muhammad s.a.w. dengen wong-wong musyrikin, serto bahwo kaum muslimin dibolêke haji ke Makkah serto tawaf di Ka'bah. Allah SWT matalke semayoan niku serto ngizinke kepado kaum muslimin merangi male. Dades tûrûnla ayat niki serto kaum musyrikin di sungke  sekawan bulan laminya di tana Arab peranti nguatke awa'.
-
 ## 9:3
 
 Serto (nikila) suatu maklumat dari Allah serto Rasul-Nyo pado umat wong pado dinten haji akbar [^538] bahwo selesernyo Allah serto Rasul-Nyo berlepas awa' dari wong-wong musyrikin. dades kalu niko betobat, dades betobat niku langkûng saể bagi niko; serto kalu niko bebîlûk, dades taonila bahwo selesernyo niko nano wikan ngelemake Allah. Serto sûng wikanla pado wong-wong kafir dengen sikso yên pedî.
-
-[^538]: Beda pendapet antaro mufassirin (ahli tafsir) tentang yên dimaksud dengen haji akbar, wênten yên ngelapke dinten Nahar, wênten yên ngelapke dinten Arafah. yên dimaksud dengen haji akbar di ngeriki wêntenla haji yên tedades sami wikan ke-9 Hijrah.
 
 ## 9:4
 
 Kecuali wong-wong musyrikin yên niko sampûn bejanji dengen niko serto wong-wong niku nano ngirangi isi semayoan serto wong-wong niku nano nûlûngi wong yên musuhi niko, dades tehadep wong-wong niku, penuhila janjinyo sampe bates waktunyo. [^539] Selesernyo Allah demen dengen wong-wong yên betakwa.
 
-[^539]: Ma’sud yên di sung tanggu sekawan bulan niku ya'ni: wong-wong niku yên mungkiri semayoan wong-wong niku dengen Nabi Muhammad SAW. Wênten jugo wong-wong niku yên nano mungkiri semayoannyo dades semayoan niku diterûske nggût berentinyo maso yên ditentuke jerû semayoan niku. sesampun berenti maso niku, dades nano wênten male pedamaian dengen wong-wong musyrikin.
-
 ## 9:5
 
 Napibilo sampûn telas bulan-bulan Haram niku, [^540] dades perangila wong musyrikin niku dipundi saos niko kepanggi wong niku ditenggon pengintiểan. Kalu wong-wong niku betobat serto negakke solat serto nunaike zakat, dades sûngla kebebasan pado wong-wong niku. [^541] Selesernyo Allah Maha Pengam-pûn lagi Maha Penyayang.
-
-[^540]: Yên dimaksud dengen bulan Haram di ngeriki ya'ni: maso 4 bulan yên di sung tanggû kepado kaum musyrikin niku, ya'ni mulai tanggal 10 Zulhijjah (dinten tûrûnnyo ayat niki) nggût dengen 10 Rabi'ul akhir.
-
-[^541]: maksudnyo: tejamin keamanan wong-wong niku.
 
 ## 9:6
 
@@ -6067,8 +4973,6 @@ Serto kalu wênten diantaro wong-wong musyrikin niku yên nyatu perlindungan nge
 ## 9:7
 
 Ma’pundi wikan didamel bagi wong musyrik pejanjian (aman) dari sisi Allah serto Rasul-Nyo? Melianke wong-wong niku ngedamel semayoan di parak Masjidil haram [^542] ; dades selagi wong-wong niku besikap lurus tehadep janjinyo, sepatutnyo niko besikap lurus (pulo) tehadep wong-wong niku. Selesernyo Allah demen sami wong-wong yên betakwa.
-
-[^542]: Yên dimaksud dengen para’ Masjidilvharam ya'ni: Al-Hudaibiyah, sios enggon yên teletak para' Makkah di jalan ke Madinah. sami enggon niku Nabi Muhammad SAW ngewêntenke semayoan gencatan senjato dengen kaum musyrikin jerû maso 10 taûn.
 
 ## 9:8
 
@@ -6118,8 +5022,6 @@ Lesernyo yên makmurke masjid-masjid Allah nikula wong-wong yên beiman pado All
 
 Napi (wong-wong) yên ngesûng minuman wong-wong haji serto umroh serto ngurus Masjidilharam niko samike dengen wong-wong yên beiman pado Allah serto dinten kiamat serto bejihad di jalan Allah? Wong-wong niku nano sami di sisi Allah; serto Allah nano ngesûng petunjuk pado kaum yên zalim. [^543]
 
-[^543]: Ayat niki ditûrûnke peranti manta anggepan bahwo ngesung minum sedanten haji serto ngûrûs Masjidil Haram langkung utama dari beiman kepado Allah serto hijra di jalan Allah.
-
 ## 9:20
 
 Wong-wong yên beiman serto berhijrah serto berjihad di jalan Allah dengen harto bando serto awa'nyo, langkûng mungga derajatnyo di sisi Allah; serto nikula wong-wong yên dapet kemenangan.
@@ -6156,19 +5058,9 @@ Sampun niku Allah nerimo tobat dari wong-wong yên dikenda’i-Nyo. Allah Maha P
 
 Wahai wong-wong yên beiman, selesernyo wong-wong yên musyrik niku nejis, [^544] dades nano angsal wong-wong niku mara’i Masjidilharam [^545] sesampun tahun niki. [^546] Serto kalu niko khawatir dados miskin, [^547] dades mengkin Allah ayun nyugîke niko dari karunio-Nyo, kalu Dio ngenda’i. Selesernyo Allah Maha Maklum lagi Maha Bijaksano.
 
-[^544]: Ma’sudnyo: jiwo musyrikin niku dianggep kotor, kerno nuoke Allah.
-
-[^545]: Ma’sudnyo: nano dileserke namelke haji serto umrah. nûrût pendapet sebagêan mufassirin yên lian, ya'ni kaum musyrikin niku nano bolê melebet daerah Haram saê peranti keperluan haji serto umrah atawa peranti keperluan yên lian.
-
-[^546]: Ma’sudnyo sesampun wikan 9 Hijrah.
-
-[^547]: Kerno nano ngeleserke wong musyrikin namelke haji serto umrah, kerno pencarian wong-wong Muslim bolê dades bekirang.
-
 ## 9:29
 
 Perangila wong-wong yên nano beiman pado Allah serto nano (pulo beiman) pado dinten akhir, serto wong-wong niku nano ngeharamke napi yên diharamke Allah serto Rasul-Nyo, serto nano beigamo dengen igamo yêng leser (igamo Allah), dari wong-wong yên sampun disungke Al-Kitab, sampê wong-wong niku mayar jizyah [^548] dengen patuh serto wong niku dados alît  (keadaan tunduk/nurut).
-
-[^548]: Jizyah ya'ni paja’ perkepala’ yên dipungut olê pemerintah Islam dari wong-wong yên dêdê Islam, sebagi imbangan peranti keamanan awa' wong-wong niku.
 
 ## 9:30
 
@@ -6177,8 +5069,6 @@ Serto kelap Wong-wong Yahudi: "Uzair niku anak Allah" serto kelap wong-wong Nasr
 ## 9:31
 
 Wong-wong niku dadeske ulama’nyo (Yahudi) serto rahib-rahibnyo (Nasrani) sebagai tuhan selian Allah [^549] serto (jugo wong-wong niku nuhanke) Al Masih anak Maryam. Padohal wong-wong niku nano dikêngkên, kecuali menyembah Tuhan Yên Eso, nano wênten Tuhan (yên berhak disembah) selian Dio. Maha Suci Dio (Allah) dari napi yên wong niku sekutuke.
-
-[^549]: Ma’sudnyo: wong-wong niku matuhi ajaran-ajaran wong-wong alim serto rahib-rahib wong-wong niku dengen membabi buto, meski wong-wong alim serto rahib-rahib niku ngengken namelke maksiat atawa ngeharamke yên halal.
 
 ## 9:32
 
@@ -6200,15 +5090,9 @@ Wahai wong-wong yêng beiman, selesernyo kata dari wong-wong alim Yahudi serto r
 
 Selesernyo itungan bulan pado sisi Allah wênten duo belas bulan, Jerû ketetepan Allah di waktu Dio ngawê’ langit lan bumi, di antaronyo sekawan ([^4] bulan haram. [^550] Nikula (ketetepan) igamo yên lurus, dades nano angsal niko ngeniayo awa' [^551] niko diJerû bulan yên sekawan niku, lan perangila kaum musyrikin niku sedantennyo ma’kayo wong-wong nikupun merangi niko sedantennyo, Lan taonila bahwasonyo Allah bareng wong-wong takwa.
 
-[^550]: Ma’sudnyo antaro lian ya'ni: bulan Haram (bulan Zulkaidah, Zulhijjah, Muharram serto Rajab), tana Haram (Mekah) serto ihram.
-
-[^551]: Ma’sudnyo janganla niko nganiayo awa' niko dengen namelke damelan yên dilarang, peca' ngelanggar kehormatan bulan niku dengen ngewêntenke perangan.
-
 ## 9:37
 
 Selesernyo ngûndûrke/nambake bulan haram niku [^552] bakal namba kekafiran, disesetke wong-wong kafir dengen ngûlûr-ngûlûrke niku, wong-wong niku ngehalalkenyo pado sios tahun lan ngeharamkenyo pado taûn yên lian, supayo wong-wong niku wikan nyesuaike dengen itûngan yên Allah haramke; dades wong-wong niku ngehalalke napi yên diharamke Allah. (Setan) dadeske wong-wong niku nganggep saê tabê’at yên jahat niku. Lan Allah nano ngesûng petunjuk pado wong-wong yên kafir.
-
-[^552]: Muharram, Rajab, Zulqaedah serto Zulhijjah wêntenla bulan-bulan yên dihormati serto jerû bulan-bulan tekelap nano bolê diwêntenke perang. tapi peraturan niki dilanggar olê wong-wong niku dengen ngewêntenke perangan di bulan Muharram, serto dadeske bulan Safar sebagî bulan yên dihormati peranti ngenti bulan Muharram niku. meski bilangan bulan-bulan yên disucike ya'ni, sekawan bulan jugo. tapi dengen damelan niku, tata tertib di Jazirah Arab dades kacau serto sampun niku lintas pesadîan teganggu.
 
 ## 9:38
 
@@ -6222,8 +5106,6 @@ Wahai wong-wong yên beiman, napi sebabnyo bilo dicerioske kepado niko: "Kesala 
 
 Semisal niko nano nolongnyo (Muhammad) dades selesernyo Allah sampûn nolongnyo (ya’niku) ketiko wong-wong kafir (musyrikin Mekah) metukenyo (dari Mekah) sedang diola sios dari duo wong, ketiko keduonyo wênten di Jerû guo, di waktu dio becerios ngen rêncangnyo: "Nano angsal niko berduko cito, selesernyo Allah berêwang kito". dades Allah nurunke keterangan-Nyo pado (Muhammad) serto nulungnyo dengen tentara yên niko nano wikan ningalinyo, serto Al-Quran dadoske wong-wong kafir nikula yên êndêp (lema), serto kalimat Allah nikula yên tinggi. Allah Maha Perkaso lagi Maha Bijaksano. [^553]
 
-[^553]: Ma’sudnyo: wong-wong kafir sampun sepakat ayun munu Nabi SAW, dades Allah s.w\.t. ngesung wikan maksud jahat wong-wong kafir niku kepado Nabi SAW. kerno niku dades beliau metu dengen direncangi olê Abu Bakar dari Mekah jerû lawatannyo ke Madinah beliau besingitan di sios guo di bukit Tsur.
-
 ## 9:41
 
 Kesala (berangkatlah) nikodengen raso êntêng ataupun berat, serto berjihadla niko dengen harto serto awa' niko di jalan Allah. Yên ma’niku langkûng saê bagi niko, kalu niko ma’lûm.
@@ -6231,8 +5113,6 @@ Kesala (berangkatlah) nikodengen raso êntêng ataupun berat, serto berjihadla n
 ## 9:42
 
 Kalu yên niko kelapke  pado wong-wong niku wênten loka’ ûntûng yên cepa’ didapet serto perjalanan yên nano tebê nian, cengkila wong-wong niku numut niko, tapi tenggon yên dituju niku, teraso oleh wong-wong niku. Tebê nian. Wong-wong niku ayûn bersumpah dengen (nami) Allah: "Kalu kamê’ wikan, cengkila kamê’ tumut kêsa bersami-sami niko". Wong-wong niku nyelakoke awa'nyo dêwêk, [^554] serto Allah ma’lum, selesernyo wong-wong niku memang pembohong.
-
-[^554]: Ma’sudnyo wong-wong niku ayun binaso disebabke sumpa  wong-wong niku yên palsu.
 
 ## 9:43
 
@@ -6262,8 +5142,6 @@ Selesernyo saos dari kerhînpun wong-wong niku sampun merunut-runut kekacauan se
 
 Di antaro wong-wong niku wênten wong yên bekelap: "Sunglah kulo keizinan (nano kesa beperang) supayo nikonano nJerûmuske kulo ke Jerû fitnah". Taonila bahwo wong-wong niku sampun teJerûmus ke Jerû fitnah. [^555] Serto selesernyo Jahannam niku leser-leser meliputi wong-wong kafir.
 
-[^555]: Wênten pinten-pinten wong munafik yên nano ayun kesa perang ke Tabuk (daerah kekuasaan Rumawi) dengen bedalî khawatir ayun tegoda olê betino-betino Romawi, behubung dengen niku tûrûnla ayat niki peranti muka’ke rahasio wong-wong niku serto nyelaske bahwo sungkannyo wong-wong niku kesa perang niku wêntenla kerno Kelemahan iman wong-wong niku serto niku wêntenla fitnah.
-
 ## 9:50
 
 Kalu niko nemui yên sae, wong-wong niku dados nano ragap; tapi kalu niko ditimpo musiba, wong-wong niku becerios:"Selesernyo kame’ sederengnyo sampun masati urusan kame’ (nano kesa perang)" serto wong-wong niku bebiluk dengen raso ragap.
@@ -6275,8 +5153,6 @@ Kelapkenla (ya Muhammad): "Napi saos  na-no ayun nimpo kame’ meliankan yên sa
 ## 9:52
 
 Cerioskela (ya Muhammad): "Nano wênten yên niko tunggu-tunggu bagi kame’, kecuali sios dari duo saể [^556] ( menang atau syahid). Serto kame’ nunggu-nunggu bagi niko nikula Allah ayun nimpoke ngen niko azab (yên ageng) dari sisi-Nyo, atau lantaran tangan kame’”. dades tunggula, selesernyo kame’ nunggu-nunggu ngerencangi niko nunggu.".
-
-[^556]: Ya'ni angsal kemenangan atawa padem syahid.
 
 ## 9:53
 
@@ -6310,8 +5186,6 @@ Kalu wong-wong niku memang rêdho dengen napi yên disûngke Allah serto Rasul-N
 
 Selesernyo zakat-zakat niko cumann peranti wong-wong fakir, miskin, pengurus-pengurus zakat, para muallaf yên diîpû’ atinyo, peranti (merdekake) budak, wong-wong yên berutang, peranti sabiliLlah serto peranti wong-wong yên sedang diJerû perjalanan; nikula ketetapan yên diwajibke Allah; serto Allah Maha Ma’lum lagi Maha Bijaksano. [^557]
 
-[^557]: Yên berhak nerimo zakat ya'ni: 1. wong fakir: wong yên Amat sengsaro uripnyo, nano wênten herto serto tenago peranti menuhi uripnyo niku. 2. wong miskin: wong yên nano cungkup kebutuhannyo serto selelu kekirangan. 3. Pengurus zakat: wong yên di sung tugas peranti ngûmpûlke serto mayar jekat. 4. Muallaf: wong kafir yên wênten harapan melebet Islam serto wong yên daru melebet Islam yên imannyo male lema. 5. merdekake buda’ nyangkûp jugo peranti ngelepaske Muslim yên ditawan olê wong-wong kafir. 6. wong behutang: wong yên behutang kerno peranti kepentingan yên dêdê maksiat serto nano sanggup mayarnyo. Wênten jugo wong yên behutang peranti meliaro persatuan umat Islam dibayar hutangnyo niku dengen zakat, meski io mampu mayarnyo. 7. sami jalan Allah (sabilillah): ya'ni peranti keperluan petahanan Islam serto kaum muslimin. di antaro mufasirin wênten yên bependapet bahwo fisabilillah niku nyangkûp jugo kepentingan-kepentingan umum peca' nega’ke sekolah, rompo' sakit serto lian-lian. 8. wong yên sedengke jerû lawatan yên dêdê maksiat ngalami kesengsaroan jerû lawatannyo.
-
 ## 9:61
 
 Di antaro wong-wong munafik niku wênten yên menyakiti ati Nabi dengen kelapnyo:"Dio (Nabi) percayo danten napi yên didenger-nyo". Cerioske: "Dio mempercayoi sedanten yên saể bagi niko, dio beiman pado Allah, mempercayoi wong-mukmin, serto dados rohmat bagi wong-wong yên beiman di antaro niko". Serto bagi wong yên nyakiti ati Rasulullah niku, baginyo niku azab yên pedi.
@@ -6340,8 +5214,6 @@ Nikonano perlu minta maaf, kereno niko kafir sesampun beiman. Kalu Kamê’ mema
 
 Wong-wong munafik lanang serto wadon, sebagian dengen sebagian yên lian niku sami saos, wong-wong niku ngengken ndamel yên munkar serto nega bedamel yên ma'ruf serto wong-wong niku ngenggemke tangannyo. [^558] Wong-wong niku sampun lali pado Allah, dades Allah ngelalike wong-wong niku. Selesernyo wong munafik nikula wong yên fasik.
 
-[^558]: Ma’sudnyo: medit
-
 ## 9:68
 
 Allah ngancam wong-wong munafik lanang serto wadon serto wong-wong kafir dengen nerako Jahannam, wong-wong niku mantep di Jerûnyo. Cukuplah nerako bagi wong-wong niku, serto Allah ngelaknat wong-wong niku, serto bagi wong-wong niku azab yên mantep (da’ beroba).
@@ -6353,8 +5225,6 @@ Allah ngancam wong-wong munafik lanang serto wadon serto wong-wong kafir dengen 
 ## 9:70
 
 Napi nano rawûh pado wong-wong niku kabar tentang wong-wong yên sederengnyo, (nikulah) kaum Nuh, 'Aad, Tsamud, kaum Ibrahim, penduduk Madyan serto negeri-negeri yên sampûn tumpes? [^559] . Sampûn rawûh pado wong-wong niku rasul-rasul dengen membakto keterangan yên nyato, dades sekali-kali Allah nano ngeniayo wong-wong niku, tetapi wong-wong nikula yên ngeniayo awa'nyo dêwê’.
-
-[^559]: 'Aad wêntenla kaum Nabi Hud, Tsamud ya'ni kaum Nabi Shaleh; penduduk Madyan ya'ni kaum Nabi Syu'aib, serto penduduk negeri yên sampun musna wêntenla kaum Nabi Luth a.s.
 
 ## 9:71
 
@@ -6371,8 +5241,6 @@ Wahai Nabi, berjihadla (melawan) wong-wong kafir serto wong-wong munafik niku, s
 ## 9:74
 
 Wong-wong munafik niku besumpah dengen (nami) Allah, bahwo wong-wong niku nano nyerioske (sesuatu yên nyakiti Nabi Muhammad). Selesernyo wong-wong niku sampûn nyerioske kekafiran, serto sampûn dados kafir sederengnyo Islam serto kepêngên hal-hal yên nano wikan didamelnyo; [^560] serto wong-wong niku nano nyalake (Allah serto Rasul-Nyo), selian kereno Allah serto Rasul-Nyo sampûn ngelimpahke karunio-Nyo.. dades kalu wong niku betobat, niku langkûng saể bagi wong niku, Serto kalu wong-wong niku bebilûk, cengkila Allah ayûn ngazabnyo dengen azab yên pedî di dunio serto akhirat; serto wong niku di dunio nano punyo pelîndûng serto nano (pulo) punyo penûlûng.
-
-[^560]: Ma’sudnyo: wong-wong niku pengen munu Nabi Muhammad s.a.w.
 
 ## 9:75
 
@@ -6410,8 +5278,6 @@ Dades wong-wong niku bakal ketawo setîtîk (di dunio) serto nangis kata (di ner
 
 Dades kalu Allah mantu’ke niko (Muhammad) kepado suatu golongan dari wong munafik niku, serto wong-wong niku nyatu  izin pado niko peranti kesah (tumut beperang), dades cerioskela: "niko nano angsal metu dengen kulo  peranti selambatnyo serto nano angsal merangi mûsû bareng kulo. Selesernyo nian niko sampûn rela nano kesah beperang sejak mulo-mulo.. Kereno ma’niku, niko dûdûklah dengen wong-wong yên nano tumut beperang" [^561]
 
-[^561]: Sesampun Nabi Muhammad SAW mantû’ dari perang Tabuk serto mantû’ male ke Madinah serto panggî segolongan wong-wong munafik yên nano tumut perang, sampun niku wong-wong niku nedo izin kepadonyo peranti tumut perang, dades Nabi Muhammad s.a.w. dilarang olê Allah peranti ngabulke peminta’an wong-wong niku, kerno wong-wong niku dari semulo nano ayun tumut perang.
-
 ## 9:84
 
 Serto nano angsal niko nyolatke (jenazah)  wong yên padem dari wong-wong niku, serto nano angsal niko tegak (ndoake) di kuburnyo. Selesernyo wong-wong niku sampûn kafir pado Allah serto Rasul-Nyo serto wong-wong niku padem sebage wong fasik
@@ -6424,13 +5290,9 @@ Serto nano angsal niko (Muhammad) terehal/ kagum dengen harto bendo serto anak-a
 
 Serto kalu diturunken suatu surat (yên merintake supayo wong munafik niku beimanlah niko pado Allah serto bejihad bareng Rasul-Nyo, cengkila wong-wong yên sanggup di antaro wong-wong niku nyatu izin ngen niko (peranti nano bejihad) serto kelapnyo: "Talakkela kame’ tinggal ingen wong-wong yên lenggê". [^562]
 
-[^562]: Ma’sudnyo: wong-wong yên nano tumut perang.
-
 ## 9:87
 
 Wong-wong niku demen tinggal ngen wong yên nano beperang, [^563] serto ati wong-wong niku sampun dikunci padem, dades wong-wong niku nano paham (ragapnyo beiman serto bejihad
-
-[^563]: Ma’sudnyo: betino-betino, ana-ana’, wong-wong lemah, wong-wong yên sakît serto wong-wong yên sampun tua.
 
 ## 9:88
 
@@ -6452,8 +5314,6 @@ Nano bedoso (nano beperang) bagi wong yên lemah, wong yên sakit serto wong yê
 
 Serto nano (pulo bedoso) bage wong-wong yển rawûh ngadep ampean (Muhammad), supayo nyatu tunggangan peranti beperang, tapi kelap ampean, “Kulo nano punyo tunggangan peranti membakto niko,” laju wong-wong niku mantu’, dengen belebengan banyu mato kareno sedih, sebab wong niku nano punyo napi- napi yên ayun dinafkahke. [^564]
 
-[^564]: Ma’sudnyo: wong-wong niku sedî ati kerno nano wênten herto yên ayun dibelanjoke serto kendaraan peranti makto wong-wong niku kesa perang.
-
 ## 9:93
 
 Selesernyo niku cumann alesan (peranti nyalahke) wong yên nyatu izin ngen ampêan (peranti nano tumut beperang), padohal wong niku wong sugê-kayo. Wong niku demen  tinggal dengen wong-wong yên nano tumut beperang; Allah sampûn ngunci ati wong niku, sehinggo wong-wong niku nano maklûm (akibatnyo).
@@ -6466,8 +5326,6 @@ Sedanten wong munafiq yên nano tumut beperang ngesûng alesan kepado niko saat 
 
 Wong-wong niku ayûn besumpa dengen nami Allah saat niko mantû’ dengen wong-wong niku supayo niko bebîlûk dari wong niku; [^565] dades bebîlûkla, karno sebenernyo wong – wong niku bejiwo kotor serto tempatnyo di neraka jahannam sebagî balesan napi yên sampûn wong-wong niku damelke
 
-[^565]: Maksudnyo: nano nyelo wong-wong niku.
-
 ## 9:96
 
 Wong – wong niku ayûn besumpa dengen niko supaya niko ayûn nerimonyo, tapi walaupun niko nerimonyo, Allah nano rêdo pada wong – wong yên fasik
@@ -6475,8 +5333,6 @@ Wong – wong niku ayûn besumpa dengen niko supaya niko ayûn nerimonyo, tapi w
 ## 9:97
 
 Wong–wong Arab Badui [^566] niku langkûng kuat kafiran serto munafiknyo, serto wajar nian kalu nano wikan hukum–hukum yên sampûn diturunke Allah pada rasulNyo Allah Maha ma’lûm Maha Bijaksano
-
-[^566]: Wong-wong Badwi ya'ni wong-wong Arab yên berdiam di pasertog pasir yên hidupnya sesampun niku berpindah-pindah.
 
 ## 9:98
 
@@ -6494,8 +5350,6 @@ Serto wong–wong yên duluan mulo-mulo maso’ islam di antaro wong – wong mu
 
 Serto diantaro wong – wong arab Badui yên wênten di sekiter niko [^567] munafik, wong-wong niku teliwat jerû kemunafikan nyo. Ampêan (Muhammad) nano wikan wong-wong niku. Tapi Kamê’ wikan. Mengkin wong-wong niku ayûn kame’ sikso duo kali, sampûn niku wong-wong niku ayûn di mantû’ke pado azab yên ageng
 
-[^567]: Ma’sudnyo: wong-wong Badwi yên bediem di sekiter Madinah.
-
 ## 9:102
 
 Serto wênten pulo wong lian yên ngakui doso–dosonyo. Wong–wong niku nyampûrke yên saê dengen damelan lian yên jahat. Mugo-mugo Allah nerimo tobat wong–wong niku. Leser nian Allah Maha Pengampûn Maha Penyayang.
@@ -6503,10 +5357,6 @@ Serto wênten pulo wong lian yên ngakui doso–dosonyo. Wong–wong niku nyamp�
 ## 9:103
 
 Embillah dari harto wong–wong niku zakat guno mbersihke [^568] serto nyucike [^569] wong-wong niku serto berdoala peranti wong–wong niku, selesernyo leser doa niko niku nimbûlke ketentreman jiwo peranti wong–wong niku. Allah Maha Nenger Maha ma’lûm.
-
-[^568]: Ma’sudnyo: zakat niku nyucike wong-wong niku dari medit serto cinto yên belebî kepado herto bendo
-
-[^569]: Ma’sudnyo: zakat niku nyûbûrke sifat-sifat kesaêan jerû ati wong-wong niku serto mersîke herto bendo wong-wong niku.
 
 ## 9:104
 
@@ -6524,8 +5374,6 @@ Serto wênten pulo wong–wong lian yên di undurke sampei wênten keputusan All
 
 Serto diantaro wong–wong munafik niku wênten yên negakke mesjid peranti nembûlke bencano (pado wong–wong beiman), peranti kekafiran, serto peranti mecah bela diantaro wong–wong yên beiman serto nunggu rawûnyo wong yên sampûn memerangi Allah. sejak kerihin; [^570] wong-wong niku cengki besumpa:”Kame’ cuman ngenda’i yên saê”. Serto Allah jadi saksi wong-wong niku pembohong
 
-[^570]: Yên dimaksud dengen wong yên sampun merangi Allah serto Rasul-Nyo seja’ kerîhîn ya'ni sios wong pendeta Nasrani benami Abu 'Amir, yên wong-wong niku tunggu-tunggu rawûnyo dari Syiria peranti semayang di masjid yên wong-wong niku tega’ke niku, serto makto tentaro Romawi yên ayun merangi kaum muslimin. Tapi rawûnyo Abu 'Amir niki nano Jadi kerno io padem di Syiria. serto masjid yên ditega’ke kaum munafik niku diruntuke tehadep perintah Rasulullah s.a.w. bekenaan dengen wahyu yên diterimanya sesampun mantû’ dari perang Tabuk.
-
 ## 9:108
 
 Nano angsal niko nega’ke semayang di jerûnyo selambat–lambatnyo. Niscayo mesjid yên di tegakke atas niat taqwa sejak dinten pertamo lebih saê negakke sholat di jerûnyo; di Jerûnyo wênten wong yên demen mbersihke awa'. Allah demen sami wong–wong suci..
@@ -6538,8 +5386,6 @@ Dades napi wong–wong yên negakke mesjid atas dasar taqwa kepado Allah serto r
 
 Bangunan yên tega’ke wong niku selalu jadi sebab ragu–ragu di jerû atinyo niku, hinggo atinyo ancûr. [^571] Serto Allah Maha Ma’lum Maha Bijaksano.
 
-[^571]: Ma’sudnyo: kalu perasaan wong-wong niku sampun lenyep. wênten pulo' yên nafsîrke kalu wong-wong niku nano angsal taubat male.
-
 ## 9:111
 
 Leser nian, Allah numbas dari wong mukmin, jiwo serto hartonyo dengen ngesûng suargo . Wong-wong niku beperang di jalan Allah, munu atau atau di bunu sebagî janji peranti wong niku yên leser di Jerû Taurat, Injil serto al – Quran. Serto sinten yên lebih nepati janji selian Allah dades ragapla dengen jual beli yên sampûn niko damelke serto demikian nikula kemenangan yên ageng
@@ -6547,8 +5393,6 @@ Leser nian, Allah numbas dari wong mukmin, jiwo serto hartonyo dengen ngesûng s
 ## 9:112
 
 Wong–wong yên betobat, beribada, muji Allah, mengembara [^572] (untu’ ilmu serto agamo), ruku’, sujud, ngêngkên bedamel saê serto negah dari yên munkar , serto yên memeliharo hukum agamo Allah, serto ragapkela wong–wong yên beiman
-
-[^572]: Ma’sudnyo: melawat peranti  ilmu atawa berjihad. wênten pulo' yên nafsîrke dengen wong yên bepuasa.
 
 ## 9:113
 
@@ -6562,10 +5406,6 @@ Serto nano wênten istighfar Nabi Ibrohim peranti abanyo, nano lian cuman kerno 
 
 Serto Allah nano ayûn nyasarke [^573] suatu kaum sesampûn wong-wong niku disûngnyo petunju’ sehinggo jelask pado wong niku napi yên nano angsal didamel [^574] . leser Allah sangat Ma’lum dengen sedantennyo
 
-[^573]: Disesetke Allah retinyo: bahwo wong niku seset behubung keingkarannyo serto nano ayun mahami petûnjû’-petûnjû’ Allah. jerû ayat niki, kerno wong-wong niku ingker serto nano ayun mahami napi sebabnyo Allah dadeske nyamuk sebagî perumpamoan, dades wong-wong niku niku dades seset.
-
-[^574]: Ma’sudnyo: sios hambo nano ayun diazab olê Allah semato-mato kerno kesesetannyo, kacuali kalu hambo niku ngelanggar perinta-perinta yên sampun dijelaske.
-
 ## 9:116
 
 Leser punyo Allah kekuasoan di langit serto di bumi; dio ngûrîpke serto mademke, nano wênten peranti niko pelindung serto yên penûlûng selian Allah
@@ -6577,8 +5417,6 @@ Leser Allah sampun nerimo tobat nabi, kaum muhajirin serto ansor yên tumut nabi
 ## 9:118
 
 Serto bagî wong tigo [^575] yên di tinggalke, sampî saat bumi teraso sempît peranti wong-wong niku padahal bumi maler luas, serto jiwonyo teraso sempit perantinyo, serto wong-wong niku sampun wikan, basonyo nano wênten tempat kêsa dari sikso Allah melianke padoNyo baê; kemudian Allah nerimo tobatnyo, supayo wong-wong niku tetep dijerû tobat nyo. leser Allah sangat Penerimo Tobat Maha Penyayang
-
-[^575]: Ya'ni Ka'ab bin Malik, Hilal bin Umayyah serto Mararah bin Rabi'. wong-wong niku disalake kerno nano tumut perang.
 
 ## 9:119
 
@@ -6608,13 +5446,9 @@ Serto kalu di turunke sios suroh dades di antaro wong-wong niku (wong–wong yê
 
 Serto wong–wong yên di Jerû atinyo wênten penyakit [^576] , dades dengen suroh niku nambah kotoran yên sampun wênten, wong-wong niku bakal padem diJerû kekafiran.
 
-[^576]: Ma’sudnyo penyakit bathniyah peca' kekafiran, kemunafikan, keragua-raguan serto sebagînyo.
-
 ## 9:126
 
 Serto nanola wong-wong kafir niku meratike bahwo wong-wong niku di uji [^577] sekali atau duo kali saben taun namun wong-wong niku nano jugo betobat serto nano pulo ngembil pelajaran
-
-[^577]: Yên dimaksud dengen ujian dingeriki ya'ni: musiba-musiba yên nimpo wong-wong niku peca' tebuka’nyo resio tipu dayo wong-wong niku, pengkhianatan wong-wong niku serto sifat wong-wong niku nyalahi janji.
 
 ## 9:127
 
@@ -6700,13 +5534,9 @@ Dades sintenla yên langkung zolim daripado wong yên nyaweske budian tehadep Al
 
 Serto wong-wong niku nyemba selian Allah, sesios yên nano angsal merawûke bencano pado wong-wong niku serto nano (pulo’) ngesung menpaat, serto wong-wong niku bekelap, “Wong-wong niku nikula pengesung sapaat kame’ di hadepan Allah. “Kelapkela, “napi niko ayun ngesung wikan kepado Allah sesios yên nano diwikani-Nyo napi yên di langit serto nano (pulo’) yên di bumi?” [^578] Mahasuci Allah serto Mahatinggi Dio dari napi yên wong-wong niku pesekutuke.
 
-[^578]: Kalimat niki nikula uyo’an tehadep wong yên yembah berhalo, yên nyangko bahwa berhalo-berhalo niku wikan ngesung safa’at di sisi Allah.
-
 ## 10:19
 
 Serto wong niku kerihinnyo cumala sios umat, sampun niku wong-wong niku beselewahan. kalu nano kerno sesios ketetepan yên sampun wênten dari Tuhan niko, [^579] pastila sampun disung keputusan (di dunio) di antaro wong-wong niku, tentang napi yên wong-wong niku perselewahke niku.
-
-[^579]: Ketetepan Allah nikula bahwa peselewahan wong di dunio niku ayun diputuske di akhirat.
 
 ## 10:20
 
@@ -6728,8 +5558,6 @@ Tapi waktu Allah nyelametke wong-wong niku, mala wong-wong niku bedamel kezolima
 
 Selesernyo peumpamoan keuripan duniowi niku cuman peca’ toyo (hujan) yên Kame’ campa’ke dari langit, sehinggo tumbula tanem-taneman bumi dengen subur (kerno toyo niku), di antaronyo wênten yên di tedo wong serto binatang ternak. Hinggo napibilo bumi niku sampun sempurno kebagusannyo, serto berais, [^580] serto yên punyo ngiro kalu wong-wong niku pasti nguasoinyo (metek hasilnyo), rawula kepadonyo azab Kamê’ pado waktu malem atawa siang, lalu Kame’ dadeske (tanaman)nyo peca’ taneman yên sampun disabit, peca’ dereng perna tumbu kemaren. Mak nikula Kame’ nyelaskenyo tando-tando (kekuasoan Kame’) kepado wong yên befikir.
 
-[^580]: Bumi yên indah dengen gunung-gunung, serto lembah-lembahnyo sampun ngijo dengen tanam-tanamannyo.
-
 ## 10:25
 
 Serto Allah ngengken (wong) ke Dārussalām (suargo), serto ngesung petunjuk kepado wong yên Dio ayuni ke jalan yên lurus (Islam).
@@ -6745,8 +5573,6 @@ Wêntenpun wong-wong yên bedamel kejahatan (ayun angsal) balasan kejahatan yên
 ## 10:28
 
 Serto (imutla) pado dinten (sewaktu) niku Kame’ ngumpulke wong-wong niku sedantennyo, sampun niku Kame’ bekelap kepado wong yên mempesekutuke (Allah), “Mantepla di enggon niko, niko serto sedanten rencang niko.” Sampun niku Kame’ sapeke wong-wong niku, serto bekelapla rencang-rencang wong-wong niku,”Niko sekali-kali nano perna nyembah kame’. [^581]
-
-[^581]: Wong yên nyembah berhalo niku selesernyo dêdênyo nyembah berhalo, melianke nyembah hawo nafsu wong-wong niku dewe’, kerno hawo nafsu wong-wong nikulah yên nyuruh nyembah berhalo.
 
 ## 10:29
 
@@ -6784,8 +5610,6 @@ Serto kata wong-wong niku cuman tumut sangkoan. Selesernyo sangkoan niku, nano s
 
 Serto nano mungkin Al Quran niki didamelke ole selian Allah; tapi (Al-Qur’an) ngeleserke (kitab kitab) yên sederengnyo serto nyelaske hukum-hukum yên sampun ditetepkennyo, [^582] nano wênten keraguan di jerûnyo, (diturunke) dari Tuhan sedanten alam.
 
-[^582]: Sebagean ayat-ayat Al-Qur’an niku nyelaske secaro teperinci hukum-hukum yên sampun dikelapke jerû Al-Qur’an niku jugo.
-
 ## 10:38
 
 Napi pantes wong-wong niku bekelap dio (Muhammad) yên sampun namelkennyo? Kelapkela, “Damelkela sios suro yên semisal dengen suro (Al-Qur’an), serto aja’la sinten saos di antaro niko wong yên wikan (namelkennyo) selian Allah, kalu niko wong-wong yên leser.”
@@ -6806,13 +5630,9 @@ Serto kalu wong-wong niku (tetep) mudike niko (Muhammad), dades kelapkela, “Pe
 
 Serto di antaro wong-wong niku wênten yên nengerke niko (Muhammad). [^583] Tapi napika niko angsal dadeske wong yên peka’ niku nenger, walaupun wong-wong niku nano terti?
 
-[^583]: Retinyo wong-wong niku tetingal ningalke napi yên dibaco ole Rosulullah serto napi yên diajarkennyo, padohal ati wong-wong niku nano nerimonyo.
-
 ## 10:43
 
 Serto di antaro wong-wong niku wênten yên ningal kepado niko. [^584] Tapi napika niko angsal ngesung petunjuk pado wong yên buto, walaupun wong-wong niku nano meratike?
-
-[^584]: Retinyo ningalke tando-tando kenabian niko, tapi wong-wong niku nano ngakuinyo.
 
 ## 10:44
 
@@ -6857,8 +5677,6 @@ Serto wong-wong niku betaken kepado niko (Muhammad). “Leserke (azab yên disem
 ## 10:54
 
 Serto kalu sedanten wong yên zolim niku (punyo) sedanten yên wênten di bumi, ceto dio nebus awa’nyo dewe’ dengen niku, serto wong-wong niku nyingitke [^585] penyeselannyo sewaktu wong-wong niku sampun ningali azab niku. Sampun niku disung keputusan di antaro wong-wong niku nano dizolimi.
-
-[^585]: Sebagîan mufassir wênten yên ngartike asurrū dengen “ngatonke”
 
 ## 10:55
 
@@ -7012,8 +5830,6 @@ Napi anyar ma’ niki ari (niko beiman), padohal selesernyo niko sampun durhako 
 
 Dades pado dinten niki Kame’ selamatke jasad niko [^586] supayo niko angsal dades pelajaran peranti wong-wong yên rawû sampun niko, tapi kata wong nano ngindake tando-tando (kekuasoan) Kame’.
 
-[^586]: Yên diselamatke Allah nikulah badan kasarnyo. Nurut kiso, sampun Fir’aun tebenyu’, mayatnyo tedampar di pantai ditemuke oleh wong-wong Mesir sampun niku dibalsem sehinggo utuh sampe ma’ niki ari serto wikan ditingal di museum Mesir. sampun niku ningal Al-Baqoroh (2);50.
-
 ## 10:93
 
 Serto leser, Kame’ sampun nempatke Bani Isroil di pedalemannyo yên sae dan kami sung wong – wong niki rezki yên sae. dades wong-wong niku nano beselewahan, kecuali sesampun rawû kepado wong-wong niku pengetahuan (yên tesebut jerû Taurot). SelesernYa Tuhan niko ayun ngesung keputusan antaro wong-wong niku pado dinten Kiamat tentang napi yên wong-wong niku selewahke niku.
@@ -7086,8 +5902,6 @@ Serto tumutla napi yên diwahyuke kepado niko, serto besabarla hinggo Allah nges
 
 Alif Lām Rō. (Nikila) Kitab yên ayat-ayatnyo disusun dengen rapi sampun niku dijelaske secaro teperinci, [^587] (yên diturunke) dari sisi (Allah) Yên Maha Bijaksano, Mahateliti.
 
-[^587]: Diperinci atawa beberapo mecem, wênten yên tentang tauhid, hokum, qishoh, akhlak, ilmu pengetahuan, semayoan serto peringetan serto lian-lian, disusun suroh demi suroh, ayat demi ayat, serto seterusnyo.
-
 ## 11:2
 
 Supayo niko nano nyemba selian Allah. selesernyo kulo (Muhammad) nikula pengesung peringetan serto pembakto berita ladas dari-Nyo peranti niko.
@@ -7104,13 +5918,9 @@ Kepado Allah-la niko mantu’. Dio Maha Kuaso pucu’ sedantennyo.
 
 Ingetla, selesernyo wong-wong niku (wong-wong munafik) malingke dado peranti nyingitke awa’ dari dio (Muhammad), [^588] Ingetla, sewaktu wong-wong niku nyelimuti awa’nyo dengen kain, Allah wikan napi yên wong-wong niku singitke serto napi yên wong-wong niku nyatoke, leser Allah Maha Wikan (sedanten) isi ati.
 
-[^588]: ) Nyingitke perasoan pemusuhan serto kemunafikan wong-wong niku tehadep Nabi Muhammad saw.
-
 ## 11:6
 
 Serto nano sios saos mahluk begera’ (bernyawo) di bumi melianke sedantennyo dijamin Allah rezekinyo. Dio wikan pedalemannyo serto enggon nyimpennyo. [^589] sedantennyo (tetulis) jerû Kitab yên nyato (Lauh Mahfūz)
-
-[^589]: Kelap sebagîan mufassir, yên dimaksud dengen “pedaleman” di ngeriki iola dunio, serto “enggon penyimpenan” iola akhirat. Serto kelap sebagîan mufassir lian, maksud “pedaleman” iolah tulang sulbi, serto “enggon penyimpenan” iola rahim.
 
 ## 11:7
 
@@ -7156,19 +5966,13 @@ Nikula wong-wong yên nano merole (sesios) di akhirat kecuali nerako, serto sio-
 
 Dades napi (wong-wong kafir niku sami dengen) wong yên sampun punyo bukti yên nyato (Al-Qur’an) dari Tuhannyo, serto ditumuti ole saksi [^590] dari-Nyo serto sederengnyo sampun wênten pulo’ Kitab Musa yên dades pedoman serto rahmat? Wong-wong niku beiman kepadonyo (Al-Qur’an). Sinten saos ngingkerinyo (Al-Qur’an) di antaro kelompo’-kelompo’ (wong Quraisy), dades nerakola enggon yên diancemke perantinyo, kerno niku nano angsalla niku ragu tehadep Al-Qur’an. Leser, Al-Qur’an niku leser-leser dari Tuhan niko, tapi kata manosio nano beiman
 
-[^590]: Wênten yên nafsirke saksi dengen Jibril as, Al-Qur’an atawa Muhammaf saw.
-
 ## 11:18
 
 Serto sintenke yên lebî zolim daripado wong yên mengado-ngado sios mudike tehadep Allah? Wong-wong niku ayun dihadepke kepado Tuhan wong-wong niku, serto sedanten saksi [^591] ayun bekelap, “Wong-wong nikila yên sampun mudike tehadep Tuhan wong-wong niku.” Imutla, la’nat Allah (dicampa’ke) kepado wong yên zolim,
 
-[^591]: Reti sedanten saksi di ngeriki iola malaikat, nabi-nabi, serto anggota badannyo dewe’.
-
 ## 11:19
 
 (Iola) wong-wong niku yên ngalangi dari jalan Allah serto ayuni supayo jalan niku bengkok. [^592] serto wong-wong nikula wong yên nano pecayo wênten dinten akhirat
-
-[^592]: Retinyo, wong-wong niku bedamel supayo wong lian pengen agamo yên leser.
 
 ## 11:20
 
@@ -7262,8 +6066,6 @@ Serto dio bekelap, ”Naekla niko sedanten ke jerû (baito) dengen (ngelapke) na
 
 Serto kapal niku belayar baito wong-wong niku ke jerû gelombang peca’ gunung-gunung. Serto Nuh ngawe ana’nyo, [^593] sewaktu dio (buda’ niku) wênten di enggon yên jao tepencil, “Wahai ana’ kulo! Nae’la (ke baito) besami kame’ serto nano angsalla niko besami wong-wong kafir.”
 
-[^593]: Nami ana’ Nabi Nuh a.s. yên kafir niku Qan’an, sedeng ana’ lanang-lanangnyo yên beiman iola Sam, Ham, Jafis.
-
 ## 11:43
 
 Dio (ana’nyo) nyawab, “Kulo ayun nyari pelindungan ke gunung yên angsal ngindarke kulo dari toyo bah!” (Nuh) bekelap, “Nano wênten yên ngelindungi dari siksoan Allah pado dinten niki selian Allah yên Maha Penyayang.” Serto gelombang dades penghalang antaro keduonyo, dades dio (ana’ niku) temasû’ wong yên dibenyu’ke
@@ -7271,10 +6073,6 @@ Dio (ana’nyo) nyawab, “Kulo ayun nyari pelindungan ke gunung yên angsal ngi
 ## 11:44
 
 Serto dikelapke, “Wahai bumi! Telenla toyo niko serto wahai langit (hujan!) berentila.” Serto toyo pun disurutke, serto perintahpun dikelarke, [^594] serto baito niku pun belabo di pucu’ gunung Jadi, [^595] serto dikelapke, “Binasola wong-wong zholim.”
-
-[^594]: Yakni Allah sampun ngelaksanake semayoan-Nyo dengen pademke wong yên kafir kepado Nabi Nuh a.s. serto nyelamatke wong yên beiman.
-
-[^595]: Gunung Jadi teletak di Armenia sebela selatan, bebatesan dengen Mesopotamia.
 
 ## 11:45
 
@@ -7344,8 +6142,6 @@ Serto wong-wong niku selalu ditumuti dengen laknat di dunio niki serto (ma’nik
 
 Serto kepado kaum Samud (Kame’ kongkon) dulur wong-wong niku, Sholeh. Dio bekelap, “Wahai kaum kulo! Sembala Allah, nano wênten tuhan peranti niko selian Dio. Dio sampun nyiptoke niko dari bumi (tana) serto dadeske niko pemakmurnyo, [^596] kerno niku mohonla ampunan kepado-Nyo. SelesernYa Tuhan kulo sangat para’ (rahmat-Nyo), serto ngabulke (do’a hambo-Nyo)”
 
-[^596]: Wong didadeske penunggu dunio peranti nguasoi serto memakmurke dunio.
-
 ## 11:62
 
 Wong-wong niku (kaum Samud) bekelap, “Wahai Sholeh! Leser, niko sedereng niki wênten di tengah-tenga kame’ merupoke wong yên di arepke, napi niko ngelarang kame’ nyemba napi yên disemba ole nene’ moyang kame’? Leser, kame’ leser-leser jerû keraguan serto kebingsalan tehadep napi (agamo) yên niko aja’ke kepado kame’.”
@@ -7362,8 +6158,6 @@ Serto wahai kaum kulo! Nikila unto wadon dari Allah, sebage mu’jizat peranti n
 
 Dades wong-wong niku nyembelî unto niku, sampun niku dio (Sholeh) bekelap, “Beladasla niko sedanten di rompo’ niko selamo tigo dinten. [^597] Niku iola semayoan yên nano angsal dibudike.”
 
-[^597]: Damelan wong-wong niku munu unto niku iola sios pelanggaran tehadep larangan Nabi Sholeh a.s. Ole sebab niku, Allah nyampa’ke kepado wong-wong niku hukuman yaitu batesi urip wong-wong niku cuman jerû tempo tigo dinten, dades sebage uyo’an wong-wong niku dikongkon beladas selamo tigo dinten niku.
-
 ## 11:66
 
 Dades sewaktu keputusan Kame’ rawŏ, Kame’ selametke Sholeh serto wong-wong yên beiman besaminyo dengen rahmat Kame’ serto (Kame’ selametke) dari kehinoan pado dinten niku. Leser, Tuhan niko, Dio Mahakuat, Mahaperkaso
@@ -7375,8 +6169,6 @@ Sampun niku suaro yên mengguntur nimpo wong-wong zolim niku, singgo wong-wong n
 ## 11:68
 
 Peca’ wong-wong niku dereng perna tinggal [^598]  di enggon niku. Imutla, kaum Samud ngingkari Tuhan wong-wong niku. Imutla, binasola kaum Samud
-
-[^598]: Ma’nikula gancangnyo wong-wong niku diancurke ole guntur niku, singgo wong-wong niku ancur lebur ole guntur niku tanpo bekas, peca’ wong-wong niku nano perna wênten.
 
 ## 11:69
 
@@ -7413,8 +6205,6 @@ Wahai Ibrahim! Tinggalkela (kelapan) niki, leser, ketetepan Tuhan niko sampun ra
 ## 11:77
 
 Serto sewaktu sedanten utusan Kame’ (sedanten malaekat) niku rawŏ kepado Lut, dio ngeraso curigo serto dadonyo ngeraso sempit kerno (rawŏ)nyo. Dio (Lut) bekelap, “Niki dinten yên sangat sulit.” [^599]
-
-[^599]: Nabi Lut a.s. ngeraso susah ayun rawŏ sedanten utusan Allah niku kerno wong-wong niku berupo pemudo yên cindo sedengke kaum Lut gala’ nian dengen pemudo-pemudo yên cindo peranti namelke homoseksual. Dio ngeraso nano angsal ngelindungi wong-wong niku kalu wênten gangguan dari kaumnyo.
 
 ## 11:78
 
@@ -7455,8 +6245,6 @@ Siso ( yên halal) dari Allah iola lebi sae peranti niko kalu niko wong yên bei
 ## 11:87
 
 Wong-wong niku bekelap, “Wahai Syu’aib! napi agamo niko yên ngengken niko supayo kame’ ninggalke napi yên disemba nene’ moyang kame’ atawa ngelarang kame’ ngelola harto kame’ nûrût caro yên kame’ ayuni? Selesernyo niko leser-leser wong yên sangat penyantun serto pinter.” [^600]
-
-[^600]: Kelapan niki wong-wong niku kelapke peranti nguyo’ Nabi Syu’aib a.s.
 
 ## 11:88
 
@@ -7538,8 +6326,6 @@ Dades wênten pun wong-wong yên sengsaro, dades (enggonnyo) di jerû nerako, di
 
 Wong-wong niku kekel di jerûnyo selami wênten langit serto bumi, [^601] kecuali kalu Tuhan niko ayuni (yên lian). Leser, Tuhan niko Maha Pelaksana tehadep napi yên Dio ayunke
 
-[^601]: Niki kato kiasan yên tertinyo nyelaske kekekelan wong-wong niku jerû nerako salami-laminyo. Alam akhirat jugo punyo langit serto bumi dewe’.
-
 ## 11:108
 
 Serto wêntenpun wong-wong yên bahagio, dades (enggonnyo) di jerû suargo; wong-wong niku kekel di jerûnyo selami wênten langit serto bumi, kecuali kalu Tuhan niko ayuni (yên lian); sebagê kurnio yên nano wênten putus-putusnyo.
@@ -7551,8 +6337,6 @@ Dades nano angsalla niko (Muhammad) ragu-ragu tentang napi yên wong-wong niku s
 ## 11:110
 
 Serto leser, Kame’ sampun ngesung Kitab (Taurot) kepado Musa, sampun diselewahkennyo. Serto kalu nano wênten ketetepan yên bingen dari Tuhan niko, niscayo sampun didamelke hukuman di antaro wong-wong niku. [^602] Leser, wong-wong niku (wong kafir Mekkah) leser-leser jerû kebimbangan serto keraguan tehadepnyo (Al-Qur’an).
-
-[^602]: Sekironyo nano wênten ketetepan penundaan azab tehadep wong-wong niku sampe dinten Kiamat, tentula wong-wong niku dipademke pado waktu niku jugo.
 
 ## 11:111
 
@@ -7662,8 +6446,6 @@ Dio (Ya’qub) bekelap, “Selesernyo kesa niko besami dio (Yusuf) nyedehke kulo
 
 Selesernyo wong-wong niku bekelap, “Kalu dio dinedo serigalo, padohal kame’ kelompok (yên kuat), kalu ma’ niku tentu kame’ wong-wong yên rugi.  [^603]
 
-[^603]: Dades wong pengecut yên uripnyo nano wênten tertinyo.
-
 ## 12:15
 
 Dades sewaktu wong-wong niku maktonyo serto sepakat masu’ke ke dasar sumur. Kame’ wahyuke kepadonyo, “Niko mengken cengki ayun nyerioske damelan niki kepado wong-wong niku, sedeng wong-wong niku nano nyadarino.”
@@ -7692,8 +6474,6 @@ Serto wong-wong niku nyadeke (Yusuf) dengen rego mura, nikula beberapo dirham sa
 
 Serto wong dari Mesir yên numbasnyo bekelap kepado semanyo. [^604]  “Sungkela kepadonyo enggon (serto layanan) yên sae, mugo-mugo dio bemanpaat peranti kito atawa kito embil dio sebagî anak.” Serto ma’nikula Kame’ sungke kedudukan yên sae kepado Yusuf di negri (Mesir), serto supayo Kame’ ajarke kepadonyo takwil mimpi. Serto Allah bekuaso tehadep urusan-Nyo, tapi kata wong nano terti.
 
-[^604]: Wong dari Mesir yên numbas Yusuf niku sios wong gerot Mesir Al-Aziz, biaso dikenal dengen nami Qitfir. jerû sebagîan kitab tafsir dikelapke nami semanyo Rail, serto wênten jugo yên ngelapke Zulaikha atawa Zalikha. Tapi riwayat yên ngelapke nami-nami niku nano angsal dipertanggungjawabke.
-
 ## 12:22
 
 Serto sewaktu dio sampun cungkup ageng Kame’ sungke kepadonyo kekuasaan serto ilmu. Ma’nikula Kame’ ngesung balesan kepado wong-wong yên bedamel sae.
@@ -7705,8 +6485,6 @@ Serto wadon yên dio (Yusuf) tinggal di rompo’nyo menggoda awa’nyo. Serto di
 ## 12:24
 
 Serto leser, wadon niku sampun bemaksud kepadonyo (Yusuf). Serto Yusufpun bekenda’ kepadonyo, kalu dio nano ningali tando (dari) Tuhannyo.  [^605]  Ma’nikula, Kame’ palingke darinyo keburu’an serto kekejian. Leser, dio (Yusuf) temasû' hambo Kame’ yên tepili.
-
-[^605]: Ayat niki nanola nunju’ke bahwa Nabi Yusuf a.s. punyo kepengenan yên buru’ tehadep wadon niku, tapi godaan niku ageng nian singgo sekironyo dio nano dikuatke dengen keimanan kepado Allah swt. cengki dio nyampa’ ke jerû kema’siatan.
 
 ## 12:25
 
@@ -7755,8 +6533,6 @@ Sampun niku timbul pikiran pado wong-wong niku sampun ningal tando-tando (kelese
 ## 12:36
 
 Serto besami dio maso’ pulo duo wong pemudo ke jerû penjaro. [^606] Sala siosnyo bekelap, “Selesernyo kulo bemimpi meres anggur,” serto yên liannyo bekelap, “Kulo mimpi, bakto roti di pucu’ kepala’ kulo, sebagîannyo dinedo burung,” Sungkela kepado kame’ ta’wilnyo. Selesernyo kame’ ningali niko temasû' wong yên bedamel sae
-
-[^606]: Nurut riwayat duo pemudo niku nikula pelayan-pelayan rajo; sios pelayan yên ngurus minuman rajo serto yên sios lagi tukang muat roti.
 
 ## 12:37
 
@@ -7818,8 +6594,6 @@ Serto rajo bekelap, “Baktola dio kepado kulo.” Sewaktu utusan niku rawŏ kep
 
 Dio (rajo) bekelap (kepado wadon-wadon niku), “Ma’ pundi keadoan niko [^607] sewaktu niko goda Yusuf peranti nundukke awa’nyo? Wong-wong niku bekelap, “Mahasempurno Allah, kame’ nano wikan sesios keburu’an darinyo.” Sema Al-Aziz bekelap, “Sekarang jelasla keleseran niku, kulola yên goda serto merayunyo, serto selesernyo dio temasû' wong yên leser.”
 
-[^607]: Yên dimaksud dengen keadoan, nikula penangsal wadon-wadon niku tentangYusuf napi dio tepengaru godaan niku atawa nano.
-
 ## 12:52
 
 (Yusuf bekelap), “Yên ma’ niku supayo dio (Al-Aziz) wikan bahwa kulo leser-leser nano ngehianatinyo sewaktu dio nano wênten (di rompok), serto bahwa Allah nano meridoi tipu dayo wong-wong yên behianat.
@@ -7848,8 +6622,6 @@ Serto leser, pahalo akherat niku lebî sae peranti wong-wong yên beiman serto s
 
 Serto dulur-dulur Yusuf rawŏ (ke Mesir). Sampun niku wong-wong niku maso’ ke (enggon)nyo. dades dio (Yusuf) wikan sami wong-wong niku, sedengke wong-wong niku nano wikan (lagi) kepadonyo. [^608]
 
-[^608]: Nurut sejara tejadi musim paceklik di Mesir serto sekiternyo, dades ates anjuran Nabi Ya’qub a.s. dulur-dulur Yusuf rawŏ dari Kan’an ke Mesir ngadep pembesa’-pembesa’ Mesir peranti minta’ bahan makanan.
-
 ## 12:59
 
 Serto sewaktu dio (Yusuf) nyiapke bahan makanan peranti wong-wong niku, dio bekelap, “Baktola kepado kulo dulur niko yên seaba dengen niko (Bunyamin), napi nano niko ningal bahwa kulo nyempurnoke itungan, serto kulo nikula penerimo tamu yên tesae?
@@ -7865,10 +6637,6 @@ Wong-wong niku bekelap, “Kame’ ayun mujuk abanyo (peranti  ngebaktonyo). Ser
 ## 12:62
 
 Serto dio (Yusuf) bekelap kepado pelayan-pelayannyo, “Lenggekela barang-barang (penuker) wong-wong niku  ke jerû karung-karungnyo, supayo wong-wong niku [^609] wikani sampun mantu’ kepado kepado sana’nyo, mugo-mugo wong-wong niku mantu’ lagi  ke ngriki. [^610]
-
-[^609]: Nurut kata mufassir barang-barang dari dulur Nabi Yusuf a.s. yên digunoke sebage alat penukar bahan makanan niku nikulah kulit serto terompa.
-
-[^610]: Damelan niki diembil sebagei siasat dengen caro meran budi kepado wong-wong niku, supayo wong-wong niku mengkinnyo ayun rawŏ lagi ke Mesir dengen bakto Bunyamin.
 
 ## 12:63
 
@@ -7902,8 +6670,6 @@ Serto sewaktu wong-wong niku ngelebet ke (enggon) Yusuf, dio naru’ke dulurnyo 
 
 Dades sewaktu sampun disajike bahan tedoan peranti wong-wong niku, dio (Yusuf) ngelebetke piala [^611] ke jerû karung dulurnyo. Sampun niku beteriakla sios wong yên nyeruke, “Wahai kafilah! selesernyo niko cengki semawo.”
 
-[^611]: Sios wada yên tebuat dari emas yên digunoke peranti minum serto angsal jugo digunoke peranti nukar.
-
 ## 12:71
 
 Wong-wong niku betaken, sambil ngadep kepado wong-wong niku (yên nudu), “Kame’ keilangan napi?”
@@ -7923,8 +6689,6 @@ Wong-wong niku bekelap, “Tapi napi ukumannyo kalu niko mudike?
 ## 12:75
 
 Wong-wong niku nyawab, “ukumannyo nikula pado sinten ditemuke jerû karungnyo (barang yên ilang  niku), dades dio dewe’la nerimo ukumannyo. [^612]  Maknikula Kame’ ngesung ukuman kepado wong-wong zholim.”
-
-[^612]: Nurut syare’at Nabi Ya’qub, sinten saos semawo dades ukumannyo dades buda’ setaun.
 
 ## 12:76
 
@@ -8154,8 +6918,6 @@ Dades napi  wong yên wikan bahwo napi yên ditûrûnke Tuhan kepado niko nikula
 
 Serto wong-wong yên ngubungke napi yên dikengken Allah supayo dihubungke, [^613] serto wong-wong niku takut kepado Tuhannyo serto takut kepado hisab yên bûrû’’
 
-[^613]: Wênten hubungan silaturrohim serto tali dulur
-
 ## 13:22
 
 Serto wong yên sobar kerno ngarep keridoan Tuhannyo, namelke solat, serto nginfakke sebagean rezeki yên Kame’ sungke kepado wong-wong niku, secoro singitan atawa nyato serto nola’ kebûrû’an dengen kesaean; wong nikula yên angsal enggon mantu' (yên sae).
@@ -8179,8 +6941,6 @@ Allah ngelapangke rezeki peranti sinten yên Dio ayuni serto matesi (peranti sin
 ## 13:27
 
 Serto wong-wong kafir bekelap, “Napi nano ditûrûnke kepadonyo (Muhammad) tando (mu’jizat) dari Tuhannyo?” Kelapkela (Muhammad), “Selesernyo Allah nyesetke [^614] sinten yên Dio ayuni serto ngesung petunju’ wong yên betobat kepado-Nyo,”
-
-[^614]: Allah nyesetke retinyo bahwo wong niku seset kerno keingkarannyo serto nano ayun terti petunju’-petunju’.
 
 ## 13:28
 
@@ -8218,8 +6978,6 @@ Perumpamoan suargo yên disemayoanke kepado wong yên betakwa (nikula ma’ kayo
 
 Serto wong yên sampun Kame’ sungke kitab kepado wong-wong niku  [^615] beladas dengen napi (kitab) yên ditûrûnke kepado niko (Muhammad), serto wênten di antaro golongan (Yahudi serto Nasroni), yên ngingkari sebagîannyo. Kelapkela, “Kulo cuman dikengken peranti nyemba Allah serto nano nyekutuke-Nyo. Cuman kepado-Nyo kulo kengken (wong) serto cuman kepado-Nyo kulo mantu’.”
 
-[^615]: Wong Yahudi serto Nasroni yên sampun maso’ Islam.
-
 ## 13:37
 
 Serto ma’ nikula Kame’ sampun nûrûnnkenyo (Al-Qur’an) sebagê aturan (yên leser) jerû baso Arab. Sekironyo niko numuti kepengenan wong-wong niku sampun rawû pengetahuan kepado niko, dades nano wênten yên ngelindungi serto yên nolong niko dari (siksoan) Allah.
@@ -8227,8 +6985,6 @@ Serto ma’ nikula Kame’ sampun nûrûnnkenyo (Al-Qur’an) sebagê aturan (y�
 ## 13:38
 
 Serto leser, Kame’ sampun ngûtûs bepinten rosul sedereng niko (Muhammad) serto Kame’ sungke kepado wong-wong niku sema-sema serto zuriyat. Nano wênten hak peranti sios rosul ngerawûke sios bukti (mukjizat) melianke dengen izin Allah. Peranti tiap maso wênten Kitab (tetentu). [^616]
-
-[^616]: Pado saben maso wênten hukum yên diberlakuke ole Allah ates hambo-hambo-Nyo sesuai dengen garis kebijakan-Nyo.
 
 ## 13:39
 
@@ -8250,8 +7006,6 @@ Serto leser, wong sedereng wong-wong niku (kafir Mekah) sampun ngewêntenke tipu
 
 Serto wong-wong kafir bekelap, “Niko (Muhammad) dîdînyo sios Rosul.” Kelapkela, “Cungkupla Allah serto wong yên nguasoi ilmu Al-Kitab [^617] dades saksi antaro kulo serto niko.”
 
-[^617]: Ulama’-ulama’ Ahli Kitab yên melu’ Islam
-
 ## 14:1
 
 Alif Lām Rō (niki nikula) Kitab yên kame’ tûrûnke kepado niko (Muhammad) supayo niko metuke wong dari kegelepan kepado cahayo terang benderang  dengen izin Tuhan, (yaitu) nuju jalan Tuhan yên Maha Pekaso, Maha Tepuji.
@@ -8268,13 +7022,9 @@ Allah yên punyo napi yên wênten di langit serto napi yên wênten di bumi. Ce
 
 Serto Kame’ nano ngûtûs sios rasul pun melianke dengen baso kaumnyo, [^618]  supayo dio angsal ngesung penjelasan kepado wong-wong niku. dades Allah nyesetke sinten yên Dio ayuni, serto ngesung petunju’ kepado sinten yên Dio ayuni. Dio Yên Maha Pekaso, Maha Bijaksano.
 
-[^618]: Al-Qur’an ditûrûnke jerû baso Arab, dîdînyo reti bahwo Al-Qur’an peranti bangso Arab saos, tapi peranti sedanten wong.
-
 ## 14:5
 
 Serto leser, Kame’ sampun ngûtûs Musa dengen bakto tando-tando (kekuasoan) Kame’, (serto Kame’ kengken kepadonyo), “Metukela kaum niko dari kegelepan kepado cahayo terang bende¬rang serto imutkela wong-wong niku kepado dinten-dinten Allah. [^619] Leser, pado yên ma’ niku wênten tando-tando (kekuasoan Allah) peranti saben wong penyabar serto kata besyukur.
-
-[^619]: Peristiwo yên sampun dades pado kaum-kaum kerîhîn serto ni’mat serto siksoan yên dialami wong-wong niku.
 
 ## 14:6
 
@@ -8348,13 +7098,9 @@ Serto setan bekelap sewaktu pekaro (hisab) sampun diselesaike, “Selesernyo All
 
 Serto wong yên beiman serto namelke keleseran dingelangkungtke ke jerû suargo-suargo yên ngalir di bawanyo sungi-sungi. Wong-wong niku kekel di jerûnyo dengen izin Tuhan wong-wong niku. Kelapan penghoramatan wong-wong niku (jerû) suargo niku nikula salām. [^620]
 
-[^620]: Retinyo selamat dari sedanten bencano
-
 ## 14:24
 
 Nanoke niko ningali ma’ pundi Allah sampun muat perumpamoan kalimat yên sae, [^621] peca’ pohon yên sae, akarnyo kuat serto cabangnyo (nyulang) ke langit.
-
-[^621]: Temaso’ kalimah yên sae nikula kalimah tauhid ya'ni sedanten kelapan yên ngengken kepado keleseran serto nyegah kemungkaran serto damelan sae. Kalimah tauhid, peca’ kalimah Lā ilāha illallāh.
 
 ## 14:25
 
@@ -8364,13 +7110,9 @@ Nanoke niko ningali ma’ pundi Allah sampun muat perumpamoan kalimat yên sae, 
 
 Serto perumpamoan kalimah yên bûrû’’  peca’ pohon yên bûrû’’, [^622]  yên sampun dicabut oyot-oyotnyo dari pemukaan bumi; nano angsal tetep (tega’) setiti’ saos.
 
-[^622]: Temaso’ jerû kalimah yên bûrû’’ nikula kufur, syiri’, sedanten kelapan yên nano sae serto damelan yên nano sae.
-
 ## 14:27
 
 Allah negûke (iman) wong-wong yên beiman dengen kelapan yên tegû [^623] (jerû keuripan) di dunio serto di akhe¬rat, serto Allah nyesetke wong-wong yên zolim serto Allah bedamel napi yên Dio ayuni.
-
-[^623]: Yên dima’sud kelapan-kelapan yên tegû di ngeriki nikulah kalimah ṭoyyibah yên dikelap jerû ayat 24 di pucu’
 
 ## 14:28
 
@@ -8448,8 +7190,6 @@ Serto niko sampun netep di enggon wong-wong yên zolim sami awa’ dewe’, sert
 
 Serto leser, wong-wong niku sampun namelke tipu dayo padohal Allah (wikan serto ayun males) tipu dayo wong-wong niku. Serto selesernyo tipu dayo wong-wong niku nano wikan ngilangke gunung-gunung.  [^624]
 
-[^624]: Ayat-ayat (syare’at) Allah yên tegû peca’ gunung.
-
 ## 14:47
 
 Dades kerno niku nano angsal sekali-kali niko ngiro kalu Allah ngingkeri semayoan-Nyo kepado rosul-rosul-Nyo. Leser, Allah Maha Pekaso serto punyo pembalesan
@@ -8498,8 +7238,6 @@ Nano wênten sios umat saos yên wikan nuluke ajalnyo, serto nano (pulo') wikan 
 
 Serto Wong-wong niku bekelap: "Hei wong yên ditûrûnke Al Quran kepadonyo, selesernyo niko leser-leser wong yên gilo. [^625]
 
-[^625]: kelap-kelap niki dikelapke olê wong-wong kafir Mekah kepado Nabi s.a.w. sebagî ejekan.
-
 ## 15:7
 
 Napi niko nano merawûhke malaikat pado kame', kalu niko temasû' wong-wong yên leser?"
@@ -8511,8 +7249,6 @@ Kame' nano nûrûnke malaikat melianke ngen leser (peranti membakto azab) serto 
 ## 15:9
 
 Selesernyo kame'-lah yên nûrûnke Al Quran, serto selesernyo kame' leser-leser nyagonyo. [^626]
-
-[^626]: Ayat niki ngesungke jaminan tentang kesucian serto kemurnian Al Quran selami-laminyo.
 
 ## 15:10
 
@@ -8529,8 +7265,6 @@ Sampun niku, kame' ngelebetkenyo (raso ingkar serto nguyo'-nguyo'kenyo niku) ke 
 ## 15:13
 
 Wong-wong niku nano beiman kepadonyo (Al Quran) serto selesernyo sampun besampu niku sunnatullah tehadep wong-wong kerîhîn. [^627]
-
-[^627]: Maksud sunnatullah di ngeriki ya'ni minasoke wong-wong yên nustoke rasul.
 
 ## 15:14
 
@@ -8564,8 +7298,6 @@ Serto kame' sampun dadeske bagi niko di bumi sumber-sumber kehuripan peranti kep
 
 Serto nano wênten sesios jugo melianke pado sisi kame' khazanahnya; [^628] serto kame' nano nûrûnkenyo melianke dengen ukuran yên tetentu.
 
-[^628]: Ma’sudnyo sedanten sesios niku sumbernyo dari Allah s.w\.t.
-
 ## 15:22
 
 Serto kame' sampun niupke angin peranti mengawinkan (tumbuh-tumbuhan) serto kame' tûrûnkan ujan dari langit, sampu niku kame' sung ngumbî niko dengen banyu niku, serto nano niko yên menyimpannyo
@@ -8598,8 +7330,6 @@ Serto (imutla), pas Tuhan niko bekelap pado paro malaikat: "Selesernyo Kulo ayun
 
 Dades napibilo Kulo sampun nyempurnoke kedadesannyo, serto kulo sampun niupke ruh (ciptaan)-Kulo kejerûnyo, dades tundu’la niko kepadonyo dengen besujud. [^629]
 
-[^629]: Dimaksud dengen sujud di ngeriki dêdê nyemba, tapi sebagî penghormatan.
-
 ## 15:30
 
 Dades besujudla sedanten malaikat niku sedantennyo sami-sami,
@@ -8628,8 +7358,6 @@ Serto selesernyo kutukan niku tetep nimpo niko sampe dinten kiamat".
 
 Bekelap iblis: "Ya Tuhan kulo, (kalu ma' niku) dades sung tangguhla kepado kulo sampe dinten (wong) dibangkitke, [^630]
 
-[^630]: Maksudnyo iblis mohon supayo Dio nano diazab dari sekarang melianke di sungke kebebasan urip nggût dinten bebangkît.
-
 ## 15:37
 
 Allah bekelap: "(Kalu ma' niku) dades selesernyo niko temasû' wong-wong yên disung penangguhan,
@@ -8637,8 +7365,6 @@ Allah bekelap: "(Kalu ma' niku) dades selesernyo niko temasû' wong-wong yên di
 ## 15:38
 
 Sampi dinten (suatu) waktu yên sampun ditentuke, [^631]
-
-[^631]: ya'ni waktu tiupan petamo tando pemulaan dinten kiamat
 
 ## 15:39
 
@@ -8648,13 +7374,9 @@ Iblis bekelap: "Ya Tuhan kulo, oleh sebab Niko sampun memûtûske bahwo kulo ses
 
 Selian hamba-hamba Niko yên mukhlis [^632] di antaro wong-wong niku".
 
-[^632]: Yên dimaksud dengen mukhlis ya'ni wong-wong yên sampun di sung taufiq peranti naati sedanten petûnjû’ serto perînta Allah s.w\.t.
-
 ## 15:41
 
 Allah bekelap: "Niki wêntenla jalan yên lurus, kewajiban Kulo-lah (menjaganyo). [^633]
-
-[^633]: Maksudnyo sungan taufiq dari Allah s.w\.t. peranti naati-Nyo, nggût sios wong telepas dari tipu daya syaitan numuti jalan yên lempeng yên dijago Allah s.w\.t. dades seset atawa dêdênyo sios wong wêntenla Allah yên nentuke.
 
 ## 15:42
 
@@ -8676,8 +7398,6 @@ Selesernyo wong-wong yên betaqwo niku berado dalam suargo (taman-taman) serto (
 
 Allah bekelap: "Masoklah ke jerûnyo ngen sejahtera male aman" [^634]
 
-[^634]: Sejahtera dari bencano serto aman dari malapetako
-
 ## 15:47
 
 Serto kame' ilangke sedanten raso dendam yên wênten jerû ati wong-wong niku, wong-wong niku meraso bedulur linggih behadep-hadepan di pucu' amben-amben
@@ -8698,8 +7418,6 @@ Serto bahwo selesernyo azab-Kulo wêntenla azab yên sangat pedih
 
 Serto sung wikanlah (Muhammad) pado wong-wong niku tentang tamu-tamu Ibrahim. [^635]
 
-[^635]: Tamu Nabi Ibrahim a.s. di ngeriki ya'ni malaêkat.
-
 ## 15:52
 
 Pas wong-wong niku masok ke tempatnyo, sampun niku wong-wong niku bekelap: "Salaam". Bekelap Ibrahim: "Selesernyo kame' meraso takut pado niko".
@@ -8707,8 +7425,6 @@ Pas wong-wong niku masok ke tempatnyo, sampun niku wong-wong niku bekelap: "Sala
 ## 15:53
 
 Wong-wong niku bekelap: "Nanolah niko meraso takut, selesernyo kame' ngesung ngesung wikan gembira pado niko ngen (kelahiran sios wong) anak lanang (yên ayun mendades) wong yên pinter".  [^636]
-
-[^636]: yên dimaksud dengen sios wong ana’ lanang yên alim ya'ni Ishak a.s.
 
 ## 15:54
 
@@ -8758,8 +7474,6 @@ Serto kame' rawûh pado niko membakto keleseran serto selesernyo kame' wong-wong
 
 Dades kesahlah niko di akhir malem beserto membakto keluarga niko, serto tumutlah wong-wong niku dari buri serto nano wênten di antaro niko yên ningali keburi [^637] serto teruskelah perjalanan ke tempat yên di perintahke pado niko".
 
-[^637]: Pasatila lagi surat Hud ayat 81.
-
 ## 15:66
 
 Serto sampun kame' wahyuke kepadonyo (Luth) perkaro niku, yoniku bahwo ujungnyo wong-wong niku ayun ditumpas telas di waktu subuh.
@@ -8767,8 +7481,6 @@ Serto sampun kame' wahyuke kepadonyo (Luth) perkaro niku, yoniku bahwo ujungnyo 
 ## 15:67
 
 Serto rawûhlah penduduk kota niku (ke rompo Luth) ngen gembiro (sebab) kerawûhan tamu-tamu niku. [^638]
-
-[^638]: Riwayat Luth jerû surat Hijr niki, nano diceritoke nûrût urutan kedadesan peca' sami surat Hud.
 
 ## 15:68
 
@@ -8782,8 +7494,6 @@ Serto betaqwolah pado Allah serto nanolah niko mendamel kulo tehino".
 
 Wong-wong niku bekelap: "Serto nanokah kame' sampun melarang niko dari (melindungi) wong?" [^639]
 
-[^639]: Wong-wong niku pengen bedamel homosexual dengen tamu-tamu niku serto wong-wong niku memang sampun perna ngancam Luth, supayo nano ngalangi wong-wong niku dari sami bedamel ma'niku.
-
 ## 15:71
 
 Luth bekelap: "Wong-wong niku betino-betino negri kulo (kawinlah ngen wong-wong niku), kalu niko ayun bedamel ".
@@ -8791,8 +7501,6 @@ Luth bekelap: "Wong-wong niku betino-betino negri kulo (kawinlah ngen wong-wong 
 ## 15:72
 
 (Allah bekelap): "Demi umur niko (Muhammad), [^640] selesernyo wong-wong niku terombang-ambing di jerû kemabukan (kesesatan)".
-
-[^640]: Wong Arab biaso besumpa dengen umur sios wong. dingeriki Allah besumpa dengen umur atawa urîp Nabi Muhammad s.a.w. peranti mulioke beliau.
 
 ## 15:73
 
@@ -8810,8 +7518,6 @@ Selesernyo pado yên demikian niku leser-leser wênten tando-tando (kekuasaan Al
 
 Serto selesernyo kota [^641] niku leser-leser terletak di jalan yên maler tetep (dilewati wong).
 
-[^641]: Yên dimaksud kota di ngeriki ya'ni kota Sadom yên teleta’ para' pantai laut Tengah.
-
 ## 15:77
 
 Selesernyo pado ma’niku leser-leser wênten tando-tando (kekuasaan Allah) bagi wong-wong yên beiman.
@@ -8820,21 +7526,13 @@ Selesernyo pado ma’niku leser-leser wênten tando-tando (kekuasaan Allah) bagi
 
 Serto selesernyo wêntenla penduduk Aikah [^642] niku leser-leser kaum yên zalim,
 
-[^642]: Pendudu’ Aikah niki ya'ni kaum Syu'aib. Aikah ya'ni enggon yên behutan di daerah Madyan.
-
 ## 15:79
 
 Dades kame' membinasoke wong-wong niku. Serto selesernyo keduo iko' kota [^643] niku leser-leser terletak di sios jalur jalan raya.
 
-[^643]: Ya'ni kota kaum Luth (Sadom) serto Aikah
-
 ## 15:80
 
 Serto selesernyo penduduk negri Hijr [^644]  leser-leser sampun mendustake sedanten rasul (wong-wong niku), [^645]
-
-[^644]: Penduduk kota Al-Hijr niki ya'ni kaum Tsamud. Al-Hijr enggon yên terletak di Wadi Qura antaro Madinah serto Syria.
-
-[^645]: Yên dimaksud Rasul-rasul di ngeriki ya'ni shaleh. Mestinyo di ngeriki disebut rasul, tapi disebut Rasul-rasul (Jama') kerno nustoke wong Rasul sami dengen rasul-rasul.
 
 ## 15:81
 
@@ -8847,8 +7545,6 @@ Serto wong-wong niku memahat rompo-rompo dari gunung-gunung batu (yên didiami) 
 ## 15:83
 
 Sampun niko wong-wong niku dibinasoke oleh suaro keras yên mengguntur pado dinten pagi, [^646]
-
-[^646]: Peristiwa niku tedades sami dinten yên kesekawan, sesampun rawûnyo peringetan kepado wong-wong niku.
 
 ## 15:84
 
@@ -8866,8 +7562,6 @@ Selesernyo Tuhanmu, Diolah yên Maha Pencipta male Maha Wikan.
 
 Serto selesernyo kame' sampun sungke padomu tujuh ayat yên dibaco berulang-ulang [^647] serto Al Quran yên ageng.
 
-[^647]: Yên dimaksud pitu ayat yên dibaco benemen-nemen ya'ni surat Al-Faatihah yên tediri dari pitu ayat. sebagêan ahli tafsir ngelapke pitu surat-surat yên panjang ya'ni Al-Baqarah, Ali Imran, Al-Maaidah, An-Nissa', Al 'Araaf, Al An'aam serto Al-Anfaal atawa At-Taubah.
-
 ## 15:88
 
 Nanolah sekali-kali niko menunjukke pandangan niko pado keikmatan hurip yên sampun kame' sungke pado pinten-pinten golongan di antaro wong-wong niku (wong-wong kafir niku), serto nanolah niko bersedih ati tehadep wong-wong niku serto berendah awa'lah niko tehadep wong-wong yên beiman.
@@ -8880,15 +7574,9 @@ Serto kelapkelah: "Selesernyo kulo wêntenla pengesung peringatan yên terang".
 
 Semakpundinyo (kame' sampun ngesung peringatan), kame' sampun nûrûnke (azab) pado wong-wong yên membagi-bagi (Kitab Allah), [^648]
 
-[^648]: Yên dimaksud dengen wong-wong yên magê-magê kitab Allah ya'ni wong-wong yên nerimo sebagêan isi kitab serto nola’ sebagêan yên lian.
-
 ## 15:91
 
 (Yoniku) wong-wong [^649] yêng sampun dadeske Al Quran niku tebelah-belah.  [^650]
-
-[^649]: Ya'ni wong-wong Yahudi serto Nasrani yên magê-magê Al Quran, wênten bagêan yên wong-wong niku pecayai serto wênten pulo' bagêan yên wong-wong niku ingkeri.
-
-[^650]: Maksud ayat 89, 90, 91, ya'ni Allah s.w\.t. ngengken Nabi Muhammad s.a.w. ngingetke kepado wong Yahudi serto Nasrani bahwo Allah ayun nurunke azab kepado wong-wong niku peca' Allah sampun minasoke kaum Tsamud.
 
 ## 15:92
 
@@ -9094,13 +7782,9 @@ Serto wong-wong yên berhijrah sebab Allah sesampun wong-wong niku dianiayo, cen
 
 Serto Kame’ nano ngûtûs sedėrėng niko, kacowali  wong-wong lanang yên Kame’ sung wahyu kapado wong-wong niku; dades betakėnla kepado wong yên wikan ilmu  [^651] kalu niko nano wikan.
 
-[^651]: ya’niki wong-wong yên ngewênteni ilmu tentang nabi serto kitab-kitab.
-
 ## 16:44
 
 Wong-wong niku (Kame’ ûtûs) dengen makto keterangan-keterangan (mu’jizat) serto kitab-kitab. Serto  Kame’ tûrûnke kepado niko Al-Qur’an, supayo niko jelaske kepado umat wong napi yên sampun ditûrûnke kepado wong-wong niku [^652] serto supayo wong-wong niku mîkîrke.
-
-[^652]: ya’niki wong-wong yên ngewênteni pengetahuan tentang nabi lan kitab-kitab
 
 ## 16:45
 
@@ -9113,8 +7797,6 @@ atawa Allah ngazab wong-wong niku ketiko wong-wong niku jerû pekesahan, dades s
 ## 16:47
 
 atawa Allah ngazab wong-wong niku dengen setîtîk-setîtîk (sampê binaso)  [^653] . dades selesernyo Tuhan niko wêntenla Maha Pengasî, Maha Penyayang.
-
-[^653]: Menurut sebagian ahli tafsir, “takhawwuf” berarti jerû kewêntenan wedhi
 
 ## 16:48
 
@@ -9155,8 +7837,6 @@ Serto wong-wong niku nyaweske peranti behalo-behalo yên wong-wong niku nano nge
 ## 16:57
 
 Serto wong-wong niku netepke peranti Allah buda'-buda' betino [^654] . Maha Suci Allah, sedeng peranti wong-wong niku dewe' (wong-wong niku tetepke) napi yên wong-wong niku demeni (ya’niku buda'-buda' lanang).
-
-[^654]: wong-wong niku ngelapke bahwo Allah ngewênteni buda' betino ya’niku malaêkat-malaêkat kereno wong-wong niku benci nian kepado buda'-buda' betino sema’mano pado ayat-ayat selanjutnyo.
 
 ## 16:58
 
@@ -9214,8 +7894,6 @@ Allah nyiptoke niko, sampun niku mademke niko; serto di antaro niko wênten yên
 
 Serto Allah ngelangkungke sebagêan niko dari sebagêan yên lian perihal rezeki, tapi wong-wong yên dilangkungke (rezekinyo niku) nano angsal ngesung rezeki wong-wong niku kepado pacal-pacal yên wong-wong niku haki, supayo wong-wong niku samo (ngerasoke) rezeki niku. dades napi wong-wong niku ngingkari nikmat Allah [^655] .
 
-[^655]: Ayat niki sala sios dasar ukhuwah serto pesamoan jerû Islam.
-
 ## 16:72
 
 Allah nadeske peranti niko bini-bini dari jenis niko dewe' serto nadeske peranti niko dari bini-bini niko niku anak-anak serto cûcûng-cûcûng, serto ngesung niko rezeki dari yên saê-saê. dades napi wong-wong niku beriman kepado yên batil serto ngingkari nikmat Allah.
@@ -9231,8 +7909,6 @@ Dades nano angsal niko ngewêntenke rencang-rencang peranti Allah. Selesernyo Al
 ## 16:75
 
 Allah wêntenke perumpamoan sios pacal dibawa kuaso wong lian,  yên nano angsal damelke sesios hal serto sesios wong yên Kame’ sung rezeki yên saê dari Kame’ sampun niku dio nafkahke sebagêan dari rezeki niku secaro singitan serto secaro katon, sami dak wong-wong niku?  sedanten aleman peranti Allah saos, tapi kata dari wong-wong niku nano wikan [^656] .
-
-[^656]: maksud dari perumpamoan niki iola peranti manta wong-wong musyrikun yên nyomoke Tuhan yên magî rezeki dengen berhalo-berhalo yên nano bedayo.
 
 ## 16:76
 
@@ -9278,19 +7954,13 @@ Serto napibilo wong-wong zolim sampun ningalke azab, dades nanola dientengke aza
 
 Serto napibilo wong-wong yên nyekutuke (Allah) ningal rencang-rencang wong-wong niku [^657] wong-wong niku bekelap : “Ya Tuhan kame’ wong-wong nikila rencang-rencang kame’ yên kerîhîn kame’ samba selian dari Niko”. Laju rencang-rencang wong-wong niku bekelap kepado wong-wong niku: “selesernyo kame’ nian-nian wong yên dusto”.
 
-[^657]: yên dimaksud dengen “rencang” dingeriki iola napi-napi yên wong-wong niku samba selian Allah atawa setan-setan yên ngolo’i wong-wong niku  nyemba berhalo
-
 ## 16:87
 
 Serto wong-wong niku nyatoke ketundukannyo kepada Allah pado dinten niku serto ilangla dari wong-wong niku napi yên selalu wong-wong niku wênten-wêntenke [^658] .
 
-[^658]: yên dimaksud dengen “rencang” dingeriki iola napi-napi yên wong-wong niku samba selian Allah atawa setan-setan yên ngolo’i wong-wong niku  nyemba berhalo
-
 ## 16:88
 
 Wong-wong yên kafir serto ngalangi (wong) dari jalan Allah, Kame’ tambahke kepado wong-wong niku siksoan dibagian siksoan [^659] disebabke wong-wong niku selalu bedamel kerusakan.
-
-[^659]: Maksudnyo: siksoan yên belipet gando
 
 ## 16:89
 
@@ -9307,8 +7977,6 @@ Serto tepatila semayoan dengen Allah napibilo niko besemayoan serto nano angsal 
 ## 16:92
 
 Serto nano angsal niko ma’kayo sesios wong betino yên nguraike talinyo yên sampun dipintel dengen kuat, dades cerî-berî male, niko dadeske sumpa (semayoan) niko sebagî alat penipu di antaro niko, disebabke wêntennyo sesios golongan yên langkung kata rikinannyo dari golongan yên lian [^660] . Selesernyo Allah nguji niko saos dengen hal niku. Serto selesernyo di dinten kiamat ayun dijelaske-Nyo kepado niko napi yên kerîhîn niko bantake niku.
-
-[^660]: Kaum Muslimin yên rikinannyo maler setitik niku sampun ngadoke persemayoan yên kuat dengen Nabi di waktu wong-wong niku nyingo’ wong Quraisy berikinan kata serto bepangalaman cekap, dades wong-wong niku ayun matalke persemayoan dengen Nabi Muhammad SAW niku. dades damelan yên ma’niku niku dilarang ole Allah SWT.
 
 ## 16:93
 
@@ -9329,8 +7997,6 @@ Napi yên di sisi niko ayun telas, serto napi yên wênten di sisi Allah wênten
 ## 16:97
 
 Sinten saos yên damelke amal sole, saê lanang atawa betino setto dio beriman, dades selesernyo ayun Kame’ sungke kepadonyo keuripan yên saê  [^661] serto selesernyo ayun Kame’ sung balesan kepado wong-wong niku dengen pahalo yên langkûng saê dari napi yên wong-wong niku damelke.
-
-[^661]: Ditekenke jerû ayat niki bahwo lanang serto betino jerû Islam napet pahalo yên sami serto bahwo amal solė mesti disertoi iman.
 
 ## 16:98
 
@@ -9355,8 +8021,6 @@ Kelapkela: “Ruhul Qudus (Jibril) nûrûnke Al-Qur’an niku dari Tuhan niko de
 ## 16:103
 
 Serto selesenyo Kame’ wikan bahwo wong-wong niku bekelap: ”Selesernyo Al-Qur’an niku diajarke olė sesios wong kepadonyo (Muhammad)”. Padohal baso wong yên wong-wong niku tuduke (bahwo) Muhammad belajar kepadonyo baso ‘Ajam [^662] , sedengke Al-Qur’an wêntenla jerû baso Arab yên nyato.
-
-[^662]: Baso Ajam wêntenla baso selian baso Arab serto angsal jugo berarti baso Arab yên nano saê kereno wong yên ditûdû ngajar Muhammad niku dîdînyo wong Arab serto wikan setitik-setitik baso Arab saos.
 
 ## 16:104
 
@@ -9394,8 +8058,6 @@ Serto selesernyo Tuhan niko (pelîndûng) peranti wong-wong yên behijrah sesamp
 
 Serto Allah sampun ngedamel sesios perupamoan (dengen) sesios negeri yên kerîhînnyo aman jugo tenterem, rezekinyo rawû kepadonyo belimpa-rua dari segenep tenggon, tapi wong-wongyo ngingkari nikmat-nikmat Allah; kerno niku Allah ngerasoke kepado wong-wong niku kelambi  [^663] kebûlûran serto ketakutan, disebabke napi yên sering wong-wong niku damelke.
 
-[^663]: Maksudnyo kebuluran serto ketakutan niku ngeliputi wong-wong niku ma’kayo kelambi ngeliputi awa’ wong-wong niku.
-
 ## 16:113
 
 Serto selesernyo sampun rawû kepado wong-wong niku sesios rosul dari wong-wong niku dewe' , tapi wong-wong niku nustokenyo; kerno niku wong-wong niku dipunoke azab serto wong-wong niku wêntenla wong-wong yên zolim.
@@ -9420,8 +8082,6 @@ niku wêntenla) keladasan yên setîtî’; serto peranti wong-wong niku azab y�
 
 Serto tehadep wong-wong Yahudi, Kame’ ha¬ramke napi yên sampun kame’ cerioske kerî¬hîn kepado niko [^664] serto Kame’ nano ngeniayo wong-wong niku, tapi wong-wong niku yên ngeniayo awa'-awa'nyo dêwê'.
 
-[^664]: Tingali surat Al-An’am ayat 146
-
 ## 16:119
 
 Sampun niku, selesernyo tuhan niko (ngampuni) peranti wong-wong yên damelke kesalahan kerno kebodohannyo, sampun niku wong-wong niku betobat sesampun niku serto nandani (awa’nyo); selesernyo Tuhan niko sesampun niku Maha Pengampun jugo Maha Penyayang.
@@ -9429,8 +8089,6 @@ Sampun niku, selesernyo tuhan niko (ngampuni) peranti wong-wong yên damelke kes
 ## 16:120
 
 Selesernyo Ibrahim wêntenla sesios imam yên angsal didadeske teladan jugo patû kepa¬do Allah serto hanif [^665]. serto sekali-kali dîdîla dio temasû’ wong-wong yên nyekutuke (Tuhan),
-
-[^665]: Hanif maksudnyo sesios wong yên serîng becekel pado keleseran serto nano perna ninggalkeyo.
 
 ## 16:121
 
@@ -9448,8 +8106,6 @@ Sampun niku Kame’ wahyuke kepado niko (Muhammad): “Tumutila agamo Ibrohim se
 
 Selesernyo diwajibke (ngehormati [^666] ) dinten Sabtu peranti wong-wong (Yahudi) yên beban¬tahan padonyo. Serto selesernyo Tuhan niko ayun ngesung putusan di antaro wong-wong niku di dinten kiamat tehadep napi yên sampun wong-wong niku perbantake.
 
-[^666]: Dengen jalan ngatake ibadat serto amalan-amalan sole serto ninggalke damelan sehari-hari
-
 ## 16:125
 
 Kelapkela (wong) kepado jalan Tuhan niko dengen hikmah serto pelajaran yên saê serto bantala wong-wong niku dengen caro yên saê. Selesernyo Tuhan niko Diola yên langkung wikan tentang sinten yên teseset dari jalan-Nyo serto Diola yên langkung wikan wong-wong yên angsal petunju'.
@@ -9457,8 +8113,6 @@ Kelapkela (wong) kepado jalan Tuhan niko dengen hikmah serto pelajaran yên saê
 ## 16:126
 
 Serto kalu niko ngesungke balesan, dades balesla dengen balesan yên sami dengen siksoan yên ditimpoke kepado niko [^667] . tapi kalu niko besabar, selesernyo niku yên langkung saê peranti wong-wong yên sobar.
-
-[^667]: Maksudnyo pembalesan  yên dinyampa’ke peranti wong-wong niku nano angsal ngelebihi dari siksoan yên ditimpoke peranti kito.
 
 ## 16:127
 
@@ -9471,8 +8125,6 @@ Selesernyo Allah beserto wong-wong yên betakwa serto wong-wong yên bedamel kes
 ## 17:1
 
 Mahasuci (Allah), yên sampûn memperjalanke hamba-Nyo (Muhammad) pado malem ari dari Mesjidil haram ke Mesjidil Aqsa [^668] )yên sampûn Kamê’ berkahi segelembengannyo supayo Kamê’ tingalke kepadonyo sebagêan tando-tando (keagengan) Kamê’. Selesernyo Dio Maha Nenger, Maha Ningal.
-
-[^668]: Mesjidil Aqso serto daera sekiternyo angsal berkah dari Allah dengen diturunke nabi-nabi di negeri niku berikut kesuburan lemanyo.
 
 ## 17:2
 
@@ -9562,8 +8214,6 @@ Nano angsallah niko mewêntenke tuhan yên lian di sampîng Allah, mengkin niko 
 
 Serto Tuhan niko sampûn merintake supayo niko nano nyemba selian Dio serto mestila bedamel saê kepado me’, aba, Kalu sala sios wong di antaro keduonyo atawa keduo-duonya sampî beusio sepu jerû pemeliharoan niko, mangko sekali-kali nano angsal niko bekelap kepado keduonyo kelapan “ai da” serto nano angsal niko nyega’ keduonyo, serto kelapkela kepado keduonyo kelapan yên leser. [^669] )
 
-[^669]: Bekelap kato “ai da” kepado walid nano diangsalke oleh agami, napi male bekelap kelapan atawa ndamelke wong-wong niku dengen lebî kasar dari pado niku.
-
 ## 17:24
 
 Serto endêpkela awa’ niko tehadep keduonyo dengen penu kasî sayang serto kelapkela, “Wahai Tuhan kulo! Sayangila keduonyo, séma’ pundi wong-wong niku beduo sampûn mendîdîk kulo waktu alit.”
@@ -9583,8 +8233,6 @@ Selesernyo wong-wong yên pemboros niku iola dulur sétan serto sétan niku ingk
 ## 17:28
 
 Serto kalu niko bepalîng dari wong-wong niku peranti nerimo rahmat dari Tuhan niko yên niko ngarepke, mangko kelapkela kepado wong-wong niku kelapan yên lema lembut. [^670]
-
-[^670]: Retinyo napi bilo niko nano wikan damelke perinta Allah peca’ yên tecerios jerû ayat 26 mangko kelapkela kepado wong-wong niku kelapan yên leser, supayo wong-wong niku nano cuga’ kerno wong-wong niku déréng angsal bantuan dari niko. Jerû pado niku bedamel peranti angsal rezeki (rahmat) dari Tuhan niko, supayo niko angsal ngesung kepado wong-wong niku hak-hak wong-wong niku.
 
 ## 17:29
 
@@ -9606,10 +8254,6 @@ Serto nano angsal niko mara’i zina; (zina) niku leser sios damelan kejem, sert
 
 Serto nano angsal niko munu wong yên diharamke Allah (mununyo), kecuali dengen sesios (alesan) yên leser. [^671] Dan sinten saos dibunu secaro zolim, mangko leser, Kamê’sampûn ngesûng kekuasoan [^672] kepado walinyo, tapi nano angsal walinyo niku tepeliwat jerû pembunuhan. Selesernyo dio iola wong yên angsal petolongan.
 
-[^671]: Ningal catetan Al An’am (6) : 151.
-
-[^672]: Kekuasoan di ngeriki iola hal ahli waris yên tebunu atawa sirah peranti nuntut qisas atawa nerimo diat. Ningal Al-Baqoroh (2): 178, serto An-Nisā (4): 92.
-
 ## 17:34
 
 Serto nano angsal niko mara’i harto buda’ yatim, kecuali dengen caro yên lebî saê (bemanfaat) sampî dio dewasa, serto penuila semayoan, kerno semayoan niku cengki ditedo petanggungjawabannyo.
@@ -9629,8 +8273,6 @@ Serto nano angsal niko bejalan di bumi niki dengen sombong, kerno selesernyo nik
 ## 17:38
 
 Sedanten niku [^673] kejahatannyo sangat dibenci di sisi Tuhan niko.
-
-[^673]: Sedanten larangan yên dikelap pado ayat 22, 23, 26, 29, 31, 32, 33, 34, 46, serto 37 suroh niki.
 
 ## 17:39
 
@@ -9703,8 +8345,6 @@ Serto Tuhan niko lebî wikan sinten yên di langit serto di bumi. Serto leser, K
 ## 17:56
 
 Kelapkela (Muhammad), “Awela wong-wong niku yên niko anggep (tuhan) [^674] selian Allah, wong-wong niku nano kuaso peranti ngelengetke bahayo dari niko serto nano (pulo’) wikan ngubanyo.”
-
-[^674]: Mukjizat yên songo niku wêntenla: tongkat, tangan, belalang, tumo, kodok, dara, topan, laut, serto bukit Thur.
 
 ## 17:57
 
@@ -9930,8 +8570,6 @@ Serto kelapkela: "Sedanten puji peranti Allah yên nano ngewênteni anak serto n
 
 Sedanten puji peranti Allah yên sampun nûrûnke sami hambo-Nyo Al kitab (Al-Quran) serto Dio nano ngewêntenke kebengkokan [^675]di jeronyo;
 
-[^675]: Nano wênten makna yang belawanan serto nano wênten penyimpangan dari keleseran
-
 ## 18:2
 
 Sebagî bimbingan yên leser, peranti ngimutke siksoan yên pedî nian dari sisi Allah serto ngesung kabar gembiro sami wong-wong yên beriman, yên namelke amal soleh, bahwo wong-wong niku ayun ngewênteni balesan yên saê,
@@ -9964,8 +8602,6 @@ Kame’ selesenyo ayun dadeske (pulo’) napi yên di pucu’nyo dades lema rato
 
 Napika niko nyangko bahwo wong-wong yên niemi guo serto (yên ngewênteni) raqim [^676] niku, wong-wong niku temasuk tando-tando kekuasoan Kame’ yên nakjubke?
 
-[^676]: Sebagîan mufasir ngertike nami anjing serto sebagîan liannyo ngertike batu besirat
-
 ## 18:10
 
 (Imutla) sewaktu sedanten pemudo niku nyari panggonan belîndûng ke jero guo, sampun niku wong-wong niku bedoa: "Hai Tuhan kame’, sungla rahmat sami kame’ dari sisi-Niko serto sempurnokela peranti kame’ hidayah yên leser jero urusan kame’ (niki)."
@@ -9974,13 +8610,9 @@ Napika niko nyangko bahwo wong-wong yên niemi guo serto (yên ngewênteni) raqi
 
 Dades Kame’ tûtûp kûpîng wong-wong niku pinten-pinten taûn di jero guo niku [^677]
 
-[^677]: Allah nilemke wong-wong niku 309 taun qomaria di jero guo niku (tingal ayat 25 dari surat niku) sehinggo wong-wong niku nano angsal dibangunke sami suaro napi saos.
-
 ## 18:12
 
 Sesampun niku Kame’ tangike wong-wong niku, supayo Kame’ wikan pundila di antaro keduo golongan niku [^678] yên langkung tepat jero ngitung pinten lami wong-wong niku nêtêp (jero guo niku).
-
-[^678]: Keduo golongan niku wêntenla bujang-bujang niku dêwê’ yên beselisi tentang pinten lambatnyo wong-wong niku nêtêp di jero guo niku.
 
 ## 18:13
 
@@ -9990,8 +8622,6 @@ Kame’ kisoke sami niko (Muhammad) kiso niki dengen leser. Selesernyo wong-wong
 
 Serto Kame’ negûke ati wong-wong niku sewaktu wong-wong niku tega’ [^679], sampun niku wong-wong niku bekelap, "Tuhan kame’ wêntenla Tuhan sedanten langit serto bumi; kame’ sesios kali nano nyeru Tuhan selian Dio, selesernyo kame’ kalu ma’ niku sampun ngelapke kelapan yên tebî nian dari keleseran".
 
-[^679]: Maksudnyo: tegak di luan rajo Dikyanus (Decius) yên zalim serto nyombongke diri.
-
 ## 18:15
 
 Kaum kame’ niki sampun dadeske selian Dio sebagî tuhan-tuhan (peranti disemba). ngapi wong-wong niku nano ngemukoke alesan yên terang (tentang kepercayoan wong-wong niku)? sinten saos yên langkung zalim daripado wong-wong yên ngewêntenke kebohongan tehadep Allah?
@@ -9999,8 +8629,6 @@ Kaum kame’ niki sampun dadeske selian Dio sebagî tuhan-tuhan (peranti disemba
 ## 18:16
 
 Serto napibilo niko ninggalke wong-wong niku serto napi yên wong-wong niku semba selian Allah, mako limbangla panggonan belîndûng ke jero guo niku, niscayo Tuhan niko ayun ngelimpake sebagîan rahmat-Nyo sami niko serto ngewêntenke sesios yên beguno peranti niko jero urusan niko [^680].
-
-[^680]: Kelapan niki tedades antaro wong-wong niku dêwê’ yên nongolnyo kereno ilham dari Allah.
 
 ## 18:17
 
@@ -10022,13 +8650,9 @@ Selesernyo kalu wong-wong niku angsal wikan panggonan niko, niscayo wong-wong ni
 
 Serto ma’ niku (pulok) Kame’ ningalke (wong) dengen wong-wong niku, supayo wong niku wikan, bahwo semayoan Allah niku leser, serto bahwo kerawuan dinten kiamat nano wênten keraguan padanyo. sewaktu wong-wong niku beselîsî tentang urusan wong-wong niku [^681], wong-wong niku bekelap: "Tega’ke sios rompok di pûcûk (guo) wong-wong niku, Tuhan wong-wong niku langkung wikan tentang wong-wong niku". wong-wong yên bekuaso peranti ûrûsan wong-wong niku bekelap: "Selesernyo kame’ ayun nega’ke sios rompok ibadat di pûcûknyo".
 
-[^681]: Yên wong-wong niku peselîsîke niku tentang dinten kiamat: napila ayun tedades atawa nano serto napibilo dibangkîtke pado dinten kiamat dengen jasad atawa roh atawa dengen roh saos. Dadesnyo Allah manggîke wong-wong niku dengen pemuda-pemuda jero kiso niki peranti nyelaske bahwo dinten kiamat niku cengki rawu serto bebangkît niku wêntenla dengen tûbû serto jiwo.
-
 ## 18:22
 
 Mengkîn (wênten wong yên ayun) ngelap [^682] (jumla wong-wong niku) wêntenla tigo wong yên kesekawan wêntenla anjîngnyo, serto (yên lian) ngelapke: "(jumla wong-wong niku) wêntenla limo wong yên keenam wêntenla anjîng nyo", sebagî sangkoan tehadep barang yên ghaîb; serto (yên lian lagi) ngelapke: "(jumla wong-wong niku) pitu wong, yên ke wolu wêntenla anjîngnyo". Kelapkela: "Tuhan kulo wikan nian jumla wong-wong niku; nano wênten wong yên wikan (itungan) wong-wong niku kacowali setîtî’". kereno niku nano angsal niko (Muhammad) bebala tentang hal wong-wong niku, kacowali bebala lahir saos serto nano angsal niko nakenke tentang wong-wong niku (pemudo-pemudo niku) sami sios wong saos di antaro wong-wong niku.
-
-[^682]: Yên dimaksud dengen wong yên ayun ngelapke niki diola wong-wong ahli kitab serto lian-liannyo pada zaman Nabi Muhammad s.a.w.
 
 ## 18:23
 
@@ -10037,8 +8661,6 @@ Serto nano angsal sesios kali niko ngelapke tentang sesios: "Selesernyo kulo ayu
 ## 18:24
 
 Kacowali (dengen mengelap): "Insya Allah" [^683]. serto imutla sami Tuhan niko kalu niko lali dan Kelapkela: "Mugi-mugi Tuhan kulo ayun ngesung kulo hidayah sami yên langkung para’ keleserannya dari pado niki".
-
-[^683]: Nûrût riwayat, wênten pinten-pinten wong Quraisy betaken sami Nabi Muhammad s.a.w. tentang roh, kisa ashhabul kahfi (penunggu guo) serto kisa Dzulqarnain sampun niku beliau nyawab, rawula benjîng pagi sami kulo supayo kulo kisoke. serto beliau nano ngelapke Insya Allah (retinyo kalu Allah ngayun). tapi kironyo sampî benjeng dintennyo wahyu telat rawu peranti nyerioske hal-hal tesebut serto Nabi nano angsal nyawabnyo. Dadesnyo turunla ayat 23-24 di pûcûk, sebagî pelajaran sami Nabi; Allah ngimutke pulo napibilo Nabi lali ngelap Insya Allah mesti begancang ngelapkennyo Mengkîn.
 
 ## 18:25
 
@@ -10072,10 +8694,6 @@ Wong-wong niku, nikula (wong-wong yên) peranti wong-wong niku surgo 'Adn, ngal�
 
 Serto sungla sami wong-wong niku [^684] sios perumpamoan kale wong lanang [^685] , Kame’ dadeske peranti sios wong di antaro keduonyo (yên kafir) kale kebûn anggûr serto Kame’ kelilingi keduo kebûn niku dengen pohon-pohon kurmo serto di antaro kale kebun niku Kame’ dadeske ladang.
 
-[^684]: Sami wong-wong mukmin serto wong-wong kafir.
-
-[^685]: Kale wong Yahudi yên sios wong mukmin serto yên lian kafir.
-
 ## 18:33
 
 Kale kebûn niku ngasilke buanyo, serto kebun niku nano wênten kirang buanyo setîtî’ jugo, serto Kame’ alîrke sungi di bucu-bucu keduo kebun niku,
@@ -10087,8 +8705,6 @@ Serto dio ngewênteni kekayoan ageng, dadesnyo io bekelap sami rencangnyo (yên 
 ## 18:35
 
 Serto dio melebet ke kebûnnyo sedeng dio zalim tehadep dirinyo dêwê’ [^686] ; io bekelap: "kulo sangko kebûn niki nano ayun tumpes selami-laminyo,
-
-[^686]: Dengen keangkuan serto kekafirannya.
 
 ## 18:36
 
@@ -10142,8 +8758,6 @@ Serto (imutla) ayun dinten (yên sewaktu niku) Kame’ pejalanke gunung-gunung s
 
 Serto wong-wong niku ayun dibakto ke luan Tuhan niko dengen bebarîs. Selesernyo niko rawû sami Kame’, pecak Kame’ dadeske niko pado kali yên bungaran; bahkan niko ngelapke bahwo Kame’ sesios kali nano ayun netepke peranti niko waktu [^687] (menuhi) semayoan.
 
-[^687]: Yên dimaksud dengen waktu di ngeriki wêntenla dinten bebangkît yên sampun disemayoanke Allah peranti nerimo balesan.
-
 ## 18:49
 
 Serto dilepê’kenyo Kitab, sampun niku niko ayun ningal wong-wong besala ketakutan tehadep napi yên (tetûlîs) di jeronyo, serto wong-wong niku bekelap: "yakwa celako kame’, kitab napidio niki yên nano tetinggal yên alit serto nano (pulo) yên ageng, melianke io nyatet sedantennyo; serto wong-wong niku angsal napi yên sampûn wong-wong niku damelke wênten (tetûlîs). serto Tuhan niko nano nganiayo sios wong saos".
@@ -10151,8 +8765,6 @@ Serto dilepê’kenyo Kitab, sampun niku niko ayun ningal wong-wong besala ketak
 ## 18:50
 
 Serto (imutla) sewaktu Kame’ befirman sami sedanten Malaikat: "Sujudla niko sami Adam [^688] , dadesnyo sujudla sedantennyo niku kacowali iblis. Dio wênten dari golongan jin, dadesnyo io durhako tehadep perinta Tuhannyo. Pantes nano niko ngembil dio serto turunan-turunannyo sebagî sirah selian daripado-Kulo, sedeng wong-wong niku wêntenla musuh niko? Buruk nian iblîs niku sebagi pengganti (dari Allah) peranti wong-wong yên zalim.
-
-[^688]: Sujud di ngeriki retinyo ngormati serto mulioke Adam, nanola retinyo sujud ngambake diri, kereno sujud ngambake diri niku cuma semato-mato sami Allah.
 
 ## 18:51
 
@@ -10194,8 +8806,6 @@ Serto (penduduk) negeri sampun Kame’ binasoke sewaktu wong-wong niku damelke z
 
 Serto (imutla) sewaktu Musa bekelap sami muridnyo [^689] : "Kulo nano ayun berenti (melaku) sedereng sampî ke penyiosan kale lautan; atawa kulo ayun melaku sampî betaûn-taûn".
 
-[^689]: Kelap ahli tafsir, murid Nabi Musa a.s. niku wêntenlaYusya’ bin Nun.
-
 ## 18:61
 
 Dadesnyo tatkalo wong-wong niku sampî ke penyiosan kale laut niku, wong-wong niku lali sami iwaknyo, lalu iwak niku mencolot ngembil jalannyo ke laut niku.
@@ -10215,8 +8825,6 @@ Musa bekelap: "nikula (panggonan) yên kita runut". Sampun niku wong-wong niku m
 ## 18:65
 
 Sampun niku wong-wong niku panggî dengen sios hambo di antaro hambo-hambo Kame’, yên sampun Kame’ sungke saminya rahmat dari bucu Kame’, serto yên sampun Kame’ ajarke saminyo ilmu dari bucu Kame’ [^690] .
-
-[^690]: Kelap ahli tafsir hamba di ngeriki wêntenla Khidhr, serto yên dimaksud dengen rahmat dingeriki wêntenla wahyu serto kenabian. sedeng yên dimaksud dengen ilmu wêntenla ilmu tentang yên ghaib ma’ kayo yên ayun diterangke dengen ayat-ayat niki.
 
 ## 18:66
 
@@ -10302,8 +8910,6 @@ Mangko dio nempû sios jalan saos.
 
 Hinggo sewaktu dio sampun sampe di panggonan matoari tegelînsîr, [^691] dio ningalnyo (matoari) tegelînsîr di jerŏ laut yên belumpur item, serto di ngeriku ditemukenyo sios kaum (nano beagami). Kame’ bekelap, “Wahai Zulkarnain! Niko angsal ngukum atawa bedamel keleseran (ngajak beiman) kepado wong-wong niku.”
 
-[^691]: Sampe di pantai sebela barat, panggonan Zulkarnain ningal matoari sedeng tegelînsîr’.
-
 ## 18:87
 
 Dio (Zulkarnain) bekelap, “Sinten saos bedamel zolim, kame’ ayun ngukumnyo, sampun niku dio ayun dibale’ke kepado Tuhannyo, sampun niku Tuhan ngazabnyo dengen azab yên keras nian.
@@ -10320,8 +8926,6 @@ Sampun niku dio nempû sios jalan (yên lian).
 
 Hinggo sewaktu dio sampe di panggonan terbit matoari (sebela timur) ditingalinyo (matoari) besinar di pucu’ sios kaum yên nano Kame’ dadeske sios pelîndûng peranti wong-wong niku dari (cahayo matoari) [^692] niku,
 
-[^692]: Nurut sebagîan mufasir, golongan yên dipanggi Zulkarnain niku umat yên mîskîn.
-
 ## 18:91
 
 Ma’nikula, serto selesernyo Kame’ wikan sedanten sesiosnyo yên wênten perantinyo (Zulkarnain).
@@ -10334,13 +8938,9 @@ Sampun niku dio nempu sios jalan (yên lian male).
 
 Hinggo sewaktu dio sampî di antaro duo gunung, didapetinyo di wêngkêng (keduo gunung niku) sios kaum yên ampîr nano wikan kelapan. [^693]
 
-[^693]: Wong-wong niku nano wikan ngêrtike bahaso wong lian, kerno wong-wong niku sangat tebî bezonyo dari bahaso yên lian, serto wong-wong niku saos nano wikan nerangke maksud wong-wong niku dengen leser kerno kekirang cerdasan wong-wong niku.
-
 ## 18:94
 
 Wong-wong niku bekelap, “Wahai Zulkarnain! Leser, Ya’jūj serto Ma’jūj [^694] niku (makhluk yên) damelke kerusa’an di bumi, mangko angsalke kame’ mayar niko imbalan peranti niko dadeske gedêg’ penghalang antaro kame’ serto wong-wong niku?”
-
-[^694]: Ya’jūj serto Ma’jūj iolah duo bangso  yên daemelk kerusa’an di bumi.
 
 ## 18:95
 
@@ -10385,8 +8985,6 @@ Kelakela (Muhammad), “Napi perlu Kame’ kisoke kepado niko tentang wong yên 
 ## 18:105
 
 Wong-wong niku wêntenla wong yên ngingkari ayat-ayat Tuhan wong-wong niku serto (nano pecayo) tehadep haderengan dengen-Nyo. [^695] Mangko sio-sio damelan wong-wong niku, serto Kame’ nano ngesungke penimbangan tehadep (damel) wong-wong niku pado dinten Kiamat.
-
-[^695]: Nano beiman kepado dinten Kiamat
 
 ## 18:106
 
@@ -10455,10 +9053,6 @@ Mangko dio metu dari mihrob nuju kaumnyo, sampun niku dio ngesung isyarat kepado
 ## 19:12
 
 “Wahai Yahya! Embilla (pelajarila) [^696] ) Kitab (Taurat) niku dengen leser-leser.” Serto  Kame’ sungke hikma kepadonyo (Yahya) [^697] ) semale dio maler buda’,
-
-[^696]: Pelajarila Taurat niku, damelke isinyo, dan kisokela kepado umat niko.
-
-[^697]: Pemahaman Taurat serto pendaleman agami
 
 ## 19:13
 
@@ -10572,13 +9166,9 @@ Serto sungkela wong-wong niku peringetan tentang dinten penyeselan, (ya’ni) se
 
 Selesernyo Kame’la yên ngewarisi bumi [^698] serto sedanten yên wênten di pûcû’nyo, serto cuma kepado Kame’ wong-wong niku mantû’.
 
-[^698]: Sampun sedanten alam niki ancur, mangko Allah saos yên kekel.
-
 ## 19:41
 
 Serto kisokela (Muhammad) kiso Ibrahim di jerû Kitab (Al-Qur’an), selesernyo dio sios wong yên nian nyintoi keleseran, [^699] serto sios nabi.
-
-[^699]: Nabi Ibrahim a.s. wêntenla sios nabi yên gancang nian ngeleserke sedanten hal yên ghoib yên rawunyo dari Allah
 
 ## 19:42
 
@@ -10635,8 +9225,6 @@ Serto kisokela (Muhammad), kiso Ismail di jerû Kitab (Al Qur’an). Dio seleser
 ## 19:55
 
 Serto dio kengken sana’nyo [^700] peranti (damelke) sholat serto (ngesung) zakat, serto dio sios wong yên diridhoi di bucu Tuhannyo.
-
-[^700]: Sebagîan mufassir bekelap bahwa yên dima’sud ahlahu ya’ni sana’nyo, serto sebagîan bekelap umatnyo.
 
 ## 19:56
 
@@ -10718,8 +9306,6 @@ Serto piten kata umat (yên ingkar) yên sampun Kamê’ binasoke sedereng wong-
 
 Kelapkela (Muhammad), “Sinten saos wênten jerû kesesetan, mangko lanta’la Tuhan Yên Maha Pengasî manjangke (waktu) perantinyo; [^701] sehinggo napibilo wong-wong niku sampun ningal napi yên diancamke kepado wong-wong niku napi azab atawa Kiamat, mangko wong-wong niku ayun wikan sinten yên langkung buru’ kedudukannyo serto langkung lema bala tentaranyo.”
 
-[^701]: Mangjangke umur serto miarke wong-wong niku idup jerû keladasan.
-
 ## 19:76
 
 Serto Allah ayun namba petûnjû’ kepado wong-wong niku yên sampun wênten petûnjû’. Serto amal keleseran yên kekel niku langkung sae pahalonyo di sisi Tuhan niko serto langkung sae sampun niku.
@@ -10739,8 +9325,6 @@ Saben-saben nano! Kamê’ ayun nulîs napi yên dio kelapke, serto kamê’ ayu
 ## 19:80
 
 Serto Kamê’ ayun ngewarisi napi yên dio kelapke niku, [^702] serto dio ayun rawu kepado Kamê’ dewe’an saos.
-
-[^702]: Allah ayun mantu’ ngembil harto serto buda’-buda’nyo, sehinggo dio nemui Allah sesios dewe’.
 
 ## 19:81
 
@@ -10769,8 +9353,6 @@ Serto Kamê’ ayun giring wong yên durhako ke nerako Jahannam jerû kehausan.
 ## 19:87
 
 Wong-wong niku nano berhak wênten syafaat (petolongan) kecuali wong yên sampun ngewêntenke semayoan di sisi (Allah) Yên Maha Pengasî. [^703]
-
-[^703]: “Ngewêntenke semayoan dengen Allah” ya’ni nyalanke sedanten perinta Allah dengen beiman serto betaqwa kepado-Nyo.
 
 ## 19:88
 
@@ -10836,8 +9418,6 @@ Ditûrûnke dari (Allah) yên dadeske bumi serto langit yên tinggi,
 
 (ya’ni) Yên Maha Pengasî, yên besemayam di pucu’ ‘Arsy. [^704]
 
-[^704]: Sifat Allah yên wajib kito imani, sesuai dengen keagengan Allah serto kesucian-Nyo.
-
 ## 20:6
 
 Peranti Dio napi yên wênten di langit, napi yên wênten di bumi, napi yên wênten di antaro kalenyo, serto napi yên wênten di bawa tana
@@ -10845,8 +9425,6 @@ Peranti Dio napi yên wênten di langit, napi yên wênten di bumi, napi yên w�
 ## 20:7
 
 Serto kalu niko ngeraske kelapan niko, leser, Dio wikan rahasio serto yên langkung tesingit. [^705]
-
-[^705]: Maksud ayat niki wêntenla nano perlu ngagengke suaro jerû bedo’a kerno Allah ngerungu do’a meski dikelapke dengen suaro alit
 
 ## 20:8
 
@@ -10920,8 +9498,6 @@ Kesala kepado Fir’aun; dio selesernyo sampun tepeliwat.”
 
 Dio (Musa) bekelap, “Ya Tuhan kulo, lapangkela dado kulo, [^706]
 
-[^706]: Nabi Musa a.s. nedo kepado Allah agar dadonyo dilapangke peranti ngadepi Fir’aun yên tekelahar sebagî sesios wong rajo yên bengis
-
 ## 20:26
 
 serto mudakela peranti kulo urusan kulo,
@@ -10978,15 +9554,9 @@ Serto leser, Kamê’ sampun ngesung ni’mat kepado niko pado kesempatan yên l
 
 (wêntenla), tarû’kela dio (Musa) di jerû peti, sampun niku kanyutkela dio ke sungi (Nil), Dadesnyo lanta’kela (arus) sungi niku baktonyo ke tepi, dio ayun diembil ole (Fir’aun) musu Kulo serto musunyo. Kulo sampun ngesung kepado niko kasî sayang yên rawû dari Kulo [^707] serto supayo niko diasû di bawa pengawasan Kulo.
 
-[^707]: Sedanten wong yên ningal Nabi Musa a.s. ayun ngeraso kasî sayang kepadonyo.
-
 ## 20:40
 
 (wêntenla) sewaktu dûlûr wadon niko bejalan, sampun niku dio bekelap (kepado sana’ Fir’aun), “Angsal nano kulo nûnjû’ke kepado niko wong yên ayun ngingonnyo?” Dadesnyo Kamê’ mantu’ke  niko kepado me’ niko, supayo ladas atinyo serto nano besedî ati. Serto niko perna munu sesios wong, [^708] sampun niku Kamê’ selametke niko dari kesaroan (yên ageng) serto Kamê’ sampun nyubo niko dengen pinten-pinten cuboan (yên berat); sampun niku niko mendep pinten-pinten tahun di antaro pendûdûk Madyan, [^709] sampun niku niko, Hei Musa, rawû nûrût waktu yên ditetepke,
-
-[^708]: Yên tebunu wêntenla sesios wong bangso Qibṭi yên sedeng bebala dengen sesios wong Bani Isroil sema’pundi yên dicerioske jerû Al-Qaṣaṣ (28) :15.
-
-[^709]: Nabi Musa a.s. rawu ke negeri Madyan peranti ngelarike awa’nyo dewe’, di ngeriko dio dikawenke ole Nabi Syu’eb a.s. dengen sala sesios putrinyo serto netep pinten-pinten tahun laminyo.
 
 ## 20:41
 
@@ -11016,8 +9586,6 @@ Dio (Allah) bekelap, “Nano angsal niko beduo bingsal, selesernyo Kulo besami n
 
 Dadesnyo kesala niko beduo kepadonyo (Fir’aun) serto kelapkela, “Leser, kamê’ beduo wêntenla kengkenan Tuhan niko, Dadesnyo lepaskela Bani Isroil besami kamê’ serto nano angsal niko nyikso wong-wong niku. [^710]  Leser, kamê’ sampun rawu kepado niko dengen bakto bukti (peranti kerosulan kamê’) dari Tuhan niko. Serto keselametan niku disungke kepado wong wong yên melo’i hidaya.
 
-[^710]: Bani Isroil sewaktu wong-wong niku wênten di Mesir wêntenla di bawa pebuda’an Fir’aun. Wong-wong niku dikengken bedamel peranti nega’ke bangunan-bangunan yên ageng serto kota-kota dengen damelan pakso. Dadesnyo Nabi Musa a.s. nedo kepado Fir’aun agar wong-wong niku dibebaske.
-
 ## 20:48
 
 Leser, sampun diwahyuke kepado kamê’ bahwa sikso niku (ditimpoke) pado sinten saos yên mudike (ajaran agamo yên kamê’ bakto) serto beMaha (nano ngagû’inyo).”
@@ -11029,8 +9597,6 @@ Dio (Fir’aun) bekelap, “Sinten nian Tuhan niko beduo, Hei Musa?”
 ## 20:50
 
 Dio (Musa) nyawab, “Tuhan kamê’ wêntenla (Tuhan) yên sampun ngesung bentuk kedadesan kepado sedantennyo, sampun niku ngesungnyo petûnjû’.” [^711]
-
-[^711]: Ngesung akal, insting (naluri) serto kodrat alamia peranti kelanjutan idupnyo dewe’-dewe’.
 
 ## 20:51
 
@@ -11055,8 +9621,6 @@ Darinyo (tana) nikula Kamê’ nyiptoke niko serto kepadonyo Kamê’ ayun mantu
 ## 20:56
 
 Serto leser, Kamê’ sampun ningalke kepadonyo (Fir’aun) tando-tando (keagengan) Kamê’ sedanten, [^712]  tenyato dio mudike serto nano agsal (nerimo keleseran).
-
-[^712]: Yên dimaksud dengen tando-tando di ngeriki wêntenla tando-tando kenabian Musa a.s. Pado haderengan Nabi Musa a.s. dengen Fir’aun niki, yên ditingalke anyar duo mu’jizat, wêntenla tongkat Nabi Musa a.s. dades ulo serto tangannyo dades pûtî becahayo.
 
 ## 20:57
 
@@ -11142,8 +9706,6 @@ Tapi sinten saos rawu kepado-Nyo jerû kewêntenan beiman, serto sampun damelke 
 
 Serto leser, sampun Kamê’ wahyuke kepado Musa, “Kesala besami hambo-hambo Kulo (Bani Isroil) pado malem dinten, serto gebukla (damelkela) peranti wong-wong niku jalan yên kerîng di laut niku, [^713] (niko) nano perlu takut ayun tesûsûl serto nano perlu bingsal (ayun tebenyu’).”
 
-[^713]: Ngebuk laut niku dengen tongkat. Ningal Asy-Syu’arā’ (26) : 63
-
 ## 20:78
 
 Sampun niku Fir’aun dengen bala tentaronyo ngejer wong-wong niku, tapi wong-wong niku digulung ombak laut yên nengelemke wong-wong niku.
@@ -11184,13 +9746,9 @@ Sampun niku Musa rawu kepado kaumnyo dengen mara serto besedî ati. Dio (Musa) b
 
 Wong-wong niku niku bekelap, “Kamê’ nano ngelanggar semayoan niko dengen kenda’ kamê’ dewe’, tapi kamê’ cengki bakto beban berat dari aesan kaum (Fir’aun) niku, sampun niku kamê’ mabitkenyo (ke jerû api), serto ma’pundi pulo’ Samiri mabitkenyo, [^714]
 
-[^714]: Wong-wong niku dikengken bakto pehiasan dari emas punyo wong-wong Mesir, sampun niku ole Samiri disaranke supayo pehiasan niku dibabetke ke jerû api yên sampun dimurupkenyo jerû sios lobang peranti didadeske patung bebentuk sapi alit. Sampun niku wong-wong niku mabîtkenyo serto ditumuti oleh Samiri.
-
 ## 20:88
 
 Sampun niku (dari lobang api niku) dio (Samiri) metuke (patung) sapi alit yên bebadan serto besuaro [^715] peranti wong-wong niku, Dadesnyo wong-wong niku bekelap, “Nikila Tuhan niko serto tuhannyo Musa, tapi dio (Musa) sampun lali.”
-
-[^715]: Ningal catetan al-A’rof (7) : 148
 
 ## 20:89
 
@@ -11224,13 +9782,9 @@ Dio (Musa) bekelap, “Napi yên nyurung niko (bedamel ma’niku) Hei Samiri?”
 
 Dio (Samiri) nyawab, “Kulo wikan sesios yên nano wong-wong niku wikan, dades kulo embil segenggem (tana dari) jejak rosul” [^716] sampun niku kulo mabîtkenyo (ke jeru api niku), ma’nikula nafsu kulo bûjû’i kulo.”
 
-[^716]: Yên dimaksud “jejak rosul” di ngeriki wêntenla ajaran-ajarannyo. Nurut faham niki Samiri ngembil sebagîan ajaran Musa sampun niku dibabîtkenyo ajaran-ajaran niku sehinggo dio dades seset. Nurut sebagîan mufassir, yên dimaksud “jejak rosul” wêntenla jejak telapak kudo Jibril a.s., retinyo Samiri ngembil segumpal tana dari jejak telapak kudo niku sampun niku mabîtkenyo ke jerû logam yên sedeng diancurke sehinggo logam niku bebentû’ sapi alit yên metuke suaro.
-
 ## 20:97
 
 Dio (Musa) bekelap, “Kesala niko! Dadesnyo selesernyo di jerû keidupan (di dunio) niko (cuma wikan) ngelapke, “Nanola nyenggol (kulo)”. [^717]  Serto niko cengki angsal (hukuman) yên sampun disemayoanke (di akhirat) yên nano ayun wikan niko ela’i, serto ningalla tuhan niko niku yên niko tetep nyembanyo. Kamê’ pasti ayun nununyo, sampun niku leser kamê’ ayun ngamburke (abunyo) ke jerû laut (beserakan).
-
-[^717]: Supayo Samiri idup tepencîl, sebagî hukuman di dunio. Serto sebagî hukuman di akhirat, dio ayun di panggonanke di nerako.
 
 ## 20:98
 
@@ -11252,8 +9806,6 @@ wong-wong niku kekel di jerû ma’ niku. Serto leser bûrû’ beban doso niku 
 
 pado dinten (Kiamat) sangkakala ditiup (yên keduo kali) [^718] serto pado dinten niku Kamê’ kumpulke  wong-wong yên bedoso dengen (rai) biru muram,
 
-[^718]: Tiupan sangkakala yên keduo, ya’ni tiupan peranti bangkîtke wong dari kuburnyo atawa mantu’ ngidupkennyo.
-
 ## 20:103
 
 wong-wong niku saling bebîsî’sios sami lian, “Kamê’ tinggal (di dunio) nano langkung dari sedoso (dinten).”
@@ -11261,8 +9813,6 @@ wong-wong niku saling bebîsî’sios sami lian, “Kamê’ tinggal (di dunio) 
 ## 20:104
 
 Kamê’ langkung wikan napi yên ayun wong-wong niku kelapke, sewaktu wong yên langkung lurus jalannyo [^719] bekelap, “Niko tinggal (di dunio), nano langkung dari sios dinten saos.”
-
-[^719]: Wong yên lurus fikirannyo peranti amalnyo di antaro wong yên bedoso.
 
 ## 20:105
 
@@ -11304,13 +9854,9 @@ Serto ma’ nikila Kamê’ nûrûnke Al Qur’an jerû bahaso Arab, serto Kamê
 
 Dadesnyo Maha Tinggi Allah, Rajo yên seleser-lesernyo. Serto nano angsal niko (Muhammad) begancang (maco) Al Qur’an sedereng sampun diwahyuke kepado niko, [^720] serto kelapkela, “hei Tuhan kulo, tambahkela ilmu kepado kulo.”
 
-[^720]: Nabi Muhammad saw. dilarang oleh Allah niruke bacoan Jibril a.s. kalima demi kalima sedereng Jibril a.s. sampun macokenyo, supayo Nabi Muhammad saw. mengafal serto terti leser-leser ayat yên diturunke.
-
 ## 20:115
 
 Serto leser sampun Kamê’ pesenke [^721] kepado Adam kerihin, tapi dio lali, serto Kamê’ nano wikani kegala’an yên kuat padonyo.
-
-[^721]: Pesen Allah niki tekelap jerû Al Baqoroh (2) : 35.
 
 ## 20:116
 
@@ -11336,13 +9882,9 @@ Sampun niku setan mîsî’ke (fikiran jahat) kepadonyo, dengen bekelap, “Hei 
 
 Sampun niku keduonyo nedonyo, sampun niku tetingal oleh keduonyo aurat wong-wong niku serto mula’ila keduonyo nutupinyo dengen godong-godong (yên wênten di) suargo, serto sampun durhakola Adam kepado Tuhannyo, serto sesetla dio. [^722]
 
-[^722]: Yen dimaksud “durhako” di ngeriki wêntenla ngelanggar larangan Allah kerno lali, nano sengajo, sema’pundi dikelapke jerû ayat 115 suroh ngeriki. Serto yên dimaksud “seset” wêntenla numuti napi yên dibisi’ke setan. Kesalahan Adam a.s. meski nano ageng nian nurut ukuran wong awam sampun dinamike durhako serto seset kerno tingginyo martabat Adam a.s. serto peranti dades teladan peranti wong ageng serto sira-sira supayo jauhi damelan-damelan yên telarang, sema’ pundi alitnyo.
-
 ## 20:122
 
 Sampun niku Tuhannyo mili dio, [^723] Dadesnyo Dio nerimo tobatnyo serto ngesungnyo petûnjû’.
-
-[^723]: Allah milih Nabi Adam a.s. peranti dades wong yên para’ kepado-Nyo.
 
 ## 20:123
 
@@ -11408,8 +9950,6 @@ Saben ditûrûnke kepado wong-wong niku ayat-ayat yên anyar dari Tuhan, wong-wo
 
 Ati wong-wong niku jerû kewêntenan lalai. Serto wong-wong yên zholim niku nyingitke kelapan wong-wong niku, “(Wong) niki (Muhammad) nano lian cuma sesios wong (jugo) peca’ niko. Napi nano niko nerimonyo (sihir niku), [^724] padohal niko ningalinyo?”
 
-[^724]: Terti sihir di ngeriki wêntenla ayat-ayat Al Qur’an.
-
 ## 21:4
 
 Dio (Muhammad) bekelap, “Tuhan kulo wikan (sedanten) kelapan di langit serto di bumi, serto Dio Maha Ngerungu, Maha Wikan!”
@@ -11466,13 +10006,9 @@ Serto Kamê’ nano nadeske langit serto bumi serto sedanten napi yên wênten d
 
 Seandainyo Kamê’ ayun muat sesios permainan (sema serto buda’), tentulah Kamê’ muatnyo dari sisi Kamê’ , [^725] kalu Kamê’ leser-leser ngenda’i bedamel ma’niku
 
-[^725]: “Dari bucu Kamê” wêntenla yên sesuai dengen sifat-sifat Allah.
-
 ## 21:18
 
 Selesernyo Kamê’ mabîtke yên haq (keleseran) kepado yên bathil (nano saî) sampun niku yên haq niku ngancurkenyo, mangko sewaktu niku (yên bathil) telas. Serto celako niko kerno niko nyifati (Allah dengen sifat-sifat yên nano pantes peranti-Nyo). [^726]
-
-[^726]: Sangkoan bahwo Allah wênten sema serto buda’.
 
 ## 21:19
 
@@ -11630,8 +10166,6 @@ Dio (Ibrohim) nyawab, “Selesernyo Tuhan niko niku Tuhan (wênten) langit serto
 
 Serto demi Allah, leser, kulo ayun damelke mudike tehadep patung-patung niko sesampun niko kesa ninggalkenyo. [^727]
 
-[^727]: Kelapan-kelapan niku dikelapke Nabi Ibrohim a.s. jerû ati saos. Maksudnyo. Nabi Ibrohim a.s. ayun nyalanke mudike peranti ngancurke patung-patung wong-wong niku, sampun wong-wong niku ninggalke tempat-tempat patung niku.
-
 ## 21:58
 
 Mangko dio (Ibrohim) ngancûrke (patung-patung niku) bekepîng-kepîng, kecuwali yên ageng (me’nyo); peranti wong-wong niku mantu’ (peranti betaken) kepadonyo
@@ -11688,8 +10222,6 @@ Serto wong-wong niku ayun bedamel jahat tehadep Ibrohim, mangko Kamê’ dadeske
 
 Serto Kamê’ selametke dio (Ibrohim) serto Luth ke sios negeri yên sampun Kamê’ berkahi peranti sedanten alam. [^728]
 
-[^728]: Negeri Syam, temasuk di jerûnyo Palestina. Allah merkahi negeri niku, retinyo kata nabi berasal dari negeri niku serto tananyo subur
-
 ## 21:72
 
 Serto Kamê’ ngesungke kepadonyo (Ibrohim) Ishaq serto Ya’qub sebagî sios anugera. Serto masîng-masîng Kamê’ dadeske wong yên shole.
@@ -11701,8 +10233,6 @@ Serto Kamê’ dadeske wong-wong niku sebagî pesira-pesira yên ngesûng petûn
 ## 21:74
 
 Serto kepado Luth, Kamê’ sungke hikma serto ilmu, serto Kamê’ selametke dio dari (azab yên sampun nimpo pendûdûk) kota yên namelke damelan keji. [^729] Leser, wong-wong niku wong-wong yên jahat serto fasiq
-
-[^729]: Homoseksual serto malîng, serto wong-wong niku damelke damelan niku dengen terang-terangan.
 
 ## 21:75
 
@@ -11723,8 +10253,6 @@ Serto (imutla kisa) Daud serto Sulaiman, sewaktu keduonyo ngesung keputusan tent
 ## 21:79
 
 Mangko Kamê’ ngesung pengertian kepado Sulaiman (tentang hukum yên langkung tepat), [^730] serto kepado dewek’-dewe’ Kamê’ sungke hikma serto ilmu, serto Kamê’ tundu’ke gunung-gunung serto burung-burung, sedanten betasbi besami Daud. Serto Kamêla yên damelkennyo.
-
-[^730]: Nûrût riwayat Ibnu Abbas, wênten sekelompok kambîng sampûn ngerusak taneman pado waktu malam. Pemili’ taneman ngaduke hal niki kepado Nabi Dawud a.s. Dio mutuske bahwa kambîng-kambîng niku mesti disungke kepado pemîlî’ taneman sebagî ganti taneman yên rusa’. Tapi Nabi Sulaiman a.s. mutuske supayo kambîng-kambîng niku disungke sementaro kepado pemili’ taneman peranti diembil manfaatnyo. Serto pemili’ kambîng diharuske ngenti taneman niku dengen taneman yên anyar. Napibilo taneman yên anyar sampun wikan diembil hasilnyo, pemili’ kambîng niku angsal ngembil kambîngnyo male. Keputusan Nabi Sulaiman a.s. langkung leser.
 
 ## 21:80
 
@@ -11758,8 +10286,6 @@ Serto Kamê’ lebetke wong-wong niku ke jerû rohmat Kamê’. Leser, wong-wong
 
 Serto (imutla kisa) Żun Nūn (Yūnus), sewaktu niko kesa jerû kewêntenan mara, sampun niku dio nyangko bahwa Kamê’ nano ayun nyarokenyo, mangko dio bedo’a jerû kewêntenan yên gelep nian. [^731] Nano wênten tuhan selian Niko, Maha suci Niko. Leser, kulo telebet wong-wong yên zholim.”
 
-[^731]: Di jerû perut iwa’, di jerû laut, serto pado malem ari.
-
 ## 21:88
 
 Mangko Kamê’ kabulke (do’a)nyo serto Kamê’ selamatke dio dari kesedîan. Serto ma’nikula Kamê’ nyelamatke wong-wong yên beiman.
@@ -11767,8 +10293,6 @@ Mangko Kamê’ kabulke (do’a)nyo serto Kamê’ selamatke dio dari kesedîan.
 ## 21:89
 
 Serto (imutla kisa) Zakaria, sewaktu dio bedo’a kepado Tuhannyo, “Ya Tuhan kulo, nano angsal Niko lanta’ke kulo îdûp sesios wong dewe’ (tanpo zuriyat) serto Nikola ahli waris yên  langkung leser. [^732]
-
-[^732]: Sekironyo Allah nano ngabulke do’anyo, wêntenla ngesung zuriyat. Zakaria nyerake awa’nyo dewe’ kepado Allah, kerno Allah wêntenla ahli waris yên teleser
 
 ## 21:90
 
@@ -11833,8 +10357,6 @@ Kejutan yên dahsyat nano muat wong-wong niku ngeraso sedî, serto sedanten mala
 ## 21:105
 
 Serto leser, sampun Kamê’ catet di jerû Zabur [^733] sampun (tetûlîs) di jerû Aż-Żikr (Lauḥ Maḥfūż), bahwa bumi niki ayun diwarisi ole hambo-hambo Kulo yên shole.
-
-[^733]: Sedanten kitab yên ditûrûnke kepado nabi-nabi-Nyo. Sebagîan mufassir nyatoke bahwa “Zabur” wêntenla kitab yên ditûrûnke kepado Nabi Dawud a.s. sedengeke “Aż-Żikr” wêntenla kitab Taurot.
 
 ## 21:106
 
@@ -11908,10 +10430,6 @@ Sambîl malîngke lambungnyo (dengen sombong) peranti nyesetke wong dari jalan A
 
 Serto di antaro wong wênten yên nyemba Allah di pînggîr [^734] saos, mangko kalu dio angsal keleseran, dio ngeraso puas, serto kalu dio ditimpo sesios cobaan, dio bebalik ke buri. [^735]  Dio rugi di dunio serto di akhirat. Nikula kerugian yên nyato.
 
-[^734]: Nano dengen kebeg keyakinan.
-
-[^735]: Mantu’ kafîr male.
-
 ## 22:12
 
 Dio nyeru kepado selian Allah sesios yên nano wikan rawuke bencano serto nano (pulo’) ngesung manfaat kepadonyo. Nikula kesesetan yên tebi.
@@ -11927,8 +10445,6 @@ Dio nyeru kepado sesios yên (selesernyo) bencanonyo langkung para’ daripado m
 ## 22:15
 
 Sinten saos nyangko bahwa Allah nano ayun nolongnyo (Muhammad) di dunio serto di akhirat, mangko hendaklah dio merentangke tali ke langit-langit, [^736] sampun niku ngantung (awa’), sampun niku fikirkela napi budiannyo niku wikan ngelenyepke napi yên nyakitke atinyo.
-
-[^736]: Kaat samā’ di ngeriki di retike dengen langit-langit (bûbûngan rompo’). Kalu samā’ diretike dengen langit (reti biaso), mangko tejemahannyo dades: kalu musu Muhammad saw mara kerno dio angsal petolongan dari langit, lanta’la wong-wong niku bentangke tali ke langit, serto ningalla, wikan nano wong-wong niku mûtûske pertolongan niku dengen caro ma’niku? Dengen bayak lian, benga’ nian wong-wong niku kalu ngiro wong-wong niku wikan mûtûske petolongan Allah dengen caro yên picik niku.
 
 ## 22:16
 
@@ -11982,19 +10498,13 @@ Serto kengkenla wong peranti damelke haji, nisayo wong-wong niku ayun rawu kepad
 
 Supayo wong-wong niku nyaksike macem-macem manfaat peranti wong-wong niku serto supayo wong-wong niku bekelap nami Allah pado pinten-pinten dinten yên sampun ditentuke [^737] pûcû’ rezeki yên Dio sungke kepado wong-wong niku berupo binatang ternak. Mangko nedola tedoan sebagîan darinyo serto (sebagîan male) sungkela peranti ditedo wong-wong yên saro serto fakir.
 
-[^737]: Dinten rayo aji serto dinten Tasyriq, wêntenla tanggal 10, 11, 12 serto 13 Zulhijjah.
-
 ## 22:29
 
 Sampun niku, cengkila wong-wong niku ngilangke kotoran [^738] (yên wênten di badan) wong-wong niku, nyempurnoke nazar-nazar wong-wong niku serto damelke thowaf sekeliling rompo’ tuo (Baitulloh).
 
-[^738]: Yên dima’sud dengen “ngilangke kotoran” di ngeriki wêntenla neta’ rambut, neta’ kuku serto sebagînyo.
-
 ## 22:30
 
 Ma’nikula (perintah Allah). Serto sinten saos ngagengke napi yên tehormat di sisi Allah (ḥurumāt) [^739] ,  mangko niku langkung saî  perantinyo di sisi Tuhannyo. Serto dihalalke peranti niko sedanten binatang ternak, kecuali yên diterangke kepado niko (keharomannyo), mangko tebîhîla (sembahan) patung-patung yên najis niku serto tebihila kelapan mudike.
-
-[^739]: Reti yên tehormat (ḥurumāt) pado ayat niki wêntenla bulan harom (Muharrom, Rojab, Zulqoidah, Zulhijjah), tanah harom, serto maqom Ibrohim.
 
 ## 22:31
 
@@ -12004,15 +10514,9 @@ Ma’nikula (perintah Allah). Serto sinten saos ngagengke napi yên tehormat di 
 
 Ma’nikula (perinta Allah). Serto sinten saos ngagengke syiar-syiar Allah, [^740]  mangko selesernyo hal niku metu dari ketaqwaan ati.
 
-[^740]: Syiar Allah wêntenla sedanten damelan yên didamelke pado ibadah haji serto panggonan-panggonan damelkennyo.
-
 ## 22:33
 
 Peranti niko padonyo (binatang hadyu) [^741] wênten pinten-pinten manfaat, [^742] sampe waktu yên ditentuke, sampun niku panggonan sembelîannyo wêntenla disekiter Baytul Atiq (Baitullah).
-
-[^741]: Ningal Al Baqoroh (2): 196.
-
-[^742]: Maksudnyo, binatang-binatang hadyu angsal niko embil manfaatnyo peca’ dikendaroi, diembil susunyo, serto sebagîannyo, sampe dinten nahar.
 
 ## 22:34
 
@@ -12025,8 +10529,6 @@ Serto peranti saben umat sampun Kamê’ syariatke nyembelê (korban), supayo wo
 ## 22:36
 
 Serto unto-unto niku Kamê’ dadeske peranti niko bagian dari syiar agami Allah, niko kata peroleh keleseran padonyo. Mangko kelapkela nami Allah (sewaktu niko ayun nyembelênyo) jerû kewêntenan tega’ [^743] (serto lanang sampun tekebet). Sampun niku napibilo sampun tegole’ (padem), mangko tedola sebagîannyo serto sungla nedo wong yên ngeraso cungkup dengen napi yên wênten padonyo (nano nyatu-nyatu) serto wong yên nyatu. Ma’nikula Kamê’ tûndû’ke (unto-unto niku) peranti niko, supayo niko besyukur.
-
-[^743]: Lazimnyo, unto disembelî jerû posisi tega’.
 
 ## 22:37
 
@@ -12091,8 +10593,6 @@ Tapi wong-wong yên bedamel nentang ayat-ayat Kamê’ dengen maksud ngelemake (
 ## 22:52
 
 Serto Kamê’ nano ngûtûs sesios wong rosul serto nano (pulo’) sesios wong nabi sedereng niko (Muhammad), melianke napibilo dio punyo sesios kepengenan, [^744] setan saos mele-betke olo’an-olo’an ke jerû kepengenannyo niku. Tapi Allah ngilangke napi yên dilebetke setan niku, serto Allah ayun nguatke ayat-ayat-Nyo. Serto Allah Maha Wikan, Maha Bijaksano.
-
-[^744]: Sebagîan mufassir ngertike tamannā dengen “maco” serto umniyyatihi dengen “bacoannyo.” Ya’ni napibilo Nabi saw maco sesios ayat yên isinyo ngesûngke pengimutan kepado wong-wong kafir, wong-wong niku begancang numuti bacoan Nabi saw, dengen tambahan bayak-bayak yên meleserke keyakinan wong-wong niku.
 
 ## 22:53
 
@@ -12222,8 +10722,6 @@ Serto wong yên meliaro kemaluannyo,
 
 Selian tehadep sema-sema wong-wong niku atawa pacal yên wong-wong niku wênten; [^745]  dades selesernyo wong-wong niku nano tehino.
 
-[^745]: Buda’ belian yên wênten beperang dengen wong kafîr, dîdînyo buda’ yên selian perang. Yên ma’niki dinten nano wênten
-
 ## 23:7
 
 Tapi sinten saos merunut di balî’ niku (zina, serto seliannyo), dades wong-wong  niku saos wong-wong yên tepeliwat.
@@ -12348,8 +10846,6 @@ Tebê! Tebê nian (dari keleseran) napi yên diancamke kepado  niko,
 
 (Keuripan niku) nano lian cuman keuripan kito di dunio niki, (di ngerikula) kito padem serto urip) [^746] serto nano ayun dimantû’ke lagi.
 
-[^746]: sebagîan wong sampun padem, serto sebagîan lian dilaîrke.
-
 ## 23:38
 
 Dio nano lian cuman sios wong lanang yên ngewêntenke bebudian tehadep Allah, serto kito nano angsal pecayo.
@@ -12366,8 +10862,6 @@ Dio (Allah) bekelap, ''Nano lambat lagi wong-wong niku cengki ayun nyesel."
 
 Sampun niku wong-wong niku leser-leser dipademke sami suaro yên ngelegar, serto Kame’ dadeske wong-wong niku (ma’kayo) sampah yên dibakto banjir , [^747] dades binasola  wong-wong yên zalim.
 
-[^747]: Ma’niku saos buru’nyo akibat wong-wong niku, sampî wong-wong niku nano bedayo setiti’ saos, nano ubanyo peca’ sampa yên dianyutke banjîr. Padohal wong-wong niku badannyo ageng jugo kuat.
-
 ## 23:42
 
 Sampun niku  wong-wong niku Kame’ dadeske umat-umat yên lian.
@@ -12383,8 +10877,6 @@ Sampun niku, Kame’ utus rasul-rasul Kame’ berturut-turut. Acap kali sios  ra
 ## 23:45
 
 Sampun niku Kame’ utus Musa serto dulur-nyo Harun serto makto tando-tando (keagengan) Kame’, serto bukti yên nyato. [^748]
-
-[^748]: Mu’jizat Nabi Musa AS yên songo macem.
 
 ## 23:46
 
@@ -12506,13 +10998,9 @@ Serto selesernyo wong-wong yên nano beiman kepado akhirat leser-leser sampun me
 
 Serto sekironyo wong-wong niku Kame’ kesihani, serto Kame’ lenyapken balak yên nimpo wong-wong niku, [^749]  pasti wong-wong niku ayun acep kali terombang-ambing jerû kesesetan wong-wong niku.
 
-[^749]: Bahayo kelaparan. Kaum Musyrik perna ngalami kelaparan, keremo nano rawunyo teedoan dari Yaman ke Mekah, sedeng Mekah serto segelemngnyo lagi paceklik, sampî melarat nian pado waktu niku.
-
 ## 23:76
 
 Serto selesernyo Kame’ sampun menimpoken siksoan pado wong-wong niku, [^750] tapi wong-wong niku nano ayun tunduk pado Tuhannyo, serto (jugo) nano menundukken awa'.
-
-[^750]: Antaro lian kekalaan wong-wong niku pado perang Badar, yên jerû perang niku wong-wong tekemuko dari wong-wong niku kata nian tebunu  atawa ditawan, serto musîm kerîng yên nimpo wong-wong niku, sehinggo wong-wong niku kelaparan.
 
 ## 23:77
 
@@ -12541,8 +11029,6 @@ Wong-wong niku bekelap, "napi leser, Napibilo Kame’ sampun padem serto sampun 
 ## 23:83
 
 Selesernyo, yên sampun niki sampun disemayoke pado Kame’ serto pado nenek moyang Kame’, [^751] niki saos dongeng-dongeng wong-wong kerihin!"
-
-[^751]: Diancem dengen dinten bebangkît.
 
 ## 23:84
 
@@ -12611,8 +11097,6 @@ Serto kulo belîndung (pulo') pado Niko ya Tuhan kulo, supayo wong-wong niku nan
 ## 23:100
 
 Supayo kulo wikan bedamel kesaêan yên sampun kulo tinggalke." Sios-kali nano! selesernyo niku wêntenla dalih yên dikelapken saos. Serto dihadapke  wong-wong niku wênten barzakh [^752] hinggo pado dinten wong-wong niku dimantû’ke lagi.
-
-[^752]: Barzakh, ya’ni panggonan atawa kewêntenan wong sesampun padem sampî dio bangun lagi pado dinten kiamat.
 
 ## 23:101
 
@@ -12698,8 +11182,6 @@ Pezina betino serto pezina lanang, derala saben-saben dari kalenyo seratus kali,
 
 Pezina lanang nano angsal nika kacuwali sami pezina betino, atawa dengen betino musyrik; serto pezina betino nano angsal nika kacuwali sami pezina lanang atawa serto lanang musyrik; serto yên ma’niku diharamke  peranti wong-wong mukmin. [^753]
 
-[^753]: Nano pantes wong beiman nika sami pezina, ma’niku jugo sebale’nyo.
-
 ## 24:4
 
 Serto wong-wong yên nudu betino-betino yên saê (ngelonte) serto wong-wong niku nano ngerawûke sekawan wong saksi; dades derala wong-wong niku lapan pûlû kali, serto nanola niko nerimo kesaksian wong-wong niku peranti selambat-lambatnyo. Wong-wong niku saos wong-wong yên fasik,
@@ -12716,8 +11198,6 @@ Serto wong-wong yên nudu semanya  (ngelonte), padohal  wong-wong niku nano  wê
 
 Serto (sumpa) yên kelimo bahwo laknat Allah ayun nimponyo, kalu dio temasû' wong yên ngota’i [^754]
 
-[^754]: Maksud ayat 6-7 iola wong yên nudu dades lonte dengen nano ngajuke sekawan saksi, mesti besumpa dengan nami Allah sekawan kali, bahwo dio wêntenla leser sami tuduannyo niku/ sesampun niku dio besumpa lagi bahwo di ayun keno laknat Allah kalu dio ngota’i. Masala niki wênten jerû fiqhdikelap dengen li’an.
-
 ## 24:8
 
 Serto sema niku tehinder dari hukuman Napibilo dio besumpa sekawan kali dengen (nami) Allah bahwo dio (domiknyo) leser-leser temasû' wong-wong yên ngota’i
@@ -12733,8 +11213,6 @@ Serto sekironyo nano kerno karunio Allah serto rahmat-Nyo pado niko (cengkila ni
 ## 24:11
 
 Selesernyo wong-wong yên makto kabar ngota’i niku wêntenla dari golongan niko (jugo), Nanola niko nyangko kabar niku jahat bagi niko saben wong dari wong-wong niku ayun wênten  balesan dari doso ye didamelnyo. Serto sinten saos di antaro wong-wong niku yên ngembil bagian terageng (dari doso yên didamelnyo), dio wênten  azab yên ageng (pulo'’) [^755]
-
-[^755]: Kabar ngota’i niki tentang sema Rosululla SAW, Aisyah R.A. Ummul Mukminin, sesampun perang denegn Bani Mustaliq pado bulan Sya’ban 5 H. pepeerangan niku ditumuti kaum munafik serto tumut pulo' Aisyah r.a dengen Nabi Muhammad SAW. Berdasarke undian yên diwêntenke di antaro sema-sema Rosul. Pado pejalanaan mantû’ dari perang, wong-wong niku mandeg sios panggonan. Aisyah r.a. metu dari sekedupnyo niku peranti sios kepentîngan, sesampun mantû’ tumpa'-tumpa' dio ngeraso kalungnyo lenget, sampun niku dio kesa ngerunutnyo lagi. Sementaro niku rombongan kesa dengen sangkoan Aisyah maler wênten jerû sekedupnyo. Sesampun Aisyah r.a wikan sekedupnyo sampun kesa, dio lînggî di panggonannyo serto ngarepke sekedup niku ayun mantû’ nyemputnyo. Kebetulan saos di panggonan niku lewat sios sahabat Rosululla SAW. Safwan Ibnu Mu’atal, ditemukenyo sios wong sedeng tilem dewe’an, serto dio kaget serayo bekelap: “Innalillai wa Inna Ilai Rojiun, sema Rosululla”. Aisyah r.a. bangun. Sampun niku dio dipersilake ole Safwan numpa’i untonyo. Safwan melaku nuntun unto sampî tibo di Madinah. Wong-wong yên ningal ngelapkenyo nurut sangkoan dewe’-dewe’. dadesla wênten gunjengan, sesampun kaum munafik ngagengke kabar niku, fitnah tehadep Aisyah r.a betamba nyebar sehinggo nimbûlke keguncangan di kalangan kaum muslimin
 
 ## 24:12
 
@@ -12784,8 +11262,6 @@ Serto nanola wong-wong yên ngehak-ikelangkungan serto kelapangan diantaro niko 
 
 Selesernyo, wong-wong yên nudu betino-betino saê yên lengah [^756] serto beiman (serto tuduhan ngelonte), wong-wong niku dilaknat di dunio serto di akhirat, serto wong-wong niku ayunangsal  azab yên ageng,
 
-[^756]: Yên dima’sud dengen betino-betino yên lengah niku saos betino-betino yên nano perna temut dengen damelannyo yên keji.
-
 ## 24:24
 
 Pado dinten, (ketiko) lidah, tangan serto sikil wong-wong nikudades saksi pucuk wong-wong niku tehadep napi yên kerihin wong-wong niku damelke.
@@ -12797,8 +11273,6 @@ Pado dinten niku Allah sempurnoke balesan yên selesernyo bagi wong-wong niku, s
 ## 24:26
 
 Betino-betino  yên jahat peranti lanang yên jahat, serto lanang yên jahat peranti betino-betino  yên jahat (pulo'), sedangke  betino-betino yên saê peranti lanang yên saê, serto lanang yên saê peranti betino-betino  yên saê (pulo'). Wong-wong niku  bersih dari napi yên difitnahke wong.  Wong-wong nikuangsalke ampunan serto rezeki yên mulio (suargo). [^757]
-
-[^757]: Ayat niki nunjû’ke kesucian Aisyah r.a serto Safwan dari sedanten fitnahan yên dituduke kepadonyo. Rosululla wêntenla wong yên langkung saî, dades betino yên saê pulo'’ yên dades semanyo.
 
 ## 24:27
 
@@ -12836,10 +11310,6 @@ Serto selesernyo,  Kame’ sampun nurunke pado niko ayat-ayat yên  ngesung  pen
 
 Allah  (pengesung)  cahayo  (pado)  langit  serto  bumi.  Perumpamaan   cahayo- Nyo, ma’kayo  sios  lubang  yên nano tembus, [^758] yên di jerûnyo wênten cahayo ageng. Cahayo niku di jerû tabung kaco, (serto) tabung kaco niku peca' bintang yên bekilauan, yên dimurupke dengen minyak dari pohon yên diberkahi, (yoniku) pohon zaitun yên tumbuh nano di timur serto nano pulo' di barat, [^759]  yên minyaknyo (saos) hampir-hampir nerangi, walaupun nano disenggol api. Cahayo di pucuk cahayo (berlapis-lapis), Allah ngesung hidayah pado cahayo-Nyo bagi wong yên Dio ayuni, serto Allah ngedamel perumpamoan-perumpamoan peranti wong. Serto Allah maha Wikan sedantennyo.
 
-[^758]: Lobang yên nano tembûs (misykat) niku saos sios lobang di dinding rompo’ yên nano nembûs sampî ke sebelanyo. Bisaonyo digunoke peranti lepe’ke lampu atawa barang liannyo.
-
-[^759]: Pohon zaitun niku tûmbû di punca’ bukit. Dio napetke sinar matoaridi waktu terbit atawa tebenem. Dades pohonnyo sûbûr serto buanyo ngasilke minyak yên se.
-
 ## 24:36
 
 (Cahayo niku) di rompo’-rompo’ yên di ngeriku sampun diperintake Allah peranti mulioke serto ngelap nami-Nyo, di ngeriku betasbî (nyucike)  nami-Nyo pado waktu pagi serto peteng,
@@ -12855,8 +11325,6 @@ Wong yên nano diolake sami perdagangan serto besade tumbas dari ngimut Allah, d
 ## 24:39
 
 Serto wong-wong yên kafîr, damelan wong-wong niku ma'kayo fatamorgana di lema yên datar, yên disangko banyu sami wong-wong yên haus, tapi Napibilo dirawûi nano wênten napi saos. Serto didapetinyo (ketetepan) Allah perantinyo. Sampun niku Allah ngesungke padonyo itungan (amal-amal) serto sempurna, serto Allah langkung gancang itungan-Nyo, [^760]
-
-[^760]: Wong-wong kafîr, kerno amal-amal wong-wong niku nano didasarke dengen iman, nanola angsal balesan dari Allah di akhîrat, walau di dunio wong-wong niku nyangko ayun angsal balesan dari amal wong-wong niku.
 
 ## 24:40
 
@@ -12906,8 +11374,6 @@ Napi (nano hadirnyo wong-wong niku kareno)  jerû  ati wong-wong niku wênten  p
 
 Kelapan wong-wong mukmin saos,  yên  Napibilo  wong-wong niku diajak  pado Allah  serto  Rasul-Nyo   supayo  Rasul  mûtûske   (pekaro)   di antaro  wong-wong niku, [^761] wong-wong niku bekelap, "Kame’ nenger, serto Kame’ taat." Serto wong-wong niku saos wong-wong yên beuntung.
 
-[^761]: Di antaro sesami kaum muslimin, serto di antaro kaum muslimin dengen yên dîdînyo muslim.
-
 ## 24:52
 
 Serto sinten saos taat pado Allah serto Rasul-Nyo serto takut pado Allah serto betaqwo  pado-Nyo,  wong-wong niki saos wong-wong  yên angsal   kemenangan.
@@ -12936,25 +11402,17 @@ Nano niko nyangko bahwo wong-wong yên kafîr niku wikan luput dari siksoan Alla
 
 Hei wong-wong yên beiman! supayo pacal (lanang serto betino) yên niko punyo, serto wong-wong yên dereng balegh (dewasa) di antaro niko, nedo izin pado niko pado tiga kali (kesempatan), yaitu sedereng semayang  Subu, ketiko niko mecati kelambi (luar) niko di tenga dinten, serto sesampun semayang  lsya.  (niku saos)  tigo aurat  (waktu)  bagi  niko.  [^762] Nano wênten doso peranti niko serto nano (pulo') bagi wong-wong niku selian dari (tigo waktu) niku; wong-wong niku ke jabo masuk ngelurui niko, sebagîan niko pucu’ sebagîan yên lian. Sampun niku Allah nyelaske ayat-ayat niku pado niko. Serto Allah maha Wikan, Maha Bijaksana.
 
-[^762]: Tigo macem waktu yên biasonyo pado waktu-waktu niku badan kata tebuka’. ole sebab niku, Allah ngelarang buda’ belian serto buda’-buda’ di bawa umur masu’ ke rompo’ tilem wong ageng.
-
 ## 24:59
 
 Serto Napibilo anak-anak niko sampun  umur dewaso, dades supayo wong-wong niku (jugo) nedo izin, ma’kayo i wong-wong yên langkung dewaso nedo izin.  [^763]  Sampun niku Allah nyelaskw ayat-ayat-Nyo pado niko. Allah maha Wikan, Maha Bijaksana.
-
-[^763]: Buda’-buda’ dari wong merdeka yên dîdînyo muhrim yên sampun baligh, supayo nedo izin dumin kalu ayun masu’ rompo’ tilem wong tuo, peca’ caro wong-wong yên disebut jerû ayat 27 serto 28 pado ayat niki.
 
 ## 24:60
 
 Serto sedanten betino  sepuh yên sampun mandeg  (dari haid serto ngandung)  yên nano  ayun nika  (male),  dades nano  wênten doso  muka’ klambi  (luar) [^764]  wong-wong niku serto nano (bemaksud) nampa’ke pehiasan; tapi meliaro kehormatan wêntenla langkung saê bagi wong-wong niku. Allah Maha Nenger, Maha Wikan.
 
-[^764]: Kelambi jabo yên kalu dibuka’ nano nampa’ke aurat
-
 ## 24:61
 
 Nano wênten alangan bagi wong buto, nano (pulo') bagi wong pincang, nano (pulo') bagi wong sakit, serto nano (pulo') bagi awa' niko, nedo   (Besami-sami wong-wong niku) di rompo’ niko atawa di rompo’ walid-walid niko, di rompo’ walid  niko, di rompo’ dulur-dulur niko ye lanang, di rompo’ dulur-dulur niko yên betino, di rompo’ dulur-dulur domik’ niko yên lanang, di rompo’ dulur-dulur domik niko yên betino, di rompo’ dulur-dulur ibu niko yên lanan, di rompo’ dulur-dulur walid niko yên betino, (di rompo’) yên niko wênten kuncinyo [^765] atawa (di rompo’) rencang-rencang niko. Nano wênten halangan bagi niko nedo besami-sami wong-wong niku atawa dewek-dewek. Napibilo niko masuki rompo’-rompo’ ayunla niko ngesung salam (pado penghuninyo, yên berarti ngesung salam) pado awa' niko dewek, serto salam yên kebeg berkah serto saê dari sisi Allah. Sampun niku saos Allah menjelaske ayat-ayat-(Nyo) peranti niko, supayo niko wikan.
-
-[^765]: Rompo’ yên diserenke kepado kaum peranti ngurusnyo.
 
 ## 24:62
 
@@ -13020,8 +11478,6 @@ Napibilo  dio (nerako)  ningali  wong-wong niku dari panggonan yên tebî,  wong
 
 Serto Napibilo  wong-wong niku dilemparke   ke pedaleman  yên  sempît  di nerako  serto dibelenggu, wong-wong niku di ngeriku mekîk ngarepke kebinasoan. [^766]
 
-[^766]: Wong-wong niku ngarepke kebinasoan, supayo telepas dari sikso yên ageng nian, yakni azab di nerako yên panas nian dengen dibelenggu, di panggonan yên sempît nian sema’pundi yên digambarke niku.
-
 ## 25:14
 
 (Ayun dikelapke  pado wong-wong niku), "Nanola niko ngarepke pado dinten niki sios kebinasoan, meliankan ngarepke   kebinasoan  yên benemen."
@@ -13042,8 +11498,6 @@ Serto (imutla)  pado dinten (ketiko) Allah ngumpulke wong-wong niku besami napi 
 
 Wong-wong niku (yên disemba niku) nyawab,  "Maha Suci  Niko,  nanola pantes peranti kame' ngembil pelindung selian  Niko, [^767] tapi  Niko  sampun ngesung wong-wong niku serto n\~enek moyang wong-wong niku kenikmatan urip, Sampun niku wong-wong niku ngelalike perimutan; serto wong-wong niku pengîkût yên binaso."
 
-[^767]: Sesampun wong-wong niku dikumpulke besami-sami dengen napi yên wong-wong niku semba, yaitu malaikat , Uzair, Nabi Isa as serto behalo-berhalo, serto sampun Allah nakenke kepado yên disemba niku, napi wong-wong yên nyesetke wong-wong niku atawa wong-wong niku yên seset dewe’, dades yên disemba niku nyawab bahwa nano pantes peranti wong-wong niku nyemba selian Allah, napi lagi ngengken wong lian nyemba selian Allah.
-
 ## 25:19
 
 Dades leser, wong-wong niku (yên  disemba niku) sampun ngingkari napi yên niko kelapke, dades niko nano ayun wikan nolak (azab) serto nano wikan (pulo')  nulungi (awa' niko), serto sinten saos di antaro niko damelke kezaliman, cengkila Kame’ campa’ke padonyo raso azab yên ageng.
@@ -13060,13 +11514,9 @@ Serto wong-wong niku yên nano ngarepke bepanggîan dengan kame’ (di akhirat) 
 
 (Imutla pado dinten) sewaktu wong-wong niku ningali sedanten malaikat, pado dinten niku nano wênten kabar gembiro untuk wong-wong yên bedoso dan wong-wong niku bekelap “hijran mahjuro”. [^768]
 
-[^768]: Niki ungkepan yên biaso dikelapke ole wong Arab ketiko panggi musu yên nano angsal diela’ke, atawa ditimpo sios bencano yên nano angsal dihindari. Ungkepan niki retinyo “mugi-mugi Allah nginderke bahayo niki dari kulo.”
-
 ## 25:23
 
 Serto kame’ ayun ningalke sedanten amal [^769] yên wong-wong niku damelke sampun niku kame’ ayun dadeske amal niku (peca’) debu yên beterbangan.
-
-[^769]: Amal-amal saê yên wong--wong niku damelke di dunio. Amal-amal niku nano dibales Allah kerno wong-wong niku nano beriman.
 
 ## 25:24
 
@@ -13080,8 +11530,6 @@ Serto (imutla) pado dinten sewaktu langit pecah metuke kabut putî serto sedante
 
 Kerajoan yên hak [^770] pado dinten niku wêntenla punyo tuhan yên pengasî nian serto nikula dinten yên saro peranti wong-wong kafîr.
 
-[^770]: Kerajaan yên hak, wêntenla kekuasoan yên mutlak.
-
 ## 25:27
 
 Serto (imutla) pado dinten sewaktu wong-wong dzolim ngîgît duo jarinyo, (nyeseli damelannyo) sampun niku bekelap “hei ! sekironyo (senantu) kulo ngembil jalan besami rasul.
@@ -13089,8 +11537,6 @@ Serto (imutla) pado dinten sewaktu wong-wong dzolim ngîgît duo jarinyo, (nyese
 ## 25:28
 
 Hei, celakola kulo! sekironyo (senantu) kulo nano nadeske si Pulan [^771] niku rencang akrab kulo
-
-[^771]: Setan atawa wong yen sampun nyesetkenyo di dunio
 
 ## 25:29
 
@@ -13107,8 +11553,6 @@ Ma’nikula peranti saben  nabi, sampun kame’ wêntenke mûsû dari wong-wong 
 ## 25:32
 
 Serto wong-wong kafîr bekelap “Ngapo Al-qur’an niku nano ditûrûnke kepadonyo sekaligus? “Ma’nikula [^772] supayo kame’  neguke ati niko (Muhammad) dengennyo serto kame’  macoke secaro tartil (beangsûr-angsûr, pelaan serto leser).
-
-[^772]: Al-Qur’an niku nano ditûrûnke sekaligus, tapi ditûrûnke secaro betahap supayo ati nabi Muhammad SAW dades kuat serto istiqomah
 
 ## 25:33
 
@@ -13133,8 +11577,6 @@ Serto (sampun kame’ pademke) kaum Nuh sewaktu wong- wong niku mudike sedanten 
 ## 25:38
 
 Serto (sampun kame’ pademke) kaum Ad serto Samud serto pendudu’ rass [^773] serto kata (lagi) penerus diantaro (kaum- kaum) niku.
-
-[^773]: Rass wêntenla telago yên sampun kerîng banyunyo. Sampun niku didadeske nami sios kaum, ya’ni kaum Rass. Wong-wong niku nyemba patung, sampun niku Allah ngûtûs Nabi Syuaib AS kepado wong-wong niku.
 
 ## 25:39
 
@@ -13168,8 +11610,6 @@ Nanoke niko masati (penciptaan tuhan niko, semakpundi dio manjangke (serto mende
 
 Sesampun niku kame’ narî’nyo (bayên-bayên niku) kepado kami [^774] setîtî’ demi setîtî’.
 
-[^774]: Bayang-bayang niku kame’ apuske dengen lambat sesuai dengen tebenemnyo matoari setiti’ ke setîtî’.
-
 ## 25:47
 
 Serto diola yên nadeske malem- malem peranti niko (sebagî kelambi serto tilem peranti rehat serto Dio nadeske siang peranti bangkît bedamel.
@@ -13201,8 +11641,6 @@ Serto Diola yên miarke duo laut ngalîr \[bepara’an] yên niki tawar serto se
 ## 25:54
 
 Serto Dio (pulo') nyiptoke wong dari banyu  lalu dadeske manusio niku (punyo) keturunan musahara [^775] serto tuhan niko wêntenla kuaso  nian.
-
-[^775]: Musaharoh retinyo hubungan kekeluargoan yên berasal dari hubungan nika ma’kayo menantu, ipe, mertuo, serto seliannyo.
 
 ## 25:55
 
@@ -13352,8 +11790,6 @@ Singgo dado kulo teraso sempît serto ilat kulo nano lancar, kengken la Harun (b
 
 Kerno niku kulo bedoso tehadep wong-wong niku [^776]  dades kulo takut wong-wong niku ayun munu kulo.
 
-[^776]: Supayo Harun diangkat dades Rosul peraanti nolongnyo.
-
 ## 26:15
 
 (Allah) bepirman “janganla takut (wong-wong niku nano angsal munu niko) dades kesala niko beduo dengen makto ayat ayat kame’ (mu’jizat-mu’jizat), selesernyo  kame’ besami niko ngerunguke (napi yên wong-wong niku kelapke).
@@ -13374,13 +11810,9 @@ Dio (fir’aun nyawab) dîdînyo kame’ sampun ngasu niko jerû lingkungan (kel
 
 Serto niko (Musa) sampun namelke (kesalaan dari) damelan yên sampun niko damelke  [^777] serto niko temaso’ wong yên nano wikan  beterimokasi“.
 
-[^777]: Musa mantep besami Fir’aun seja’ alit, lebî kirang 18 taon.
-
 ## 26:20
 
 Dio (Musa) bekelap “Kulo sampun namelkek [^778] nyo, serto waktu niku kulo temasu’ wong yên khilap.
-
-[^778]: Damelan nabi Mua as. Munu wong Qibti. Tingali al-Qashash (28) : 15
 
 ## 26:21
 
@@ -13482,8 +11914,6 @@ Laju wong-wong niku nguntalke tali-tali serto tongkat-tongkat wong-wong niku sam
 
 Sesampun niku Musa nguntalke tongkatnyo, dades tumpa'-tumpa' dio nelen bendo-bendo palsu yên wong-wong niku wênten-wêntenke saos. [^779]
 
-[^779]: Tali-temali serto tongkat-tongkat yên dibabîtke pesihir niku yen tebayang peca’ dades ulo, sedantennyo ditelen ole tongkat nabi Musa as yên leser-leser dades ulo.
-
 ## 26:46
 
 Dades nyûngkûrla wong-wong penyîhîr niku, besûjûd.
@@ -13536,13 +11966,9 @@ Sesampun niku, kame’ metuke wong- wong niku (fir’aun serto kaumnyo) dari tam
 
 Serto (dari) harto kekayoan serto kedudukan yên mulio . [^780]
 
-[^780]: Dengen pengejeran Fir’au serto kaummnyo peranti nutul Nabi Musan as serto Bani Israil, dades wong-wong niku sampun metu dari negeri wong-wong niku, ninggalke kerajoan, keagengan, kemewahan serto liannyo.
-
 ## 26:59
 
 Ma’niku saos, serto kame’ sungke sedantennyo (niki) kepado bani israil.  [^781]
-
-[^781]: Allah ayun ngesungke kepado Bani Israil kerajoan yên kuat, kerasulan seto liannyo.
 
 ## 26:60
 
@@ -13563,8 +11989,6 @@ Sampun niku kame’ wahyuke kepado Musa ,”gepokla laut niku dengen tongkat nik
 ## 26:64
 
 Serto dingerikula kame’ para’ke golongan yên lian.  [^782]
-
-[^782]: Yen dimaksud golongan yên lian niku saos Fir’aun serto kaumnyo. Maksud ayat niki wêntenla di bagian laut yen teteta’ niku Allah mara’ke antaro Fir’au serto keumnyo dengen Nabi Musa as serto Bani Israel.
 
 ## 26:65
 
@@ -14014,8 +12438,6 @@ Serto selesernyo, Tuhan niko, Diola yên Sangat Pekasa Sangat Penyayang
 
 Pendûdû’ Aikah [^783] sampun bohong ke sedanten rosul.
 
-[^783]: Wêntenla pendûdû’ Madyan, ya’ni kaum Nabi Syuaib as
-
 ## 26:177
 
 Sewaktu Syuaib bekelap pado wong-wong niku ,” ngapo niko mano beiman?
@@ -14212,8 +12634,6 @@ Serto penyair-penyair niku ditumuti ole wong-wong yên seset.
 
 Napi nano niko ningali bahwo wong-wong niku ngembaro di sedanten lemba [^784]
 
-[^784]: Yen dima’sud dengen ayat niki wêntenla bahwo sebagîan penyair niku gala’ maenke kelap-kelap, nano wênten ma’sud tujuan yen saê, serto nano punyo penawa'an.
-
 ## 26:226
 
 Dan bahwo wong-wong niku ngelapke napi yên wong-wong niku dewe’nano ngedamelkenyo
@@ -14270,8 +12690,6 @@ Kecuali wong belaku zolim yên sampun niku ngoba  (awa'nyo) dengen kesaîan sesa
 
 Serto maso’kela tangan niko  ke gulu  kelambi niko, [^785]  niscayo dio ayun metu dades pûtî (besinar) tampa cacat (keduo mu’jizat niki) temaso’ sembilan macem mu’jizat (yên ayun dikemukoke) kepado Fir’aun seerto kaumnyo, wong-wong niku selesernyor wong-wong yên pasek.
 
-[^785]: Lepe’ke tangan ke dado dari gulo kelambi.
-
 ## 27:13
 
 Dades sewaktu mu’jizat kami yên terang niku sampe kepado wong-wong niku  wong-wong niku bekelap,” niki sihir yên nyato
@@ -14287,8 +12705,6 @@ Serto selesernyo, kame’ sampun ngesungke ilmu kepado Daud serto Sulaiman, sert
 ## 27:16
 
 Serto Sulaiman sampun mewarisi Daud  [^786] serto niko (Sulaiman) bekelap,” Hei wong kame’ sampun diajari baso burung serto kame’ di sung sedanten sesios.  Selesernyo (sedanten) niki selesernyo kurnio nyato
-
-[^786]: Nabi Sulaiman as. Ngentike kenabian serto kerajoan Nbi Daud as. Serto ngewarisi ilmu dari kitab Zabur yên ditûrûnke kepadonyo.
 
 ## 27:17
 
@@ -14306,8 +12722,6 @@ Dades dio (Sulaiman) senyum sampun niku ketawo kerno (ngerunguke) kelapan semut 
 
 Serto dio merikso burung-burung sampun niku bekelap,” ngapo kulo nano ningali Hud Hud [^787]  napi dio temaso’ yên nano rawu?.
 
-[^787]: Hud-hud wêntenla ma’kayo bûrûng pelatu’
-
 ## 27:21
 
 Cengki ayun kulo hukum dio dengen hukuman yên berat atawa kulo sembelî dio, kecuali kalu dio rawu kepado kulo dengen alesan yên jelas.
@@ -14316,13 +12730,9 @@ Cengki ayun kulo hukum dio dengen hukuman yên berat atawa kulo sembelî dio, ke
 
 Dades nano lambat sesampun niku (rawu la Hud-Hud), sampun niku dio bekelap,”Kulo sampun wikan sesios yên dereng niko wikani  kulo rawo kepado niko dari negri Saba’ [^788] makto kabar yên ngeyakinke
 
-[^788]: Saba’ wêntenla nami kerajoan pado zaman kerîhîn, ibu kotanyo Ma’rib, para’ kota San’a, ibu kota Yaman ma’niki dinten.
-
 ## 27:23
 
 Selesernyo, kulo wênten sios betino [^789]  wong-wong niku, serto dio disung sedanten sesios jugo serto punyoi singgosano yên ageng
-
-[^789]: Ratu Balqis yên merinta kerajoan Sabaiyah pado zaman Nabi Sulaiman as.
 
 ## 27:24
 
@@ -14331,8 +12741,6 @@ Kulo \[burung hud-hud] napeti dio serto kaumnyo nyemba matoari, dîdînyo kepado
 ## 27:25
 
 Wong-wong niku (jugo) nano nyemba Allah  yên metuke napi yên tependem di langit serto di bumi  [^790] serto yên wikan napi yên niko  singitke serto yên niko  nyatoke.
-
-[^790]: Ma’kayo nûrûnke ujan dari langit, nûmbûke tanam-tanaman, metuke logam dari bumi, serto liannyo.
 
 ## 27:26
 
@@ -14394,8 +12802,6 @@ Ifrit dari golongan jin bekelap,” kulo yên ayun ngebaktonyo kepado niko seder
 
 Sios wong yên wênten ilmu dari kitab [^791] ,” kulo ayun ngebakto singgosano niku kepado niko sedereng mato niko bekedîp .” Dades waktu dio (Sulaiman) ningali singgosano niku tecogo’ diluannyo dio bekelap,”  niki temaso’ kurnio Tuhan kulo peranti nguji kulo, napike kulo besyukur atawa ngingkari (ni’matnyo), sinten saos besyukur, dades selesernyo dio besyukur peranti (kesaîan) awa'nyo dewe’, serto sinten ingkar, dades selesernyo Tuhan kulo Maha Kayo Maha Mulio.
 
-[^791]: Kitab di ngeriki ma’sudnyo kitab yên ditûrûnke sedereng nabi Sulaiman as ya’ni Taurat serto Zabur.
-
 ## 27:41
 
 Dio (Sulaiman) bekelap,” ubala perantinyo singosanonyo, kito ayun ningali napi dio (Balqis) keciren atawa nano keciren lagi.
@@ -14403,8 +12809,6 @@ Dio (Sulaiman) bekelap,” ubala perantinyo singosanonyo, kito ayun ningali napi
 ## 27:42
 
 Dades sewaktu dio (Balqis) rawu ditakenkela (kepadonyo),” peca’ niki napi singgosano niko?” Dio (Balqis) nyawab,” ma’kayo niku saos dio”. (serto dio Balqis bekelap).” Kame’ sampun disung ilmu sederengnyo. [^792] serto kame’ wêntenla wong-wong muslim (kepado Allah)
-
-[^792]: Balqis sampun wikan kenabian Sulaiman as. Sedereng singgasanonyo dipindake dari negeri Saba’ ke Palestina sekejepan mato.
 
 ## 27:43
 
@@ -14430,8 +12834,6 @@ Wong-wong niku nyawab, ”Kame’ angsal nasib yên malang disebabke ole niko se
 
 Serto di kota niku [^793] wênten sembilan wong lanang yên bedamel kerusa’an dibumi wong-wong niku nano namelke kesaîan.
 
-[^793]: Nûrût mufassir, yên dima’sud dengen kota niki wêntenla kota kaum Samud, ya’ni kota al-Hijr.
-
 ## 27:49
 
 Wong-wong niku bekelap,”besumpala niko  dengen (nami) Allah, bahwo kito cengki nyerang dio besami keluargonyo pado malem dinten sesampun niku kito ayun ngelapke kepado ahli warisnyo (bahwa) kito nano nyaksike kebinasoan keluargonyo niku, serto  selesernyo kito wong yên leser
@@ -14452,13 +12854,9 @@ Dades niku saos rompo’-rompo’ wong-wong niku yên runtu kerno kezoliman wong
 
 Serto kame’ selametke wong-wong beriman [^794] serto wong-wong niku selalu betakwa.
 
-[^794]: Nabi Saleh as. Serto sedanten penumutnyo
-
 ## 27:54
 
 Serto (imutla cerios) Luth, sewaktu dio bekelap  kepado kaumnyo,” Napi niko  namelke damelan Faahisyah (keji) [^795] padohal niko ningalinyo (kekejian damelan maksiat niku).
-
-[^795]: Ma’sud fahisyah di ngeriki wêntenla penyimpangan seks, temasû’ homoseks.
 
 ## 27:55
 
@@ -14487,8 +12885,6 @@ Atawa sinten nian yên sampun nyiptoke langit serto bumi serto yên nurunke bany
 ## 27:61
 
 Atawa sinten nian yên sampun dadeske bumi sebagî panggonan bediem, serto yên dadeske sungi-sungi di selo-selonyo, serto yên dadeske gunung-gunung peranti (negûke)nyo serto yên dadeske sios penyekat antaro duo laut? [^796]  Napi di samping Allah wênten tuhan (yên lian)? Bahkan (selesernyo) kata nian wong-wong niku nano wikan.
-
-[^796]: Kale laut di ngeriki wêntenla laut yên asin serto sungi ageng yên bemuaro di laut. Sungi yên tawar niku sampun sampî di moaro nano langsung dades asin.
 
 ## 27:62
 
@@ -14642,8 +13038,6 @@ Serto Kame’ ayun ngesung karunio kepado wong-wong yên tetindes di bumi (Mesir
 
 Serto  Kame’ tegûke kedudukan wong-wong niku di bumi serto Kame’ ningalke kepado Fir’aun serto Hamam besami sedanten tenteronyo napi yên serîng wong-wong niku kuwatirke dari wong-wong niku. [^797]
 
-[^797]: Fir’aun kerep takût bahwo kerajaannyo ayun diancurke ole Bani Isroil, kerno niku dio munu anak-anak lanang yên lair di gûgûk Bani Isroil. Ayat niki nyatoke bahwo ayun tedades napi yên ditakûtkenyo niku.
-
 ## 28:7
 
 Serto Kame’ ilhamke kepado emaknyo Musa: “Susuila dio (Musa), serto napibilo niko kuatir tehadepnyo dades kanyutkela dio ke sungi (Nil). serto nano angsal niko takût serto nano angsal (pulo') besedî ati, kereno selesernyo Kame’ ayun malî’kenyo kepado niko, serto nadeskenyo (sala sios) dari Rosul.
@@ -14659,8 +13053,6 @@ Serto bekelapla sema Fir’aun: “(Io) wêntenla penyejuk mato ati bagể kulo 
 ## 28:10
 
 Serto dades kosongla ati emaknyo Musa. [^798] Selesernyo, ampîr saos dio nyatokenyo (resio tentang Musa), kalu saos nano Kame’ tegûke atinyo, supayo dio temasû’ wong-wong yên pecayo (kepado janji Allah).
-
-[^798]: Sesampun emaknyo Musa nganyutke Musa di sungi Nil, dades timbûl nyesel serto ripal atinyo kerno getun dengen keselametan Musa, mala ampîr saos dio nyerît nedo tolong kepado wong peranti ngembil anaknyo niku mantû’, yên ayun ngakibatke tebuka’nyo resio bahwo Musa wêntenla anaknyo dewek.
 
 ## 28:11
 
@@ -14681,8 +13073,6 @@ Serto sesampun dio (Musa) ageng serto sempurno akalnyo, Kame’ sungke kepadonyo
 ## 28:15
 
 Serto dio (Musa) melebu ke kota (Memphis) ketiko penduduknyo sedeng leno, dades dio napeti di jerû kota niku kalể wong lanang sedeng begoco; yên sios wong dari gûgûknyo (Bani Isroil) serto yên sios (lagi) dari piak mû-sûnyo (kaum Fir’aun). Wong yên dari gûgûk-nyo nedo petûlûngan kepadonyo, peranti (ngalake) wong yên dari piak mûsûnyo, dades Musa ngoconyo, serto pademla mûsûnyo niku. Dio (Musa) bekelap: “Niki wêntenla damelan setan. [^799]  Selesernyo setan niku wêntenla mûsû yên nyesetke lagi nyato (permûsûhannyo)”.
-
-[^799]: Musa a.s. nyesel dengen pademnyo wong niku kerno gocoannyo, kerno dio dîdîla bekendak peranti mununyo, tapi cuman semato-mato mela kaumnyo.
 
 ## 28:16
 
@@ -14740,13 +13130,9 @@ Serto Musa bekelap: “niku saos (pesemayoan) antaro kulo sami niko. pundi saos 
 
 Dades ketiko Musa sampun nelaske waktu yên ditentuke niku serto dio kesa dengen keluargonyo, dio ningali api di lereng gunung. [^800] Dio bekelap kepado keluargonyo: “Entenila (di ngeriki), selesernyo kulo ningali api, mugo-mugo saos kulo angsal makto sios kabar kepado niko dari (panggonan) api niku atawa (makto) sepercik api, supayo niko angsal ngangetke badan”.
 
-[^800]: Sesampun Musa a.s. nelaske semayoan dengen Syu’aib a.s. dio kesa besami keluargonyo dengen sejumla kambing yên disung mertuonyo, dades pado sios malem yên gelep nian serto dingin Musa a.s. sampe di sios panggonan, tapi sedanten dio mûrûpke api, suletan api nano ayun mûrûp. Hal niku ngeranke nian Musa, dades dio bekelap kepado semanyo pecak disebut jerû ayat 29.
-
 ## 28:30
 
 Dades ketiko Musa sampể ke (panggonan) api niku, dijeritkela dio dari (ara) bucu sebela kanan lemba, dari sios batang taneman, di sios ungkonan lema yên diberkati: “Hei Musa! Selesernyo, Kulo wêntenla Allah, Tuhan sedanten alam,  [^801]
-
-[^801]: Di panggonan serto saat niku saos Nabi Musa a.s. mula-i mungga dades rosul.
 
 ## 28:31
 
@@ -14763,8 +13149,6 @@ Musa bekelap: “Wahai Tuhan kulo, selesernyo kulo sampun munu sios wong dari g�
 ## 28:34
 
 Serto dulur kulo Harun, dio langkung fasih ilatnyo daripado kulo, [^802] Dades utusla dio besami kulo sebagî rencang kulo peranti menerke (kelapan) kulo; selesernyo kulo kuatir wong-wong niku ayun nustoke kulo”.
-
-[^802]: Nabi Musa a.s. selian ngeraso takut kepado Fir’aun jugo ngeraso awa'nyo kirang lancar bekelap ngadepi Fir’aun. dades dimohonkenyo supayo Allah ngûtûs Nabi Harun a.s. besaminyo, yên langkung lancar ngomongnyo.
 
 ## 28:35
 
@@ -14822,8 +13206,6 @@ Serto agar wong-wong niku nano ngelapke ketiko azab nimpo wong-wong niku dikere-
 
 Dades ketiko sampun rawû kepado wong-wong niku keleseran (al-Qur’an) dari bucu Kame’, wong-wong niku bekelap: “Napi nano disungke kepado (Muhammad) ma’kayo napi yên sampun disungke kepado Musa bingen?”. serto dîdînyola wong-wong niku  sampun ingkar (jugo) kepado napi yên disungke kepado Musa bingen? Wong-wong niku kerîhin bekelap: “Musa serto Harun wêntenla kalể penyîhîr  [^803] yên berembak”. serto wong-wong niku (jugo) bekelap: “Selesernyo kame’ nano mercayoi dewek-dewek wong-wong niku.”
 
-[^803]: Nûrût sebagîan mufasir, yên dikendaki sihron wêntenla Kitab Taurot serto al-Qur’an..
-
 ## 28:49
 
 Kelapkela (Muhammad): “Rawokela ole niko sios kitab dari sisi Allah yên kitab niku langkung angsal ngesung petunjuk daripado keduonyo (Taurot serto al-Qur’an), cengkila kulo numutinyo, kalu niko nian wong-wong yên leser.”
@@ -14864,8 +13246,6 @@ Serto wong-wong niku bekelap: “kalu kame’ numuti petunjuk besami niko, nisca
 
 Serto pinten katanyo (penduduk) negeri yên sampun kame’ binasoke, yên sampun beseneng-seneng jerû keidûpannyo; Dades niku saos panggonan pedaleman wong-wong niku yên nano didiemi (lagi) sesampun wong-wong niku, kecuwali sebagểan alit. Serto Kame’ wêntenla pewarîsnyo.” [^804]
 
-[^804]: Sesampun wong-wong niku ancûr, panggonan niku sampun kosong serto nano dimakmurke lagi, hinggo mantû’la dio kepado yên punyonyo yên hakiki wêntenla Allah.
-
 ## 28:59
 
 Serto nanola Tuhan niko minasoke negeri-negeri, sedereng Dio ngûtûs sios rosul di ibu kotanyo yên macoke ayat-ayat Kame’ kepado wong-wong niku; serto nano perna (pulo'’) Kame’ minasoke (penduduk) negeri; kacowali pendûdû’nyo namelke kezoliman
@@ -14877,8 +13257,6 @@ Serto napi saos (herto, jabatan, dzuriyat) yên disungke kepado niko, dades niku
 ## 28:61
 
 Dades napi wong yên Kame’ semayoke kepadonyo sesios semayoan yên saể (suargo) dades dio napetkenyo, dengen wong yên Kame’ sungke kepadonyo kesenengan îdûp duniawi; [^805] sampun niku pado dinten kiamat dio temasû’ wong-wong yên diseret (ke jerû nerako)?
-
-[^805]: Wong yên disung kelema’-an îdûp duniawi, tapi nano digunokenyo peranti ngerunut kebahagioan îdûp di akhîrat, kerno niku dio di akhîrat diseret ke jerû nerako.
 
 ## 28:62
 
@@ -14936,13 +13314,9 @@ Serto (imutla) pado dinten ketiko Allah nyeru wong-wong niku, serto befirman: �
 
 Serto Kame’ rawûke dari sedanten umat sios saksi, [^806] dades Kame’ kelapke: “Kemukokela bukti keleseran niko”, dades wikanla wong-wong niku bahwo yên keleseran niku punyo Allah serto lenyepla dari wong-wong niku napi yên kerểhin wong-wong niku ngado-ngadoke.
 
-[^806]: Saksi di ngeriki wêntenla rosul yên sampun diutus kepado wong-wong niku pado waktu di dunio.
-
 ## 28:76
 
 Selesernyo Karun temasûk kaum Musa, [^807]  tapi dio belaku zolim tehadep wong-wong niku, serto Kame’ sampun ngesungke kepadonyo khazanah harto yên kunci-kuncinyo berat nian dipikul ole kata wong yên kuat-kuat.  (Imutla) ketiko kaumnyo bekelap kepadonyo: “Nano angsal niko keliwat banggo. Selesernyo Allah nano demen wong yên manggoke awa'.”
-
-[^807]: Karun wêntenla sala sios anak  mamang Nabi Musa a.s.
 
 ## 28:77
 
@@ -14972,8 +13346,6 @@ Serto dadesla wong-wong yên sorểtu ngarep-ngarepke kedûdûkan Karun niku bek
 
 Negeri akhîrat niku Kame’ dadeske peranti wong-wong yên nano mongkakke awa' serto nano bedamel kerusakan di bumi. serto akhir (yên saể) [^808] niku peranti wong-wong yên betakwa.
 
-[^808]: Lola suargo
-
 ## 28:84
 
 Sinten saos rawû dengen (makto) kepenetan, dades dio ayun angsal (pahalo) yên langkung saể daripado kebaêkannyo niku; serto sinten saos rawû dengen (makto) kejahatan, dades wong-wong yên sampun namelke kejahatan niku disung balesan (seimbang) saos dengen napi yên kerîhîn wong-wong niku damelke
@@ -14981,8 +13353,6 @@ Sinten saos rawû dengen (makto) kepenetan, dades dio ayun angsal (pahalo) yên 
 ## 28:85
 
 Selesernyo (Allah) yên ngewajîbke niko (Muhammad) peranti (ngelaksanoke hukum-hukum) al-Qur’an, selesernyo ayun mantû’ke niko ke panggonan mantû’. [^809] Kelapkela (Muhammad): “Tuhan kulo wikan wong yên makto petunjuk serto wong yên wênten jerû kesesetan yên nyato.”
-
-[^809]: Kota Mekah niki saos sios semayoan dari Tuhan bahwo Nabi Muhammad Saw ayun mantuk ke Mekah sebagî wong yên menang, serto niki sampun dades pado taon kelapan Hijriya, pado waktu Nabi naklu’ke Mekah. Niki ngerupoke sios mukjizat peranti Nabi Saw.
 
 ## 28:86
 
@@ -15036,8 +13406,6 @@ Serto wong-wong yên beiman serto namelke kebajikan, wong-wong niku ceto ayun Ka
 
 Serto di antaro wong wênten sebagîan wong yên bekelap: “kame’ beiman kepado Allah, tapi napibilo dio disakiti (kereno dio beiman) kepado Allah, dio nganggep coboan wong niku sebagî siksoan Allah. [^810] serto kalu rawû petolongan dari Tuhan niko, cengkila wong-wong niku ayun bekelap:”Selesernyo kame’ besami niko”. Dîdîka Allah langkung wikan napi yên wênten di jerû dado sedanten wong?
 
-[^810]: Wong niku takut kepado kezoliman wong, ma’kayo ketakutannyo kepado azab Allah, kerno niku dio tinggalke imannyo niku.
-
 ## 29:11
 
 Serto Allah cengki wikan wong-wong yên beiman serto Dio cengki wikan wong-wong yên munafik.
@@ -15066,8 +13434,6 @@ Serto (imutla) Ibrohim, sewaktu dio bekelap kepado kaumnyo, “Sembala Allah ser
 
 Selesernyo yên niko semba selian Allah cumanla berhalo-berhalo, serto niko muat kengota'ian. [^811] Selesernyo napi yên niko semba selian Allah niku nano kuwawo ngesungke rejeki kepado niko; dades tedola rejeki dari Allah, serto sembala Dio serto besyukurla kepado-Nyo. Kepado-Nyo saos niko ayun dimantû’ke
 
-[^811]: Dio nyatoke bahwo berhalo-berhalo niku angsal ngesung syafaat kepado dio di bucu Allah, serto niki wêntenla bebudian.
-
 ## 29:18
 
 Serto kalu niko (wong kafir) nustoke, dades nian, umat sedereng niko jugo sampun nustoke (sedanten rosul). Serto kewajiban rosul niku cumanla nyampểke (igamo Allah) dengen ceto”.
@@ -15079,8 +13445,6 @@ Serto napi wong-wong niku nano masati ma’pundi Allah ngawali penciptoan (makhl
 ## 29:20
 
 Kelapkela, “Bekesala di bumi, dades pasatila ma’pundi (Allah) ngawali penciptoan (makhluk), sampun niku Allah dadeske kedadesan yên akhir. [^812] Nian, Allah Maha Kuaso ates sedanten sesios.
-
-[^812]: Allah mangkîtke wong sesampun padem mengkin di akhîrat.
 
 ## 29:21
 
@@ -15110,8 +13474,6 @@ Dades Lut ngeleserke (kenabian Ibrohim). serto dio (Ibrohim) bekelap, “Seleser
 
 Serto Kame’ sungke kepado Ibrohim, Ishak serto Ya’kub, serto Kame’ dadeske kenabian serto kitab kepado dzurriyatnyo, serto Kame’ sungke kepadonyo balesannyo di dunio,  [^813] serto selesernyo dio di akherat, temasok wong yên sole
 
-[^813]: Dengen ngesungke anak cucung yên saî, kenabian yên terûs-menerûs pado dzurriyatnyo, serto puji-pujian yên saê.
-
 ## 29:28
 
 Serto (imutla) ketiko Lut bekelap kepado kaumnyo, “niko leser-leser namelke gawểan yên sanget keji (homoseksual) yên dereng perna dilakoni ole sios wong pun dari umat-umat sedereng niko.
@@ -15119,8 +13481,6 @@ Serto (imutla) ketiko Lut bekelap kepado kaumnyo, “niko leser-leser namelke ga
 ## 29:29
 
 Napika pantes niko natangi sertoang, maling  [^814] serto namelke kemungkaran di panggonan-panggonan hadérengan niko?” dades jawaban kaumnyo nano lian cuman ngelapke, “Rawûkela kepado kame’ azab Allah, kalu niko temasok wong-wong yên leser.”
-
-[^814]: Sebagîan mufasir ngertike taqta ‘unas sabil dengen “ngelakoni damelan keji tehadep wong-wong yên jerû pejalanan”, kerno dio sebagêan ageng namelke homoseksual niku dengen tamu-tamu yeng rawo ke pedaleman wong-wong niku. wênten lagi yên ngartike dengen “ngerusak jalan dzurriyat” kerno dio bedamel homoseksual.
 
 ## 29:30
 
@@ -15130,8 +13490,6 @@ Dio (Lut) bedo’o, “Wahai Tuhan kulo, tûlûngla kulo (dengen nimpoke azab) p
 
 Serto ketiko ûtûsan Kame’ (sedanten malaikat) rawû kepado Ibrohim dengen makto kabar gembiro, [^815] wong-wong niku ngelapke, “Nian, kame’ ayun minasoke penduduk kota (Sodom) niki kereno penduduknyo wong-wong zolim nian.”
 
-[^815]: Kabar bahwo Nabi Ibrohim a.s. ayun angsal anak lanang.
-
 ## 29:32
 
 Ibrohim bekelap, “Selesernyo di kota niku wênten Lut.” wong-wong niku (sedanten malaikat) bekelap, “Kame’ langkung wikan sinten yên wênten di kota niku. Kame’ cengki ayun nyelametke dio serto penumut-penumutnyo selian semanyo. Dio temasûk wong-wong yên tetinggal (dibinasoke).”
@@ -15140,8 +13498,6 @@ Ibrohim bekelap, “Selesernyo di kota niku wênten Lut.” wong-wong niku (seda
 
 Serto ketiko sedanten utusan Kame’ (sedanten malaikat) rawû kepado Lut, dio ngeraso besedî ati kereno (kerawûan) dio-dio, [^816] serto (ngeraso) nano wênten kuwawo ngelindungi wong-wong niku, serto wong-wong niku (sedanten ûtûsan) bekelap, “Nano angsal niko takût serto nano angsal (pulo'’) besedî ati. Selesernyo Kame’ ayun nyelametke niko serto penumut-penumut niko, selian sema niko, dio temasûk wong-wong yên tinggal (dibinasoke).”
 
-[^816]: Nabi Lut a.s. ngeraso besedî ati ayun betamu utusan-utusan Allah niku kerno dio berupo bujang anom yeng cindo, sedengke kaum Lut demen nian  bujang-bujang anom yeng cindo peranti namelke homoseksual. Serto dio ngeraso nano sanggûp ngelindungi dio niku kalu wênten gangguan dari kaumnyo.
-
 ## 29:34
 
 Selesernyo Kame’ ayun nûrûnke azab dari langit kepado pendûdûk kota niki kereno wong-wong niku bedamel fasik
@@ -15149,8 +13505,6 @@ Selesernyo Kame’ ayun nûrûnke azab dari langit kepado pendûdûk kota niki k
 ## 29:35
 
 Serto selesernyo, tentang niku sampun Kame’ tinggalke sios tando yên ceto [^817] peranti wong-wong yên faham.
-
-[^817]: Bekas-bekas runtohan kota Sodom, negeri kaum Luth.
 
 ## 29:36
 
@@ -15188,8 +13542,6 @@ Serto peumpamoan-peumpamoan niki Kame’ damel peranti wong; serto nano wênten 
 
 Allah nyiptoke langit serto bumi dengen leser. [^818] Selesernyo, pado yên ma’niki niku cengki wênten tando-tando (keagengan Allah) peranti wong-wong yên beiman
 
-[^818]: Allah nyiptoke sedanten yên disebutke niku dîdînyo sio-sio, melianke dengen kata hikma.
-
 ## 29:45
 
 Bacola kitab (Al-Qur’an) yên sampun diwahyuke kepado niko (Muhammad) serto damelkela semayang (semayang). Selesernyo semayang niku nyega dari (damelan) keji serto munkar. Serto (wikanila) ngimut Allah (semayang) niku langkung ageng (keutamoannyo dari ibadat yên lian). Allah wikan napi yên niko damelke.
@@ -15210,8 +13562,6 @@ Serto niko (Muhammad) nano kalo maco sesios kitab sedereng (Al-Qur’an) serto n
 
 Selesernyo, (Al-Qur’an) niku wêntenla yên jelas atawa nyato di jeru dado wong-wong yên beilmu, [^819] wong-wong yên zolim saos yên ngingkari kame'.
 
-[^819]: Ayat-ayat al-Qur’an niku tepeliharo jerû dado dengen dihafal ole kata kaum muslimin tûrûn-temûrûn serto difahami wong-wong niku, sehinggo nano wênten sios jugo yên angsal ngubanyo.
-
 ## 29:50
 
 Serto wong-wong niku (wong-wong kafîr Mekkah) bekelap, ngapo nano diturunke mukjizat-mukjizat dari Tuhannyo? Kelapkela (Muhammad) mukjizat-mukjizat niku tesera kepado Allah, selesernyo kulo wêntenla  pengesung perengetan yên nyato (jelas).
@@ -15227,8 +13577,6 @@ Kelapkela (Muhammad), cungkupla Allah dades saksen antaro kulo serto niko. Dio w
 ## 29:53
 
 Serto wong-wong niku nedo kepado niko supayo gancang diturunke azab. Kalu bukan kerno waktunyo yên sampun ditetepke, [^820] niscayo rawu azab kepado wong-wong niku, serto (azab niku) cengki bakal rawu kepado wong-wong niku dengen terumpak, sedengke wong-wong niku nano nyadarinyo.
-
-[^820]: Ditetepke azab niku pado dinten pembalesan, di akhîrat.
 
 ## 29:54
 
@@ -15278,8 +13626,6 @@ Serto nanola keîdupan dunio niki melianke penesan serto maen-maen saos. Serto s
 
 Dades kapan wong-wong niku numpak kapal, wong-wong niku bedo’a kepado Allah dengen penu raso pengabdian (redho) kepadonyo, [^821] tapi waktu Allah nyelametke wong-wong niku sampî ke darat, hinggo wong-wong niku (bali lagi) nyekutuke (Allah).
 
-[^821]: Dengen murnike ketoatan semato-mato kereno Allah
-
 ## 29:66
 
 Supayo wong-wong niku ngingkari nikmat yên sampun kame' sungke kepado wong-wong niku serto supayo wong-wong niku (îdup) beseneng-seneng (jerû kekafîran). dades mengkin wong-wong niku wikan (akibat damelannyo).
@@ -15292,8 +13638,6 @@ Nanola wong-wong niku merhatike (nyimak), bahwo kame' sampun nadeske (negeri won
 
 Serto sintenla yên langkung zolim daripado wong yên ngewêntenke bebudian kepado Allah atawa wong yên mohongke yên Hak. [^822] Waktu (yên Hak) niku rawu kepadonyo? Napi nano jeru nerako jahanam wênten enggon peranti wong-wong kafir ?
 
-[^822]: Nustoke kenabian Nabi Muhammad saw.
-
 ## 29:69
 
 Serto wong-wong yên bejihad (ngerunut keredhoan) kame', kame' bakal tunju’ke kepado wong-wong niku jalan-jalan kame'. Serto selesernyo Allah besami wong-wong yên damelke kesaêan.
@@ -15302,27 +13646,17 @@ Serto wong-wong yên bejihad (ngerunut keredhoan) kame', kame' bakal tunju’ke 
 
 Alif – Lam – Mim. [^823]
 
-[^823]: Nikula huruf-huruf abjad yên teletak pado awal sebagian dari surat-surat Al Quran pecak: Alif laam miim, Alif laam raa, Alif laam miim shaad serto liannyo. diantaro Ahli-ahli tafsir wênten yên nyerake pengertiannyo kepado Allah kerno dipandang temasuk ayat-ayat mutasyaabihaat, serto wênten pulo golongan yên nafsirkenyo atawa yên mandangnyo sebagî nami surat, serto wênten pulo yên bependapet bahwo huruf-huruf abjad niku gunonyo peranti narîk pehatian sedanten pendengêr supayo merhatike Al Quran niku, serto peranti ngisyaratke bahwo Al Quran niku diturunke dari Allah jerû baso Arab yên tesusun dari huruf-huruf abjad. Kalu wong-wong niku nano yakin bahwo Al Quran niku diturunke dari Allah serto dîdînyo buatan Nabi Muhammad s.a.w.,  cobola wong-wong niku damel pecak Al Quran niku.
-
 ## 30:2
 
 Bangso Romawi sampun dikalake.  [^824]
-
-[^824]: Maksudnyo: Rumawi timur yên bepusat di Konstantinopel
 
 ## 30:3
 
 Di negeri yên tepara’, [^825]  serto wong-wong niku sesampun kekalahannyo niku bakal menang. [^826]
 
-[^825]: Maksudnyo: terpara' ke negeri Arab ya'ni Syria serto Palestina sewaktu dades jajahan kerajaan Rumawi Timur
-
-[^826]: Bangs Rumawi wêntenla sios bangso yên berigamo Nasrani yên wênten kitab suci sedengke bangsa Persia wêntenla berigamo Majusi, nyemba api serto berhalo (musyrik). keduo bangso niku salîng perang merangi. ketiko tesiar kabar kalahnyo bangso Rumawi olê bangsa Persia, dades kaum musyrik Mekah nyambutnyo dengen gembiro kerno berpihak kepado wong musyrikin Persia. sedengke kaum muslimin berduka cita kernonya. sampun niku tûrûnlah ayat niki serto ayat yên berikutnyo nerangke bahwo bangsa Rumawi sesampun kalah niku ayun angsal kemenangan jerû maso pinten-pinten wikan saos. Yên ma’niku leser-leser tedades. pinten-pinten wikan sesampun niku menangla bangsa Rumawi serto kalahla bangsa Persia. dengen kedadesan yên ma'niku nyatola keleseran Nabi Muhammad s.a.w. sebagî Nabi serto Rasul serto keleseran Al Quran sebagî firman Allah
-
 ## 30:4
 
 Pado pinten-pinten taun (male) [^827] peranti Allah ûrûs'an sedereng serto sesampun (wong-wong niku menang). Serto pado dinten (kemenangan bangso Romawi) niku begembiro wong-wong yên beiman
-
-[^827]: Ya'ni antaro tigo sampî semilan taun. waktu antaro kalahnyo bangso Rumawi (wikann 614-615) dengen kemenangannyo (taûn 622 M.) bangsa Rumawi wêntenla kiro-kiro pitu taûn.
 
 ## 30:5
 
@@ -15360,10 +13694,6 @@ Serto pado dinten (waktu) tedades kiamat, wong-wong yên bedoso (kaum musyrik) t
 
 Serto nano mungkin wenten pengesung syafaat  [^828] (petûlûngan) peranti wong-wong niku dari berhalo-berhalo wong-wong niku, sedengke wong-wong niku ngingkari behalo-behalo wong-wong niku niku. [^829]
 
-[^828]: Syafa'at: usoho perentaroan jerû ngesungke sesios manfaat peranti wong lian atawa ngela’ke sesios mudharat peranti wong lian. syafa'at yên nano diterimo di sisi Allah wêntenla syafa'at peranti wong-wong kafir.
-
-[^829]: nûrût sebagêan ahli tafsir, ayat niki diretike: ... sedengke wong-wong niku dades kafir, wêntenla disebabke berhalo-berhalo.
-
 ## 30:14
 
 Serto pado dinten (waktu) tedades kiamat, pado dinten niku wong tepeca-peca (jerû kelompok).
@@ -15383,8 +13713,6 @@ Dades betasbela kepado Allah waktu sore dinten serto waktu pagi dinten (waktu su
 ## 30:18
 
 Serto perantinyo sedanten puji di langit serto di bumi, serto malem dinten serto pado waktu zohor (awan dinten). [^830]
-
-[^830]: Maksud betasbî jerû ayat 17 ya'ni semayang. ayat-ayat 17 serto 18 nerangke tentang waktu semayang yên limo.
 
 ## 30:19
 
@@ -15434,8 +13762,6 @@ Tapi wong-wong niku yên zolim melok-i kepengenannyo nano wenten ilmu pengetahua
 
 Dades adepkela rai niko dengan lûrûs' (leser) kepado igamo (Islam), (sesuai) fitroh Allah dikernoke Dio sampun nyiptoke wong nurut (fitroh) niku [^831] nano wenten ubanyo pado ciptaan Allah. (Nikula) igamo yên lûrûs' (leser), tapi kata wong yên nano wikan.
 
-[^831]: Wong nano berigamo tauhid, dades hal niku nanola wajar. wong-wong niku nano berigamo tauhid niku cuman lantaran pengaruh lingkungan.
-
 ## 30:31
 
 Dengen mantû’ betobat kepado-Nyo serto betakwala kepado-Nyo, serto laksanokela semayang (sholat) serto angsal niko telînggî wong-wong yên nyekutuke Allah.
@@ -15444,13 +13770,9 @@ Dengen mantû’ betobat kepado-Nyo serto betakwala kepado-Nyo, serto laksanokel
 
 Ya’ni wong-wong yên meca bela igamo, wong-wong niku, [^832] serto wong-wong niku dades pinten-pinten gûgû', saben gûgû' ngeraso bangga dengen napi yên wenten pado gûgû' wong-wong niku.
 
-[^832]: Maksudnyo: ninggalke igamo tauhid serto nganut pelbagî kepercayaan nûrût hawa nafsu wong-wong niku.
-
 ## 30:33
 
 Serto kapan wong ditimpo yên mahayoke, wong-wong niku nyeru Tuhannyo dengen mantû’ (betobat) kepado-Nyo, sampun niku kapan Dio ngesûng setîtî’ rohmat-Nyo [^833] kepado wong-wong niku, tumpa'-tumpa' sebagîan wong-wong niku nyekutuke Allah
-
-[^833]: Yên dimaksud dengen rahmat di ngeriki ya'ni lepas dari bahaya niku.
 
 ## 30:34
 
@@ -15472,8 +13794,6 @@ Serto napi wong-wong niku masati bahwa Allah yên ngelapangke rezeki peranti sin
 
 Dades sungkela hak-Nyo kepado sanak kadangnyo (kerabatnyo), jugo kepado wong-wong mîskîn serto wong-wong yên musafir. [^834] Nikula yên langkung saê peranti wong-wong yên ngerunut keridhoan Allah, serto wong-wong niku nikula wong-wong yên berûntûng.
 
-[^834]: Yên berhak nerimo zakat ya'ni: 1. wong fakir: wong yên Amat sengsaro uripnyo, nano wênten herto serto tenago peranti menuhi uripnyo. 2. wong miskin: wong yên nano cungkup serto serbo kekirangan. 3. Pengurus zakat: wong yên di sung tugas peranti ngûmpûlke serto mayar jekat. 4. Muallaf: wong kafir yên wênten harepan melebet Islam serto wong yên daru melebet Islam yên imannyo male lemah. 5. merdekake buda’: cangkup jugo peranti ngelepaske Muslim yên ditawan olê wong-wong kafir. 6. wong behutang: wong yên behutang kerno peranti kepentingan yên dêdê maksiat serto nano sanggup mayarnya. wêntenpun wong yên berhutang peranti meliharo persatuan umat Islam dibayar hutangnya niku dengen zakat, meski io mampu mayarnyo. 7. sami jalan Allah (sabilillah): ya'ni peranti keperluan pertahanan Islam serto kaum muslimin. di antaro mufasirin wênten yên bependapet bahwo fisabilillah niku nyangkup jugo kepentingan-kepentingan umum peca' nawa'ke sekolah, rompo' sakit serto lian-lian. 8. wong yên sedengke jerû lawatan yên dêdê maksiat ngalami kesengsaroan jerû lawatannyo.
-
 ## 30:39
 
 Serto barang riba yên niko sungke supayo harto wong betamba, dades nano betamba pado pandangan Allah. Serto napi yên niko sungke berupo jekat yên niko maksudke peranti ngangsalke keridhoan Allah, dades nikula wong-wong yên ngelipet gandoke (pahalonyo).
@@ -15494,8 +13814,6 @@ Kelapkela (Muhammad) mintarla di bumi lian, tingali ma’pundi akhirnyo wong-won
 
 Ole kerno niku, adepkela rai niko kepado igamo yên leser (Islam), sedereng rawu dari Allah waktu dinten (kiamat) yên nano angsal ditula’, pado dinten niku wong-wong niku tepisa-pisa. [^835]
 
-[^835]: Ya'ni sebagean wong-wong niku wênten jerû suarga serto sebagean male di nerako.
-
 ## 30:44
 
 Sinten saos yên kafîr dades dio dewe’la yên nanggûng (akibat) kekafîrannyo niku, serto sinten saos bedamel kesaêan dades wong-wong niku nyiapke peranti awa' wong-wong niku dewe’ (enggon yang nyenengke).
@@ -15508,15 +13826,9 @@ Supayo Allah ngesûng balesan (pahalo) kepado wong-wong niku yên beiman serto n
 
 Serto di antaro tando-tando (keagengan)Nyo wentenla bahwo Dio ngîrîmke angin yên mak¬to kabar gembiro  [^836] serto supayo niko ngera¬so¬ke sebagîan dari rohmat-Nyo [^837] serto supayo kapal angsal belayar dengen perenta-Nyo  serto (jugo) supayo niko angsal ngerunut sebagîan dari karunioNyo, serto supayo niko besyukur.
 
-[^836]: Pemakto kabar gembiro maksudnyo: awan yên tebel yên ditiup angin sampun niku nûrûnk ujan. kernonya angsal dirasoke rahmat Allah dengen tûmbûny biji-biji yên sampun disemaike serto hijauke tanaman-tanaman serto bebuahnyo tumbuh-tumbuhan serto sebagînyo.
-
-[^837]: Ya'ni: dengen seizin Allah serto dengen sekendak-Nyo.
-
 ## 30:47
 
 Serto leser, kame' sampun ngûtûs sedereng niko (Muhammad) pinten-pinten Rosul kepado kaumnyo, wong-wong niku rawu kepadonyo dengen makto keterangan-keterangan (yên cûngkûp), sampun niku kame' namelke balesan tehadep wong-wong yên bedoso, [^838] serto merupoke hak kame' ayun nûlûng wong-wong yên beiman.
-
-[^838]: Dengen kerawûan Rasul-rasul yên cungkup makto keterangan-keterangan kepado kaumnyo niku, dades sebagean wong-wong niku percayo serto sebagean male nustokenyo bahkan sampe wênten yên nyakitinyo. Dades tehadep wong yên bedoso peca' niku Allah nyikso wong-wong niku
 
 ## 30:48
 
@@ -15538,8 +13850,6 @@ Serto leser, kalu kame' ngîrîmke angin, sampun niku wong-wong niku ningali (ta
 
 Dades leser, niko nano bakal sanggûp nadeske wong-wong yên padem niku angsal nenger, serto nadeske wong-wong yên peka’ angsal nenger aja’an, kapan wong-wong niku melegos nole ke buri. [^839]
 
-[^839]: Wong-wong kafir niku disamike Tuhan dengen wong-wong padem yên nano mungkin male ngerunguke pelajaran-pelajaran. Ma’niku jugo disamike wong-wong kafir niku dengen wong-wong tuli yên nano angsal ngerungu panggilan sami sekali napibilo wong-wong niku sedengke ngelangkai kito.
-
 ## 30:53
 
 Serto niko nano bakal angsal ngesûng petûnjû’ kepado wong-wong yên buto (mato atinyo) dari kesesetannyo, serto niko nano angsal nengerke (petûnjû’ Tuhan) kecuwali wong-wong yên beiman dengen kame', dades wong-wong niku yên besera awa' (kepado kame').
@@ -15551,8 +13861,6 @@ Allah yên nyiptoke niko dari kewentenan loyo, sampun niku Dio nadeske (niko) se
 ## 30:55
 
 Serto pado dinten (waktu) tedadesnyo kiamat, wong-wong yên bedoso besumpa bahwo wong-wong niku bediem (jerû kûbûr) sedenget (saos) ma’nikula kerîhîn wong-wong niku dipalîngke (dari keleseran). [^840]
-
-[^840]: Maksudnyo: peca' wong-wong niku bebudi dengen kelapan wong-wong niku niki, peca' niku pulo'lah wong-wong niku sesampun niko bebudi di dunio.
 
 ## 30:56
 
@@ -15602,8 +13910,6 @@ Serto di antaro wong (wenten) wong yên ngunoke kelapan yên nano beguno (kelaka
 
 Serto napibilo dibacoke kepadonyo [^841] ayat-ayat kame', dio melengos dengen congka’nyo, peca’ dio dereng nengernyo, peca’ wenten sumpelan di keduo kûpîngnyo. dades ladaskela dio dengen azab yên pedî
 
-[^841]: Kepado wong yên ngunoke cerios kosong peranti nyesetke wong.
-
 ## 31:8
 
 Selesernyo wong-wong yên beiman serto namelke kesaêan, peranti wong-wong niku  suargo-suargo yên penu kenikmatan.
@@ -15632,8 +13938,6 @@ Serto (imutla) waktu Luqman bekelap kepado zuriatnyo, waktu dio ngesung pelajara
 
 Serto kame' perentake kepado wong (supayo bedamel saê) kepado keduo wong tuonyo, ibo’nyo sampun ngandungnyo dengen paya  serto yên betamba paya, serto nyapenyo ketiko umur kale taun. [^842] Besyukurla kepado Kulo serto kepado wong tuo niko. Kepado Kulo saos mantû’nyo niko.
 
-[^842]: Salami-laminyo waktu nyapi niku kale tahun.
-
 ## 31:15
 
 Serto kalu keduonyo makso niko peranti nyekutuke Kulo dengen sesios yên niko nano wenten ilmu tentang niku, dades nano angsal niko na’ati keduonyo serto kawanila keduonyo di dunio dengen saê. Serto tumutila jalan wong-wong yên mantû’ kepado Kulo. Sampun niku kepado Kulo saos enggon mantû’nyo niko, dades bakal Kulo sung wikanke kepado niko napi yên sampun niko damelke.
@@ -15641,8 +13945,6 @@ Serto kalu keduonyo makso niko peranti nyekutuke Kulo dengen sesios yên niko na
 ## 31:16
 
 (Luqman bekelap) “hei anak kulo” ! Leser, kalu wenten (sios damelan) seberat biji sawi serto wenten di jerû batu atawa di langit atawa di bumi, niscayo Allah bakal ngesunginyo (balesan). Selesernyo Allah Maha Halus, [^843] Maha Wikan.
-
-[^843]: Maha Halus, ya’ni ilmu Allah niku ngeliputi sedantennyo ma’pundi saos alitnyo.
 
 ## 31:17
 
@@ -15655,8 +13957,6 @@ Serto nano angsal niko noleke rainyo dari wong (kerno sombong) serto nano angsal
 ## 31:19
 
 Serto sederhano be kalu melaku, [^844] serto lembutkela suaro niko. Selesernyo seburuk-buruk  suaro nikula suaro kudo (keledai).
-
-[^844]: Sewaktu melaku, nano angsal begancang jugo nano angsal belembet.
 
 ## 31:20
 
@@ -15690,8 +13990,6 @@ Kepunyoan Allah napi yên di langit serto di bumi. Selesernyo Allah, Dwêntenla 
 
 Serto kalu batang-batang kayu di bumi dades pena serto lautan (dades tinta), ditambake kepadonyo pitu lautan (male) sesampun (kerîngnyo), niscayo nano bakal telas-telasnyo (ditûlîske) kalimah-kalimah Allah. [^845] Selesernyo Allah Maha Pekaso, Maha Bijaksano.
 
-[^845]: Ilmu-Nyo serto hikma-Nyo, retinyo sedanten niku nano cungkup peranti nuliske ayat Allah.
-
 ## 31:28
 
 Nyiptoke serto nangike (mangunke) niko (peranti Allah) ma’kayo (nyiptoke) serto nangike (mangunke) sios jiwo saos (muda). Selesernyo Allah Maha Nenger, Maha Ningali.
@@ -15712,8 +14010,6 @@ Napi nano niko pasati bahwo selesernyo baito niku belayar di laut dengen nikmat 
 
 Serto kapan wong-wong niku digulung ombak yên ageng ma’kayo gunung, wong-wong niku manggil Allah dengen tulus ikhlas beigamo kepado-Nyo. Tapi sewaktu Allah nyelametke wong-wong niku sampe ke darat, sebagîan wong-wong niku tetep pado jalan yên leser. [^846] Wenten saos yên ngingkari ayat-ayat kame', wentenla wong pengkhianat yên nano beterimo kase
 
-[^846]: Jalan yên leser niku wentenla ngakui keesaan Allah.
-
 ## 31:33
 
 Hei wong! takwala kepado Tuhan niko serto takutla pada dinten yên (waktu niku) sios aba nano angsal nûlûng anaknyo, serto sios anak nano angsal (pulo''k) nûlûng abanyo setîtî' saos. Leser, janji Allah cengki leser, dades nano angsal sekali-kali niko tepedayo ole keîdupan dunio, serto nano angsal sampî niko tepedayo ole pembohong jerû (na’ati) Allah
@@ -15721,8 +14017,6 @@ Hei wong! takwala kepado Tuhan niko serto takutla pada dinten yên (waktu niku) 
 ## 31:34
 
 Selesernyo, di bucu Allah saos ilmu tentang dinten kiamat, serto Dio yên nûrûnke ujan, serto wikan napi yên wenten jerû rahim, serto nano wenten sios wong saos yên angsal wikan (dengen cengki) napi yên bakal didamelkenyo benjang pagi. [^847] serto nano wenten sios wong yên angsal wikan di bumi pundi dio bakal padem. Selsesrnyo Allah Maha Wikan, Maha Ngenal.
-
-[^847]: Wong niku nano angsal wikan dengen ceto napi yên ayun didamelkenyo benjang atawa yên ayun diperolenyo, tapi wong-wong niku diwajibke ikhtiar.
 
 ## 32:1
 
@@ -15740,15 +14034,9 @@ Tapi napi wong-wong niku (wong kafir) ngelapke “Dio (Muhammad) sampun ngewente
 
 Allah yên nyiptoke langit serto bumi serto napi yên wenten di antaro keduonyo pado enem maso, sampun niku Dio bediem di pucuk ‘arsy. [^848]  Nano wenten peranti niko selian dari padonyo sios wong penulung serto nano pulo' pengesung syafaat [^849]  selian Dio, dades napi niko nano meratikenyo
 
-[^848]: Besemayam di pûcû’ 'Arsy ya'ni sios sifat Allah yên wajib kito imani, klop dengen keagengan Allah serto kesucian-Nyo.
-
-[^849]: Syafa'at: usoho perantaroan jerû ngesungke sesios manfaat peranti wong lian atawa ngela’ke sesios mudharat peranti wong lian. syafa'at yên nano diterimo di sisi Allah wêntenla syafa'at peranti wong-wong kafir.
-
 ## 32:5
 
 Dio ngatur sedanten ûrûs'an dari langit ke bumi, sampun niku (ûrûsan) niku naek kepado-Nyo pado sios dinten yên kadarnyo (lambatnyo) wentenla seribu taun nûrût peritungan niko. [^850]
-
-[^850]: Maksud urusan niku munggah kepadonyo ya'ni kabarnya yên dibakto olê malaêkat. ayat niki sios tamsil peranti keagengan Allah serto keagunganNyo.
 
 ## 32:6
 
@@ -15770,8 +14058,6 @@ Sampun niku Dio nyempurnokenyo serto niupke ruh (ciptoan-Nyo) ke jerû (badannyo
 
 Serto wong-wong niku bekelap napi kalu  kame' sampun ilang lenyep (ancur) di jerû lema, selesernyo kame' ayun wenten jerû ciptoan yên anyar. [^851] Bahkan wong-wong niku ngingkari panggî sami Tuhannyo.
 
-[^851]: maksudnyo diuripke male peranti nerimo balesan Tuhan sami dinten kiamat
-
 ## 32:11
 
 Kelapkela, malaîkat maut yên diserai tugas  (nyabut nyawo) niko bakal mademke niko, sampun niku kepado Tuhan niko, niko bakal dimantû’ke.
@@ -15792,13 +14078,9 @@ Dades rasokela ole niko (azab niki) di kernoke niko ngelenoke hadrengan dengen d
 
 Wong-wong yên beiman dengen kame', cumanla wong-wong yên kapan diperingetke dengennyo (kame'), wong-wong niku nyungkur sujud, [^852] serto betasbe serto muji Tuhannyo, serto wong-wong niku nano congkak
 
-[^852]: maksudnyo wong-wong niku sujud kepado Allah serto khusyuk. Disunahke namelke sujud tilawah napibilo maco atawa ngerungu ayat-ayat sajdah yên peca' niki.
-
 ## 32:16
 
 Lambung wong-wong niku tebî dari enggon tilemnyo, [^853] wong-wong niku bedo’a kepado Tuhannyo dengen raso takût serto penu gayu (arepan) serto wong-wong niku nginfakke sebagêan dari rezeki yên kame' sungke kepado wong-wong niku
-
-[^853]: maksudnyo wong-wong niku nano tilem di waktu biasonyo wong tilem peranti namelke shalat malam.
 
 ## 32:17
 
@@ -15828,13 +14110,9 @@ Serto sinten yên langkung zolim dari wong yên sampun diperingetke dengen Tuhan
 
 Serto selesernyo sampun kame' anugerake kitab (Taurot) kepado Musa, dades nano angsal niko (Muhammad) ragu-ragu nerimonyo (Al-Qur’an) serto kame' dadeske kitab (Taurot) niku petûnjû’ peranti Bani Isroil. [^854]
 
-[^854]: maksudnyo: peca' sampun di sungke kepado Musa, Taurat, ma’niku jugo di sungke kepado Muhammad Al-Quran. serto peca' Taurat didadeske petûnjû’ peranti Bani Israil, dades didadeske Al-Quran petûnjû’ peranti ummat niko.
-
 ## 32:24
 
 Serto kame' dadeske di antaro wong-wong niku pemimpin-pemimpin yên ngesung petûnjû’ dengen perenta kame' selambat wong-wong niku sobar. [^855] Wong-wong niku yakin dengen kame'.
-
-[^855]: yên dimaksud dengen sabar ya'ni sabar jerû nega’ke keleseran.
 
 ## 32:25
 
@@ -15856,13 +14134,9 @@ Serto wong-wong niku betaken, kapanla kemenangan niku (rawu) kalu niko wong yên
 
 Kelapkela pado dinten kemenangan [^856] niku, nano beguno male peranti wong-wong kafîr keimanan wong-wong niku nano disung penggengselan
 
-[^856]: Dinten kemenangan ya'ni dinten kiamat, atawa kemenangan jerû perang Badar, atawa penaklukan kota Makkah
-
 ## 32:30
 
 Dades bepalengla niko dari wong-wong niku serto entenila selesernyo wong-wong niku (jugo) ngenteni. [^857]
-
-[^857]: Nabi Muhammad SAW besami wong-wong mukmin dikengken nunggu kemenangan tehadep wong kafir serto kehancuran wong-wong niku.
 
 ## 33:1
 
@@ -15880,45 +14154,29 @@ Serto betawakalla kepado Allah serto cungkupla Allah dades pemeliaro.
 
 Allah nano nadeske peranti sesios wong duo ati jerû dadonyo, serto Dio nadeske sema-semanyo yên niko zihar. [^858] Niku seperanti ibo' niko, serto Dio nano nadeske anak angkat niko dades anak kandung niko (dewe’), yên ma'niku-niku kelapan di mulut niko saos. Allah ngelapke yên selesernyo serto Dio nûnjû’ke jalan (yên leser).
 
-[^858]: Zhihar ya'ni kelapan sios domik kepado semanyo: punggung niko Haram peranti kulo peca' punggung embi’kulo atawa kelapan lian yên sami maksudnyo. wêntenla dades adat kebiasoan peranti wong Arab Jahiliyah bahwo kalu Dio bekelap ma'niku kepado semanyo dades semanyo niku haramnyo peranti dio selami-laminyo. tapi sesampun Islam rawû, dades yên Haram peranti selami-laminyo niku diapûske serto sema-sema niku mantu’ halal perantinyo dengen mayar kaffarat (denda).
-
 ## 33:5
 
 Ulemila wong-wong (anak angkat niku) dengen (make) nami aba-aba wong-wong niku, nikula yên adil di bucu Allah, serto kalu niko nano wikan aba wong-wong niku, dades (ulemila wong-wong niku dades), dulur-dulur niko seigamo serto sahabat-sahabat niko. [^859] Serto nano wenten doso niko serto kalu niko khilaf tentang niku, tapi (yên wenten dosonyo) napi yên disengajo oleh ati niko, Allah Maha Pengampun, Maha Penyayang.
-
-[^859]: Ayunla-ayunla ya'ni sios hamba sahaya yên sampun dimerdekake atawa sios wong yên sampun didadeske ana’ angkat, peca' Salim anak angkat Huzaifah, dipanggil ayunla Huzaifah.
 
 ## 33:6
 
 Nabi niku langkung utamo peranti wong-wong mukmin dibandîng-bandîngke awa' wong-wong niku dewe’ [^860] serto sema-semanyo wentenla ibo'-ibo' wong-wong niku. Wong-wong yên wenten hubungan dara sios sami liannyo langkung behak (waris-mewarisi) di jerû kitab Allah daripado wong-wong mukmin serto wong-wong muhajirin, kecuwali kalu niko ayun bedamel saê [^861] kepado dulur-dulur niko (seigamo). ma'nikula sampun tetûlîs jerû kitab (Allah).
 
-[^860]: Maksudnyo: wong-wong mukmin niku nyintoi Nabi wong-wong niku langkung dari nyintoi awa' wong-wong niku dewe' jerû sedanten luruan.
-
-[^861]: Yên dimaksud dengen bedamel saê dingeriki ya'ni bewasiat yên nano langkung dari sepertigo herto.
-
 ## 33:7
 
 Serto (imutla) waktu kame' ngembîl semayoan dari nabi-nabi serto dari niko (dewe') dari Nuh, Ibrohim, Musa, serto Isa anak Mariam, serto kame' sampun ngembîl dari wong-wong niku semayoan yên tegû. [^862]
-
-[^862]: Semayoan yên tegû ya'ni kesanggupan nyampîke igamo kepado umatnyo dewe’-dewe’.
 
 ## 33:8
 
 Supayo dio nakenke kepado wong-wong yên leser tentang keleseran wong-wong niku. [^863] Dio ngewentenke azab yên pedî peranti wong-wong kafîr.
 
-[^863]: Sami dinten kiamat Allah ayun nakenke kepado Rasul-rasul sampe dipundi usoho wong-wong niku nyampîke ajaran-ajaran Allah kepado umatnyo serto nggût di pundi umatnyo ngelaksanoke ajaran Allah niku.
-
 ## 33:9
 
 Hei wong-wong yên beiman! Imutla dengen nikmat Allah (yên sampun dikarunioke) kepado niko waktu bala tentera rawû kepado niko, laju kame' kirimke kepado wong-wong niku angin topan serto bala tentera yên sampun ketingalan ole niko. [^864] Allah maha ningali, napi yên niko damelke
 
-[^864]: Ayat niki nerangke kisah Ahzab ya'ni golongan-golongan yên dihancurke sami perangan Khandaq kerno nentang Allah serto Rasul-Nyo. yên dimaksud dengen tentaro yên nano angsal niko tingali wêntenla sedanten Malaêkat yên sengajo dirawûke Tuhan peranti ngancûrke musuh-musuh Allah niku.
-
 ## 33:10
 
 (Yakni) ketiko wong-wong rawû kepado niko dari pucuk serto dari bawa niko, serto waktu, peningalan (niko) tesiruk serto ati niko nyesek sampe ke gorokan, [^865] serto niko nenggu yên nano-nano tehadep Allah
-
-[^865]: Maksudnyo ya'ni ngambarke ma’pundi hebatnyo perasaan takut serto perasaan genter sami waktu niku
 
 ## 33:11
 
@@ -15935,8 +14193,6 @@ Serto (imutla) waktu segûgû' di antaro wong-wong niku bekelap, “hei pendûd�
 ## 33:14
 
 Serto kalu (Yasrib) diserang dari sedanten bucu (penjuru), serto wong-wong niku ditedo supayo namel murtad , [^866] niscayo wong-wong niku namelkenyo serto sedenget saos wong-wong niku nunggu
-
-[^866]: Yên dimaksud dengen bedamel fitnah ya'ni: murtad, atawa merangi wong Islam.
 
 ## 33:15
 
@@ -15970,13 +14226,9 @@ Leser, sampun wenten pado (awa') Rosulullah niku suri teladan (conto) yên saê 
 
 Serto waktu wong-wong mukmin ningali gûgû'-gûgû' (yên besekutu) niku, wong-wong niku bekelap, “nikila yên dijanjike Allah serto rosul-Nyo  kepado kito,” serto leserla Allah serto rosul-Nyo. [^867] Serto yên ma'niku namba keimanan serto ke-Islaman wong-wong niku.
 
-[^867]: Yên dijankalun Allah serto Rasul-Nya niku ya'ni kemenangan sesampun mengalami kesukaran.
-
 ## 33:23
 
 Di antaro wong-wong mukmin niku wenten yên nepati (optet) napi yên sampun wong-wong niku semayoke kepado Allah. Serto di antaro wong-wong niku wenten yên gugur, serto wong-wong niku di antaronyo wenten pulo'''k yên nunggu-nunggu [^868] serto wong-wong niku setîtî’ saos nano nguba (janjinyo).
-
-[^868]: Maksudnyo nunggu napi yên sampun Allah janjike kepadonyo.
 
 ## 33:24
 
@@ -15986,25 +14238,17 @@ Supayo Allah ngesungke balesan kepado wong-wong yên leser niku kerno keleserann
 
 Serto Allah ngûsîr wong-wong kafîr niku yên kewentenan wong-wong niku ngerokdog, kerno wong-wong niku (jugo) nano angsal keuntungan napi saos. Cungkûpla Allah (yên nûlûng) ngindar (ngela’ke) wong-wong mukmin jerû peperengan, [^869]  serto Allah Maha Kuaso, Maha Pekaso.
 
-[^869]: Maksudnyo wong mukmin nano perlu perang, kerno Allah sampun ngehalau wong-wong niku dengen ngirimke angin serto malaêkat.
-
 ## 33:26
 
 Serto Dio nûrûnke wong-wong ahli kitab (Bani Quraizah) yên nûlûngi wong-wong niku (gûgû'-gûgû' yên besekutu) dari benteng-benteng wong-wong niku serto Dio melînggîke raso takut ke jerû ati wong-wong niku. sebagîan wong-wong niku, niko bunu serto sebagîan yên lian niko tawan. [^870]
-
-[^870]: Sesampun golongan-golongan yên besekutu niku kocar-kacir, dades Allah ngengken Nabi peranti ngancurke Bani Quraizhah (ahli Kitab) serto ngehalau wong-wong niku dari benteng-benteng wong-wong niku. sampun niku sedanten lanang yên tumut perang dibunu, betino serto anak-anak ditawan.
 
 ## 33:27
 
 Serto Dio ngewarîske kepado niko lema-lema, rompo'-rompo' serto harto bendo wong-wong niku, serto (ma'niku pulo'''’ lema yên dereng niko tija’, [^871]  serto Allah Maha Kuaso tehadep sedanten-dantennyo.
 
-[^871]: Tanah yên dêrêng diinjak ya'ni: tanah-tanah yên ayun dimelebeti tentaro Islam.
-
 ## 33:28
 
 Wahai nabi! Kelapkela kepado sema-sema niko, kalu niko pengen keîdupan di dunio serto periasannyo, dades kengerikila supayo kulo sungke kepado niko Mut’ah  [^872] serto kulo cerêke (tala’) niko dengan caro yên saê.
-
-[^872]: Mut'ah ya'ni: suatu sungan yên di sungke kepado betino yên sampun dipegat nûrût kesanggupan domik.
 
 ## 33:29
 
@@ -16022,19 +14266,9 @@ Serto sinten saos di antaro niko (sema-sema nabi) tetep to’at kepado Allah ser
 
 Hei sema-sema nabi! niko nano ma'kayo betino-betino yên lian, kalu niko betakwa. dades nano angsal niko tûndû’ (melema lembutke suaro) [^873] sewaktu becerios (bekelap) sehinggo mûncûl nafsu wong yên wenten penyakit jerû atinyo, [^874] serto kelapkela kelapan yên saê.
 
-[^873]: Yên dimaksud dengen tunduk di ngeriki ya'ni bekelap dengen sikap yên nimbulke keberanian wong betindak yên nano saê tehadep wong-wong niku.
-
-[^874]: Yên dimaksud dengen jerû ati wong-wong niku wênten penyakit ya'ni: wong yên wênten niat bedamel serong dengen betino, peca' namelke zina.
-
 ## 33:33
 
 Serto ayunla niko tetep di rompo' niko [^875] serto nano angsal niko beraes serto (betingka laku) ma'kayo wong-wong jahiliya kerîhîn [^876] , serto tega’kela sholat (semayang), bayarla jekat serto to’atila Allah serto rosul-Nyo. Selesernyo Allah bemaksud ayun ngilangke doso dari niko, hei “Ahlul Bait”  [^877] serto resekela niko serese-resenyo.
-
-[^875]: Maksudnyo: sema-sema Rasul supayo tetap di rompo' serto ke luar rompo' kalu wênten keperluan yên dileserke olê syara'. perintah niki jugo ngeeliputi sedanten mukminat.
-
-[^876]: Yên dimaksud Jahiliyah yên dahulu ya'ni Jahiliah kekafiran yên angsal sedêrêng Nabi Muhammad s.a.w. serto yên dimaksud Jahiliyah ya'ni Jahiliyah kemaksiatan, yên tedades sesampun rawûnya Islam.
-
-[^877]: Ahlul bait di ngeriki, ya'ni keluargo Rasulullah s.a.w.
 
 ## 33:34
 
@@ -16044,8 +14278,6 @@ Serto imutla napi yên dibacoke di rompo' niko dari ayat-ayat Allah serto hikmah
 
 Leser, lanang-lanang serto betino muslim, lanang-lanang serto betino mukmin, [^878] lanang-lanang serto betino yên tetep jerû keto’atannyo, lanang-lanang serto betino yên leser, lanang-lanang serto betino yên sobar, lanang-lanang serto betino yên khusyuk, lanang-lanang serto betino yên besedeka, lanang-lanang serto betino yên bepuaso, lanang-lanang serto betino yên meliaro kehormatannyo, lanang-lanang serto betino yên kata nyebut (nami Allah), Allah sampun nyawîske peranti wong-wong niku ampunan serto pahalo yên ageng.
 
-[^878]: Yên dimaksud dengen Muslim di ngeriki ya'ni wong-wong yên numuti perinta serto larangan sami lahirnyo, sedengke yên dimaksud dengen wong-wong mukmin di ngeriki ya'ni wong yên ngeleserke napi yên mesti dileserke dengen atinyo.
-
 ## 33:36
 
 Serto nanola pantes peranti lanang-lanang yên mukmin serto betino yên mukmin, kapan Allah serto rosul-Nyo sampun netepke sios ketetepan, ayun wenten pîlîan (yên lian) peranti wong-wong niku tentang ûrûs'an wong-wong niku. Serto sinten saos nurhakoi Allah serto rosul-Nyo, dades leser, dio sampun teseset dengen kesesetan yên nyato
@@ -16054,27 +14286,17 @@ Serto nanola pantes peranti lanang-lanang yên mukmin serto betino yên mukmin, 
 
 Serto (imutla) waktu niko (Muhammad) bekelap kepado wong yên sampun disung nikmat ole Allah serto niko (jugo) sampun ngesung nikmat kepadoNyo, petahankela terus sema niko serto betakwala kepado Allah, sedengke niko nyingitke di jerû ati niko napi yên ayun dinyatoke ole Allah, serto niko takut kepado wong, padohal Allah langkung behak niko takuti. Dades waktu zaid sampun nyudai keperluan tehadep sema¬nyo (nyere/nalak/megatinyo). kame' nikake niko dengen dio (Zainab) [^879] supayo nano wenten keberatan peranti wong mukmin  (nikai) sema-sema, anak-anak angkat wong-wong niku. Napibilo anak-anak angkat wong-wong niku, sampun nyudai keperluannyo tehadep semanyo, [^880] serto ketetepan Allah niku cengki tedades.
 
-[^879]: Maksudnyo: sesampun habis idahnyo.
-
-[^880]: Yên dimaksud dengen wong yên Allah sampun ngelimpake nikmat kepadonyo ya'ni Zaid bin Haritsah. Allah sampun ngeelimpake nikmat kepadonyo dengen ngesung taufik Islam. Nabi Muhammad jugo sampun ngesung nikmat kepadonyo dengen memerdekake kaumnya serto ngangkatnyo dades anak. ayat niki ngesungke reti bahwo wong bolê ngawêni bekas sema anak angkatnyo.
-
 ## 33:38
 
 Nano wenten keberatan napi saos pado nabi tentang napi yên sampun ditetepke Allah perantinyo (Allah sampun netepke yên ma’ni¬ku) dades sunnah Allah pado nabi-nabi yên sampun kerîhîn. [^881] Dari ketetepan Allah niku ngerupoke ketetepan yên cengki belaku
-
-[^881]: Yên dimaksud dengen sunnah Allah di ngeriki ya'ni namelke sesios yên dibolêke Allah tanpa ragu-ragu.
 
 ## 33:39
 
 (Ya’ni) wong-wong yên nyampeke risala-risala Allah, [^882] wong-wong niku takut kepado-Nyo serto nano ngeraso takut kepado sinten saos selian kepado Allah. Serto cungkupla Allah dades namel peretûngan.
 
-[^882]: Maksudnyo: sedanten Rasul yên nyampaike syari'at-syari'at Allah kepado wong.
-
 ## 33:40
 
 Muhammad niku nanola aba dari sesios wong di antaro niko, [^883] tapi dio wentenla kengkenan Allah serto penutup sedanten nabi. Serto Allah Maha Wikan sedantennyo.
-
-[^883]: Maksudnyo: Nabi Muhammad s.a.w. dêdêla aba dari salah sios wong rencang, kerno niku jando Zaid angsal dikaweni olê Rasulullah s.a.w.
 
 ## 33:41
 
@@ -16091,8 +14313,6 @@ Dio saos yên ngesung rohmat kepado niko serto sedanten malaekat-Nyo (nedoke amp
 ## 33:44
 
 Penghormatan wong-wong niku (wong-wong mukmin niku) waktu wong-wong niku panggi dengennyo ya’ni “Salam”, [^884] serto Dio nyawiske (nyedioke) pahalo yên mulio peranti wong-wong niku.
-
-[^884]: Retinyo: sejahtero dari sedanten bencano
 
 ## 33:45
 
@@ -16114,8 +14334,6 @@ Serto nano angsal niko (Muhammad) numuti wong-wong kafir serto wong-wong munafik
 
 Hei wong yên beiman! napibilo niko nika-i betino-betino mukmin, sampun niku niko pegati (cereke) wong-wong niku sedereng niko nyampurinyo, dades nano wenten maso iddah wong-wong niku yên perlu niko peretûngke. Tapi sungla wong-wong niku Mut’ah  [^885] serto tala’la wong-wong niku dengen caro yên sesaê-saênyo.
 
-[^885]: Yên dimaksud dengen mut'ah di ngeriki sungan peranti nyenengke ati sema yên dipegat sedêrêng dicampuri.
-
 ## 33:50
 
 Wahai nabi! Selesernyo kame' sampun ngalalke peranti niko sema-sema niko yên sampun niko sungke mas kawinnyo serto buda’ belian yên niko punyoi, telînggî napi yên niko angsal pado pepera¬ngan yên dikarunioke Allah untuk niko, serto (ma’niku pulo') anak-anak betino dari dulur lanang bapak niko, anak-anak (budak-budak) betino dari dulur betino bapak niko, anak-anak betino dari dulur lanang ibo’ niko serto anak-anak betino dari dulur betino ibo’ niko yên tumut hijra besami niko, serto betino mukmin yên nyerake awa'nyo kepado nabi kalu nabi pengen nika-inyo dades kekhususan peranti niko, nano peranti sedanten wong mukmin. kame' sampun wikan napi yên kame' wajibke kepado wong-wong niku tentang sema-sema wong-wong niku serto buda’ belian yên wong-wong niku punyoi sepayo nano dades kesempîtan peranti niko. Serto Allah Maha Pengampun Maha Penyayang.
@@ -16124,19 +14342,13 @@ Wahai nabi! Selesernyo kame' sampun ngalalke peranti niko sema-sema niko yên sa
 
 Niko angsal ngengselke (ngauli) sinten yên niko ayuni di antaro wong-wong niku (sedanten sema niko) serto (angsal pulo''k) ngauli sinten (di antaro wong-wong niku) yên niko ayuni. Serto sinten yên niko ayuni peranti ngaulinyo male dari sema-sema niko yên sampun niko sîsîke, dades nano wenten doso peranti niko. yên ma’niku langkung para’ peranti ketenengan ati wong-wong niku, serto wong-wong niku nano ngeraso sedî, serto wong-wong niku redho dengen napi yên sampun niko sungke kepado wong-wong niku sedantennyo. Serto Allah wikan napi yên (tesimpen) di ati niko. Serto Allah Maha Wikan, Maha Penyantun. [^886]
 
-[^886]: Nûrût riwayat, sami sios waktu sema-sema Nabi Muhammad s.a.w. wênten yên cemburu, serto wênten yên nedo tambahan belanja. dades Nabi Muhammad s.a.w. memutuskan perhubungan dengen wong-wong niku sampe sebulan laminya. olê kerno takut dipegat Nabi, dades wong-wong niku rawû kepado Nabi ngelapke kerelaannoa tehadep napi saos yên ayun didamelke Nabi tehadep wong-wong niku. tûrûnnyo ayat niki ngesungke izin kepado Nabi peranti ngauli sinten yên dikendak-iNyo serto sema-semanyo atawa nano nggaulinyo; serto jugo ngesung izin kepado Nabi peranti ruju’ kepado sema-semanyo kalu wênten semanyo yên sampun dipegatnyo.
-
 ## 33:52
 
 Nano halal peranti niko (Muhammad) nikai) betino-betino (lian) sesampun niku, serto nano angsal (pulo') ngenti wong-wong niku dengen sema-sema (yên lian) meski saos cindonyo langkung nari’ ati niko, kacuwali betino-betino (buda’ belian) yên niko punyoi serto Allah Maha Ngawasi sedanten-dantennyo. [^887]
 
-[^887]: Nabi nano dibolêke kawen sesampun wênten sema-sema sebanyak yên sampun wênten niku serto nano pulo' dibolêke ngenti sema-semanya yên sampun wênten niku dengen ngaweni betino lian.
-
 ## 33:53
 
 Hei wong-wong yên beiman! Nano angsal niko lînggî ke rompo'-rompo' nabi, kacuwali kalu niko diizinke nedo nano nunggu waktu masa’ (tedoannyo), [^888] tapi kalu niko diulemi (diundang) dades melebu serto napibilo niko sampun (selese) nedo, metula niko nano manjangke cerios kelapan. Selesernyo yên ma'niku wentenla ngucak (nganggu) nabi sehinggo dio (nabi) semon kepado niko (peranti ngengken niko metu) serto Allah nano semon (nerang¬ke) yên leser. Napibilo niko nedo sesios barang misalnyo (keperluan) kepado wong-wong niku (sema-sema nabi), dades nedola dari buri tabir. (Caro) yên  ma’niku langkung suci peranti ati niko serto ati wong-wong niku, serto nano angsal niko nyakiti (ati) Rosulullah serto nano angsal (pulo''k) nikai sema-semanyo selambat-lambatnyo sesampun (nabi padem). Leser, yên ma’niku ageng nian (dosonyo) di sisi Allah.
-
-[^888]: Maksudnyo, sami maso Rasulullah s.a.w perna tedades wong-wong yên ngenteni waktu nedo Rasulullah s.a.w. sampun niku tûrûn ayat niki ngelarang melebet rompo' Rasulullah peranti nedo sambil ngenteni waktu dadesnnyo Rasulullah.
 
 ## 33:54
 
@@ -16150,15 +14362,9 @@ Nano wenten doso pado sema-sema nabi (peranti pangge nano betabîr) dengan bapak
 
 Selesernyo Allah serto sedanten malaekat-Nyo besholawat peranti nabi, [^889] hei wong-wong yên beiman! Besholawatla niko peranti nabi serto kelapkela salam dengen penu penghormatan kepado-Nyo. [^890]
 
-[^889]: Bershalawat retinyo: kalu dari Allah retinyo ngesung rahmat: dari Malaikat retinyo nedoke ampunan serto kalu dari wong-wong mukmin retinyo berdoa supaya di sung rahmat peca' dengen perkelapan:Allahuma shalli ala Muhammad.
-
-[^890]: dengen ngelapke kelapan peca':Assalamu'alaika ayyuhan Nabi retinyo: mugi-mugi keselametan tecurah kepado niko Hai Nabi
-
 ## 33:57
 
 Selesernyo (tehadep) wong-wong yên nyakiti Allah serto rosulNyo, [^891]  Allah bakal melaknatnyo di dunio serto di akherat serto nyawiske azab yên ngehinoke peranti wong-wong niku.
-
-[^891]: Menyakiti Allah serto rasul-rasulNya, ya'ni namelke damelan- damelan yên nano di ridhai Allah serto nano dileserke Rasul- nya; peca' kufur, nustoke kenabian serto sebagînyo.
 
 ## 33:58
 
@@ -16167,8 +14373,6 @@ Serto wong-wong yên nyakiti wong-wong mukmin lanang serto betino, nano wenten k
 ## 33:59
 
 Wahai nabi ! Kelapkela kepado sema-sema niko, anak-anak betino niko serto sema-sema wong mukmin, ayunla wong-wong niku nutup jilbabnyo, [^892] sedanten badan wong-wong niku. yên ma’niku supayo wong-wong niku langkung muda diwikani, sehing¬go wong-wong niku nano dikuca’. Serto Allah Maha Pengampun serto Maha Penyayang
-
-[^892]: Jilbab ya'ni sejenis baju kurung yên lapang yên angsal menutup kepala, rai serto dwênten.
 
 ## 33:60
 
@@ -16221,8 +14425,6 @@ Niscayo Allah ayun meneri amal-amal niko serto ngampuni doso-doso niko. Serto si
 ## 33:72
 
 Selesernyo kame' sampun nawarke imanat kepado langit, bumi serto gunung-gunung, tapi sedantennyo nano ayun mikul imanat [^893] niku serto wong-wong niku kuatîr nano bakal namelkenyo (berat) laju dipikulla imanat niku ole wong, leser wong niku zolim nian serto buyan nian.
-
-[^893]: Yên dimaksud dengen amanat di ngeriki ya'ni tugas-tugas keigamoan.
 
 ## 33:73
 
@@ -16484,10 +14686,6 @@ Serto, Allah-la yên ngirimke angin; sampun niku (angin niku) ngerakke awan, dad
 
 Sinten saos ayuni kemulioan, dades (wikanila) kemulioan niku sedantennyo punyo Allah. Kepado-Nyola ayun nae’ kelapan-kelapan yên saê, [^894]  serto amal keleseran. Dio ayun ngangkatnyo. [^895] Wenten saos wong-wong yên ngerencanoke kejahatan wong-wong niku ayun angsal azab yên keras nian, serto rencano jahat wong-wong niku ayun ancur.
 
-[^894]: Sebagîan mufassir ngelapke bahwa kelapan yên saê niku wêntenla Kalimat Tauhid yaitu Lā ilāha illallāh, serto wenten pulo' yên ngelapke zikir kepado Allah serto wenten pulo' yên ngelapke  sedanten kelapan yên saê yên dikelapke kerno Allah.
-
-[^895]: Kelapan saê serto amal yên saê niku dimunggahke peranti diterimo serto disung-Nyo pahalo
-
 ## 35:11
 
 Serto Allah nyiptoke niko dari tana sampun niku dari banyu mani, sampun niku Dio nadeske niko bepasangan (lanang serto wadon). Nano wenten sios wadon yên bunting serto melahirke, melianke dengen sios wong serto nano pulo' dikirangi umurnyo, melianke (sampun ditetepke) jerû Kitab (Lauḥ Mahfūẓ). Leser, yên ma’niku gampang bagî Allah.
@@ -16520,8 +14718,6 @@ Serto yên ma’niku, niku nano sulit bagî Allah
 
 Serto wong yên bedoso nano ayun mikul doso wong lian. Serto kalu sesios wong yên dibebani berat dosonyo manggil (wong lian) peranti mikul bebannyo niku nano ayun dipikulke setîtî' saos, meski saos (yên dipanggilnyo niku) sana’nyo. Selesernyo yên angsal niko sung perenge¬tan cumen wong-wong yên takut kepado (azab) Tuhannyo (meski saos) wong-wong niku nano ningali-Nyo [^896]  serto wong-wong niku yên namelke semayang (sholat). Serto sinten saos merseke awa’nyo, selesernyo dio merseke awa’ peranti kesaêan awa’nyo dewe’. Serto kepado Allah-la panggonan mantû’.
 
-[^896]: Sebagîan mufassir nafsirke bil ghoib jerû ayat niki wêntenla sewaktu wong-wong niku dewe’an tanpo ningal wong lian.
-
 ## 35:19
 
 Serto nanola sami wong yên buto dengen wong yên mele’ (ningal).
@@ -16538,8 +14734,6 @@ Serto nano (pulo') sami yên tedu dengen yên panas.
 
 Serto nano (pulo') sami wong yên îdup dengen wong yên padem. Leser, Allah ngesungke penengeran kapado sinten yên Dio kenda’i serto niko (Muhammad) nano ayun sanggup nadeske wong yên di jerû kubur angsal nenger. [^897]
 
-[^897]: Nabi Muhammad saw nano angsal ngesung petunju’ kepado wong-wong musyrik yên sampun padem atinyo
-
 ## 35:23
 
 Niko nano lian cumenla sesios wong pengesung perîngetan.
@@ -16548,13 +14742,9 @@ Niko nano lian cumenla sesios wong pengesung perîngetan.
 
 Leser, Kame’ ngutus niko dengen makto keleseran [^898] sebagê makto kabar gembiro serto sebagê pengesung perîngetan. Serto nano wenten sios saos umat melianke di ngeriku sampun rawû sios wong pengesung perîngetan
 
-[^898]: Agamo tauhid serto hukum-hukumnyo.
-
 ## 35:25
 
 Serto kalu wong-wong niku mudike niko, dades leser, wong-wong yên sedereng wong-wong niku saos sampun mudike (rosul-rosul); sewaktu rosul-rosulnyo rawû dengen makto keterangan yên nyato (mu’jizat), zabur, serto kitab yên ngesung penjelasan yên sempurno. [^899]
-
-[^899]: Allah ngesung petunju’ kepado sinten yên Dio kenda’i dengen ngesung kesanggupan peranti dengerke serto nerimo keterangan-keterangan.
 
 ## 35:26
 
@@ -16568,8 +14758,6 @@ Nanola niko ningali bahwa Allah nûrûnke toyo dari langit laju dengen toyo niku
 
 Serto ma’niku (pulo') di antaro manusio, makhluk begerak yên benyawo serto binatang-binatang ingonan wenten yên bemecem-mecem klêrnyo (serto jenisnyo). Di antaro hambo-hambo Allah yên takut kepado-Nyo, cumenla sedanten ulama’. [^900] Leser, Allah Mahaperkaso, Maha Pengampun.
 
-[^900]: Wong-wong yên wikan ilmu keagengan serto kekuasoan Allah.
-
 ## 35:29
 
 Selesernyo wong-wong yên selelu maco Kitab Allah (Al-Qur’an) serto namelke semayang (sholat) serto nginfaqke sebagîan rezeki yên Kame’ sungke kepadonyo dengen diem-diem serto terang-terangan, wong-wong niku ngarepke sade yên nano ayun rugi,
@@ -16578,8 +14766,6 @@ Selesernyo wong-wong yên selelu maco Kitab Allah (Al-Qur’an) serto namelke se
 
 Supayo Allah nyempurnoke pahalonyo kepado wong-wong niku serto namba karunio-Nyo. Leser, Allah Maha Pengampun, Maha Nyukuri. [^901]
 
-[^901]: Allah nyukuri hambo-Nyo, ngesung pahalo terhadep amal-amal hamba-Nyo memaafke kesalahannyo, nambah ni’mat-Nyo serto sebagainyo.
-
 ## 35:31
 
 Serto napi yên sampun Kame’ wahyuke kepado niko (Muhammad) wêntenla Kitab (Al-Qur’an) nikula yên leser, meleserke kitab-kitab yên sederengnyo. Leser, Allah leser-leser Maha Wikan, Maha Ningali (keadoan) hambo-hamboNyo
@@ -16587,8 +14773,6 @@ Serto napi yên sampun Kame’ wahyuke kepado niko (Muhammad) wêntenla Kitab (A
 ## 35:32
 
 Sampun niku Kitab niku Kame’ wariske kepado wong-wong yên Kame’ pilih di antaro hambo-hambo Kame’, laju di antaro wong-wong niku wenten yên zholimi awa’ dewe’, wenten yên pertengahan serto wenten (pulo') yên langkung dumin bedamel keleseran [^902] dengen izin Allah. Yên ma’niku wêntenla karunio yên ageng.
-
-[^902]: Menzholimi awa’ dewe’ wêntenlah wong yên langkung kata kesalahannyo daripado keleserannyo, serto “pertengahan” wêntenla wong yên keleserannyo berbanding sami dengen kesalahannyo, sedeng yên dimaksud dengen “wong-wong yên langkung dumin bedamel keleseran” wêntenla wong-wong yên keleserannyo kata nian serto jarang bedamel kesalahan.
 
 ## 35:33
 
@@ -16633,8 +14817,6 @@ Serto wong-wong niku besumpa dengen nami Allah dengen leser-leser bahwa kalu raw
 ## 35:43
 
 Kerno kesombongan (wong-wong niku) di bumi serto kerno rencano (wong-wong niku) yên jahat. Rencano yên jahat niku cumen ayun nimpo wong yên ngerencanokenyo dewe’. Wong-wong niku cumenla nunggu (belakunyo) ketentuan kepado wong-wong yên kerihin. [^903] dades niko nano ayun angsal perubahan bagî Allah, serto nano (pulo') ayun nemoni penyimpangan peranti ketentuan Allah niku.
-
-[^903]: Yên direti dengen “ketentuan wong-wong yên kerihin” wêntenla nyampa’nyo azab kepado wong-wong yên nano percayo rosul.
 
 ## 35:44
 
@@ -16688,8 +14870,6 @@ Serto sami saos peranti wong-wong niku, napi niko ngesung perîngetan kepado won
 
 Selesernyo niko cumen ngesung perîngetan kepado wong-wong yên ayun tumut perîngetan [^904] serto yên takut kepado Tuhan Yên Maha Pengasî, meski saos wong-wong niku nano ningali-Nyo. dades sungla wong-wong niku kabar ladas dengen ampunan serto pahalo yên mulio
 
-[^904]: Perîngetan yên disungke oleh Nabi Muhammad saw, cumen beguno peranti wong yên ayun numutinyo
-
 ## 36:12
 
 Leser, Kame’la yên ngedupke wong-wong yên padem, serto Kame’la yên nyatet napi yên sampun wong-wong niku damelke serto bekas-bekas yên wong-wong niku (tinggalke). Serto sedantennyo Kame’ kumpulke jerû Kitab yên nyato (Lauḥ Maḥfūẓ).
@@ -16726,8 +14906,6 @@ Wong-wong niku (kengkenan-kengkenan) niku bekelap, “Kemalangan niko niku wênt
 
 Serto rawûla dari ujung kota, sios wong lanang  [^905] dengen begancang dio bekelap, “Wahai kaum kulo! Tumutla kengkenan-kengkenan niku.
 
-[^905]: Nurut mufassir, lanang niku benami Habib An-Najar.
-
 ## 36:21
 
 Tumutla wong yên nano nyatu imbalan kepado niko; serto wong-wong niku wêntenla wong-wong yên angsal petunjuk.
@@ -16752,8 +14930,6 @@ Selesernyo kulo sampun beiman kepado Tuhan niko, dades dengerkela (pengakonan ke
 
 Dikelapke (kepadonyo), “Ngelebetla ke suargo”  [^906] Dio (lanang niku) bekelap, “Alangke saênyo sekironyo kaum kulo wikan
 
-[^906]: Nurut riwayat, lanang niku dibunu ole kaumnyo sampun io ngelapke kato-katonyo sebagê nasehat kepado kaumnyo sema’pundi niku jerû ayat 20 s/d 25. Sewaktu dio ayun padem; malaikat turun ngesung wikan bahwa Allah sampun ngampuni dosonyo serto dio ayun ngelebet ke suargo.
-
 ## 36:27
 
 Napi yên nyebabke Tuhan kulo ngesung ampun kepado kulo serto nadeske kulo telebet wong-wong yên sampun dimulioke.”
@@ -16773,8 +14949,6 @@ Alangke ageng penyeselan tehadep hambo-hambo niku, saben rawû sios rosul kepado
 ## 36:31
 
 Nanola wong-wong niku wikan pinten kata umat-umat sedereng wong-wong niku yên sampun Kame’ binasoke. Wong-wong (yên sampun Kame’ binasoke) niku nano wenten yên mantû’ kepado wong-wong niku. [^907]
-
-[^907]: Wong-wong niku nano mantû’ ke dunio.
 
 ## 36:32
 
@@ -16808,8 +14982,6 @@ Serto matoari bejalan di enggon ngidernyo. Ma’nikula ketetepan (Allah) Yên Ma
 
 Serto sampun Kame’ tetepke enggon ideran peranti bulan, singgo (sampun io rawû ke enggon ideran yên pengabesan) mantû’la io ma’kayo bentuk tandan yên sepu. [^908]
 
-[^908]: Bulan niku pado awalnyo alit bebentu’ sabit, sampun niku sesampun nempati panggonan ideran, io dades purnamo, sampun niku pado panggonan ideran pengabesan ningal ma’kayo tandan kering yên ngelengkung.
-
 ## 36:40
 
 Nanola mungkin peranti matoari ngejer bulan serto malem saos nano angsal nuloni siang. Sewang-sewang ngider pado garis idernyo.
@@ -16821,8 +14993,6 @@ Serto sios tando (keagengan Allah) peranti wong-wong niku wêntenla bahwo Kame�
 ## 36:42
 
 Serto Kame’ ciptoke (jugo) peranti wong-wong niku (angkutan lian) ma’kayo napi yên wong-wong niku nae’i. [^909]
-
-[^909]: Binatang-binantang tunggangan serto alat-alat pengangkutan umumnyo.
 
 ## 36:43
 
@@ -16852,8 +15022,6 @@ Serto wong-wong niku (wong-wong kafir) bekelap, “Kapan semayoan (dinten tangi)
 
 Wong-wong niku cumen nunggu sios peki’an, [^910] yên ayun minasoke wong-wong niku sewaktu wong-wong niku sedeng betengker
 
-[^910]: Suaro embusan terompet yên pertamo yên babasbingkas bumi niki.
-
 ## 36:50
 
 Singgo wong-wong niku nano angsal namel sios wasiat serto wong-wong niku (jugo) nano angsal mantû’ kepado sana’nyo.
@@ -16861,8 +15029,6 @@ Singgo wong-wong niku nano angsal namel sios wasiat serto wong-wong niku (jugo) 
 ## 36:51
 
 Laju diembusla sangkakalo, [^911]  dades sewaktu niku wong-wong niku metu dari kuburnyo (jerû keadoan îdup), nuju kepado Tuhannyo.
-
-[^911]: Embusan niku wêntenla embusan sangkakalo yên keduo yên mangkitke wong-wong jerû kubur.
 
 ## 36:52
 
@@ -16931,8 +15097,6 @@ Serto kalu kame' ayuni, cengkila Kame’ uba bentu’ wong-wong niku di enggon w
 ## 36:68
 
 Serto sinten saos Kame’ panjangke umurnyo, niscayo Kame’ balike dio kepado awal kejadenan(nyo).  dades napi wong-wong niku nano terti [^912]
-
-[^912]: Mantû’ dades lema serto kirang akal, ma’kayo buda’ alit.
 
 ## 36:69
 
@@ -17038,8 +15202,6 @@ Kecuali (setan) yên maling (kelapan); dades dio diuber ole binatang yên murup
 
 Dades takenkela kepado wong-wong niku (musyrik Mekkah), “napi penciptoan wong-wong niku yên langkung saro atawa napi [^913] yên sampun Kame’ ciptoke niku? Selesernyo Kame’ sampun nyiptoke wong-wong niku dari tana liat
 
-[^913]: Malaikat, langit, bumi serto lian-lian.
-
 ## 37:12
 
 Bahkan niko (Muhammad) dades takjub (tehadep keingkaran wong-wong niku) serto wong-wong niku nginoke (niko).
@@ -17080,8 +15242,6 @@ Serto wong-wong niku bekelap, “Alangke celako kame’! (Kironyo) nikila dinten
 
 Nikila dinten kepûtûsan [^914]  yên bingen niko mudike.
 
-[^914]: Dinten sewaktu Allah ngesung kepûtûsan serto balesan kepado hambo-hambo-Nyo.
-
 ## 37:22
 
 (Diperîntake kepado malaekat), “Kumpulkela wong-wong yên zolim teko rencang sejawat wong-wong niku serto napi yên bingen wong-wong niku samba,
@@ -17109,8 +15269,6 @@ Serto sebagîan wong-wong niku ngadep kepado sebagîan yên lian saling bebala
 ## 37:28
 
 Selesernyo (ana’ bua) wong-wong niku bekelap (kepado pesirah-pesirah wong-wong niku), “Nikola yên bingen rawû kepado kame’ dari kanan. [^915]
-
-[^915]: Pesirah-pesirah niku natangi ana’ buanyo dengen makto tipu muslihat yên mikat ati.
 
 ## 37:29
 
@@ -17332,13 +15490,9 @@ Sampun niku Kame’ tenggelemke yên lian
 
 Serto leser, Ibrohim telebet gûgû'nyo (Nuh). [^916]
 
-[^916]: Nabi Ibrohim a.s. telebet kelompo’ Nabi Nuh a.s. jerû keimanan kepado Allah serto poko’-poko’ ajaran Islam
-
 ## 37:84
 
 (Imutla) sewaktu dio rawû kepado Tuhannyo dengen ati yên suci resê. [^917]
-
-[^917]: Mengikhlaske atinyo kepado Allah dengen sedantennyo.
 
 ## 37:85
 
@@ -17367,8 +15521,6 @@ Laju wong-wong niku bepaleng dari dio serto mintar ninggalkenyo.
 ## 37:91
 
 Sampun niku dio (Ibrohim) kesah dengen diem-diem kepado berhalo-berhalo wong-wong niku, laju dio bekelap, “Napi niko nano nedo? [^918]
-
-[^918]: Nguyo’ patung-patung niku, kerno para’ patung niki kata ditaru’ke tedoan yên saê peranti sajian.
 
 ## 37:92
 
@@ -17402,8 +15554,6 @@ Dades wong-wong niku bemaksud merdayoinyo dengen (nunu)nyo, (tapi Allah nyelamet
 
 Serto dio (Ibrohim) bekelap, “Selesernyo kulo mesti mintar (ngadep) kepado Tuhan kulo, Dio ayun ngesung petunju’ kepado kulo. [^919]
 
-[^919]: Nabi Ibrohim a.s. mintar ke sios negeri peranti angsal nyemba Allah serto beda’wa.
-
 ## 37:100
 
 Ya Tuhan kulo, sungkela kepado kulo (sios buda’ atawa zuriat) yên telebet wong yên sole.”
@@ -17428,8 +15578,6 @@ Laju Kame’ undang dio. “Wahai Ibrohim!
 
 Leser, niko sampun meleserke mimpi niku. [^920] Leser, ma’nikula Kame’ ngesung balesan kepado wong-wong yên bedamel saê.
 
-[^920]: Mempercayoi bahwa mimpi niku leser dari Allah swt. serto wajib didamelke.
-
 ## 37:106
 
 Selesernyo niki leser-leser sios ujian yên nyato
@@ -17437,8 +15585,6 @@ Selesernyo niki leser-leser sios ujian yên nyato
 ## 37:107
 
 Serto Kame’ tebus ana’ niku dengen sios sembelean yên ageng. [^921]
-
-[^921]: Sampun nyato kesabaran serto ketaatan Nabi Ibrohim a.s. serto Nabi Ismail a.s. dades Allah ngelarang nyembele Nabi Ismail a.s. Peranti neruske kurban, Allah gantinyo dengen sios sembelean (kambing). Peristiwo niki dades dasar disyareatkenyo kurban yên didamelke pado Dinten Rayo Haji
 
 ## 37:108
 
@@ -17512,8 +15658,6 @@ Serto leser, Ilyas leser-leser telebet sala sios rosul.
 
 Patut nano niko nyemba Ba’l [^922] serto niko tinggalke (Allah) sesaê-saê pencipto.
 
-[^922]: Ba’l wêntenla nami sala sios patung dari wong Phunicia.
-
 ## 37:126
 
 (yaitu) Allah Tuhan niko serto Tuhan nene’ puyang niko yên bingen.
@@ -17558,8 +15702,6 @@ Kecuali sios betino sepu (semanyo) besami-sami wong yên tinggal (di kota).
 
 Sampun niku Kame’ binasoke wong-wong yên lian. [^923]
 
-[^923]: Wong-wong niku yên enggon di kota yên nano tumut besami Nabi Lut a.s.
-
 ## 37:137
 
 Serto selesernyo niko (pendudu’ Mekkah) leser-leser ayun meliwati (bekas-bekas) wong-wong niku pado waktu pagi
@@ -17576,19 +15718,13 @@ Serto leser, Yunus leser-leser telebet sala sios rosul.
 
 (imutla) waktu dio kesah (belari), [^924] ke baito yên penu muatan.
 
-[^924]: Kesa ninggalke kewajiban
-
 ## 37:141
 
 Sampun niku dio tumut diundi [^925] tenyato dio telînggî wong-wong yên kala (jerû undian).
 
-[^925]: Undian diadoke kerno muatan baito penu nian. Kalu nano dikirangi mengkin ayun tebenyu’. Ole sebab niku diadoke undian. Sinten saos yên kala jerû undian niku diuntalke ke laut. Nabi Yunus a.s. telebet wong-wong yên kala jerû undian niku singgo dio diuntalke ke laut.
-
 ## 37:142
 
 Dades dio ditego’ ole iwa’ ageng jerû keadaan tecelo. [^926]
-
-[^926]: Tecelo kerno dio lari ninggalke kaumnyo.
 
 ## 37:143
 
@@ -17617,8 +15753,6 @@ Singgo wong-wong niku beiman, kerno niku Kame’ esungi kenikmatan îdup kepado 
 ## 37:149
 
 Dades takenkela (Muhammad) kepado wong-wong niku (wong-wong kafir Mekkah). “napi buda’-buda’ wadon niku peranti Tuhan niko sedengke peranti wong-wong niku buda’-buda’ lanang. [^927]
-
-[^927]: Wong musyrik ngelapke bahwa Allah punyo buda’-buda’ wadon (malaekat) padohal wong-wong niku dewe’ nganggep hino buda’ wadon niku
 
 ## 37:150
 
@@ -17663,8 +15797,6 @@ Mahasuci Allah dari napi yên wong-wong niku tabe’atke (sifatke).
 ## 37:160
 
 Kecuali hambo-hambo Allah [^928] yên disucike (dari doso).
-
-[^928]: Gûgû' jin yên beiman.
 
 ## 37:161
 
@@ -17718,8 +15850,6 @@ Serto leser, semayoan Kame’ sampun tetep mantep peranti hambo-hambo Kame’ y�
 
 Serto selesernyo bala tentera Kame’ [^929]  nikula yên cengki menang
 
-[^929]: Rosul beserto pengikut-pengikutnyo.
-
 ## 37:174
 
 Dades bepalengla niko (Muhammad) dari wong-wong niku sampe waktu yên ditentuke
@@ -17735,8 +15865,6 @@ Dades napi wong-wong niku nyatu supayo azab Kame’ digancangke?
 ## 37:177
 
 Dades napibilo (siksoan) niku turun di luan wong-wong niku, dades buru’ nianla dinten pagi peranti wong-wong yên diperengetke niku. [^930]
-
-[^930]: Dêdê waktu pagi tapi basîng waktu di pundi wong-wong yên nyerang niku namelke serangannyo sedereng fajar seruput, wong-wong yên kalah, menderito kekalahannyo pado waktu pagi.
 
 ## 37:178
 
@@ -17782,13 +15910,9 @@ Napike Dio nadeske Tuhan-tuhan niku Tuhan yên sios saos? Leser, niku leser-lese
 
 Laju mintarla peminpin-pemimpin wong-wong niku (sambil bekelap), mintarla niko serto tetepla (nyemba) Tuhan-tuhan niko, selesernyo niki leser-leser sios hal yên dikenda’i. [^931]
 
-[^931]: Nurut wong-wong kafir bahwa nyemba tuhan-tuhan nikula yên selesernyo dikenda’i ole Allah.
-
 ## 38:7
 
 Kame’, nano kalo nenger hal niki, jerû igamo yên teakhir, [^932] niki (ngesake Allah), nano lian cumenla (bohong) yên diado-adoke.
-
-[^932]: Yên dimaksud ole wong kafir Quraisy dengen igamo yên terakhir iola igamo Nasroni.
 
 ## 38:8
 
@@ -17806,8 +15930,6 @@ Atawa napike wong-wong niku punyo kerajaan langit serto bumi serto napi yên wen
 
 (Wong-wong niku) kelompo’ ageng bala tentera yên wenten di ngeriku yên bakal dikalake. [^933]
 
-[^933]: Ayat niki nyerioske perang Khondak di pundi terangsal bala tentera yên terawa' dari beberapo golongan iola golongan kaum musyrikin, Yahudi serto beberapo kabila Arab yên nyerang kaum muslimin di Madinah. Peperangan niki berakhir dengen bocar-bacirnyo bala tentera wong-wong niku. Sebagean mufassir ngelapke bahwa yên dimaksud di ngeriki iola perang Badar.
-
 ## 38:12
 
 Sedereng wong-wong niku, kaum Nuh, ‘Ad serto Fir’aun yên punyo bala tentera yên kata, jugo sampun mudike (rosul-rosul),
@@ -17816,8 +15938,6 @@ Sedereng wong-wong niku, kaum Nuh, ‘Ad serto Fir’aun yên punyo bala tentera
 
 Serto (ma’niku jugo) Samud, kaum Luth serto pendudu’ Aikah, [^934] wong-wong niku nikula golongan-golongan yên besekutu (nentang rosul-rosul
 
-[^934]: Pendudu’ Madyan iola kaum Nabi Syu’aib a.s
-
 ## 38:14
 
 Sedanten wong-wong niku mudike rosul-rosul, mangko pantes wong-wong niku merasoke azab Kulo.
@@ -17825,8 +15945,6 @@ Sedanten wong-wong niku mudike rosul-rosul, mangko pantes wong-wong niku merasok
 ## 38:15
 
 Selesernyo yên wong-wong niku tunggu iola sios peki’an saos, yên nano wenten selonyo. [^935]
-
-[^935]: Peranti tando dinten Kiamat serto peki’an niki keras nian serto gancang.
 
 ## 38:16
 
@@ -17847,8 +15965,6 @@ Serto (Kame’ tundu’ke pulo') burung-burung jerû keadaan tekumpul, sewang-se
 ## 38:20
 
 Serto Kame’ kuatke keratinnyo serto Kame’ esungke hikma kepadonyo  serto kebijaksanoan jerû mutuske pekaro [^936]
-
-[^936]: Kenabian, kesempurnaan ilmu serto ketelitian amal damelan.
 
 ## 38:21
 
@@ -17898,19 +16014,13 @@ Serto kepado Dawud Kame’ kurnioke (ana’ yên jenengnyo) Sulaiman, dio iola s
 
 Mangko dio bekelap, “Selesernyo kulo ladas sedanten yên saê (kudo) yên namel kulo imut dengen (keagengan) Tuhan kulo, sampe matoari tebenem.”  [^937]
 
-[^937]: Sebagean mufassir wenten yên nerjemahke ayat 32 ma’niku. Kulo leser-leser suko barang yên saê (kudo) niki singgo kulo lalai imut Tuhan kulo sampe kudo niku ilang dari peningalan
-
 ## 38:33
 
 “Baktola sedanten kudo niku mantu’ kepado kulo.” Laju dio ngusap-ngusap sikilnyo serto gulu kudo niku. [^938]
 
-[^938]: Sebagean mufassir wenten yên nerjemahke ayat 32 ma’niku. “Baktola mantu’ sedanten niku kepado kulo, laju dio neta’ sikil serto gulunyo.
-
 ## 38:34
 
 Serto leser, Kame’ sampun nguji Sulaiman serto Kame’ dadeske (dio) tekapar di pucu’ korsinyo dades badannyo yên lema kerno gering (sakit), sampun niku dio betobat.  [^939]
-
-[^939]: Sebagean mufassir ngelapke iola yên dimaksud dengen ujian niki iola keberantakan keratin Sulaiman singgo wong lian lînggi di pucu’ singgosananyo.
 
 ## 38:35
 
@@ -17947,8 +16057,6 @@ Serto imutla dengen hambo Kame’ Ayyub, waktu dio ngajak atawa nyeru Tuhannyo. 
 ## 38:43
 
 Serto Kame’ esungi dio (dengen ngumpulke lagi) sana’nyo serto Kame’ lipet gandoke jumla wong-wong niku dades rohmat dari Kame’ serto pelajaran bage wong-wong yên bepikiran waras. [^940]
-
-[^940]: Nabi Ayyub a.s. menderito penyakit kulit beberapo waktu laminyo serto dio nyatu pertulungan kepado Allah swt. Allah sampun niku mengabulke da’anyo serto merintake supayo dio ngenta’ke sikilnyo ke bumi. Nabi Ayyub mandi serto minum dari toyo niku, singgo sembula dio dari penyakitnyo serto dio angsal bekumpul dengen sana’nyo. Mangko wong-wong niku sampun niku berana’ pina’ sampe jumla wong-wong niku duo kali lipet dari jumla sederengnyo. Pado sios waktu, Nabi Ayyub a.s. teimut ayun sumpanyo, abhwa dio ayun mukul semanyo napibilo sakitnyo sembu dikernoke semanyo perna lalai ngurusnyo sewaktu dio maler sakit. Tapi muncul jerû atinyo raso iba serto sayang kepado semanyo singgo dio nano angsal menui sumpanyo. Mangko turunla petunju’ Allah peca’ yên tecantum jerû ayat 44 suroh niki, supayo dio angsal namelke sumpanyo dengen nano nyakiti semanyo, iola mukulnyo dengen sekebet rumput.
 
 ## 38:44
 
@@ -18110,8 +16218,6 @@ Sampe pado dinten yên sampun ditentuke waktunyo (dinten kiamat).
 
 Kecuali hambo-hambo Niko yên tepili di antaro wong-wong niku. [^941]
 
-[^941]: Wong-wong yên sampun disung taufik peranti mento’ati sedanten petunju’ serto perenta Allah.
-
 ## 38:84
 
 (Allah) befirman, “Mangko yên leser (iola sumpa kulo), serto cumen keleseran nikula yên Kulo kelapken.”
@@ -18131,8 +16237,6 @@ Kelapkela (Muhammad), “Kulo nano nyatu imbalan setiti’ saos kepado niko ates
 ## 38:88
 
 Serto leser, niko ayun wikan (keleseran) beritonyo (Al-Qur’an) sesampun pinten-pinten waktu lagi. [^942]
-
-[^942]: Keleseran berito-berito Al Qur’an niku wenten yên terlaksano di dunio serto wenten pulo' yên terlaksano di akherat, yên terlaksano di dunio peca’ keleseran semayoan Allah kepado wong-wong mu’min bahwa wong-wong niku ayun menang jerû peperangan dengen kaum musyrikin, serto yên terlaksano di akherat peca’ keleseran semayoan Allah tentang balesan ates rikinan yên ayun didamelke teradep manusio.
 
 ## 39:1
 
@@ -18158,15 +16262,9 @@ Dio nyiptoke langit serto bumi dengen (tujuan) yên leser. Dio melebetke malem k
 
 Dio nyiptoke niko dari awa' yên sios (Adam), sampun niku darinyo Dio dadeske pasangannyo serto Dio nurunke lapan pasang binatang ternak (ingonan) peranti niko. Dio nadeske niko jeru perut ibok niko. Kejadenan demi kejadenan jeru tigo kegelepan. [^943] Yên (bedamel) ma’niku iola Allah, Tuhan niko, Tuhan yên punyo kerajaan. Nano wenten Tuhan selian Dio, mangko napi niko angsal dipalengke?
 
-[^943]: Tigo kegelepan niki iola kegelepan jerû perut, kegelepan jerû rohim serto kegelepan selaput yên nutup buda’ jerû rohim.
-
 ## 39:7
 
 Kalu niko kafir (wikanila) mangko selesernyo Allah nano merluke niko. [^944] Serto Dio nano sukoradi kekafiran hambo-hambo-Nyo. Kalu niko besyukur, Dio sukoradi, kesyukuran niko niku. Sesios wong yên bedoso nano mikul doso wong lian.  [^945] Sampun niku kepado Tuhan nikula mantu’nyo niko, laju Dio cerioske kepado niko napi yên sampun niko damelke. Leser, Dio Maha Wikan napi yên tesimpen jerû dado (niko).
-
-[^944]: Manusio beriman atawa nano peca’ nki nano ngerugike Allah setiti’ saos.
-
-[^945]: Sewang-sewang mikul dosonyo dewe’-dewe’
 
 ## 39:8
 
@@ -18200,8 +16298,6 @@ Kelapkela, “Cumen Allah yên kulo semba dengen penuh keto’atan kepado-Nyo je
 
 Mangko sembala selian Dio sesuko niko! (Wahai wong-wong musyrik). [^946]  Kelapkela, “Selesernyo wong-wong yên rugi iola wong-wong yên merugike awa' wong-wong niku dewe’ serto keluargonyo pado dinten kiamat.” Imutla! Yên ma’niku iola kerugian yên nyato.
 
-[^946]: Perinta niki dedenyo nurut reti yên selesernyo, tapi sebage pernyataan kemurkaan Allah teradep kaum musyrikin yên sampun bekali-kali diajak kepado Tauhid tapi wong-wong niku selalu ingker
-
 ## 39:16
 
 Di pucuk wong-wong niku wenten lapisan-lapisan api serto di bawanyo jugo wenten lapisan-lapisan yên disedioke (dicawiske) bage wong-wong niku. Ma’nikula Allah ngancam hambo-hambonyo (dengen azab niku). “Wahai hambo-hambo Kulo, mangko betakwala kepado Kulo.”
@@ -18210,13 +16306,9 @@ Di pucuk wong-wong niku wenten lapisan-lapisan api serto di bawanyo jugo wenten 
 
 Serto wong-wong yên nyaoi Tagut (iola) nano nyembanyo [^947] serto mantu’ kepado Allah, wong-wong pantes angsal kabar gembira, kerno niku sampekela kabar gembiro niku kepado hambo-hambo Kulo.
 
-[^947]: Tagut iola setan serto napi saos yên disemba selian Allah.
-
 ## 39:18
 
 (iola) wong-wong niku yên nengerke kelapan, laju numuti napi yên paling saê (tesaê) di antaronyo. [^948] Wong-wong niku nikula wong-wong yên sampun diesung petunju’ ole Allah serto wong-wong niku nikula wong-wong yên punyo akal sehat.
-
-[^948]: Wong-wong niku yên nengerke ajaran-ajaran Al Qur’an serto ajaran-ajaran yên lian, tapi yên ditumutinyo iola ajaran-ajaran Al Qur’an kerno io iola yên paling saê.
 
 ## 39:19
 
@@ -18237,8 +16329,6 @@ Mangko napila wong-wong yên dibuka’ken atinyo ole Allah peranti (nerimo) igam
 ## 39:23
 
 Allah sampun nurunke kelapan yên paling tesaê (iola) Al-Qur’an yên sami (ayat-ayatnyo) lagi, bebalen-balen, [^949] gemeter kernonyo kulit wong-wong yên takut kepado Tuhannyo, sampun niku dades tenang kulit serto ati wong-wong niku waktu ngimut Allah. Nikula petunju’ Allah, dengen kitab niku Dio ngesung petunjuk kepado sinten yên Dio kenda’i. Serto sinten saos ditalak¬ke seset ole Allah mangko nano sesios wong saos yên angsal ngesung petunjuk.
-
-[^949]: Hukum-hukum, pelajaran serto kitab-kitab niku diusertog-usertog ngelapkenyo jerû Al Qur’an supayo lebi kuat pengaruhnyo serto lebih ngeresap. Sebagean mufassir ngelapke bahwo retinyo niku iola bahwa ayat-ayat Al Qur’an niku dibalen-balen maconyo peca’ dikelapke jerû muqoddimah suroh Al Fatihah.
 
 ## 39:24
 
@@ -18316,8 +16406,6 @@ Leser, Kame’ nurunke pado niko Kitab (AI-Qur'an) sami bakto keleseran peranti 
 
 Allah nyekel nyawo (sios wong) pado saat pademnyo serto nyawo (sios wong) yên  dereng padem pas dio tilem;  mangko Dio tahan nyawo (wong) yên sampun Dio tetep-ke pademnyo serto Dio eculke nyawo yên lian sampe waktu yên ditentuke.  Leser, pado yên sampun niki niku teangsal tando-tando (keagengan) Allah peranti kaum yên bepikir [^950]
 
-[^950]: Wong-wong yên padem niku rohnyo ditahan Allah singgo nano angsal mantu’ kepado badannyo, serto wong-wong yên nano padem cumen tilem saos, rohnyo diculke singgo angsal mantu’ kepadonyo lagi.
-
 ## 39:43
 
 Napikah wong-wong niku ngembil  penulung selian Allah. Kelapkelah, “Napike (niko ngembil jugo) meskipun wong-wong niku  nano punyo sios napi saos serto nano wikan?”
@@ -18361,8 +16449,6 @@ Serto nanoke wong-wong niku wikan bahwo Allah melapangke rezeki peranti napi yê
 ## 39:53
 
 Kelapkenla, “Wahai hambo-hambo Kulo yên  melewati bates tehadep awa’ wong-wong niku  dewe’. Nanolah niko beputus aso dari rohmat Allah. Selesernyo Allah ngampuni  doso-doso [^951] sedantennyo. Leser, Diolah Yên Maha Pengampun, Maha Penyayang
-
-[^951]: Ningal An Nisaa’ (4) : 48 kecuali doso syirik.
 
 ## 39:54
 
@@ -18419,8 +16505,6 @@ Kerno niku, ayunla Allah saos yên niko semba serto ayunla niko telebet wong yê
 ## 39:67
 
 Serto wong-wong niku nano mengagengke Allah sema’pundi mestinyo padohal bumi sedantennyo jerû genggeman-Nyo pado dinten Kiamat serto langit digulung sami tangan kanan-Nyo, [^952]  Mahasuci Dio serto Maha tinggi Dio dari napi yên wong-wong niku duoke.
-
-[^952]: Ayat niki menggambarke keleseran serto kekuasoan Allah serto cumen Diola yên bekuaso pado dinten Kiamat.
 
 ## 39:68
 
@@ -18530,8 +16614,6 @@ Serto sungla wong-wong niku peringetan ayun dinten yên semakin para’ (dinten 
 
 Dio wikan (tingalan) mato yên khianat [^953]  serto napi yên tesingit  jerû dado.
 
-[^953]: tingala pado hal-hal yên telarang, peca’ ningal kepado wado yên dede muhrimnyo.
-
 ## 40:20
 
 Serto Allah memastike sami keleseran. Sedeng wong-wong niku yên disemba selian-Nyo nano angsal memastike sami sios napipun. Selesernyo Allah, Diola Yên Maha Kebutiran, Maha Meningali
@@ -18543,8 +16625,6 @@ Serto napike wong-wong niku nano mewentenke pejalanan di bumi, sampun niku mempe
 ## 40:22
 
 Yên sampun niku iola kerno seleser¬nyo rosul-rosul sampun rawŏ pado wong-wong niku sami bakto bukti-bukti yên nyato  [^954] sampun niku wong-wong niku mudike; mangko Allah mengazab wong-wong niku. Leser, Dio Mahakuat, Mahakeras hukuman-Nyo.
-
-[^954]: Mu’jizat, hukum-hukum serto ajaran-ajaran yên dibaktonyo.
 
 ## 40:23
 
@@ -18586,8 +16666,6 @@ Serto wong' yên beiman niku bekelap, “Wahai kaum kulo! Selesernyo kulo hawati
 
 Serto wahai kaum kulo! Selesernyo kulo leser-leser hawatir tehadep niko ayun (siksoan) dinten saling simbati, [^955]
 
-[^955]: Dinten Kiamat niki dinamike dinten panggil memanggil kerno wong yên bekumpul di Padang Mahsyar sebagean manggil sebagean yên lian peranti nedo tolong.
-
 ## 40:33
 
 (ya’niku)  pado dinten  (pas) niko mantu’ ke buri (lari), nano wenten  sios wong pun yên  angsal nulungi niko dari (azab) Allah.  Serto  sinten saos ditala’ke seset oleh Allah, cengkila nano wenten sios pun yên angsal ngesung petunjuk.”
@@ -18599,8 +16677,6 @@ Serto leser, sedereng niku Yusuf sampun rawŏ pado niko sami bakto bukti-bukti y
 ## 40:35
 
 (ya’niku) wong-wong yên menyelewake ayat-ayat Allah nano wenten sebab yên sampe pado wong-wong niku. [^956]  Maha ageng kemarahan (buat wong-wong niku) di sisi Allah serto wong-wong yên beiman. Sampun nikila Allah ngunci ati acap wong yên bongka’ serto betinda’ sekenda’nyo saos.
-
-[^956]: Wong-wong niku nula’ ayat-ayat Allah tanpo alesan yên rawû kepado wong-wong niku.
 
 ## 40:36
 
@@ -18790,13 +16866,9 @@ Serto Dio meningalke tando-tando (keagengan-Nyo) pado niko. Sampun niku tando-ta
 
 Mangko napike wong-wong niku nano  mewentenke pejalanan di bumi, sampun niku wong-wong niku ningali ma’pundi kesampunan wong-wong yên sedereng  wong-wong niku.  Wong-wong niku niku lebi kata serto lebi hebat kekuatannyo serto (lebi kata) peninggalan-peninggalan peradabannyo  di bumi [^957] ,  mangko napi yên wong-wong niku damelke niku nano wenten nulung wong-wong niku.
 
-[^957]: Peradaban peca’ bangunan, benteng, keratin serto alat-alat perlengkapan
-
 ## 40:83
 
 Mangko  pas  paro  rosul  rawŏ pado wong-wong niku sami bakto bukti-bukti yên nyato,  wong-wong niku [^958] meraso ladas sami ilmu  yên wenten pado wong-wong niku  serto wong-wong niku dikepung ole (azab) yên kerihin wong-wong niku mencacimakinyo.
-
-[^958]: Wong-wong niku sampun ngeraso cungkup dengen ilmu pengetahuan yên wenten pado wong-wong niku serto nano ngeraso perlu lagi dengen ilmu pengetahuan yên diajarke ole rosul-rosul wong-wong niku. Mala wong-wong niku meremeke serto menguyo’-uyo’ keterangan yên dibakto sedanten rosul.
 
 ## 40:84
 
@@ -18862,8 +16934,6 @@ Kalu wong-wong niku mantû’ dades kelapkela, “Kulo sampun ngimutke niko ayun
 
 Sewaktu paro rasul rawû pado wong-wong niku dari luan serto dari buri wong-wong niku [^959] (sami ngengken), “Nanola niko nyemba selian Allah.” Wong-wong niku nyawab, “Kalu Tuhan kame’ mengayuni   tentu Dio nurunke malaêkat-malaêkat-Nyo, dades selesernyo kame’ nustoke wahyu yên niko diutus nyampekenyo.”
 
-[^959]: Yên dimaksud dari luar serto dari buri, wêntenla dari sedanten ûrûsan.
-
 ## 41:15
 
 dades wênten jugo kaum  ‘Ad, wong-wong niku membongka’ke awa' di bumi nano (ngindahke) keleseran serto wong-wong niku bekelap, “sinten saos yên langkung hebat kekuatannyo dari kame’?” Nanoke wong-wong niku ningali bahwo selesernyo Allah yên nyiptoke wong-wong niku. Dio langkung hebat kekuatan-Nyo dari wong-wong niku? Serto wong-wong niku sampun nustoke tando-tando (keagengan) Kame’.
@@ -18896,8 +16966,6 @@ Serto wong-wong niku bekelap pado kulit wong-wong niku, “Napi niko dades saksi
 
 Serto niko nano angsal besingitan dari kesaksian penengeran, peningalan serto kulit niko tehadep niko [^960] bahkan niko ngiro Allah nano wikan kata tenteng napi yên niko damelken
 
-[^960]: Wong-wong niku namelke doso dengen terang-terangan kerno wong-wong niku nyangko bahwa Allah nano wikan damelan wong-wong niku serto wong-wong niku nano nyangko bahwa pendengaran, peningalan serto kulit wong-wong niku ayun dades saksi di akhîrat mengkîn ates damelan wong-wong niku.
-
 ## 41:23
 
 Serto nikula kiro niko yên sampun niko sangko tehadep Tuhan niko, (dugoan niku) sampun minasoke niko, singgo dadesla niko telebet  wong yên rugi.
@@ -18909,8 +16977,6 @@ Meskipun wong-wong niku bersabar (ates azab nerako) dades nerakola pedaleman won
 ## 41:25
 
 Serto Kame’ tetepke peranti wong-wong niku rencang-rencang (setan) yên muji-muji napi saos yên wênten di haluan serto di buri wong-wong niku [^961] serto tetapla ates wong-wong niku putusan azab besami umat-umat yên tekerehen sedereng wong-wong niku dari (golongan) jin serto wong. Leser, wong-wong niku wêntenla wong-wong yên rugi.
-
-[^961]: “yên wênten dihaluan” wêntenla nafsu serto kelezatan di dunio yên sedeng dicapai, sedeng yên dimaksud dengen “di buri wong-wong niku” wêntenla angan-angan serto cito-cito yên nano angsal dicapai.
 
 ## 41:26
 
@@ -18988,8 +17054,6 @@ Napi yên dikelapke (ole wong-wong kafir) pado niko nano lian wêntenla napi yê
 
 Serto sekironyo AI-Qur'an Kame’ dadeske sebagî bacoan jerû bahaso selian bahaso Arab cengkila wong-wong niku ngelapke, “Napi nano dijelaske ayat-ayatnyo?” Napike patut (AI-Qur'an) jerû  bahaso selian bahaso Arab sedeng (rosul), wong  Arab? Kelapkela, “AI-Qur'an wêntenla petunju’ serto penyembu peranti wong-wong yên beiman. Serto wong-wong yên nano beiman pado kuping wong-wong niku wênten sumbetan, serto (AI-Qur'an) niku  merupoke kegelapan peranti wong-wong niku.  [^962] Wong-wong niku niku (peca’) wong-wong yên dipanggil dari pedaleman yên tebi.”
 
-[^962]: Nano ngesung petunju’ kepado wong-wong niku.
-
 ## 41:45
 
 Serto leser, sampun Kame’ sungke pado Musa Kitab (Taurat) sampun niku dipertengkerke. Sekironyo nano wênten keputusan yên kerehen dari Tuhan niko, wong-wong kafir niku cengki sampun dipademke. Serto selesernyo wong-wong niku leser-leser jerû keraguan yên menjerû tehadepnyo.
@@ -19001,10 +17065,6 @@ Sinten saos namelke kesaêan dades (pahalonyo) peranti awa'nyo dewe’ serto sin
 ## 41:47
 
 Kepado-Nyola ilmu tentang dinten kiamat niku dimantu’ke. [^963]  Nano wenten bua-buahan yên metu dari kelopaknyo serto nano sesios wong wadon yên ngandung serto yên ngelahirke, melianke dengen sepewikanan-Nyo. Pado dinten sewaktu Dio (Allah) bekelap, “Didike sekutu-sekutu Kulo niku?” [^964] Wong-wong niku nyawab, “kame’ nyatoke kepado Niko bahwo nano wenten sios wong  diantaro kame’ yên angsal ngesung kesaksian (bahwo Niko ngewenteni sekutu).”
-
-[^963]: Cumen Allah-la yên wikan kapan rawûnyo dinten Kiamat niku.
-
-[^964]: Patung-patung yên wong-wong niku anggep sebage sekutu Allah.
 
 ## 41:48
 
@@ -19038,13 +17098,9 @@ Imutla, selesrnyo wong-wong niku di jerû kebingsalan tentang panggî dengen Tuh
 
 Hā-Mīm. [^965]
 
-[^965]: Nikula huruf-huruf abjad yên teletak pado awal sebagian dari surat-surat Al Quran pecak: Alif laam miim, Alif laam raa, Alif laam miim shaad serto liannyo. diantaro Ahli-ahli tafsir wênten yên nyerake pengertiannyo kepado Allah kerno dipandang temasuk ayat-ayat mutasyaabihaat, serto wênten pulo golongan yên nafsirkenyo atawa yên mandangnyo sebagî nami surat, serto wênten pulo yên bependapet bahwo huruf-huruf abjad niku gunonyo peranti narîk pehatian sedanten pendengêr supayo merhatike Al Quran niku, serto peranti ngisyaratke bahwo Al Quran niku diturunke dari Allah jerû baso Arab yên tesusun dari huruf-huruf abjad. Kalu wong-wong niku nano yakin bahwo Al Quran niku diturunke dari Allah serto dîdînyo buatan Nabi Muhammad s.a.w.,  cobola wong-wong niku damel pecak Al Quran niku.
-
 ## 42:2
 
 ‘Ain Sīn Qōf. [^966]
-
-[^966]: Nikula huruf-huruf abjad yên teletak pado awal sebagian dari surat-surat Al Quran pecak: Alif laam miim, Alif laam raa, Alif laam miim shaad serto liannyo. diantaro Ahli-ahli tafsir wênten yên nyerake pengertiannyo kepado Allah kerno dipandang temasuk ayat-ayat mutasyaabihaat, serto wênten pulo golongan yên nafsirkenyo atawa yên mandangnyo sebagî nami surat, serto wênten pulo yên bependapet bahwo huruf-huruf abjad niku gunonyo peranti narîk pehatian sedanten pendengêr supayo merhatike Al Quran niku, serto peranti ngisyaratke bahwo Al Quran niku diturunke dari Allah jerû baso Arab yên tesusun dari huruf-huruf abjad. Kalu wong-wong niku nano yakin bahwo Al Quran niku diturunke dari Allah serto dîdînyo buatan Nabi Muhammad s.a.w.,  cobola wong-wong niku damel pecak Al Quran niku.
 
 ## 42:3
 
@@ -19065,8 +17121,6 @@ serto wong-wong yên ngembil pelîndûng-pelîndûng selian Allah, Allah masati 
 ## 42:7
 
 serto ma’nikula Kame’ wahyuke Al Qur’an kepado niko jerû baso Arab, supayo niko ngesung peringetan kepado penduduk Ibukota (Mekah) serto pendudu’ (negeri-negeri) di segelembenganyo [^967]  serto ngesung peringetan tentang dinten belûnggû’nyo (Kiamat) yên nano dibingsalke wêntennyo. Segugu’ melebet surgo serto segugu’ lagi melebeti nerako
-
-[^967]: maksudnyo: penduduk dunio sedantennyo.
 
 ## 42:8
 
@@ -19092,21 +17146,13 @@ Punyo-Nyola perbendaharoan langit serto bumi; Dio ngelapangke rezeki serto mates
 
 Dio (Allah) sampun nyariatke kepado niko agamo yên sampun diwasiatke-Nyo kepado Nuh serto napi yên Kame’ wahyu ke kepado niko (Muhammad) serto napi yên sampun Kame’ wasiatke kepado Ibrohim, Musa serto Isa, ya’ni tega’kela agamo (keimanan serto ketakwaan) serto nano angsalla niko berpeca-bela di jerûnyo. Sanget berat bagi wong-wong musyrik (peranti numuti) agamo [^968] yên niko seruke kepado wong-wong niku. Allah mîlî wong yên Dio kenda’i kepado agamo tauhid serto ngesungi petunjuk kepado (agamo)-Nyo bagi wong-wong yên mantu’ (kepado-Nyo).
 
-[^968]: yên dimaksud: igamo di ngeriki ya'ni meng-Esake Allah s.w\.t., beriman kepado-Nyo, kitab-kitab-Nyo, rasul-rasul-Nyo serto dinten akhîrat serto naati sedanten perînta serto larangan-Nyo.
-
 ## 42:14
 
 serto wong-wong niku (Ahli Kitab) nano bepaca-bela kecuali sesampun  rawû kepado wong-wong niku ilmu (keleresan yên disampêke ole para nabi), kerno kedengkian antaro sesami wong-wong niku. [^969] Jiko nanola kereno sesios ketetepan yên sampun wênten bingennyo dari Tuhan niko (peranti nanggûke azab) sampê bates waktu yên ditentuke, cengkila hukuman peranti wong-wong niku sampun dilakonke. serto selesernyo wong-wong yên ngewarisi Kitab (Taurot serto Injil) [^970] sesampun wong-wong niku (pado zaman Muhammad), nian-nian wênten jerû kebingsalan nian tentang Kitab (al Qur’an) niku.
 
-[^969]: maksudnyo: Ahli-ahli kitab niku bepeca bela sesampun wong-wong niku wikan keleseran dari nabi-nabi wong-wong niku. sesampun rawû Nabi Muhammad s.a.w serto nyato keleserannyo wong-wong niku saos tetep bepeca bela serto nano percayoinyo.
-
-[^970]: yên dimaksud dengen wong-wong yên diwariske kepado wong-wong niku Al-Kitab ya'ni ahli kitab yên urip sami maso Nabi Muhammad s.a.w.
-
 ## 42:15
 
 Kereno niku, ajakla (wong-wong niku beriman) serto tetepla [^971] (beriman serto berdakwa) sema’pundi dikêngkênke kepado niko (Muhammad) serto nano angsalla numuti kepêngênan wong-wong niku serto kelapkela,”Kulo beriman kepado kitab yên diturunke Allah serto kulo dikêngkên supayo berlaku adil diantaro niko. Nano (perlu) wênten perbantahan antaro kame’ serto niko, Allah ngelûnggû’ka antara kito serto kepado-Nyola (kito) mantû’.
-
-[^971]: maksudnyo: tetepla jerû igamo serto lanjutkela bedakwah
 
 ## 42:16
 
@@ -19208,8 +17254,6 @@ serto (peranti) wong-wong yên napibilo wong-wong niku dizolimi, wong-wong niku 
 
 serto balesan sesios kejahatan wêntenla kejahatan yên setimpal, tapi sinten saos yên maafke serto bedamel saê  [^972] (kepado wong yên bedamel jahat) dades pahalonyo dari Allah. Nian, Dio nano ngedemeni wong-wong zolim.
 
-[^972]: yên dimaksud bedamel saê di ngeriki ya'ni bedamel saê kepado wong yên bedamel jahat kepadonyo.
-
 ## 42:41
 
 Tapi wong-wong yên ngebelo awa' sesampun dizolimi, nano wênten alesan peranti nyalake wong-wong niku
@@ -19229,8 +17273,6 @@ serto sinten yên disesetke Allah dades baginyo nano wênten sios wong pesirah s
 ## 42:45
 
 serto niko ayun ningali wong-wong niku dihadepke ke nerako jerû kewêntenan tunduk kereno ngeraso hino, wong-wong niku ningali jerû tingaserto yên lesu. serto wong-wong yên beriman bekelap,”Selesernyo wong-wong yên merugi wêntenla wong-wong yên keilangan awa' wong-wong niku dewe' serto keilangan keluargo wong-wong niku pado dinten kiamat”. [^973] Imutla selesernyo wong-wong yên zolim niku berado jerû azab yên kekel.
-
-[^973]: yên dimaksud dengen keilangan awa' serto keluargo ya'ni nano ngerasoke kenikmatan urip abadi kerno disikso.
 
 ## 42:46
 
@@ -19255,8 +17297,6 @@ atawa Dio nganugerahke kekalê jenis lanang serto betino (kepado sinten yên dia
 ## 42:51
 
 serto nano wênten peranti sesios wong saos bahwo Allah bekelap dengen dio kacowali dengen perantaroan wahyu atawa di buri beber [^974] atawa dengen ngutus sesios utusan (malaêkat) laju diwahyuke kepadonyo dengen seizin-Nyo napi yên Dio ayuni. Selesernyo Dio Maha Tinggi lagi Maha Bijaksano.
-
-[^974]: Di buri tabir retinyo ya'ni sios wong angsal ngerungu kalam Ilahi ayun tapi Dia nano angsal ningali-Nyo peca' yên tedades kepado Nabi Musa a.s.
 
 ## 42:52
 
@@ -19326,8 +17366,6 @@ serto selesernyo kame’ ayun mantu’ kepado Tuhan kame’.”
 
 serto wong-wong niku nadeske sebagîan dari hambo-hambo-Nyo sebagî bagîan dari-Nyo. [^975] Nian, wong niku pengingkar (nikmat Tuhan) yên ceto.
 
-[^975]: Wong musyrikin ngelapke bahwa malaêkat niku wêntenla ana’ wadon Allah, padohal malaêkat niku sebagîan dari makhluk serto ciptaan-Nyo.
-
 ## 43:16
 
 Pantes nanao Dio ngembil budak betino dari yên diciptoke-Nyo serto ngesungke budak lanang kepado niko?
@@ -19339,8 +17377,6 @@ serto napibilo sala sios wong diantaro wong-wong niku disung kabar gembiro denge
 ## 43:18
 
 Atawa wong-wong yen diagengke jerû (kewêntenan) beraês, sedeng dio nano angsal ngesung keterangan jerû peselewahan. [^976]
-
-[^976]: Ayat niki ngambarke keadaan wadon Arab pado waktu Al Qur’an diturunke. Wong-wong niku nano disung kesempetan jerû pendidikan, singgo kirang kecerdasannyo serto cumen didadeske periasan saos. Wadon nano wikan besikap teges, garang, serto jelas nyampeke kenda’nyo peranti angsal kemenangan.
 
 ## 43:19
 
@@ -19382,13 +17418,9 @@ kacowali (niko nyemba) Allah yên nyiptoke kulo, kereno nian, Dio ayun ngesungke
 
 serto (Ibrohim) nadeske (kalimat tauhid) niku kalimat yên kekel pado keturunannyo supayo wong-wong niku balik (kepado kalimat tauhid niku). [^977]
 
-[^977]: Nabi Ibrohim a.s. nadeske kalimat tauhid sebagî pegangan bage zuriyatnyo, singgo kalu teangsal di antaro wong-wong niku yên nyekutuke Allah supayo gancang mantu’ kepado tauhid niku.
-
 ## 43:29
 
 Bahkan Kulo sampun ngesungke kenikmatan urip kepado wong-wong niku serto nenek puyang wong-wong niku sampe kerelesan (Al Qur’an) rawû kepado wong-wong niku besami sios wong rosul yên ngesung penjelasan dengen ceto.  [^978]
-
-[^978]: Di antaro zuriyat Nabi Ibrohim a.s. wênten yên ngelalilke tauhid serto Allah nano ngazab wong-wong niku, tapi ngesung keni’matan serto keuripan kepado wong-wong niku yên semestinyo wong-wong niku syukuri. Wong-wong niku nano nyukuri, bahkan nûrûti keinginannyo, kerno niku Allah nûrûnke Al Qur’an serto ngutus sios Rosul peranti mimbing wong-wong niku.
 
 ## 43:30
 
@@ -19442,8 +17474,6 @@ dades nian, sekironyo Kame’ mewafatke niko (sedêrêng niko nyapėi kemenangan
 
 atawa Kame’ tingalke kepado niko (azab) yên sampun Kame’ ancemke kepado wong-wong niku. [^979]  dades nian, Kame’ bekuaso peranti wong-wong niku.
 
-[^979]: Kemenangan Nabi Muhammad saw. serto keancuran kaum musyrik.
-
 ## 43:43
 
 dades becekeserto tegûla niko kepado (igamo) yên sampun diwahyuke kepado niko. Nian, niko berado di jalan yên lempeng.
@@ -19468,13 +17498,9 @@ dades sewaktu dio (Musa) rawu kepado wong-wong niku makto mukjizat-mukjizat Kame
 
 serto nanola Kame’ tingalke sios mukjizat  kepado wong-wong niku kacowali (mukjizat niku) langkung ageng dari mukjizat-mukjizat (yên sedêrêngnyo). serto Kame’ timpoke kepado wong-wong niku azab [^980] supayo wong-wong niku mantu’ (ke jalan yen leres).
 
-[^980]: Yên dimaksud “azab” di ngeriki wêntenla azab duniowi sebagî cobaan dari Allah, peca’ kekirangan tedoan, bejangkitnyo hama taneman, serto lian-lian.
-
 ## 43:49
 
 serto wong-wong niku bekelap,”Wahai pesihir! [^981] Bedo’ala kepado tuhan niko peranti (ngelepaske) kame’ sesuai dengen napi yên sampun dijanjike-Nyo kepado niko, selesernyo kame’ (kalu do’a niko dikabulke) ayun dades wong yên angsal petunjuk.”
-
-[^981]: Reti wong-wong niku wêntenla Nabi Musa a.s.
 
 ## 43:50
 
@@ -19512,8 +17538,6 @@ serto sewaktu putero Maryam (’Isa) didadeske perumpamoan, tibo-tibo kaum niko 
 
 serto wong-wong niku bekelap, “Pundika yên langkung saê, tuhan-tuhan kame’ atawaka dio (‘Isa)?” Wong-wong niku nano ngesungke (perumpamoan niku) kepado niko melianke dengen maksud manta saos, seleresnyo wong-wong niku wêntenla kaum yên gala’ beselewah. [^982]
 
-[^982]: Ayat 57 serto 58 di pucu’ nyerioske lagi kejadian sewaktu Rosulullah macoke diadepan wong-wong Quraiys ayat 98 suroh Al Anbiyā’ (21) yên retinyo, “Selesernyo  niko serto yên niko sembah selian Allah wêntenla kayu bakar (pelawan) Jahannam.” dades sios wong Quraisy benami Abdullah bin Az-Zab’ari betaken kepado Rosulullah saw. tenteng keadaan Isa yên disemba wong Nasroni, napike dio jugo dades kayu bakar nerako Jahannam peca’ halnyo sembahan-sembahan wong-wong niku. Rosulullah tediem serto wong-wong niku pun nawokenyo; laju wong-wong niku betaken lagi ngenoi pundi yên sertogkung sae, antaro sembahan-sembahan wong-wong niku serto Nabi Isa a.s. Takenan-takenan wong-wong niku cumen nyari selewahan saos, dêdênyo nyari keleseran. jalan pikiran wong-wong niku wêntenla kesalahan yên ageng. Nabi Isa a.s. nano wikan bahwa dio disemba, serto dio nano redho didadeske sembahan.
-
 ## 43:59
 
 Dio (‘Isa) nano lian wêntenla sios wong hambo yên Kame’ sungke nikmat (kenabian) kepadonyo, serto Kame’ dadeske dio sebagî côntô bagi Bani Isroil.
@@ -19533,8 +17557,6 @@ serto nano angsalla niko sekali-kali dilangkungke ole setan, nian, setan niku m�
 ## 43:63
 
 serto sewaktu ‘Isa rawû makto keterangan, dio bekelap,”Nian, kulo rawû kepado niko dengen makto hikmah, [^983] serto peranti nyelaske kepado niko sebagîan dari napi yên niko bebantake; dades betakwala kepado Allah serto toatla kepado kulo.
-
-[^983]: Kenabian, Injil serto hukum.
 
 ## 43:64
 
@@ -19600,8 +17622,6 @@ Nian, Kame’ sampun rawû makto keleresan kapado niko, tapi kekataan diantaro n
 
 Atawa wong-wong niku sampun ngerencanoke sios tipu-dayo (jahat), dades selesernyo Kame’ sampun berencano (ngatesi tipu-dayo wong-wong niku). [^984]
 
-[^984]: Kaum musyrikin Mekan dêdênyo benci saos kepado keleseran, bahkan wong-wong niku jugo sampun merencanoke munu Nabi Muhammad saw. tapi rencano niku gagal, kerno Allah jugo punyo rencano peranti nyelamatke Nabi.
-
 ## 43:80
 
 Atawa wong-wong niku ngiro bahwo Kame’ nano nenger resio serto bîsî’an-bîsî’an wong-wong niku? Seleresnyo (Kame’ nenger), serto utusan-utusan Kame’ (malaêkat) dades nyirat di sisi wong-wong niku.
@@ -19654,13 +17674,9 @@ Demi Kitab (Al Qur’an) yên ceto.
 
 selesernyo Kame’ nurunke pado malem yên diberkati. [^985]  Nian, Kame’la yên ngesung peringetan.
 
-[^985]: Malem Al Qur’an bungaran diturunke
-
 ## 44:4
 
 Pado (malem niku)  dicetoke sedanten ûrûsan yên penu hikmah, [^986]
-
-[^986]: Sedanten pekaro yên behubungan dengen keuripan makhluk peca’ urip, mati, rezeki, nasib saê, nasib buru’, serto liannyo.
 
 ## 44:5
 
@@ -19686,8 +17702,6 @@ Tapi wong-wong niku jerû kebingsalan, wong-wong niku bepenesan.
 
 dades entenila pado dinten sewaktu langit makto kabut yên ketingalan ceto, [^987]
 
-[^987]: Bencano kelaperan yên nimpo kaum Quraiys kerno wong-wong niku nentang Nabi Muhammad saw.
-
 ## 44:11
 
 yên ngeliputi wong. Nikila azab yên pedî.
@@ -19704,8 +17718,6 @@ Ma’pundi wong-wong niku angsal nerimo peringetan, padohal (sedėrėngnyopun) s
 
 sampun niku wong-wong niku melengos darinyo serto bekelap, “Dio niku wong yen nerimo ajaran (dari wong lian) serto wong gilo.” [^988]
 
-[^988]: Nabi Muhammad saw. ditudu nerimo pelajaran dari sios wong yên dêdênyo bangsa Arab benami Addas yên beigamo Nasroni.
-
 ## 44:15
 
 Leser, (kalu) Kame’ ngelenyepke azab niku setîtî' saos, cengki niko ayun balîk (ingkar).
@@ -19713,8 +17725,6 @@ Leser, (kalu) Kame’ ngelenyepke azab niku setîtî' saos, cengki niko ayun bal
 ## 44:16
 
 (Imutla) pado dinten (ketiko) Kame’ ngantem wong-wong niku dengen keras. [^989]  Kame’ cengki ngesung balesan.
-
-[^989]: Anteman yên keras niku tedades pado perang Badar, sewaktu wong-wong musyrik dipukul mundur singgo menderito kekalahan, serto kata di antaro pesira wong-wong niku yên padem.
 
 ## 44:17
 
@@ -19784,8 +17794,6 @@ serto leser, Kame’ pîlî wong-wong niku (Bani Isroil) dengen ilmu (Kame’) d
 
 serto sampun Kame’ sungke kepado wong-wong niku diantaro tando-tando (keagengan Kame’) sesios yên di jerûnyo wênten nikmat yên nyato.  [^990]
 
-[^990]: Peca’ naungan awan, turunnyo mann serto salwa; tepancarnyo toyo dari batu, serto tebelanyo laut abang.
-
 ## 44:34
 
 Selesernyo wong-wong niku (kaum musyrik) niku cengki ayun bakelap,
@@ -19794,8 +17802,6 @@ Selesernyo wong-wong niku (kaum musyrik) niku cengki ayun bakelap,
 
 “Nano wênten kepademan selian kepademan di dunio niki. serto kame’ nano ayun dibangkîtke, [^991]
 
-[^991]: Wong-wong musyrik Mekkah nustoi bahwo sampun padem wong ayun diuripke lagi.
-
 ## 44:36
 
 dades hadirkela (male) nene’-puyang kame’ kalu niko wong yên leres.”
@@ -19803,8 +17809,6 @@ dades hadirkela (male) nene’-puyang kame’ kalu niko wong yên leres.”
 ## 44:37
 
 Napi wong-wong niku (kaum musyrik) yên langkûng saê atawa kaun Tubba’  [^992] (gelar rajo-rajo di Yaman), serto wong-wong sedêrêng wong-wong niku yên sampun Kame’ binasoke kereno wong-wong niku wêntenla wong-wong yên nian bedoso.
-
-[^992]: Wong-wong Himyar di Yaman, serto Tubba’ wêntenla gelar peranti rajo-rajo wong-wong niku.
 
 ## 44:38
 
@@ -19878,8 +17882,6 @@ ma’nikula, sampun niku kame’ sungke kepado wong-wong niku pasangan bidodari 
 
 Di jerûnyo wong-wong niku angsal nedo sedanten macem buah-buahan dengen aman serto tenterem, [^993]
 
-[^993]: Tanpo khawatir keabisan atawa khawatir sakit.
-
 ## 44:56
 
 wong-wong niku nano ayun ngerasoke padem di jerûnyo, selian kepademan pertamo (di dunio). Allah ngelindungi wong-wong niku dari azab nerako,
@@ -19952,8 +17954,6 @@ serto Dio nûndû’ke napi yên wênten di langit serto napi yên wênten di bu
 
 Kelapkela (Muhammad) kepado wong-wong yên beriman, ayunla wong-wong niku maafke wong-wong yên nano takut ayun dinten-dinten Allah, [^994] kereno Dio ayun males sios kaum ma’kayo napi yên sampun wong-wong niku damelke.
 
-[^994]: Dinten-dinten pado waktu Allah nimpoke siksoan kepado wong-wong niku.
-
 ## 45:15
 
 sinten saos damelke kebajikan, dades niku peranti awa'nyo  dewek, serto sinten saos damelke kejahatan, dades niku ayun nimpo awa'nyo dewek; sampun niku kepado Tuhan niko niko dimantû’ke
@@ -19989,8 +17989,6 @@ serto Allah nyiptoke langit serto bumi dengen tujuan yên leres, serto supayo sa
 ## 45:23
 
 dades pernaka niko ningali wong yên dadeske hawo-nafsunyo sebagî Tuhannyo serto Allah nala’kenyo seset dengen diwikani-Nyo, [^995] serto Allah sampun ngunci penengeran serto atinyo serto ngesungke tutup ates peningalanyo? dades sinten nian yên kuwawo ngesunginyo petûnjû’ sesampun Allah (nala’kenyo seset)? Napi niko nano ngembil pelajaran?
-
-[^995]: Allah sertota’ke wong niku seset kerno Allah sampun wikan bahwa dio nano nerimo petunju’-petunju’ yên disungke kepadonyo.
 
 ## 45:24
 
@@ -20088,13 +18086,9 @@ Kelapkela (Muhammad), “Kulo dêdêla Rosul yên bungaran di antaro rosul-rosul
 
 Kelapkela, “Terangkela kepado kulo, ma’pundi pendapet niko kalu selesernyo (al-Qur’an) niki rawû dari Allah, serto niko ngingkarinyo, padohal wênten sios saksi dari Bani Isroil [^996] yên ngako’i (keleseran) yên serupo dengen (yên disebut jerû) al-Qur’an sampun niku dio beriman; niko mongka’ke awa'. Nian, Allah nano ngesung petûnjûk kepado wong-wong yên zolim”.
 
-[^996]: yên dimaksud dengen “sios wong dari Bani Isroil” wêntenla Abdullah bin Salam. Dio nyatoke keimananyo kepado Nabi Muhammad Saw. sesampun meperhatike bahwo di antaro isi al-Qur’an wênten yên akor dengen Taurot , makkayo ajaran tauhid, semayoan, serto anceman, kerosulan Nabi Muhammad Saw. wêntennyo keuripan akhîrat, serto seliannyo.
-
 ## 46:11
 
 serto wong-wong yên kafir bekelap kepado wong-wong yên beriman, “Sekironyo al-Qur’an niku sesios yên penet, cengki wong-wong niku nano pantes nûkểni kame’ (ber-iman) kepadonyo.”  [^997]Tapi kereno wong-wong niku nano angsal petunjuk dengennyo, dades wong-wong niku ayun bekelap, “Niki wêntenla dusto yên lambat.”
-
-[^997]: Bahwo wong-wong kafir niku nguyo' wong-wong Islam dengen ngelapke, “Sekironyo al-Qu’an niki leser, cengki kame' langkung dokenan beriman kepadonyo daripado wong-wong miskin serto nano kuwawo, peca' Bilal, ‘Ammar, Suhaib, Habbab, serto liannyo.
 
 ## 46:12
 
@@ -20103,8 +18097,6 @@ serto sedêrêng (al-Qur’an) niku sampun wênten Kitab Musa sebagî petunjuk s
 ## 46:13
 
 Selesernyo wong-wong yên bekelap, “Tuhan kame’ wêntenla Allah,” sampun niku wong-wong niku tetep istiqomah, [^998] nano wênten raso kuatir pado wong-wong niku, serto dio nano (pulo') besedî ati.
-
-[^998]: Tegû penawa'an dalem tauhid serto tetep beramal soleh.
 
 ## 46:14
 
@@ -20121,8 +18113,6 @@ Wong-wong niku nikula wong-wong yên Kame’ terimo amal saểnyo yên sampun wo
 ## 46:17
 
 serto wong yên bekelap kepado keduo wong sepuhnyo, “Ah,” [^999] Napila niko beduo ngingetke kepado kulo bahwo kulo ayun dibangkitke (dari kubur), padohal pinten-pinten umat sedêrêng kulo sampun belalu? sampun niku keduo wong sepuhnyo niku ngarep petûlûngan kepado Allah (sambil bekelap), “Celako niko, berimanla! Nian, semayoan Allah niku leser.” sampun niku dio (budak niku) bekelap, “Niki cumanla dongeng wong-wong bingen.”
-
-[^999]: Kelap-kelap, kalimat, atawa isyarat, yên  nadonyo melawan.
 
 ## 46:18
 
@@ -20200,8 +18190,6 @@ dades besobarla niko (Muhammad) sema’ pundi kesobaran rosul-rosul yên punyo k
 
 Wong-wong yên kafir serto ngalang-ngalangi (wong) dari jalan Allah, Allah ngapuske sedanten amal wong-wong niku. [^1000]
 
-[^1000]: maksudnyo: sedanten amal damelan wong-wong niku nano angsal bimbingan dari Allah, nano dihargoi serto nano angsal pahalo.
-
 ## 47:2
 
 serto wong-wong yên beriman (kepado Allah) serto namelke kebajikan serto beriman kepado napi yên diturunke kepado Muhammad, serto nikula keleseran dari Tuhan wong-wong niku; Allah ngapus kesalahan-kesalahan wong-wong niku, serto meneri kewêntenan wong-wong niku.
@@ -20277,8 +18265,6 @@ dades wikanila, bahwo nano wênten tuhan (yên patut disemba) selian Allah, sert
 ## 47:20
 
 serto wong-wong yên beiman bekelap, “Napi nano wênten sesios sirat [^1001]  (tentang dengengken jihad) yên ditûrûnke?” dades napibilo wênten sesios sirat ditûrûnke yên ceto maksudnyo serto di jerûnyo tesebut (kengkenan) betempur, niko ningali wong-wong yên di jerû atinyo wênten penyakit ayun ningal kepado niko ma’kayo tingaserto wong yên kelenger kereno takét padem. Tapi niku langkûng pantes bagi wong-wong niku.
-
-[^1001]: yên dimaksud dengen surat di ngeriki ya'ni surat yên berisi perînta peranti merangi wong-wong kafir.
 
 ## 47:21
 
@@ -20368,8 +18354,6 @@ serto supayo Allah nûlûng niko ngen petû lûngan yên tegû (kata).
 
 Diola yên sampun nurunke ketenengan ke jerû ati wong-wong mukmin peranti namba keimanan ates keimanan wong-wong niku (yên sampun wênten). serto kewêntenan Allah-la bala tentera langit serto bumi,  [^1002] serto Allah Maha wikan, Maha Bijaksano,
 
-[^1002]: Penolong yên didadeske Allah peranti wong-wong mukmin ma'kayo malaikat, binatang-binatang, angin topan serto liannyo.
-
 ## 48:5
 
 Supayo Dio masokke wong-wong mukmin lanang serto betino ke jerû suargo yên ngalir di bawanyo sungi-sungi. Wong-wong niku ke-kel di jerûnyo serto Dio ayun ngapus kesala-han-kesalahan wong-wong niku. serto yên ma’niki niku nurut Allah sesios keuntungan yên ageng,
@@ -20434,8 +18418,6 @@ serto harto rampasan perang yên kata yên ayun wong-wong niku angsal. serto All
 
 Allah nyemayoke kepado niko harto rampasan perang yên kata yên angsal niko embil, dades Dio gancangke (harto rampasan perang) niki peranti niko, [^1003] serto Dio nahan tangan wong dari (minasoke) niko (supayo niko nyukuri-Nyo), serto supayo dades bukti bagi wong-wong mukmin, serto supayo Dio nunjukke niko ke jalan yên lempeng,
 
-[^1003]: Allah nyanjike harto rampasan perang yên kata kepado kaum muslimin. Sebage penduluan, Allah ngesungkenyo, pado Perang Khaibar.
-
 ## 48:21
 
 serto (kemenangan-kemenangan) ates negeri-negeri lian yên nano angsal niko kiroke, tapi selesernyo Allah sampun nentukenyo. serto Allah Maha Kuaso peranti sedanten sesios.
@@ -20475,8 +18457,6 @@ Muhammad wêntenla utusan Allah serto wong-wong yên bersami dengen dio besikap 
 ## 49:1
 
 Wahai wong-wong yên beiman! Nano angsal niko nului Allah serto Rosul-Nyo, [^1004] serto betakwala kepado Allah. Nian, Allah Maha Nenger, Maha Wikan.
-
-[^1004]: Maksudnyo, wong-wong mukmin nano angsal netepke sesios hukum, sedereng wenten ketetepan dari Allah serto Rosul-Nyo.
 
 ## 49:2
 
@@ -20549,8 +18529,6 @@ Nian, Allah wikan napi yên ghoib di langit serto di bumi. Serto Allah Maha Ning
 ## 50:1
 
 Qof [^1005] . Demi al-Qur’an yên mulio.
-
-[^1005]: Nikula huruf-huruf abjad yên teletak pado awal sebagian dari surat-surat Al Quran pecak: Alif laam miim, Alif laam raa, Alif laam miim shaad serto liannyo. diantaro Ahli-ahli tafsir wênten yên nyerake pengertiannyo kepado Allah kerno dipandang temasuk ayat-ayat mutasyaabihaat, serto wênten pulo golongan yên nafsirkenyo atawa yên mandangnyo sebagî nami surat, serto wênten pulo yên bependapet bahwo huruf-huruf abjad niku gunonyo peranti narîk pehatian sedanten pendengêr supayo merhatike Al Quran niku, serto peranti ngisyaratke bahwo Al Quran niku diturunke dari Allah jerû baso Arab yên tesusun dari huruf-huruf abjad. Kalu wong-wong niku nano yakin bahwo Al Quran niku diturunke dari Allah serto dîdînyo buatan Nabi Muhammad s.a.w., cobola wong-wong niku damel pecak Al Quran niku.
 
 ## 50:2
 
@@ -20656,8 +18634,6 @@ yên menyekutuke Allah ngen tuhan lian, dades babitkela dio ke jerû azab yên k
 
 (Setan) yên ngencanginyo [^1006] bekelap (pulok), “Wahai Tuhan kame', kulo nano nyesetkenyo,tapi dio dewe' yên wenten jerû kesesetan yên tebe.”
 
-[^1006]: yên dimaksud dengen yên nyertoi Dio di ngeriki ya'ni syaitan yên nyesetke di dunio niki.
-
 ## 50:28
 
 (Allah) befirman, “Nano angsalla niko bebala di adepan Kulo, serto nian, kerihin Kulo sampun ngesungke anceman kepado niko.
@@ -20758,13 +18734,9 @@ serto nian, (dinten) balesan ceto tedados.
 
 Demi langit yên punyo jalan-jalan, [^1007]
 
-[^1007]: Garis edar bintang, planet, serto bendo-bendo angkaso liannyo. Wenten jugo yên ngertike zatil hubuk ngen “punyo ciptoan yên sae”, “punyo aesan bintang-bintang,” atawa “punyo bangunan yên tego”.
-
 ## 51:8
 
 nian, kamok leser-leser jerû keadoan lian-lian pendapet, [^1008]
-
-[^1008]: Lian-liannyo pendapet kaum musyrikin tentang Nabi Muhammad saw serto al-Qur’an.
 
 ## 51:9
 
@@ -20870,8 +18842,6 @@ supayo Kame’ timpoke kepado wong-wong niku batu-batu dari tanah,
 
 yên ditandoi di sisi Tuhan niko peranti minasoke wong-wong yên melampaui bates. [^1009]
 
-[^1009]: Batu-batu niku disung tando ngên nami wong yên ayûn dibinasoke
-
 ## 51:35
 
 sampun niku Kame’ metuke wong-wong yên mukmin yên wênten di negeri kaum Luth niku.
@@ -20883,8 +18853,6 @@ serto Kame’ nano ngewênteni negeri niku, kacowali sios rompok dari wong yên 
 ## 51:37
 
 serto Kame’ tinggalke pado negeri niku sios tando [^1010] peranti wong-wong yên takut kepado sikso yên pedî.
-
-[^1010]: Tando di ngeriki iola batu-batu yên betumpuk-tumpuk yên digunoke peranti minasoke kaum Luth. Wênten pulo yên ngelapke sios telago yên banyunyo item serto busuk mambunyo
 
 ## 51:38
 
@@ -20993,8 +18961,6 @@ pado lembaran yên tebuka’,
 ## 52:4
 
 serto demi Baitul Ma'mur. [^1011]
-
-[^1011]: Riwayat Bukhari , Muslim serto Tafsir Ibnu Katsir, rompok di langit pitu yên senantiaso diramike 70.000 malaikat yên betasbî
 
 ## 52:5
 
@@ -21168,8 +19134,6 @@ dades tala’kela wong-wong niku sampî wong-wong niku kepanggi dinten (yên dij
 
 serto selesernyo peranti wong-wong yên zalim wênten azab selian daripado niku. Tapi kekataan dari wong-wong niku nano wikan  [^1012]
 
-[^1012]: wêntennyo musim kemarau, kelaparan, bencano yêng nimpo wong-wong niku, azab kubur serto liannyo
-
 ## 52:48
 
 serto besabarla ngenteni ketetepan Tuhan niko, dades selesernyo kamo’ wênten jero peningaserto Kame’, serto betasbîla dengên muji Tuhan niko sewaktu niko bangun tegak,
@@ -21233,8 +19197,6 @@ serto selesernyo Muhammad sampun ningali Jibril niku (pado ruponyo yên asli) di
 ## 53:14
 
 (ya’niku) di Sidratil Muntaha. [^1013]
-
-[^1013]: 1 Sidratil Muntaha ya’niki panggonan yên pucuk nian pado langit pitu, yên sampun dikunjungi Nabi SAW sewaktu Mi’raj
 
 ## 53:15
 
@@ -21375,8 +19337,6 @@ serto bahwasonyo Diala yên ngesungke kekayoan serto ngesungke kecûkûpan,
 ## 53:49
 
 serto bahwasonyo Dio-la Tuhan (yên ngewênteni) bintang syi'ra. [^1014]
-
-[^1014]: bintang yên disemba wong Arab maso jahilia,
 
 ## 53:50
 
@@ -21718,8 +19678,6 @@ dades ni’mat Tuhan niko yên pundi yên niko dustoke?
 
 Tuhan yên meliharo kalê panggonan terbît matoari serto Tuhan yên meliaro kalê panggonan tebenemnyo. [^1015]
 
-[^1015]: panggonan terbît serto tebenem matoari pado mûsîm panas serto pado mûsîm dingin
-
 ## 55:18
 
 dades ni’mat Tuhan niko yên pundi yên niko dustoke?
@@ -21731,8 +19689,6 @@ Dio nala’ke kalê lautan ngalîr yên kalênyo kepanggê,
 ## 55:20
 
 antaro kalênyo wênten bates yên nano diliwati masîng-masîngnyo. [^1016]
-
-[^1016]: Di antaro ahli tafsir wênten yén bependapet bahwo la yabghiyan Maksudnyo masîng-masîngnyo nano ngayûni. ngen ma’niku maksud ayat 19-20 ya’niki bahwo wênten kalê laut yén kalênyo tepisa kareno dibatasi ole tana genting, tapi tana genting niku nanola diayûni (nano diperluke) dadesnyo pado akhirnyo, tana genting niku dibuang (digali peranti keperluan lalu lintas), dadesnyo kepanggêla kalê lautan niku. peca' terusan Suez serto terusan Panama.
 
 ## 55:21
 
@@ -21769,8 +19725,6 @@ dades ni’mat Tuhan niko yên pundi yên niko dustoke?
 ## 55:29
 
 Sedanten yên wêntên di langit serto dibumi selalu nedo kepadonyo. Saben waktu Dio jerû' kesîbukan [^1017]
-
-[^1017]: Allah senentiaso nyiptoke, ngîdupke, mademke, nyago, ngesung rezeki, serto liannyo.
 
 ## 55:30
 
@@ -21812,8 +19766,6 @@ dades ni’mat Tuhan niko yên pundi yên niko dustoke?
 
 Pado waktu niku wong-wong serto jin nano ditakêni tentang dosonyo. [^1018]
 
-[^1018]: tapi pado saatnyo ayûn ditedoi petanggung jawaban sedanten amasertonyo
-
 ## 55:40
 
 dades ni’mat Tuhan niko yên pundi yên niko dustoke?
@@ -21841,8 +19793,6 @@ dades ni’mat Tuhan niko yên pundi yên niko dustoke?
 ## 55:46
 
 serto bagi wong yên wedhi ayûn waktu ngadep Tuhannyo wênten kalê suargo [^1019]
-
-[^1019]: suargo peranti wong serto suargo peranti Jîn. Wênten jugo mufasîr yên bependapet suargo dunio serto suargo akhîrat
 
 ## 55:47
 
@@ -22004,13 +19954,9 @@ serto niko dades telu gûgû'.
 
 Ya’niku gûgû' kanan. [^1020] Mulio nian gûgû' kanan niku.
 
-[^1020]: wong yêng nerimo buku siratan amalan dengen tangan kanan
-
 ## 56:9
 
 serto gûgû' kiri. [^1021] Sengsaro nian gûgû' kiri niku.
-
-[^1021]: wong yêng nerimo buku siratan amalan dengen tangan kiri
 
 ## 56:10
 
@@ -22027,8 +19973,6 @@ wenten di jerû suargo keni’matan.
 ## 56:13
 
 gûgû' ageng dari wong-wong yên bungaran. [^1022]
-
-[^1022]: sedanten umat sedêreng nabi Muhammad SAW, serto yên dimaksud wong yên terakhîr nikula umat Nabi Muhammad SAW
 
 ## 56:14
 
@@ -22117,8 +20061,6 @@ serto kasur-kasur yên tebel jugo empuk.
 ## 56:35
 
 Selesernyo Kame’ nyiptoke bidadari-bidadari niku dengên langsung. [^1023]
-
-[^1023]: Wong-wong niku diciptoke nano ngen kelahîran serto langsung dades gadîs
 
 ## 56:36
 
@@ -22376,13 +20318,9 @@ Kewêntenan-Nyola kerajoan langit serto bumi, Dio ngîdûpke serto mademke, sert
 
 Dnikula yên Awal serto yên akhir yên Zhahir serto yên Bathin; [^1024] serto Dio Maha Wikan sedanten sesios.
 
-[^1024]: Yên dimaksud dengên: yên Awal ya’niki, yên sampun wênten sedêreng sedanten sesios wênten, yên akhir ya’niki yên tetep wênten sesampun sedanten sesios musna, yên Zhahir ya’niki, yên nyato wêntennyo kerno kata bukti- buktinyo serto yên Bathin ya’niki yên nano angsal digambarke hikmat zat-Nyo ole akal
-
 ## 57:4
 
 Dnikula yên nyiptoke langit serto bumi pado enem dinten: Sesampun niku Dio besemayam di pûcû' ´arsy. Dio wikan napi yên mlebet ke jerû bumi serto napi yên metu daripadonyo serto napi yên tûrûn dari langit serto napi yên naik kepado-Nyo. [^1025] serto Dio besami niko di pundipun niko wênten. serto Allah Maha ningali napi yên niko damelke.
-
-[^1025]: yên dimaksûd dengen yên munggah, antaro lian amal serto doa hamba-Ny
 
 ## 57:5
 
@@ -22476,8 +20414,6 @@ serto selesernyo Kame’ sampun ngûtûs Nuh serto Ibrahim serto Kame’ dadeske
 
 Sampun niku Kame’ tutulke rasul-rasul Kame’ numuti jejak wong-wong niku serto kame’ tutulke pulo' Isa putra Maryam; serto Kame’ sûngke kepadonya Injil serto Kame’ dadeske raso santûn serto kasi sayang jerû' ati wong yên numutinyo. wong-wong niku ngewêntenke rahbaniyyah. [^1026] Padohal Kame’ nano ngewajibkenyo kepado wong-wong niku, tapi (wong-wong niku dewe'la yên ngewêntenkenyo) peranti bebîtî’ keridhaan Allah, sampun niku wong-wong niku nano menjagonyo ngên penjagoan yên cengkinyo. dadesnyo Kame’ sûngke kepado wong-wong yên beriman di antaro wong-wong niku pahalonyo serto kata di antaro wong-wong niku wong-wong fasik.
 
-[^1026]: nano wenten sema atawa domik serto ngûrûng awa' jerû biara.
-
 ## 57:28
 
 Hei wong-wong yên beriman (kepado para Rasul), betakwala kepado Allah serto berimanla kepado Rasul-Nyo, niscayo Allah ngesungke rahmat-Nyo kepado niko kalê bagîan, serto dadeske bagîan niko cahayo yên dengên cahayo niku niko angsal melaku serto Dio ngampuni niko. Serto Allah Maha Pengampun lagi Maha Penyayang.
@@ -22489,8 +20425,6 @@ Hei wong-wong yên beriman (kepado para Rasul), betakwala kepado Allah serto ber
 ## 58:1
 
 Selesernyo Allah sampun ngerungu kelapan betino yên ngajuke gugetan kepado niko tentang domiknyo, serto nyaduke (perihal) kepado Allah. serto Allah ngerungu taken-jawab antaro niko beduo. Selesernyo Allah Maha ngerungu jugo Maha Ningal [^1027]
-
-[^1027]: Sebab tûrûnnyo ayat niki ya’niki behûbûngan dengên masalah sios betino benami Khaulah binti Tsa´labah yên sampun dizhihar ole domiknyo Aus ibn Shamit, ya’niki ngên ngelapke kepado semanyo: niko peranti kulo ma’kayo punggung ibu kulo dengên maksud Dio nano angsal lagi nggauli semanyo, peca' dio nano angsal ngauli embi'nyo. Kelap adat Jahiliya kalimat Zhihar ma’ kayo niku sampun sami dengên nalak sema. dades Khaulah nyaduke hal niku kepado Rasulullah s.a.w. Rasulullah nyawab, bahwo perihal niki dereng wênten keputusan dari Allah. serto pado riwayat yên lian Rasulullah ngelapke: Niko sampun diharamke besetûbû dengên dio. sampun niku Khaulah bekelap: Domik kulo dereng ngelapke kelap-kelap thalak sampun niku Khaulah pinten kali nesek Rasulullah supayo netepke sios keputusan jerû hal niki, sehinggo sampun niku tûrûnla ayat niki serrto ayat-ayat sesampun niku.
 
 ## 58:2
 
@@ -22600,8 +20534,6 @@ Napi saos yên niko tebang dari pohon kurmo (punyo wong-wong kafîr) atawa yên 
 
 Serto harto pampasan (fai-i) [^1028] yên disungke Allah kepado RasulNyo (dari harto bendo) wong-wong niku, dades niko nano mutuke kudo atawa unto peranti ngangsalkenyo, tapi Allah yên ngesûngke kekuasoan kepado RasulNyo tehadep sinten saos yên diayûniNyo. serto Allah Maha Kuasa peranti sedanten sesios.
 
-[^1028]: Harto pampasan yên diperole dari mûsû tanpa tedadesnyo perang. Pembagîannyo berlianan ngên pembagîan ghanimah. Ghanimah wêntenla harto pampasan yên diperole dari mûsû sesampûn tedades perang. Pembagîan Fai-i pecak yên wênten pado ayat 7. Padohal pembagîan ghanimah tesebut pado ayat 41 Al Anfal.
-
 ## 59:7
 
 Harto pampasan (fai-i) yên disungke Allah kepado RasulNyo (dari harto bendo) yên berasal dari pendûdûk kota-kota Makka wêntenla peranti Allah, peranti rasul, sanak kadang, budak-budak yatîm, wong-wong mîskîn serto musafîr, supayo harto niku nano beredar di antaro wong-wong sûgî saos di antaro niko. Napi yên disungke Rasul kepado niko, dades terimola, serto napi yên dilarangnyo peranti niko,dades tinggalkela. serto betakwala kepado Allah. Selesernyo Allah keras nian hukumannyo.
@@ -22690,8 +20622,6 @@ Sanak kadang serto budak-budak niko sesios kali nano bemanfaat peranti niko pado
 
 Selesernyo sampun wênten suri toladan Yên saé peranti niko pado Ibrahim serto wong-wong Yên besami dengên dio; sewaktu wong-wong niku bekelap kepado kaum wong-wong niku: "Selesernyo kame’ belepas awa' dari niko daripado napi Yên niko semba selian Allah, kame’ ingkari (kekafîran) niko serto sampun nyato antaro kame’ serto niko pemûsûan serto kebencian buat selambat-lambatnyo sampî niko beriman kepado Allah saos.Kacowali Kelapan Ibrahim kepado bapaknyo [^1029] : "Selesernyo kulo ayun mohonke ampunan peranti niko serto kulo nano angsal nola’ sesios jugo dari niko (siksoan) Allah". (Ibrahim bekelap): "Ya Tuhan kame’ cuman kepado nikola kame’ betawakkal serto cuman kepado nikola kame’ betobat serto cuman kepado Nikola kame’ mantû'’”.
 
-[^1029]: Nabi Ibrahim perna nedo ampunan peranti bapaknyo yên musyrik kepado Allah: niki nano angsal ditiru, kerno Allah nano ngeleserkenyo wong mukmin nedoke ampunan peranti wong-wong kafîr (tingal surat An Nisa ayat 48: wikan bahwo wong-wong niku (nian-nian) beriman mako nano angsal niko mantu’ke wong-wong niku kepado (domik-domiknyo) wong-wong kafîr. Wong-wong niku nano halal peranti wong-wong kafîr niku serto wong-wong kafîr niku nano halal pulo peranti wong-wong niku. serto sungkela kepado (domik domik) wong-wong niku, mahar Yên sampun wong-wong niku bayar. serto nano bedoso niko ngawîni wong-wong niku napibilo niko bayar kepado wong-wong niku maharnyo. serto nano angsal niko tetep becekel pado tali (pekawînan) dengên betino-betino kafîr; serto ayunla niko nedo mahar Yên sampun niko bayar; serto ayunla wong-wong niku nedo mahar Yên sampun wong-wong niku bayar. Ma’ nikula hukum Allah Yên ditetepke-Nyo di antaro niko. serto Allah Maha wikan jugo Maha Bijaksano.
-
 ## 60:5
 
 "Ya Tuhan kame’, nano angsal Niko dadeske kame’ (sasaran) fitna peranti wong-wong kafîr. serto ampunila kame’ Ya Tuhan Kame’. Selesernyo Nikola Yên Maha Pekaso jugo Maha Bijaksano".
@@ -22720,13 +20650,9 @@ Hei wong-wong Yên beriman, napibilo rawû behijrah kepado niko betino-betino Y�
 
 serto kalu sesios wong dari sema-sema niko lari kepado wong-wong kafîr, laju niko ngalake wong-wong niku dades bayarkela kepado wong-wong Yên lari semanyo niku mahar sekata Yên sampun wong-wong niku sungke [^1030] . serto betakwala kepado Allah Yên kepado-Nyo niko beriman.
 
-[^1030]: Sedereng ghanimah diperantike kepado segangsal kaum yên berhak, dibayarke bungaran dari mahar-mahar kepado domik-domik yang sema-sema wong-wong niku lari ke daera kafîr.
-
 ## 60:12
 
 Hei Nabi, napibilo rawû kepado niko betino-betino Yên beriman peranti ngewêntenke janji setio, bahwo wong-wong niku nano ayun nyekutuke sesiospun dengen Allah, nano ayun malîng, nano ayun bezina, nano ayun munu budak-budaknyo, nano ayun bedamel dusto Yên wong-wong niku ngewentenke antaro tangan serto kaki wong-wong niku [^1031] serto nano ayun nurhakoi niko jerû ûrûsan Yên saé, dades terimola janji setio wong-wong niku serto mohonkanla ampunan kepado Allah peranti wong-wong niku. Selesernyo Allah Maha Pengampun jugo Maha Penyayang.
-
-[^1031]: Damelan yên wong-wong niku ngewentenke antaro tangan serto kaki wong-wong niku, maksudnyo iola ngewêntenke pengakuan-pengakuan palsu ngenai hubungan antaro lanang serto betino ma’ kayo tuduan bezina, tuduan bahwo anak si Fulan dîdî anak domiknyo serto liannyo
 
 ## 60:13
 
@@ -22751,8 +20677,6 @@ Selesernyo Allah nemeni wong yên beperang dijalan-Nyo jerû barisan yên teratu
 ## 61:5
 
 serto (imutla) sewaktu Musa bekelap kepado kaumnyo: "Hei kaum kulo, napi niko nyakiti kulo, padohal niko wikan bahwo selesernyo kulo wêntenla ûtûsan Allah kepado niko?" dades tatkala wong-wong niku melengos (dari keleseran), Allah malîngke ati wong-wong niku [^1032] ; serto Allah nano ngesung hidayah kepado kaum yên fasîk.
-
-[^1032]: Kareno wong-wong niku bepalîng dari keleseran, mako Allah nala’ke seset ati wong-wong niku sehinggo wong-wong niku betamba tebî dari kesaêan.
 
 ## 61:6
 
@@ -22842,8 +20766,6 @@ Napibilo wong-wong munafik rawû kepado niko, wong-wong niku bekelap: "Kame’ n
 
 Wong-wong niku dadeske sumpah wong-wong niku sebagî perisai [^1033] , sampun niku wong-wong niku ngalangi (wong) dari jalan Allah. Selesernyo buru’ nian napi yên sampun wong-wong niku damelke.
 
-[^1033]: Wong-wong niku besumpa bahwo wong-wong niku beriman wêntenla peranti nyago harto wong-wong niku supayo nano dibunu atawa ditawan atawa dirampas hartonyo.
-
 ## 63:3
 
 yên ma’niku wêntenla kerno bahwo selesernyo wong-wong niku sampun beriman, sampun niku dades kafîr (malu) sampun niku ati wong-wong niku dikunci padem; kerno niku wong-wong niku nano angsal ngerti.
@@ -22851,8 +20773,6 @@ yên ma’niku wêntenla kerno bahwo selesernyo wong-wong niku sampun beriman, s
 ## 63:4
 
 serto napibilo niko ningal wong-wong niku, badan-badan wong-wong niku nadeske niko kagum. serto kalu wong-wong niku bekelap niko ngerunguke kelapan wong-wong niku.Wong-wong niku wêntenla peca’ kayu yên tesender [^1034] . Wong-wong niku nyangko bahwo saben teriakan yên keras ditujuke kepado wong-wong niku. Wong-wong niku nikula mûsû (yên selesernyo) dades waspa-dala tehadep wong-wong niku; mugi-mugi Allah minasoke wong-wong niku. Ma’pundi-ka wong-wong niku sampî dipalîngke (dari keleseran)?
-
-[^1034]: Wong-wong niku diumpamoke ma’ kayo kayu yên tesender, Maksudnyo peranti ngelapke sifat wong-wong niku yang jahat meski badan wong-wong niku molek-molek serto wong-wong niku pinter ngomong, tapi selesernyo otak wong-wong niku wêntenla kosong nano angsal wikan keleseran. bekelap: "Ya Tuhan kulo, napi Niko nano nanggûke (kepademan) kulo sampî waktu yên para’, yên nyebabke kulo dapet besedeka serto kulo temasuk wong-wong yên soleh?
 
 ## 63:5
 
@@ -22946,8 +20866,6 @@ Selesernyo harto niko serto anak-anak niko hanyola cobaan (peranti niko); di sis
 
 dades betakwala niko kepada Allah nurut kesanggupan niko serto rungukela serto taatla serto nafkakela nafkah yên saê peranti diri niko [^1035] serto sinten saos yên dijago dari kepelîtan dirinyo, dades wong-wong niku nikula wong-wong yên berûntûng.
 
-[^1035]: Maksudnyo: kadang-kadang sema atawa buda’ angsal nyerûmuske domik atawa abanyo peranti damelke damelan yên nano diserke igamo.
-
 ## 64:17
 
 Kalu niko ngurupke kepado Allah urupan yên saê, niscayo Allah ngelipet gandoke balesannyo kepada niko serto ngampuni niko. serto Allah Maha Pembales Jasa jugo Maha Penyantun.
@@ -22959,12 +20877,6 @@ yên wikan yên ghaib serto yên nyato. yên Maha Perkaso, Maha Bijaksano
 ## 65:1
 
 Hei Nabi, napibilo niko nyerîke sema-sema niko dades kendakla niko cerîke wong-wong niku pado waktu wong-wong niku angsal (ngadepi) iddahnyo (yên wajar) [^1036] serto îtûngla waktu iddah niku serto betakwala kepado Allah Tuhan niko. Nano angsal niko metuke wong-wong niku dari rompok wong-wong niku serto nano angsal wong-wong niku (diizinkan) metu kacowali wong-wong niku namelke damelan keji yên nyato [^1037]. Nikula hukum-hukum Allah, serto sinten saos yên ngelanggar hukum-hukum Allah, dades selesernyo dio sampun bedamel zolim tehadep awa'nyo dewe'. Niko nano wikan barangkali Allah Ngewêntenke sesampun niku sesios hal yên anyar [^1038] .
-
-[^1036]: Maksudnyo sema-sema niku ayunla ditala’ di waktu suci sedêrêng dicampuri. Tentang maso iddah niku tingali ayat 228, 234 surat 2 (Al Baqarah) serto surat 65 (Ath-thalaq) ayat 4.
-
-[^1037]: yên dimaksud “damelan keji” dingeriki wêntenla damelke damelan pidana, berperilaku nano sopan tehadep mertuo, ipar, besan dsb
-
-[^1038]: “Sesios hal yên anyar” masudnyo wêntenla dari domik ayun rujuk bali napibilo talaqnyo daru dicampa’ke sios kali atawa kalê kali.
 
 ## 65:2
 
@@ -23014,13 +20926,9 @@ Allah yên nyiptoke pitu langit serto peca' niku pulo bumi. Kêngkênan Allah be
 
 Hei Nabi, napi niko ngaramke napi yên Allah halalke peranti niko; niko ngerunut kedemenan ati sema-sema niko? serto Allah Maha Pengampun jugo Maha Penyayang [^1039] .
 
-[^1039]: Bukhari serto Muslim nyerioske bahwo Nabi Muhammad s.a.w\.perna ngeharamke ates awaknyo dewek ngumbê madu piranti nyenengke ati sema-semanyo. dades turunla ayat niki sebagi teguran kepado Nabi.
-
 ## 66:2
 
 Selesernyo Allah sampun ngewajîbke kepado niko sedanten mebaske awa' dari sumpa niko [^1040] ; serto Allah wêntenla Pelîndûng niko serto Dio Maha Wikan jugo Maha Bijaksano.
-
-[^1040]: Napibilo sesios wong besumpa ngaramke yên halal dades wajib atasnyo membebaske awa' dari sumpanyo niku ngen mayar kaffarat, pecak tesirat pado surat Al-Maidah ayat 89.
 
 ## 66:3
 
@@ -23238,8 +21146,6 @@ yên betabiat kasar, selian dari niku, yên tekelahar kejahatannyo,
 
 Kereno dio sugî serto kata anak [^1041]
 
-[^1041]: Wong yên wêntên kata anak serto harto langkung muda wênten penumut. tapi kalu dio wêntên sifat-sifat peca’ pado ayat 10-13, nanola dio angsal ditumuti
-
 ## 68:15
 
 Napibilo dibacoke kepadonyo ayat-ayat Kame’, io bekelap: "(niki wêntenla) dongeng-dongengan wong-wong kerehîn."
@@ -23247,8 +21153,6 @@ Napibilo dibacoke kepadonyo ayat-ayat Kame’, io bekelap: "(niki wêntenla) don
 ## 68:16
 
 mengkîn ayûn Kame’ sung tando dio di belalai (nyo) [^1042]
-
-[^1042]: Yên dimaksud dengen belalai di ngeriki iola cungur. dipake kelap belalai di ngeriki sebagî penghinoan
 
 ## 68:17
 
@@ -23265,8 +21169,6 @@ sampun niku kebun niku diliputi malapetako (yên rawû) dari Tuhan niko sewaktu 
 ## 68:20
 
 dades, dadesla kebûn niku item peca’ malem yên gelap gulito. [^1043]
-
-[^1043]: Dades mutungla kebun niku serto tinggal areng-arengnyo yên item peca’ malem
 
 ## 68:21
 
@@ -23300,8 +21202,6 @@ bahkan kito nano anagsal napi saos.
 
 Bekelapla sios wong yên langkung saê pikirannyo di antaro wong-wong niku: " dêdênyo kulo sampun ngelapke kepado niko, ngapo niko nano betasbî (kepado Tuhan niko)?" [^1044]
 
-[^1044]: Yên dimaksud bertasbi kepado Tuhan nikula nyukuri nikmat-Nyo serto nano niatke sesios yên betentangan dengen kêngkênan Tuhan peca’; niatke nano ayun ngesung fakîr miskin.
-
 ## 68:29
 
 wong-wong niku ngelapke: "Maha Suci Tuhan Kame’, Selesernyo Kame’ wêntenla wong-wong yêng zalim".
@@ -23330,8 +21230,6 @@ Selesernyo peranti wong-wong yên betakwa (diwêntenke) suargo-suargo yên kebek
 
 dades napi patût Kame’ dadeske wong-wong Islam niku sami dengên wong-wong yên bedoso (wong kafîr)? [^1045]
 
-[^1045]: Maksudnyo: sami tentang balesan yêng diwêntenke Allah peranti wong-wong niku masing-masing.
-
 ## 68:36
 
 Napi niko (bedamel ma’niku): Ma’pundi niko ngembil kepûtûsan?
@@ -23359,10 +21257,6 @@ Atawa napi wong-wong niku wêntên sekutu-sekutu? Kalu ma’niku, kendaknyo wong
 ## 68:42
 
 Imutla, pado dinten betis disingkepke [^1046] serto wong-wong niku dipanggîl peranti besûjûd; dades wong-wong niku nano kuaso. [^1047]
-
-[^1046]: yên dimaksud dengen betîs disingkepke nikula ngambarke wong yên sedeng ketakutan yên ayûn lari kerno hebatnyo huru-hara dinten kiamat.
-
-[^1047]: Wong-wong niku dikengken sujud niku peranti nguji keimanan wong-wong niku Padohal wong-wong niku nano sanggup lagi kerno pesendian tulang-tulang wong-wong niku sampun lema serto azab sampun ngeliputi wong-wong niku
 
 ## 68:43
 
@@ -23400,8 +21294,6 @@ sampun niku Tuhannyo mîlînyo serto nadeskenyo temasûk wong-wong yên sale.
 
 serto selesernyo wong-wong kafîr niku ampîr ngelîncîrke niko dengên pandangan wong-wong niku, katiko wong-wong niku ngerungu Al Quran serto wong-wong niku bekelap: "Selesernyo dio (Muhammad) niku wong yên gilo" [^1048] .
 
-[^1048]: Nurut kebiasoan yên tedades di tana Arab, sesios wong angsal minasoke binatang atawa wong ngên nujuke pandangannyo yên tajam. Hal niki ayûn didamelke pulo' kepado Nabi Muhammad s.a.w., tapi Allah meliharonyo, sehinggo tehindar dari bahaya niku, sema’pundi disemayoke Allah jerû surat Al Maidah ayat 67. Kekuatan pandangan mato niku pado maso ma’niki dinten diwawôi ngên hypnotisme.
-
 ## 68:52
 
 serto Al Quran niku nano lian cuma peringetan peranti sedanten umat.
@@ -23409,8 +21301,6 @@ serto Al Quran niku nano lian cuma peringetan peranti sedanten umat.
 ## 69:1
 
 Dinten kiamat [^1049]
-
-[^1049]: Al Haaqaah nurut bahaso retinyo yên cengki tedades. dinten kiamat dinamoke Al Haaqqah kerno Dia cengki tedades.
 
 ## 69:2
 
@@ -23424,13 +21314,9 @@ serto wikan dak niko napidio dinten kiamat niku?
 
 Kaum Tsamud serto 'Aad sampun nustoke dinten kiamat. [^1050]
 
-[^1050]: Al Qaari'ah nurut bahaso retinyo yên genterke ati, dinten kiamat dinamike Al Qaari'ah kareno Dio genterke ati.
-
 ## 69:5
 
 wênten jugo kaum Tsamud, dades wong-wong niku sampun dibinasoke dengen suaro yên luar biaso. [^1051]
-
-[^1051]: Petir yên keras nian yên nyebabke suara yên ngguntur yên angsal ngancurke.
 
 ## 69:6
 
@@ -23444,13 +21330,9 @@ yên Allah nimpoke angin niku kepado wong-wong niku selambat pitu malem serto wo
 
 dades niko nano ningali sesios wong saos yên tinggal di antaro wong-wong niku. [^1052]
 
-[^1052]: Wong-wong niku abîs diancûrke sami sekali serto nano wênten keturunan
-
 ## 69:9
 
 serto sampun rawû Fir'aun serto wong-wong yên sedêrêngnya serto (pendûdûk) negeri-negeri yên dijûngkîr balî’ke kareno kesalahan yên ageng. [^1053]
-
-[^1053]: umat-umat kerehen yên ngingkari nabi-nabi ma’kayo kaum shaleh, kaum Syu'aib serto lian-lian serto negeri-negeri yên dijungkir bali’ke nikula negeri-negeri kaum Luth. padohal kesalahan yên didamelke wong-wong niku nikula nustoi sedanten rasul.
 
 ## 69:10
 
@@ -23460,8 +21342,6 @@ dades wong-wong niku nurhakoi rasul Tuhan wong-wong niku, sampun niku Allah nyik
 
 Selesernyo Kame’, ketiko banyu sampun munggah (sampî ke gunung) Kame’ makto (nenek moyang) niko [^1054] , ke jerû baito,
 
-[^1054]: Yên dibakto jerû baito Nabi Nuh peranti diselametke nikula keluargo Nabi Nuh serto wong-wong yên mukmin selian anaknyo yên durhako.
-
 ## 69:12
 
 supayo Kame’ dadeske peristiwo niku peringetan peranti niko serto supayo dipasati oleh kupîng yên ayun ngerungu.
@@ -23469,8 +21349,6 @@ supayo Kame’ dadeske peristiwo niku peringetan peranti niko serto supayo dipas
 ## 69:13
 
 dades napibilo sangkakala ditiup sios tiûpan [^1055]
-
-[^1055]: Tiupan yên bungaran yên pado waktu niku alam semesto dades ancûr.
 
 ## 69:14
 
@@ -23495,8 +21373,6 @@ Pado dinten niku niko diadepke (kepado Tuhan niko), nano sesios pun dari kewênt
 ## 69:19
 
 wêntenpun wong-wong yên disungke kepadonya kitabnyo [^1056] dari sebela kanannyo, dades dio bekelap: "embil-la, bacola kitab kulo (niki)".
-
-[^1056]: catetan amalan damelannyo.
 
 ## 69:20
 
@@ -23602,8 +21478,6 @@ Seandainyo dio (Muhammad) ngewênten-wênteke sebagîan kelapan peranti (nami) K
 
 Cengki Kame’ cekel dio pado tangan kanannyo. [^1057]
 
-[^1057]: Kame’ sung tindakan yên sekeras-kerasnyo.
-
 ## 69:46
 
 Sampun niku Kame’ potong urat tali jantungnyo.
@@ -23647,8 +21521,6 @@ Peranti wong-wong kafîr, yên nano wênten sios wong wikan nula’nyo
 ## 70:4
 
 Malêikat-malêikat serto Jibril munggah (ngadep) kepado Tuhan, jerû sedinten yên kadarnya sêket ribu taun. [^1058]
-
-[^1058]: Sedanten malaêkat-malaêkat serto Jibril kalu ngadep Tuhan nedo waktu sios dinten. Napibilo didamelke ole wong, nedo waktu sêkêt pulu ribu taun.
 
 ## 70:5
 
@@ -23706,8 +21578,6 @@ Yên ngulemi wong yên melakangi serto yên melêngos (dari agami),
 
 Serto ngeraȗp (harto bendo) sampun niku nyimpennyo. [^1059]
 
-[^1059]: Wong yên nyimpen hertonyo serto nano ayun metuke zakat serto nano pulo' nafkakenyo ke jalan yên lese
-
 ## 70:19
 
 Selesernyo wong-wong diciptoke biaso ngerûtûk
@@ -23756,13 +21626,9 @@ Serto wong-wong yên meliaro pekakasnyo,
 
 kacowali tehadep sema-sema wong-wong niku atawa budak-budak yên wong-wong niku hek-i [^1060] , dades selesernyo wong-wong niku nano tecelo.
 
-[^1060]: Budak-budak tumbasan yên angsal jerû peperangan dengên wong kafîr, dêdê buda’ tumbasan yên angsal di luar peperangan. jerû peperangan dengên wong-wong kafîr niku, betino-betino yên ditawan biasonyo dibagî-bagîke kepado kaum muslimin yên tumut jerû peperangan niku, serto kebiasoan niki dêdêla sios yên diwajibke. Imam angsal ngelarang kebiasoan niki. Maksudnyo: budak-budak yên diwênteni yên domiknyo nano tumut tetawan besami-semanyo.
-
 ## 70:31
 
 Sinten saos ngerunut yên di balik niku [^1061] , dades wong-wong niku nikula wong-wong yên tepeliwat.
-
-[^1061]: Maksudnyo: zina, homoseksual, lesbian.
 
 ## 70:32
 
@@ -23795,8 +21661,6 @@ Napi saben wong dari wong-wong kafîr niku kepêngên melebet ke jerû suargo y�
 ## 70:39
 
 Sekali-kali nano! Selesernyo Kame’ ciptoke wong-wong niku dari napi yên wong-wong niku sampûn ma’lûm [^1062] .
-
-[^1062]: Yen dimaksud dengen ayat niki nikula bahwo wong-wong kafir niku diciptoke Allah dari mani peranti beriman serto betakwa kepado Nyo, ma’kayo yên dikelapke ole Rasul. dades kalu wong-wong niku nano beriman nano berhak melebet suargo.
 
 ## 70:40
 
@@ -23849,8 +21713,6 @@ Serto selesernyo saben kali kulo beda’wah ke wong-wong niku (kepado iman) supa
 ## 71:8
 
 Sampun niku selesernyo kulo sampun nyeru wong-wong niku (kepado iman) dengên caro terang-terangan [^1063]
-
-[^1063]: Tingali surat Al Mu'minun ayat 12, 13 serto 14
 
 ## 71:9
 
@@ -23948,8 +21810,6 @@ serto selesernyo Maha Tinggi keagengan Tuhan kame’, Dio nano besêma serto nan
 
 serto selesernyo: wong yên buyan dari kame’ sesampun niku becerios yên tepeliwat kepado Allah, [^1064]
 
-[^1064]: Ngelapke bahwo Allah wênten sema jugo anak. Nurut Ibnu Katsir kelapan niki dikelapke sedêrêng jin niku melebet Islam.
-
 ## 72:5
 
 serto selesernyo kame’ nyangko, bahwo wong serto jȋn sekali-kali nano ayûn nyerioske kelapan yên bohong tehadep Allah.
@@ -23957,8 +21817,6 @@ serto selesernyo kame’ nyangko, bahwo wong serto jȋn sekali-kali nano ayûn n
 ## 72:6
 
 Serto selesernyo wênten wong-wong lanang di antaro manusio nyatu pelindungan [^1065] kepado jîn lanang di antaro jîn, dades jîn-jîn niku nadeske wong-wong niku langkung durhako.
-
-[^1065]: wênten di antaro wong-wong Arab kalu wong-wong niku ngelintasi enggon yên sunyi, dades wong-wong niku nedo pelindûngan kepado jin yên wong-wong niku anggep kuaso di enggon niku.
 
 ## 72:7
 
@@ -23971,8 +21829,6 @@ serto selesernyo kame’ sampûn nyobo ngeraba’i/nginté (resio) langit, dades
 ## 72:9
 
 serto selesernyo kame’ kerȋhîn wikan nûdûki bepinten enggon di langit niku supayo ngerunguke (kabar-kabarnyo). Tapi dinten ma’niki [^1066] sinten saos yên (nyobo) ngerunguke (ma’kayo niku) tentu ayûn kepanggî pana api yên ngintȋ (peranti nunu- nyo).
-
-[^1066]: waktu sesampun Nabi Muhammad s.a.w. diutus dades rasul.
 
 ## 72:10
 
@@ -24057,8 +21913,6 @@ Wahai wong yên bekemul (Muhammad),
 ## 73:2
 
 Tega’ke malem (peranti semayang) di, kecuali [^1067] setîtî’ (daripadonyo),
-
-[^1067]: Sembahyang dinten niki mulo-mulo wajib, sedêrêng turun ayat ke 20 jerû surat niki. Sesampun tûrunnyo ayat ke 20 niki hukumnyo dades sunat.
 
 ## 73:3
 
@@ -24412,8 +22266,6 @@ Pado dinten niku dikabarke kepado wong-wong napi yên sampûn didamelkenyo serto
 
 Bahkan wong-wong niku dades saksi peranti awa'nyo dêwêk [^1068]
 
-[^1068]: (Maksudnyo ayat niki iola, bahwo anggota-anggota badan wong dades saksi tehadep damelan yêng sampun wong-wong niku damelke ma’ kayo wênten jerû surat Nur ayat 24)
-
 ## 75:15
 
 Meskipun dio ngemukoke alesan-alesannyo.
@@ -24473,8 +22325,6 @@ Serto dio yakîn bahwo selesernyo nikula waktu bepisah (dengen dunio),
 ## 75:29
 
 serto betaut betîs (kiri) serto betîs (kanan) [^1069]
-
-[^1069]: \[kareno hebatnyo penderitoan pado saat ayun padem serto ketakutan ayun ninggalke dunio serto ngadepi akhirat]
 
 ## 75:30
 
@@ -24648,19 +22498,13 @@ Dio ngelenggeke sinten yên dikenda’i-Nyo ke jerû rahmat-Nyo (suargo). Serto 
 
 Demi (malaêkat-malaêkat [^1070] yên diûtûs buat makto kesaêan,
 
-[^1070]: sebagian mufasir ngertike “demi angin yên dikîrîm
-
 ## 77:2
 
 dades (malaêkat-malaêkat) yên terbang dengên kencengnyo [^1071]
 
-[^1071]: Maksudnyo: terbang peranti ngelaksanoke kêngkênan Tuhannyo
-
 ## 77:3
 
 serto (malaêkat-malaêkat) yên nyebarke (rahmat Tuhannyo) dengên seluas-luasnyo [^1072]
-
-[^1072]: Di waktu malaêkat tûrûn peranti makto wahyu, sebagîan ahli tafsir bependapet, bahwo yêng dimaksûd dengên An nasyiraat wêntenla angin yêng betiûp dengên makto ujan.
 
 ## 77:4
 
@@ -24693,8 +22537,6 @@ serto waktu gunung-gunung sampun diancûrke dades debu,
 ## 77:11
 
 serto kalu Rasul-rasul sampun ditetepke waktunyo [^1073]
-
-[^1073]: Maksudnyo: waktu peranti bekûmpûl besami-sami beserto umat wong-wong niku masîng-masîng
 
 ## 77:12
 
@@ -24756,8 +22598,6 @@ Napi niko nano imut Kame’ dadeske bumi (enggon) bekûmpûl,
 
 wong-wong ûrîp serto wong-wong padem [^1074]
 
-[^1074]: Maksudnyo: bumi ngûmpûlke wong-wong urip dipemukoannyo serto wong-wong padem jerû perûtnyo
-
 ## 77:27
 
 serto Kame’ dadeske padonya gunung-gunung yên tinggi, serto Kame’ sung niko minum dengên toyo campa?
@@ -24773,8 +22613,6 @@ Celako yên ageng pado dinten niku peranti wong-wong yên mudike.
 ## 77:30
 
 Kêsala niko angsal naungan (asep api nerako) yên punyo tigo cabang [^1075]
-
-[^1075]: Yên dimaksud dengên naungan di ngeriki dêdêla naungan peranti betedû tapi asap api nerako yên ngewêntêni telu gejolak, Yakni di kanan, di kiri serto di pûcû’. niki retinyo bahwo azab niku ngepûng wong-wong kafîr dari sedanten penjuru.
 
 ## 77:31
 
@@ -24848,8 +22686,6 @@ Celako yên ageng pado dinten niku peranti wong-wong yên mudike.
 
 Serto kalu dicerioske kepado wong-wong niku: "Rûkû’la”, niscayo wong-wong niku nano ayun rûkû' [^1076]
 
-[^1076]: \[Sebagîan ahli tafsir ngelapke, bahwo yêng dimaksud dengên rûkû’ di ngeriki ya’ni tûndûk kepado kêngkênan Allah; sebagîan yêng liannyo ngelapke, Maksudnyo nikula semayang]
-
 ## 77:49
 
 Celako yên ageng pado dinten niku peranti wong-wong yên mudike
@@ -24866,8 +22702,6 @@ Napidio yên wong-wong niku salîng betakên?
 
 Tentang habar yên ageng [^1077] , (dinten kiamat)
 
-[^1077]: yên dimaksûd dengen berito ageng niku wênten berito tentang dinten bebangkît.
-
 ## 78:3
 
 Ma’niki wong-wong niku maler beselîsî.
@@ -24875,8 +22709,6 @@ Ma’niki wong-wong niku maler beselîsî.
 ## 78:4
 
 Nano ma’niku [^1078] ; mengkîn wong-wong niku wikan,
-
-[^1078]: Niki wêntenla bantahan tehadep pendapet wong-wong kafir Mekah yên ngingkari dinten bebangkît sami dinten kiamat.
 
 ## 78:5
 
@@ -24901,8 +22733,6 @@ Serto Kame’ dadeske tilem niko peranti rehat,
 ## 78:10
 
 Serto Kame’ dadeske malem peranti kelambi [^1079] ,
-
-[^1079]: Malam niku disebût sebagî kelambi kareno malam niku gelep nutupi dunio sebagî kelambi nutupi beserto wong.
 
 ## 78:11
 
@@ -24948,8 +22778,6 @@ Serto dijalankela gunung-gunung dades dadesla fatamorgano.
 
 Selesernyo nerako Jahannam niku wêntenla enggon yên dicaweske’ [^1080] ,
 
-[^1080]: Maksûdnyo: di nerako Jahannam wenten sios panggonan yeng dari panggonan niku sedanten penjago nerako ngêntêp serto ningali isi nerako.
-
 ## 78:22
 
 Enggon mantû’ peranti wong-wong yên tepeliwat,
@@ -24981,8 +22809,6 @@ serto wong-wong niku mohongke ayat-ayat Kame’ dengen teliwat nian.
 ## 78:29
 
 Serto sedantennyo niku sampûn Kame’ catet di jerû kitab [^1081] (catetan amalan manusio di dunio).
-
-[^1081]: Yên dimaksûd dengen kitab di ngeriki wentenla buku catetan amalan wong.
 
 ## 78:30
 
@@ -25020,8 +22846,6 @@ Tuhan yên meliaro langit serto bumi jugo napi yên wenten di antaro keduonyo; y
 
 Pado dinten, ketiko rûh [^1082] serto sedanten malaêkat tega’ beshaf- shaf, wong-wong niku nano becerios, kecuali sinten yên sampûn diizinke oleh Tuhan yên Maha Pemura; serto io nyerioske kelapan yên leser.
 
-[^1082]: Pakar tafsir wenten Pendapet yên lian tentang maksud rûh pado ayat niki. wenten yên ngelapke Jibril, wenten yeng ngelapke tentero Allah, wenten pulo' yên ngelapke rûh wong.
-
 ## 78:39
 
 Nikula dinten yên cengki dades. dades sinten saos yên ngenda’i, niscayo dio ngembȋl jalan mantû’ kepado Tuhannyo.
@@ -25050,8 +22874,6 @@ serto (malaêkat-malaêkat) yên nului dengen ngebût,
 
 Serto (malaêkat-malaêkat) yên ngatûr ûrûsan (dunio) [^1083] .
 
-[^1083]: jerû ayat 1 s/d 5 Allah besumpa dengen malaêkat-malaêkat yên bemacem-macem perangi serto ûrûsannyo, bahwo wong ayûn dibangkîtke pado dinten kiamat. Sebagîan ahli tafsir bependapet, bahwo jerû ayat-ayat niku Allah besumpa dengen bintang-bintang.
-
 ## 79:6
 
 (Selesernyo kamo’ bakal dibangkîtke) pado dinten sewaktu gempito (tîûpan bungaran) ngegerke alam,
@@ -25071,8 +22893,6 @@ Peningalannyo takût/nûndûk.
 ## 79:10
 
 (Wong-wong kafîr) becerios: "Napi leser kito bakal dimantû’ke kepado keûrîpan yên semulo [^1084] ?
-
-[^1084]: Sesampûn wong-wong kafîr ngerungu wentennyo dinten kebangkitan sesampûn pademnyo wong-wong niku ngeroso heran serto nguyo’ sebab nûrût keyakinan wong-wong niku nano wenten dinten kebangkitan niku. Nikula sebabnyo wong-wong niku betaken yên ma’niku.
 
 ## 79:11
 
@@ -25202,8 +23022,6 @@ dades selesernyo surgola enggon(nyo).
 
 (Wong-wong kafir) betakên kepada niko (Muhammad) tentang dinten kebangkîtan, kapan nian rawûnyo? [^1085]
 
-[^1085]: Cerios-cerios niki wong-wong niku ngelapke wentenla sebagî katoan saos, dîdînyo kareno wong-wong niku pecayo dengen dinten bebangkît.
-
 ## 79:43
 
 Peranti napi niko perlu ngelapke (waktunyo)?
@@ -25220,8 +23038,6 @@ Niko (Muhammad) cuman ngesûng perêngetan buat sinten yên takut kepadoNyo (din
 
 Pado dinten wong-wong niku ningali dinten kebangkîtan niku (ma’niku dahsyatnyo), wong-wong niku ngeroso peca’ nano bediem (di dunio) melianke (sedenget saos) di waktu sore atawa pagi ari [^1086] .
 
-[^1086]: Kereno hebatnyo suasano dinten bebangkît niku wong-wong niku ngeroso bahwo îdûp di dunio niki sedenget saos.
-
 ## 80:1
 
 Dio berai/rainyo masem serto melengos,
@@ -25229,8 +23045,6 @@ Dio berai/rainyo masem serto melengos,
 ## 80:2
 
 Kareno sampûn rawû kepadonyo wong buto [^1087] .
-
-[^1087]: wong buto niku benami Abdullah bin Ummi Maktum. Dio rawû kepado Rasulullah s.a.w. nyûwûn ajaran-ajaran tentang Islam; sampûn niku Rasulullah s.a.w. berai masem serto melengos daripadonyo, kereno beliau sedeng ngadepi pengageng Quraisy dengen pengarepan supayo pengageng -pengageng niku ayûn masûk Islam. dades tûrûnla surat niki sebagî tegûran kepado Rasulullah s.a.w
 
 ## 80:3
 
@@ -25243,8 +23057,6 @@ atawa dio (ayûn) nyatu pengajaran, laju pengajaran niku ngesûng manfaat kepado
 ## 80:5
 
 Wenten pulo' wong-wong yên ngeraso dirinyo serbo cekap [^1088] sûgȋ,
-
-[^1088]: Ya’niku pengageng-pengageng Quraisy yên sedeng dihadepi Rasulullah s.a.w. yên diarepkenyo ayun malebu ke Islam.
 
 ## 80:6
 
@@ -25278,8 +23090,6 @@ dades sinten saos yên ngenda’inyo, cegkila io merhatikenyo,
 
 di jerû mashaf yên dimulioke [^1089] ,
 
-[^1089]: Maksûdnyo: Kitab-Kitab yên ditûrûnkan kepado nabi-nabi yên asalnyo dari Lauhul Mahfuzh.
-
 ## 80:14
 
 yên ditinggike lagi disucike,
@@ -25304,13 +23114,9 @@ Dari napi Allah nyiptokenyo?
 
 Dari setîtî’ mani, Allah nyiptokenyo, dades Dio nentukennyo [^1090] .
 
-[^1090]: Yên dimaksûd dengen nentukennya iolah nentuke tahapan kedadesannyo, umurnyo, rezkinyo, serto nasibnyo.
-
 ## 80:20
 
 Sampûn niku Dio mudake jalannyo. [^1091]
-
-[^1091]: Memudake jalan maksudnyo memudake kelahirannyo atawa ngesûng pesedioan kepadonyo peranti nyalani jalan yên leser atawa jalan yên seset.
 
 ## 80:21
 
@@ -25395,8 +23201,6 @@ serto kata (pulo') pado dinten niku rai yên tetûtûp debu,
 ## 80:41
 
 ditûtûp lagi ole kegelepan [^1092] (hino serto susa).
-
-[^1092]: Maksûdnyo wong-wong niku ditimpo kehinoan.
 
 ## 80:42
 
@@ -25506,8 +23310,6 @@ Serto Al Qur'an niku dêdênyo cerios  setan yên tekûtûk,
 
 dades kepundi niko ayûn kesa [^1093] ?
 
-[^1093]: Maksûdnyo: sesampûn diterangke bahwo Al Quran niku selesernyo  dari Allah serto di jerûnyo berisi pelajaran jugo petûnjû’ yên mîmpîn wong ke jalan yên lûrûs, ditakenkenyola kepado wong-wong kafir niku :"Jalan pundi yên ayûn niko tempû male?"
-
 ## 81:27
 
 Selesernyo dio (Al Qur'an) niku nano lian cuma perêngetan peranti sedanten alam,
@@ -25600,8 +23402,6 @@ Sekali lagi, wikan nano niko napidio dinten pembalasen niku?
 
 Celako yên ageng peranti wong yên sekêwît [^1094] ,
 
-[^1094]: Yên dimaksûd dengen wong-wong yên curang di ngeriki nikula wong-wong yang sekewet waktu naker serto nimbang.
-
 ## 83:2
 
 (nikula) wong-wong yên kalu nerimo takeran dari wong lian wong-wong niku nyatu dipenuke,
@@ -25625,8 +23425,6 @@ pado sios dinten yên ageng,
 ## 83:7
 
 Nano angsal ma’niku , kereno selesernyo kitab wong yên durhako tesimpen di jerû sijjin [^1095].
-
-[^1095]: Sijjin: nami kitab yên nyatet sedanten damelan wong-wong yên durhako
 
 ## 83:8
 
@@ -25660,8 +23458,6 @@ Nano angsal ma’niku, bahkan napi yên wong- wong niku damel, nekepi ati wong-w
 
 Nano angsal ma’niku [^1096], selesernyo wong-wong niku pado dinten niku tetûtûp nian dari (ningal) Tuhannyo.
 
-[^1096]: Maksûdnyo: sesios-sios nano peca’ napi yên wong-wong niku kelapke bahwo wong-wong niku para’ pado sisi Allah.
-
 ## 83:16
 
 Sampûn niku,  wong-wong niku cengki lînggî ke nerako jahîm.
@@ -25673,8 +23469,6 @@ Sampûn niku, dicerioske (ke wong-wong niku): "Nikila azab yên kerȋhȋn  niko 
 ## 83:18
 
 Nano angsal ma’niku, selesernyo kitab wong-wong yên bebakti niku (tesimpen) di jerû 'Illiyyin. [^1097]
-
-[^1097]: 'Illiyyin: nami kitab yên nyatet sedanten damelan wong-wong yên bebakti.
 
 ## 83:19
 
@@ -25772,8 +23566,6 @@ serto tumut kelap Tuhannyo, serto memang semestinyo bumi niku tumut kelap,
 
 Hei wong, selesernyo niko sampûn bedamel dengen sûnggû-sûnggû nuju Tuhan niko, dades pasti niko ayûn kepanggî dengen Dio. [^1098]
 
-[^1098]: Maknonyo: wong di dunio niki yên disadarinyo atawa nano, wêntenla jerû pejalanan kepado Tuhannyo. Serto nano angsal nano dio ayûn kepanggî Tuhannyo peranti nerimo balesanNnyo dari damelannyo yên jahat jugo yên saê.
-
 ## 84:7
 
 dades sinten yên disûngke kitabnyo dari sebela kanannyo,
@@ -25826,8 +23618,6 @@ serto dengen bulan napibilo dades purnamo,
 
 selesernyo niko ngelewati kîjîng demi kîjîng (jerû keîdûpan), [^1099]
 
-[^1099]: Yên dimaksûd dengen kîjîng ke kîjîng niki wêntenla dari setetes banyu mani sampî diberana’ke, sampûn niku di maso budak alit, anom, serto sampe ageng. Dari urip sampe padem serto ditangike lagi.
-
 ## 84:20
 
 Napi sebab wong-wong niku nano ayûn beriman?
@@ -25868,8 +23658,6 @@ Demi yên nyaksike serto yên disaksenke.
 
 Binasola wong-wong yên muat sîrîng [^1100] ,
 
-[^1100]: ya’ni pengageng-pengageng Najran di Yaman.
-
 ## 85:5
 
 yên berapi (dimûrûpke dengen) kayu api,
@@ -25893,8 +23681,6 @@ Yên wentên kerajo’an langit lan bumi; serto Allah Maha nyaksenke sedantennyo
 ## 85:10
 
 Selesernyo wong-wong yên ngerawûke fitnah [^1101] kepado wong-wong mukmin lanang serto betino serto wong-wong niku nano betobat, dades peranti wong-wong niku azab Jahannam serto peranti wong-wong niku azab (nerako) yên mûtûngke.
-
-[^1101]: Yên dimaksûd dengen “natangke cobaan” ya’ni pecak nyikso, ngerawûke bencano, munu serto liannyo
 
 ## 85:11
 
@@ -25935,8 +23721,6 @@ selesernyo wong-wong kafir nemen mudike,
 ## 85:20
 
 padohal Allah ngepûng wong-wong niku dari buri [^1102] .
-
-[^1102]: Maksûdnyo: wong-wong niku nano wikan lolos dari kekuasoan Allah.
 
 ## 85:21
 
@@ -25989,8 +23773,6 @@ dades sekali-kali nano wênten peranti wong niku kekuatan serto nano wênten (pu
 ## 86:11
 
 Demi langit yên ngandûng ujan [^1103]
-
-[^1103]: Raj'i retinyo mantû’. hujan dinamike Raj'i jerû ayat niki, kerno hujan niku berasal dari uap yên munggah dari bumi ke udaro, sampûn niku tûrûn ke bumi, mantû’ male ke pûcû’, serto dari pûcûk tûrûn ke bumi serto ma’ nikula seterûsnyo
 
 ## 86:12
 
@@ -26047,8 +23829,6 @@ kecuali kalu Allah ngenda’i. Selesernyo Dio wikan napi yên terang serto napi 
 ## 87:8
 
 Serto Kame’ na’ mudake niko ke jalan (igamo) yên muda [^1104] ,
-
-[^1104]: Maksûdnyo: jalan yên ngebakto kepado kebahagioan dunio serto akhîrat.
 
 ## 87:9
 
@@ -26206,8 +23986,6 @@ Demi fajar,
 
 Demi malem yên sepûlû [^1105] ,
 
-[^1105]: Malem yên sepûlû niku ya’ni malem sepûlû teakhîr dari bulan Ramadhan. Serto wênten jugo yên ngelapke sepûlû yên pangkal dari bulan Muharram temasûk di jerûnyo dinten Asyura. wênten pulo'’ yên ngelapke bahwo malem sepûlû niku wêntenla sepûlû malem setunggal bulan Zulhijjah.
-
 ## 89:3
 
 Demi yên genep serto yên ganjîl,
@@ -26228,8 +24006,6 @@ Napi niko nano meratike ma’pundi Tuhan niko damelke tehadep kaum 'Aad?
 
 (ya’ni) pendûdûk Iram yên wentên gedung-gedung yên tinggi [^1106] ,
 
-[^1106]: Iram nikula ibukota kaum 'Aad.
-
 ## 89:8
 
 yên dereng kalo digawê’ (sios kota) peca’ niku, di negeri-negeri lian,
@@ -26237,8 +24013,6 @@ yên dereng kalo digawê’ (sios kota) peca’ niku, di negeri-negeri lian,
 ## 89:9
 
 serto kaum Tsamud yên neta’ batu-batu ageng di lemba [^1107] ,
-
-[^1107]: Lemba niki panggonannyo di bagȇan utaro Jazirah Arab antaro kota Madinah serto Syam. Wong-wong niku neta’-neta’ batu gunung peranti ngawȇk gedûng-gedûng enggon wong-wong niku serto wênten pulo' yên ngelubangi gunung-gunung peranti panggonan wong-wong niku serto panggonan belîndûng.
 
 ## 89:10
 
@@ -26268,13 +24042,9 @@ Dades, wong niku, kalu Tuhannyo ngujinyo dengen dimulioke-Nyo serto disûngNyo k
 
 Serto kalu Tuhannyo ngujinyo lalu ngirangke rezkinyo, dades dio becerios: "Tuhan kulo ngehinoke kulo" [^1108] .
 
-[^1108]: Maksûdnyo: wêntenla Allah nyalake wong-wong yên ngelapke bahwo kesogêan niku wêntenla sios kemulioan serto kemiskinan niku sios kehinoan peca’ yên tekelap jerû ayat 15 serto 16. Tapi selesernyo kesogêan serto kemiskinan niku ujian Tuhan peranti hambo-hambo-Nyo.
-
 ## 89:17
 
 Sekali-kali nano (ma’niku), selesernyo niko nano mulioke anak yatim [^1109]
-
-[^1109]: yên dimaksûd dengen nano mulioke buda’ yatîm wêntenla nano ngesûngke hak-haknyo serto nano bedamel saê kepadonyo.
 
 ## 89:18
 
@@ -26307,8 +24077,6 @@ Dio becerios: "ya’wa saênyo kironyo kulo kerêhîn namelke (amal sole) perant
 ## 89:25
 
 dades pado dinten niku nano wênten yên nyikso pecak sikso-Nyo [^1110] .
-
-[^1110]: Maksûdnyo: kekerasan azab Allah sami dengen keadilan-Nyo.
 
 ## 89:26
 
@@ -26370,8 +24138,6 @@ ilat serto duo bîbîr.
 
 Serto Kame’ sampûn nûnjû’ke dengen dio duo ikok jalan [^1111] ,
 
-[^1111]: Yên dimaksûd dengen duo jalan nikula jalan kesaêan serto jalan kejahatan.
-
 ## 90:11
 
 dades dio nano ngembil  (dengen hartonyo niku) jalan yên nanjak serto saro.
@@ -26427,8 +24193,6 @@ Demi siang waktu ketingalan.
 ## 91:4
 
 Demi malem waktu nekepi dio (matoari) [^1112] ,
-
-[^1112]: Maksûdnyo: malem-malem yên gelep.
 
 ## 91:5
 
@@ -26506,8 +24270,6 @@ dades mengkîn ayûn Kame’ mudake perantinyo jalan yên cepa’.
 
 Serto sinten wong yên kîkît serto ngeraso dirinyo sûgȋ [^1113] ,
 
-[^1113]: Yên dimaksûd dengen ngeraso dirinyo cekap ya’ni nano merluke petolongan Allah serto nano betakwa kepado-Nyo.
-
 ## 92:9
 
 serto mudike pahalo  yên saê,
@@ -26572,8 +24334,6 @@ Demi malem napibilo sampûn sunyi (gelep),
 
 Tuhan niko nano ninggalke niko (Muhammad) serto nano (pulo') benci kepado niko [^1114] .
 
-[^1114]: Maksûdnyo: ketiko tûrûnnyo wahyu kepado Nabi Muhammad s.a.w. terenti sementaro waktu, wong-wong musyrik bekelap: "Tuhannyo (Muhammad) sampûn ninggalkennyo serto benci kepado-Nyo". dades tûrûnla ayat niki peranti manta kelapan wong-wong musyrik niku.
-
 ## 93:4
 
 serto selesernyo yên akhîr niku langkung saê peranti niko daripado yên bungaran
@@ -26589,8 +24349,6 @@ Napi nano Dio ningali niko anak yatîm, dades Dio ngelîndûngi niko?
 ## 93:7
 
 Serto Dio ningali niko sebagî wong bingung [^1115] , sampûn niku Dio ngesûng petûnjû’.
-
-[^1115]: Yên dimaksûd dengen bingung di ngeriki wentenla kebingungan peranti angsl kesaêan yên nano angsal dicapî ole akal, sampun niku Allah nûrûnke wahyu kepado Muhammad s.a.w. sebagî jalan peranti mîmpîn umat nuju keselamatan dunio jugo akhîrat.
 
 ## 93:8
 
@@ -26620,13 +24378,9 @@ serto Kame’ sampûn ngilangke beban dari niko,
 
 yên meratke bau niko [^1116] ?
 
-[^1116]: Yên dimaksûd dengen beban di ngeriki wentenla kesaroan-kesaroan yên diderito Nabi Muhammad s.a.w. waktu nyampeke risalah.
-
 ## 94:4
 
 Serto Kame’ munggake aranan (nami), peranti niko [^1117] ,
-
-[^1117]: ninggike nami Nabi Muhammad s.a.w di ngeriki maksûdnyo wentenla munggake derajat serto numutke naminyo dengen nami Allah pado kalimat syahadat, dadeske taat kepado Nabi Temasû’ taat kepado Allah serto lian-lian.
 
 ## 94:5
 
@@ -26640,8 +24394,6 @@ selesernyo sesampûn saronyo niku wênten kemudahan.
 
 dades napibilo niko sampûn telas (dari sios urusan), damelkela dengen sûnggû-sûnggû (damelan) liannyo [^1118] ,
 
-[^1118]: Maksûdnyo: sebagîan ahli tafsîr nafsîrke napibilo niko (Muhammad) sampûn telas cawesan, dades beribadatla kepado Allah; napibilo niko sampûn nelaske namelke ûrûsan dunio dades damelkela ûrûsan akhîrat, serto wenten jugo yên ngelapke: napibilo sampûn nelaske namelke semayang bedoala.
-
 ## 94:8
 
 serto kepado Tuhan nikola saos kenda’nyo niko beharep.
@@ -26650,13 +24402,9 @@ serto kepado Tuhan nikola saos kenda’nyo niko beharep.
 
 Demi (buah) Tin serto (buah) Zaitûn [^1119] ,
 
-[^1119]: yên dimaksûd dengen “Tin” ole sebagîan ahli tafsîr wêntenla aranan Nabi Nuh, Ya’ni Damaskus yên kata taneman Tin; serto zaitun niku Baitul Maqdis yên kata tûmbû Zaitûn.
-
 ## 95:2
 
 serto demi bukit Sinai [^1120] ,
-
-[^1120]: Bukît Sinai ya’ni enggon Nabi Musa a.s. nerimo wahyu dari Tuhannyo
 
 ## 95:3
 
@@ -26698,8 +24446,6 @@ Bacola, serto Tuhan niko yên Maha Pemura,
 
 yên ngajari (wong-wong) dengen perentaro pena [^1121] ,
 
-[^1121]: Maksûdnyo: Allah ngajar wong dengen perantaroan nulîs maco.
-
 ## 96:5
 
 Ngajari wong napi yên dio nano wikan.
@@ -26724,8 +24470,6 @@ Ma’pundi pendapet niko tentang wong yên nega (Abu Jahal),
 
 sios hambo (nabi Muhammad) ketiko dio namelke semayang [^1122] ,
 
-[^1122]: yên dimaksûd dengen wong yên ayûn nano angsal niku iola Abu Jahal, yên nano angsal niku wentenla Rasulullah dewe’. Tapi usoho niki nano behasil kereno Abu Jahal ningali wênten yên nakûtkenyo. Sesampûn Rasulullah semayang disampeke wong kabar niku kepado Rasulullah. Sampun niku Rasulullah ngelapke: "Kalu dadesla Abu Jahal bedamel ma’niku ceto dio ayûn dibinasoke Malaêkat".
-
 ## 96:11
 
 Ma’pundi pendapet niko kalu dio (yen dilarang semayang niku) wênten di pûcû’ keleseran (petûnjû
@@ -26746,8 +24490,6 @@ Napi dio nano wikan bahwo selesernyo Allah ningali sedanten damelannyo?
 
 Sekali-kali Nano, leser kalu dio nano berenti (bedamel ma’niku) niscayo Kame’ tarîk ûbûn-ûbûnnyo [^1123] ,
 
-[^1123]: Maksûdnyo: melebetla ke jerû nerako dengen narî’ kepala’nyo.
-
 ## 96:16
 
 (ya’niku) ûbûn-ûbûn wong yên mudike serto durhako.
@@ -26760,8 +24502,6 @@ dades tala’kela dio manggîl gûgû’nyo (peranti nolong dio),
 
 mengkîn Kame’ undang Malaêkat Zabaniyah [^1124] ,
 
-[^1124]: Malaêkat Zabaniyah wêntenla Malaêkat yên nyikso wong-wong yên bedoso di jerû nerako
-
 ## 96:19
 
 Nano angsal ma’niku, nano angsal niko tumut dengen dio; serto sujudla serto para’kela (diri niko kepado Tuhan).
@@ -26769,8 +24509,6 @@ Nano angsal ma’niku, nano angsal niko tumut dengen dio; serto sujudla serto pa
 ## 97:1
 
 Selesernyo Kame’ sampûn nûrûnkenyo (Al Quran) pado malem kemulioan [^1125] .
-
-[^1125]: Malem kemulioan niku pado baso Indonesia dikelapke dengen malem Lailatul Qadr ya’niku sios malem yên penu kemulioan, keagengan, kareno pado malem niku bungaran tûrûnnyo Al Quran.
 
 ## 97:2
 
@@ -26800,8 +24538,6 @@ Nano wenten wong kafîr dari ahli kitab serto wong musyrîkin (ngelapke bahwo wo
 
 di jerûnyo wenten (isi) Kitab-Kitab yên lûrûs [^1126] .
 
-[^1126]: yên dimaksûd dengan isi Kitab-Kitab yên lempeng ya’ni isi Kitab-Kitab yên ditûrûnke kepado nabi-nabi ma’kayo Taurat, Zabur, serto Injil yên murni.
-
 ## 98:4
 
 Serto nano bepeca-bela wong-wong yên dirawûke Al kitab (kepado wong-wong niku) melianke sampûn rawûnyo kepado wong- wong niku bukti yên nyato.
@@ -26809,8 +24545,6 @@ Serto nano bepeca-bela wong-wong yên dirawûke Al kitab (kepado wong-wong niku)
 ## 98:5
 
 Padohal wong-wong niku cuman dipêrêntake nyemba Allah, dengen ikhlas naatinyo kepado-Nyo peranti (nyalanke) igamo yên lûrûs [^1127] , serto supayo wong-wong niku nega’ke semayang serto mayar jekat; serto yên ma’nikula igamo yên lempeng.
-
-[^1127]: Lempeng retinyo tebî dari syirik (nyekutuke Allah) serto tebî dari kesesetan.
 
 ## 98:6
 
@@ -26847,8 +24581,6 @@ Kereno selesernyo Tuhan niko sampûn ngewahyuke (Yên ma’niku) kepadonyo.
 ## 99:6
 
 Pado dinten niku wong dimetuke dari kûbûrnyo dengen bekelompo’-kelompo’, supayo ditȗnjȗ’ke kepado wong-wong niku (balesan) dari damelannyo [^1128]
-
-[^1128]: Maksûdnyo wênten di antaro wong-wong niku yên pûtî rainyo serto wênten pulo’ yên item serto seliannyo.
 
 ## 99:7
 
@@ -26889,8 +24621,6 @@ serto selesernyo wong-wong niku ningali (dewe’) keingkarannyo,
 ## 100:8
 
 serto selesernyo dio cinto kepado herto [^1129] memang teliwat.
-
-[^1129]: Sebagîan ahli tafsîr nerangke bahwo maksud ayat niki iola: wong niku kuat nian cintonyo kepado harto sehinggo dio dades kîkît.
 
 ## 100:9
 
@@ -26952,8 +24682,6 @@ Napi niko wikan napidio nerako Hawiyah niku?
 
 Bemega-megahan sampûn ngelalike niko [^1130]
 
-[^1130]: Maksûdnyo: Bemega-mega soal kata harto, anak, pengikut, kemulioan, lan seumpamonyo sampûn melalike niko dari ketaatan.
-
 ## 102:2
 
 sampî niko melebet ke jerû kûbûr.
@@ -26978,8 +24706,6 @@ niscayo niko bakal ningali nerako Jahiim,
 
 serto selesernyo, niscayo niko bakal ningali dengen 'ainul yaqin [^1131]
 
-[^1131]: 'ainul yaqin artinyo ningali dengan mato kepalo dewek singgo nîmbûlke keyakinan yên kuat.
-
 ## 102:8
 
 sampûn niku, niko cengki bakal ditakeni pado dinten niku tentang kenikmatan (yên niko mega-megake di dunio).
@@ -27003,8 +24729,6 @@ Nerako wail (celakola) peranti tiap pengumpet lagi pencelo,
 ## 104:2
 
 yên nȗmpȗk harto serto ngȋtȗng- ngȋtȗng nyo [^1132] ,
-
-[^1132]: Maksûdnyo ngumpulke serto ngerȇkên-rȇkên harto yang kernonyo Dio dades ketat serto nano ayûn ngesûngkenyo di jalan Allah.
 
 ## 104:3
 
@@ -27038,8 +24762,6 @@ Sesûnggûnyo api niku diselûbûngke rapet ates wong-wong niku,
 
 Napi niko nano masati ma’pundi Tuhan niko sampûn betindak tehadep tentero gaja [^1133] ?
 
-[^1133]: Yên dimaksûd dengen tentero begaja iola tentero yên dîpîmpin ole Abrahah Gubernur Yaman yên ayûn ngancûrke Ka'bah. Sedereng melebet ke kota Mekah tentero niku diserang bûrûng-bûrûng yên mabêtinyo dengen batu-batu alit sehinggo wong-wong niku musno.
-
 ## 105:2
 
 Napi nano Dio dadeske tipu dayo wong-wong niku (na’ ngancûrke Ka'bah) niku sio-sio?
@@ -27063,8 +24785,6 @@ Kereno kebiasoan wong-wong Quraisy,
 ## 106:2
 
 (ya’ni) kebiasoan wong-wong niku kesa pado mûsim dingin serto mûsim panas [^1134]
-
-[^1134]: Wong Quraisy biaso ngewentenke pejalanan terutamo peranti beniago ke negeri Syam pado mûsîm panas serto ke negeri Yaman pado mûsîm dingin. Pado pejalanan niku wong-wong niku angsal jaminan keamanan dari penguaso-penguaso dari negeri-negeri yén dilewatinyo. Niki wentenla sios nikmat yén ageng nian dari Tuhan wong-wong niku. Kerenonyo niku sewajarnyola wong-wong niku nyemba Allah yén sampûn ngesûngke nikmat niku kepado wong-wong niku.
 
 ## 106:3
 
@@ -27098,13 +24818,9 @@ dades celakola wong-wong yên semayang,
 
 wong-wong yên bedamel dengen riya’  [^1135]
 
-[^1135]: Riya’ wentenla namelke sios damelan saê nano peranti cari keridhoan Allah tapi peranti nyari pujian wong-wong atawa tekelahar di masyarakat.
-
 ## 107:7
 
 serto sungkan ngesûng petȗlȗngan [^1136]
-
-[^1136]: Sebagîan mufassirin ngertike: nano ayûn mayar zakat.
 
 ## 108:1
 
@@ -27115,13 +24831,9 @@ kepado niko (Muhammad) ni’mat yen kata.
 
 dades semayangla kereno Tuhan niko serto bekorbanla [^1137]
 
-[^1137]: Yén dimaksûd bekorban di ngeriki ya’ni nyemelê binatang Qurban serto nyukuri nikmat Allah.
-
 ## 108:3
 
 Selesernyo wong-wong yên menci niko diola yên tepûtûs . [^1138]
-
-[^1138]: Maksûdnyo tepûtûs di ngeriki
 
 ## 109:1
 
@@ -27163,8 +24875,6 @@ dades betasbela dengen muji Tuhan niko serto nyatu ampûnla kepado-Nyo. Selesern
 
 Binasola keduo iko’ tangan Abu Lahab serto selesernyo dio bakal binaso [^1139]
 
-[^1139]: Yên dimaksûd dengen “keduo tangan Abu Lahab” wêntenla Abu Lahab dewe’.
-
 ## 111:2
 
 Nano wenten guno perantinyo herto bendonyo serto napi yên dio usohoke.
@@ -27176,8 +24886,6 @@ Mengkȋn dio bakal melebet ke jerû api yên mûrûp.
 ## 111:4
 
 Serto (ma’niku pulo’) semanyo, yên makto kayu api  [^1140]
-
-[^1140]: Tukang makto kayu tunu jerû baso Arab wêntenla sîndîran peranti penyebar fitnah. Sema Abu Lahab diarani tukang makto kayu tunu kereno dio kerep nyebar-nyebarke fitnah peranti nyahat-nyahatke Nabi Muhammad s.a.w. serto kaum Muslim.
 
 ## 111:5
 
@@ -27215,8 +24923,6 @@ Serto dari kejahatan malem napibilo sampûn peteng/gelep gulito
 
 Serto dari kejahatan (betino-betino tukang sîhîr) yên niûp pado simpûl-simpûl [^1141] (tali)
 
-[^1141]: Biasonyo tukang-tukang sihir waktu namelke sîhîrnya damelke bûhûl-bûhûl dari tali lalu macoke jampi-jampi dengen ngembûs-ngembûske nafasnyo ke bûhûl niku.
-
 ## 113:5
 
 Serto dari kejahatan wong pedengki kalu dio dengki”.
@@ -27244,3 +24950,2297 @@ Yên mîsî’ke (kejahatan) ke jerû dado wong,
 ## 114:6
 
 Dari (golongan) jin serto wong.
+
+[^1]: Maksudnyo: kulo ngawali (mula’i) maco al-Fatihah niki ngen ngelap nami Allah. Sedanten damelan yên saê, ayunnyo dimula’i ngen ngelap asma Allah, pecak nedo, minum, nyemle binatang serto liannyo. Allah niku la nami zat yên Maha Suci, yên wênten hak disemba ngen seleser-lesernyo, yên nano mutuke makhluk-Nyo, tapi makhluk yên mutuke-Nyo. Ar Rahmaan (Maha Pemura): sala sios nami Allah yên ngesung makno bahwo Allah ngelimpake karunio-Nyo kepado makhluk-Nyo sedeng Ar Rahiim (Maha Penyayang) ngesung pengertian bahwo Allah senantiaso besifat rahmah yên nyebabke Dio sesampun niku ngelimpake rahmat-Nyo kepado makhluk-Nyo.
+
+[^2]: Alhamdu (sedanten puji). Muji wong wênten la kerno damelannyo yên sai yên didamelkenyo atas kendak-Nyo dewek. Mako muji Allah retinyo: nyanjung-Nyo kreno damelannyo yên sai. Lian halnyo ngen syukur yên retinyo ngako’i keutamoan sesios wong tehadep nikmat yên disungke-Nyo. kito ngadepke sedanten puji bagi Allah lan kerno Allah sumber dari sedanten kesaian yên patut dipuji.
+
+[^3]: Rabb (tuhan), retinyo: Tuhan yên ditoati yên Ngewênteni, nidik serto meliharo. Lafal Rabb nano angsal digunoke selian peranti Tuhan, kacowali kalu wênten sambungannyo, pecak robbul bait (tuan rompok). 'Alamiin (semesto alam): sedanten yên diciptoke Tuhan yên tediri dari beragem jenis serto macem, pecak: alam manusio, alam binatang, alam tumbu-tumbuan, bendo-bendo padem serto liannyo. Allah Pencipto sedanten alam-alam niku.
+
+[^4]: Maalik (yên nguasoi) ngen manjangke mim retinyo: pemilik. angsal pulo dibaco ngen Malik (ngen mendekke mim), retinyo: Rajo.
+
+[^5]: Yaumiddin (dinten Pembalesan): dinten yên diwaktu niku dewek-dewek wong nerimo balesan amalannyo yên sai jugo yên jahat. Yaumiddin dikelapke juga yaumulqiyaamah, yaumulhisaab, yaumuljazaa' lan liannyo.
+
+[^6]: Na'budu diembil dari kelap 'ibaadat: kepatuan serto ketundukan yang ditongolke ole perasoan tehadep keagengan Allah, sebagî Tuhan yên disemba, kerno bekeyakinan bahwo Allah wênten kekuasoan yên mutlak tehadepnyo.
+
+[^7]: 7Nasta'iin (nedo petolongan), dari kelap isti'aanah: ngarepke petulungan peranti angsal ngerampungke sios damelan yên nano sanggup didamelke ngen tenago dewek.
+
+[^8]: Ihdina (tunju’ila Kame’), dari kelap hidayaat: ngesûng hidayah ke jalan yên sai. Yên dimaksud ngen ayat niki didinyo sekadar ngesung hidayah saos, tapi jugo ngesung taufik.
+
+[^9]: Yên dimaksud ngen wong-wong niku yang dimurkoi serto wong-wong niku yên seset nikula sedanten golongan yên nyimpang dari ajaran Islam.
+
+[^10]: Nikula huruf-huruf abjad yên teletak pado awal sebagian dari surat-surat Al Quran pecak: Alif laam miim, Alif laam raa, Alif laam miim shaad serto liannyo. diantaro Ahli-ahli tafsir wênten yên nyerake pengertiannyo kepado Allah kerno dipandang temasuk ayat-ayat mutasyaabihaat, serto wênten pulo golongan yên nafsirkenyo atawa yên mandangnyo sebagî nami surat, serto wênten pulo yên bependapet bahwo huruf-huruf abjad niku gunonyo peranti narîk pehatian sedanten pendengêr supayo merhatike Al Quran niku, serto peranti ngisyaratke bahwo Al Quran niku diturunke dari Allah jerû baso Arab yên tesusun dari huruf-huruf abjad. Kalu wong-wong niku nano yakin bahwo Al Quran niku diturunke dari Allah serto dîdînyo buatan Nabi Muhammad s.a.w.,  cobola wong-wong niku damel pecak Al Quran niku.
+
+[^11]: Tuhan namike Al Quran dengen Al kitab yên dingeriki retinyo yên ditulis, sebagi isyarat bahwo Al Quran niku diperintake peranti ditulis.
+
+[^12]: Takwa ya’ni menjago diri dari siksoan Allah dengen numuti sedanten perinta-perinta-Nyo; serto tebehi sedanten larangan-larangan-Nyo; nano cekap diretike dengen wedhi saos.
+
+[^13]: Iman nikula kepercayoan yên tegû yên disertoi dengen ketundukan serto penyerahan jiwo. tando-tando wêntennyo iman nikula ngerjoke wênten yên dikendaki ole iman niku.
+
+[^14]: Yên ghaib, nikula yên nano angsal ditangkep ole pancaindero. Pecayo kepado yên ghaib yakni, ngi'tikadke wêntennyo sesios yên maujud yên nano angsal ditangkep ole pancaindero, kerno wênten dalil yên nunju’ke kepado wêntennyo, pecak: wêntennyo Allah, malaikat-malaikat, dinten kiamat serto liannyo.
+
+[^15]: semayang nurut baso 'Arab: doa. nurut istila syara' nikula ibadat yên sampun tekelahar, yên diawali dengen takbir serto disampuni dengen salam, yên didamelke peranti muktike pengabdian serto keendepan diri kepado Allah. Nega’ke semayang nikula nunaikenyo dengen teratur, dengen ngelengkapi syarat-syarat, rukun-rukun serto adab-adabnyo, sae yên lahir atawa yên batin, pecak khusu', merhatike wênten yên dibaco dan liannyo.
+
+[^16]: Rezki: sedanten yên angsal diembil manfaatnyo. nafkahke sebagian rezki, nikula ngesung sebagian dari herto yên sampun direzkike ole Tuhan kepado sedanten wong yên disyari'atke ole agamo ngesungkenyo, pecak sedanten wong fakir, wong miskin, sanak beroyot ondon, buda'-buda' yatim serto liannyo.
+
+[^17]: Kitab-Kitab yên sampun diturunke sedereng Muhammad s.a.w. nikula Kitab-Kitab yên diturunke sedereng Al Quran pecak: Taurat, Zabur, Injil serto Shuhuf-Shuhuf yên tesebut jerû Al Quran yên diturunke kepado sedanten rasul. Allah nurunke kitab kepado Rasul nikula dengen ngesungke wahyu kepado Jibril a.s., sampun niku Jibril nyampikenyo kepado rosul.
+
+[^18]: Yakin nikula keyakinan yên kuat dengen nano dicampuri keraguan setitik jugo. kiamat lawan dunio. keuripan kiamat niku yakni keuripan sesampun dunio abis, yakin bahwo ayun wêntennyo keuripan kiamat sesampun dunio niki berakhir.
+
+[^19]: Nikula sedanten wong yên angsal wênten-wênten yên dimohonkenyo kepado Allah sesampun ngusohokennyo.
+
+[^20]: Nikula sedanten wong yên angsal wênten-wênten yên dimohonkenyo kepado Allah sesampun ngusohokennyo.
+
+[^21]: Yakni wong niku nano angsal nerimo petunju’, serto sedanten ragem nasehat jugo nano angsal bebekas padonyo.
+
+[^22]: Maksudnyo: wong-wong niku nano angsal merhatike dan mahami ayat-ayat Al Quran yên wong-wong niku kerungu dan nano angsal ngembil pelajaran dari tando-tando keagengan Allah yên wong-wong niku tingal di cakrawala, di pemukoan bumi serto pado diri wong-wong niku dewek.
+
+[^23]: Dinten akhir Nikula: awal dari waktu mahluk dikumpulke di padang mahsyar sampi waktu yên nano wênten batasnyo.
+
+[^24]: Yakni keyakinan wong-wong niku tedahap keleseran Nabi Muhammad s.a.w. lemah. Lemahnyo keyakinan niku, munculke serik, iri-ati serto dendem tehadep Nabi s.a.w., agamo serto sedanten wong Islam.
+
+[^25]: Kerusakan yên wong-wong niku damelke di muko bumi, didinyo saos kerusakan benda-benda, melianke ngasut sedanten wong kafir peranti musuhi serto nentang sedanten wong Islam.
+
+[^26]: Maksudnyo: sirah-sirah (pemimpin) wong-wong niku.
+
+[^27]: Sedanten wong munafik niku nano angsal ngembil manfaat dari hidayah-hidayah yên rawo dari Allah, kerno sifat-sifat kemunafikkan yên bersemi di jerû dado wong-wong niku. Keadaan wong-wong niku digambarkan Allah pecak jero ayat tersebut di atas.
+
+[^28]: Walaupun pancaindera wong-wong niku sehat, namun wong-wong niku dipandang tuli, bisu dan buto ole kerno nano angsal nerimo keleseran.
+
+[^29]: Keadaan sedanten wong munafik niku, ketiko ngerungu ayat-ayat yên ngandung peringetan, wêntenla pecak wong yên ditimpo ujan lebet serto petir. wong-wong niku nyumbat kupingnyo kerno nano sanggup ngerungu peringetan-peringetan Al Quran niku.
+
+[^30]: Maksudnyo pengetahuan serto kekuasoan Allah ngeliputi sedanten wong kafir.
+
+[^31]: Nikula sedanten sesios yên disemba di samping nyembah Allah pecak behala-behala, dewa-dewa, serto liannyo.
+
+[^32]: Ayat niki ngerupoke tantangan bagi wong-wong niku yên ngeraguke tentang kesaean Al Quran niku nano angsal ditiru walau dengen ngerahke sedanten ahli sastera serto bahasa kerno Al-Quran ngerupoke mukjizat Nabi Muhammad s.a.w.
+
+[^33]: Kenikmatan di syurgo niku wêntenla kenikmatan yên serbo lengkep, sae jasmani jugo rohani.
+
+[^34]: Sewaktu turunnyo surat Al Hajj ayat 73 yên di jerûnyo Tuhan nerangke bahwo behalo-behalo yên mereka semba niku nano angsal muat lalat, Sesios saos wong-wong niku namelke besami-sami, serto turunnyo surat Al Ankabuut ayat 41 yên di jerûnyo Tuhan ngambarke Kelemahan behalo-behalo yên didadeske ole sedanten wong musyrik niku sebagi pelindung sami dengen lemanyo sarang laba-laba.
+
+[^35]: Disesetke Allah retinyo: bahwo wong niku seset behubung keingkarannyo serto nano ayun mahami hidayah-hidayah Allah. di jerû ayat niki, kareno wong-wong niku ingkar serto nano ayun mahami napi sebabnyo Allah dadeske nyamuk sebagi perumpamaan, Dadesnyo wong-wong niku dades seset.
+
+[^36]: Selesernyo terjemahan “hakim” dengen Maha Bijaksana kirang tepat, kerno arti hakim nikula: yên ngewênteni hikmah. Hikmah nikula penciptaan dan penggunaan sesios  tepat dengen sifat, guno dan faedahnya. di niki diartiken dengen Maha Bijaksana kerno dianggap arti niku ampir mendekati arti Hakim.
+
+[^37]: Sujud di niki retinyo ngehorpadem dan memuliakan Adam, didinyo sujud menghambakan diri, kerno sujud menghambakan diri niku saoslah semata-mata kepado Allah.
+
+[^38]: Pohon yên dilarang Allah mendekatinyo nano angsal dipastiken, sebab Al Quran serto Hadist nano nerangkenyo. wênten yên menamikenyo pohon khuldi peca’ tersebut di jerû surat Thaha ayat 120, tapi niku wêntenla nami yên disungke belis.
+
+[^39]: Adam dan hawa dengen tipu daya belis nedo buah pohon yên dilarang niku, yên mengakibatke keduo iko'nya metu dari suargo, dan Allah ngengken mereka niku turun ke dunio. yên dimaksud dengen belis di niki, nikula belis yên dikelapke jerû surat Al Baqarah ayat 34 di pucuk.
+
+[^40]: Maksud Keadaan semulo nikula kenikmatan, kemewahan serto kemuliaan durip di jerû suargo.
+
+[^41]: Tentang pinten-pinten kalimat (ajaran-ajaran) dari Tuhan yên diterimo ole Adam sebagian ahli tafsir ngertikenyo dengen kelapan peranti betaubat saos.
+
+[^42]: Israil wêntenla aranan bagi Nabi Ya'qub. Bani Israil wêntenla turunan Nabi Ya'qub; mak niki dinten tekenal dengen bangsa Yahudi.
+
+[^43]: Semayoan Bani Israil kepado Tuhan nikula: bahwo mereka niku ayun nyemba Allah serto nano memperrewangke-Nyo dengen sesios napi jugo, serto beriman kepado rasul-rasul-Nyo di antaranyo Nabi Muhammad s.a.w. peca’ yên terkelap di jerû Taurat.
+
+[^44]: Di antaro yên mereka singitke,  nikula: Tuhan ayun ngkengken sesios Nabi dari keturunan Ismail yên ayun bangun umat yên ageng di belakang dinten, yak’ni Nabi Muhammad s.a.w.
+
+[^45]: Yên dimaksud nikula: semayang bejama'ah serto angsal pula diretike: tundukla kepado perinta-perinta Allah besami-sami sedanten wong yên tunduk.
+
+[^46]: Bani Israil yên sampun disungi rahmat ole Allah serto dilebikenyo dari sedanten umat nikula nenek moyang mereka yên berado di masa Nabi Musa a.s.
+
+[^47]: Syafa'at: usaha perantaroan jerû ngesungke sesios manfaat bagi wong lian atawa ngelakke sesios mudharat bagi wong lian. Syafa'at yên nano diterimo di sisi Allah wêntenla syafa'at bagi sedanten wong kafir.
+
+[^48]: Waktu Nabi Musa a.s. makto Bani Israil ke luar dari negeri Mesir nuju Palestina serto dikejer ole Fir'aun, mereka mesti melalui laut merah sebela Utara. Dadesnyo Tuhan merintake kepado Musa ngepuk laut niku dengen tongkatnyo. perinta niku dilaksanake ole Nabi Musa hingga neta’ laut niku serto tebentangla tembokan ditengah-tengahnyo serto Musa lewat jalan niku sampi selamatla io serto gugu'nyo ke seberang, sedengke Fir'aun serto pengikut-pengikutnyo lewat jalan niku pulo, tapi sewaktu mereka niku wênten di tenga-tenga laut, mantu’la laut niku peca’ biaso, sampun niku tenggelemla mereka.
+
+[^49]: Anak lembu niku dibuat mereka niku dari emas peranti disemba.
+
+[^50]: Bunu awak niko wênten yên ngertike: sedanten wong yên nano nyemba anak lembu niku munu wong yên nyembanyo. wênten jugo yên ngertike: wong yên nyemba patung anak lembu niku saling munu, serto wênten pulo yên ngertike: mereka niku dikengken munu awak mereka niku dewek-dewek peranti bertaubat.
+
+[^51]: Maksudnyo: meningal Allah dengen mato kepala.
+
+[^52]: Kerno tedoan yên mak niki nunju’ke keinagkaran serto ketakaburan mereka, sebab niku mereka niku disamber halilintar sebagi azab dari Tuhan.
+
+[^53]: Yên dimaksud dengen padem di ngeriki kelap sebagian mufassirin nikula: padem yên selesernyo, serto kelap sebagian yên lian nikula: pingsan akibat samberan gledek.
+
+[^54]: Sala sios nikmat Tuhan kepado mereka  Nikula: wong-wong niku sesampun niku dinaungi awan sewaktu mereka niku melaku di panas terik padang pasir. manna nikula: tedoan manis sebagi madu. Salwa nikula: burung sebangso puyuh.
+
+[^55]: Maksudnyo kelap sebagian ahli tafsir: nundu’ke awak.
+
+[^56]: Nikula sekata suku Bani Israil peca’ tersebut jerû surat Al A'raaf ayat 160.
+
+[^57]: Shabiin nikula sedanten wong yên numuti syari'at nabi-nabi zaman kerehen atawa sedanten wong yên nyemba bintang atawa dewa-dewa.
+
+[^58]: Sedanten wong mukmin ma'niku jugo wong Yahudi, Nasrani serto Shabiin yên beriman kepado Allah temasuk iman kepado Muhammad s.a.w., yakin kepado dinten kiamat dan namelke amalan sole, mereka niku angsal pahalo dari Allah.
+
+[^59]: Nikula damelan yên sae yên diperintake agami Islam, sae yên behubungan dengen agamo atawa nano.
+
+[^60]: Dinten Sabtu nikula dinten yên khusus peranti beribadat bagi sedanten wong Yahudi.
+
+[^61]: Sebagian ahli tafsir mandang bahwo niki sebagai sios perumpamoan, retinyo ati mereka niku memper ati beruk, kerno sami-sami nano nerimo nasehat serto peringetan. Pendapet jumhur mufassir nikula mereka niku selesernyo beubah dades beruk, saos nano beranak, nano nedo dan ngumbi, serto urip nano lebi dari telu dinten.
+
+[^62]: Hikma Allah ngengken nyemele sapi nikula supayo lenget raso penghormatan mereka niku tehadep sapi yên perna mereka sembah.
+
+[^63]: Kerno sapi yên sesuai syarat yên dikelapke niku saro diperole, ampir mereka nano angsal nemukenyo.
+
+[^64]: Kelap jumhur mufassirin ayat niki wênten hubungannyo dengen peristiwo yen didamelke ole sios wong dari Bani Israil. dewek-dewek mereka niku saling nudu tentang sinten yên munu niku. sesampun mereka makto masala niku kepado Musa a.s., Allah ngengken mereka nyemele sesios sapi betino supayo wong yên tebunu niku angsal urip male serto nerangke sinten yên mununyo sesampun digebuk dengen sebagian badan sapi niku.
+
+[^65]: Yên dimaksud nikula nenek-moyang mereka yên nyimpen Taurat, sampun niku Taurat niku diobah-obah mereka; di antaronyo sifat-sifat Nabi Muhammad s.a.w. yên tesebut jerû Taurat niku.
+
+[^66]: Sebagian Bani Israil yên ngaku beriman kepado Nabi Muhammad s.a.w niku perna becerios kepado sedanten wong Islam, bahwo jerû Taurat memang dikelapke tentang kerawuan Nabi Muhammad s.a.w. Dadesnyo golongan lian negur mereka niku dengen ngelapke: "Menapi niko nyerioske hal niku kepado sedanten wong Islam sehinggo hujjah wong-wong niku betamba kuat?"
+
+[^67]: Kekataan bangsa Yahudi niku buto urup, serto nano wikan isi Taurat selian dari dongeng-dongeng yên dicerioske pendeta-pendeta mereka saos.
+
+[^68]: Ayat niki bekenoan dengen cerita wong Yahudi di Madinah pado pemuloan Hijrah. Yahudi Bani Quraizhah berencang dengen suku Aus, serto Yahudi dari Bani Nadhir berencang dengen sedanten wong Khazraj. antara suku Aus serto suku Khazraj sedereng Islam sesampun niku wente pesengketoan serto peperangan yên nyebabke Bani Quraizhah nolong Aus serto Bani Nadhir nolong sedanten wong Khazraj. sampe antaro keduo iko' suku Yahudi niku tedades peperangan serto tangkep-menangkep, kareno nolong rencangnyo. tapi kalu sampun niku wênten sedanten wong Yahudi tetawan, Dadesnyo keduo iko' suku Yahudi niku besepakat peranti nebusnyo meski wong-wong niku sederengnyo beperang-perangan.
+
+[^69]: Maksudnyo: kedadesan Isa a.s. wêntenla kedadesan yên luar biaso, nano wênten bapak, nikula dengen tiupan Ruhul Qudus ole Jibril kepado diri Maryam. niki termasuk mukjizat Isa a.s. kelap jumhur musafirin, bahwo Ruhul Qudus niku nikula Malaikat Jibril.
+
+[^70]: Maksudnyo kerawuan Nabi Muhammad s.a.w. yên wênten di jerû Taurat dipundi diterangke sifat-sifatnyo.
+
+[^71]: Maksudnyo: Allah nurunke wahyu (kenabian) kepado Muhammad s.a.w.
+
+[^72]: Maksudnyo: wong-wong niku angsal kemurkoan yên belipet-ganda nikula kemurkoan kerno nano beriman kepado Muhammad s.a.w. serto kemurkaan yên disebabke damelan wong-wong niku kerehen, Yakni munuh Nabi, mudikenyo, ngoba isi Taurat serto liannyo.
+
+[^73]: Maksudnyo kesa Musa a.s. ke bukit Thur yên wênten di Sinai, sesampun dirawuke kepadonyo mukjizat-mukjizat
+
+[^74]: damelan jahat yên wong-wong niku damelke nikula nyemba anak sapi, munu nabi-nabi serto ngesertoggar semayoan.
+
+[^75]: Maksudnyo: kelapla supayo niko dipademke mak niki dinten jugo.
+
+[^76]: Maksudnyo: Kitab-Kitab sihir.
+
+[^77]: Belis-belis niku nyebarke berito-berito bohong, bahwo Nabi Sulaiman nyimpen lembaran-lembaran sihir (Ibnu Katsir).
+
+[^78]: Sedanten mufassirin berlianan Pendapet tentang yên dimaksud dengen 2 wong Malaikat niku. wênten yên bependapet, wong-wong niku selesernyo Malaikat serto wênten pulo yên bependapet wong yên dipandang sole pecak Malaikat serto wênten pulo yên bependapet dua wong jahat yên eca’-eca’ sole pecak malaikat.
+
+[^79]: macem-macem sihir yên didamelke wong Yahudi, sampi kepado sihir peranti nyerei-bereike masyarakat pecak nyerei-bereike laki bini.
+
+[^80]: Raa 'ina retinyo: sudila kironyo niko merhatike Kame’. Sewaktu sedanten rencang ngadepke kelap niki kepado Rasulullah, wong Yahudi nadeske kelap niki dengen digumam mak kayo kelap Raa'ina Padohal yên wong-wong niku kelapke nikula Ru'uunah yên retinyo benga’ nian, sebagi olo’an kepado Rasulullah. Nikula sebabnyo Tuhan ngengken supayo rencang-rencang nukar kelapan Raa'ina dengen Unzhurna yên jugo sami retinyo dengen Raa'ina.
+
+[^81]: Sedanten mufassirin berlianan pendapet tentang arti ayat niki, wênten yên ngertike ayat Al Quran, serti wênten yên ngertike mukjizat.
+
+[^82]: Maksudnyo: keizinan merangi serto ngusir wong Yahudi.
+
+[^83]: Dingeriku rai Allah Maksudnyo; kekuasoan Allah ngelingkupi sedanten alam; sebab niku di pundi saos wong wênten, Allah wikan damelannyo, kerno io sesampun niku berhadapan dengen Allah.
+
+[^84]: Maksudnyo: nano ngeroba serto nakwilke Al kitab seayun atinyo.
+
+[^85]: Maksudnyo: umat yên semaso dengen Bani Israil.
+
+[^86]: Maksudnyo: doso serto pahalo sesios wong nano angsal dipindake kepado wong lian.
+
+[^87]: Ujian tehadep Nabi Ibrahim a.s. di antaronyo: mangun Ka'bah, mersike ka'bah dari musyrik, ngorbanke anaknyo Ismail, ngadepi raja Namrudz dan liannyo.
+
+[^88]: Allah sampun ngabulke doa Nabi Ibrahim a.s., kerno kata di antara Rasul-rasul niku wêntenla keturunan Nabi Ibrahim a.s.
+
+[^89]: Nikula panggonan tegak Nabi Ibrahim a.s. sewaktu namelke Ka'bah.
+
+[^90]: Di antaronyo dades; Imam, rasul, kata keturunannyo yên dades Nabi, disung gelar khalilullah.
+
+[^91]: Shibghah retinyo celupan. Shibghah Allah: celupan Allah yên retinyo iman kepado Allah yên nano disertoi dedengen kemusyrikan.
+
+[^92]: Syahadah dari Allah nikula persaksian Allah yen tersebut di jerû Taurat dan Injil bahwo Ibrahim a.s. serto beroyot ondon didinyo penganut agama Yahudi atawa Nasrani serto bahwo Allah ayun ngkengken Muhammad s.a.w.
+
+[^93]: Maksudnyo: nikula sedanten wong yen kirang pikirannyo sehinggo nano angsal mahami maksud pemindahan kiblat.
+
+[^94]: Sewaktu Nabi Muhammad s.a.w. wênten di Mekah di tengah-tengah gugu' musyirikin beliau bekiblat ke Baitul Maqdis. tapi sesampun 16 atawa 17 bulan Nabi wênten di Madinah ditenga-tengah\ wong Yahudi serto Nasrani beliau dikengken ole Tuhan peranti ngembil ka'bah dades kiblat, terutamo sekali peranti ngesung pengertian bahwo jerû ibadat semayang niku didinyola ara Baitul Maqdis serto ka'bah niku dades tujuan, tapi ngadepke diri kepado Tuhan. peranti persiosan umat Islam, Allah dadeske ka'bah sebagi kiblat.
+
+[^95]: Umat Islam didadeske umat yen adil serto pilenan, kareno wong-wong niku ayun dades saksi peranti damelan wong yen nyimpang dari keleseran sae di dunio jugo di akhirat.
+
+[^96]: Maksudnyo nikula Nabi Muhammad s.a.w. kerep meningal ke langit bedoa serto nunggu-nunggu turunnyo wahyu yen merintake beliau ngadep ke Baitullah.
+
+[^97]: Wikan Muhammad s.a.w. nikula ngenal sipat-sipatnyo sebagi yen tesebut jerû Taurat serto Injil.
+
+[^98]: Maksudnyo: kulo limpake rahmat serto ampunan Kulo kepado niko.
+
+[^99]: Wênten pulo' yen ngertike: nedola petolongan (kepado Allah) dengen sabar serto semayang.
+
+[^100]: Yakni idup di jerû alam yen lian yen didinyo alam kito niki, dipundi wong-wong niku angsal kenikmatan-kenikmatan di sisi Allah, serto Allah saosla yen wikan mak pundi kewêntenan idup niku.
+
+[^101]: Retinyo: Selesernyo kame’ wêntenla punyo Allah serto kepado-Nyo-la kame’ mantu’. kalimat niki dinamike kalimat istirjaa (penyatoan mantu’ kepado Allah). Disunatke ngelapnyo waktu ditimpo bahayo ageng jugo alit.
+
+[^102]: Syi'ar-syi'ar Allah: alamat atawa panggonan beribada kepado Allah.
+
+[^103]: Tuhan ngungkapke dengen kelapan nano wênten doso sebab sebagian rencang ngeraso keberatan namelkenyo sa'i di ngeriku, kareno panggonan niku bekas panggona behala. serto di masa jahiliyah jugo panggona niku digunoke sebagi panggonan sa'i. peranti ngelengetke raso keberatan niku Allah nurunke ayat niki.
+
+[^104]: Allah nyukuri hamba-Nyo: ngesung pahalo tehadep amal-amal hamba-Nyo, ma'afke kesalahannyo, namba nikmat-Nyo serto liannyo.
+
+[^105]: Ngewêntenke pesaean retinyo namelke damelan-damelan yen sae peranti ngelengetke akibat-akibat yen jahat dari kesalahan-kesalahan yen didamelke.
+
+[^106]: Jerû ayat niki wong kafir disamike dengen binatang yen nano wikan reti aranan penggembalanyo.
+
+[^107]: Haram jugo kelap ayat niki daging yen berasal dari sembelian yen ngelap nami Allah tapi dikelapke pulo' nami selian Allah.
+
+[^108]: Maksudnyo nikula nedoan yen ditedonyo yen berasal dari hasil nyingitke ayat-ayat yen diturunke Allah, nyebabke wong-wong niku mlebet api nerako.
+
+[^109]: Maksudnyo: Allah nano bekelap kepado wong-wong niku dengen kasih sayang, tapi bekelap dengen kelapan yen nano ngelema’ke ati.
+
+[^110]: Qishaash nikula ngembil balesan yen sami. qishaash niku nano didamelke, kalu yen munu angsal dimaapke ole ahli waris yen tebunu nikula dengen mayar diat (ganti rugi) yen wajar. mayar diat dinedo dengen sae, umpamonyo dengen nano nesak yen munu, serto yen munu ayunla mayarnyo dengen sae, umpamonyo nano nanggu-nanggukenyo. Kalu ahli waris si korban, sesampun Tuhan nyelaske hukum-hukum niki, munu yen didinyo si pembunuh, atawa munu si pembunuh sesampun nerimo diat, dadesnyo tehadepnyo di dunio diembil qishaash serto di dinten kiamat dio angsal sikso yen pedi.
+
+[^111]: Ma'rup nikula adil serto sae. wasiat niku nano melebihi sepertigo dari sedanten herto wong yen ayun padem niku. Ayat niki dinasakhke dengen ayat mewaris.
+
+[^112]: Namaike nikula ngengken wong yen bewasiat belaku adil sewaktu ngewasiatke sesuai dengen bates-bates yen dicengkike syara'.
+
+[^113]: Maksudnyo ngesung Nedo lebi dari sios wong miskin peranti sios dinten.
+
+[^114]: I'tikaf nikula berada di jerû mesjid dengen niat mendekatkan diri kepado Allah.
+
+[^115]: Pado masa jahiliyah, sedanten wong yen berihram sewaktu haji, wong-wong niku memasuki rompok  dari belakang didinyo dari depan. hal niki ditanyakan pula ole sedanten rencang kepado Rasulullah s.a.w., dades diturunkelah ayat niki
+
+[^116]: Fitnah (menimbulkan kekacauan), pecak mengusir rencang dari kampung halamannya, merampas harta wong-wong niku dan menyakiti atawa nano ayun nuggu kebebasan wong-wong niku beragama.
+
+[^117]: Kalu umat Islam diserang di bulan haram, yen selesernyo di bulan niku nano bole beperang, mako diboleke males serangan niku di bulan niku jugo.
+
+[^118]: Maksudnyo antaro lian nikula: bulan Haram (bulan Zulkaidah, Zulhijjah, Muharram serto Rajab), tanah Haram (Mekah) serto ihram.
+
+[^119]: Yang dimaksud dengen korban di ngeriki nikula nyemele binatang korban sebagai pengganti damelan wajib haji yen ditinggalke; atawa sebagi dendo kareno ngelanggar hal-hal yen nano angsal namelkenyo di jerû ibada haji.
+
+[^120]: Nyukur sira wêntenla sala sios damelan wajib jerû haji, sebagi tando sampun ihram.
+
+[^121]: Nikula bulan Syawal, Zulkaidah serto Zulhijjah.
+
+[^122]: Rafats retinyo metuke kelapan yen munculke berahi yen nano senono atawa besebadan.
+
+[^123]: Maksud bekal takwa di ngeriki nikula bekal yen cukup supayo angsal meliharo diri dari damelan hino atawa nedo-nedo selambat pejalanan haji.
+
+[^124]: Nikula bukit Quzah di Muzdalifah.
+
+[^125]: wêntenla dades kebiasoan sedanten wong Arab Jahiliyah sesampun nunaike haji sampun niku bemega-megaan tentang keagengan nenek moyangnyo. Sesampun ayat niki diturunke dadesnyo memega-megake nenek moyangnyo niku digenti dengen dzikir kepado Allah.
+
+[^126]: Nikila doa yen sesae-saenyo bagi sios wong Muslim.
+
+[^127]: Maksud dzikir di ngeriki nikula maco takbir, tasbih, tahmid, talbiah dan liannyo. pinten-pinten dinten yen bebilang nikula telu dinten sesampun dinten rayo haji, nikula tanggal 11, 12, serto 13 bulan Zulhijjah. dinten-dinten niku dinamike dinten-dinten tasy'riq.
+
+[^128]: Sesaenyo wong haji ninggalke Mina pado sore dinten terakhir dari dinten tasy'riq, wong-wong niku bole jugo ninggalke Mina pado sore dinten keduo.
+
+[^129]: Ungkapan niki wêntenla ibarat dari sedanten wong yen berusaha nggoncangke iman sedanten wong mukmin serto sesampun niku ngewêntenke pengacauan.
+
+[^130]: Naungan awan besami Malaikat biasonyo nurunke ujan yen retinyo rahmat, tapi rahmat yen diarep-arepke niku nanola rawu melianke azab Allah-la yen rawu.
+
+[^131]: Nikula alamat keleseran yen dibakto nabi-nabi wong-wong niku, yen nunju’ke kepado keesaan Allah, serto keleseran nabi-nabi niku sesampun niku wong-wong niku tolak.
+
+[^132]: Yen dimaksud dengen nikmat Allah di ngeriki nikula perinta-perinta serto ajaran-ajaran Allah.
+
+[^133]: Pendapet Ar Razy, tejema ayat niku wêntenla: Kelapkela: "Beperang di jerû bulan niku wêntenla doso ageng, serto (wêntenla retinyo) ngalangi (wong) dari jalan Allah, kapir kepado Allah serto (ngalangi wong dari) Masjidil haram. Tapi ngusir penduduknyo dari Masjidil haram (Mekah) lebi ageng lagi (dusonyo) di sisi Allah." Pendapet Ar Razy niki mengkin bedasarke petimbangan, bahwo ngusir Nabi serto rencang-rencangnyo dari Masjidil haram sami dengen numpas agami Islam.
+
+[^134]: pitnah di ngeriki retinyo penganiayoan serto sedanten damelan yen dimaksudke peranti nindas Islam serto muslimin.
+
+[^135]: Sedanten umbian yen mabukke.
+
+[^136]: Maksudnyo nyebadani betino sewaktu haidh.
+
+[^137]: Nikula sesampun mandi. wênten jugo yen napsirke sesampun berenti dara metu.
+
+[^138]: Maksudnyo: ngelarang besumpa dengen ngunoke nami Allah peranti nano namelke yen sae, peca’: demi Allah, kulo nano ayun nolong budak yatim. tapi apobilo sumpa niku sampun tekelapke, mestila dilanggar dengen mayar kafarat.
+
+[^139]: Halim retinyo penyantun, nano segero nyikso wong yen damelke duso.
+
+[^140]: Nge-ilaa' sema maksudnyo: besumpa nano ayun nyampuri sema. dengen sumpa niki sios wong betino menderito, kareno nano disebadani serto nano pulo' dicereike. Dengen turunnyo ayat niki, dadesnyo domik sesampun sekawan bulan mesti mili antaro nyebadani semanyo lagi dengen mayar kafarat sumpa atawa nyereike.
+
+[^141]: Quru' angsal diretike suci atawa haidh.
+
+[^142]: Hal niki disebabke kareno domik betanggung jawab tehadep keselamatan serto kesejahteroan rompok tanggo (tingal surat An Nisaa' ayat 34).
+
+[^143]: Ayat nikila yen dades dasar hukum khulu' serto penerimoan 'iwadh. Kulu' yakni penedoan cerei kepado domik dengen pembayaran yen dikelapke 'iwadh.
+
+[^144]: Kawin lagi dengen bekas domik atawa dengen laki-laki yen lian.
+
+[^145]: Berhias, atawa bepergian, atawa nerimo pinangan.
+
+[^146]: Yen domiknya sampun padem dan maler jerû 'iddah.
+
+[^147]: Betino yen bole dipinang secaro sindiran nikula betino yen jerû 'iddah kareno padem domiknyo, atawa kareno talak bain, sedeng betino yen jerû 'iddah talak raji'i nano bole dipinang walau dengen sindiran.
+
+[^148]: Kelapan sindiran yen sae.
+
+[^149]: Nikula domik atawa wali. kalu Wali ma'apke, dadesnyo domik dibebaske dari mayar mahar yen seperduo, sedeng kalu domik yen ma'apke, dadesnyo dio mayar sedanten mahar.
+
+[^150]: Semayang wusthaa nikula semayang yen di tenga-tenga serto yen paling utamo. wênten yen bependapet, bahwo yen dimaksud dengen semayang wusthaa nikula semayang Ashar. Kelap ahli hadits, ayat niki nekenke supayo sedanten semayang niku didamelke dengen sesae-saenyo
+
+[^151]: Mut'ah (pengesungan) nikula sesios yen disungke ole domik kepado sema yen dicereikenyo sebagi pengibur, selian napkah sesuai dengen kemampuannyo.
+
+[^152]: Sebagian ahli tapsir (peca’ Al-Thabari serto Ibnu Katsir) ngertike padem dingeriki dengen padem yen selesernyo; sedengke sebagian ahli tapsir yen lian ngertikenyo dengen padem semangat.
+
+[^153]: Maksudnyo: wong-wong niku diusir serto budak-budak wong-wong niku ditawan.
+
+[^154]: Tabut nikula peti tempat nyimpen Taurat yen makto ketenangan bagi wong-wong niku.
+
+[^155]: Yen dimaksud dingeriki nikula kenabian serto kitab Zabur
+
+[^156]: Syafa'at: usaha perantaraan jiru ngesungkan sesuatu manfaat bagi wong lian atawa mengelakkan sesios mudharat bagi wong lian. syafa'at yen nano diterimo di sisi Allah wêntenla syafa'at bagi sedanten wong kafir.
+
+[^157]: Kursi jiru ayat niki ole sebagian mufassirin diretike dengen ilmu Allah serto wênten  pulo yên ngertike dengen kekuasoan-Nyo.
+
+[^158]: Thaghut wêntenla setan serto napi saos yên disemba selian dari Allah s.w\.t.
+
+[^159]: Ya’ niki Namrudz dari Babilonia.
+
+[^160]: Maksudnyo raja Namrudz dengen nguripke wêntenla nala’ke urip, serto yên dimaksudnyo dengen mademke wêntenla munu. kelapan itu perante nguyok Nabi Ibrahim a.s.
+
+[^161]: Penangsal di pucu' wêntenla kelap At-Thabari serto Ibnu Katsir, deng kelap Abu Muslim Al Ashfahani pengertian ayat di pucu' bahwa Allah ngesung penjelasan kepado Nabi Ibrahim a.s. tentang caro Dio nguripke sedanten wong yên padem. dikengken-Nyo Nabi Ibrahim a.s. ngembil sekawan ikok burung sampun niku nyagonyo serto nyinakkenyo hinggo burung niku angsal rawu timpa’-tumpa’, napibilo dipenggil. Sesampun niku, burung-burung yên sampun pinter niku, dilepekke di pucu' saben-saben bukit siko’, sampun niku burung-burung niku dipanggil dengen sios tepukan/seruan, niscayo burung-burung niku ayun rawu dengen gancang, walau tenggonnyo tepisa-pisa serto tebî. Dadesnyo ma’ nikula Allah nguripke sedanten wong yên padem yên tesebar di pundi-pundi, ngen sios kalimat cipta uripla niko sedanten cengkila wong-wong niku niku urip lagi. dades kelap Abu Muslim sighat amr (bentuk kata perintah) jiru ayat niki, pengertiannyo khabar (bentuk berita) sebagi caro penjelasan. kelapan beliau niki dianut pulo ole Ar Razy  serto Rasyid Ridha.
+
+[^162]: Nazar ya’niki janji perante melakukan sesios kebaktian terhadap Allah s.w\.t. perante menpara'kan diri kepado-Nya sae dengen syarat atawapun nano.
+
+[^163]: Maksudnyo: wong yên ngembil Riba nano tenteram jiwonya pecak wong kemasukan setan.
+
+[^164]: Riba yên sampun diembil (dipungut) sedereng turun ayat niki, boleh nano dilagikan.
+
+[^165]: Yên dimaksud dengen musnake Riba nikula musnake harto niku atawa niadoke berkanyo. Serto  yên dimaksud dengen nyuburke sodako nikula ngembangke harto yên sampun dimetuke sodakonyo atawa lipet gandoke berkanyo.
+
+[^166]: Maksudnyo nikula sedanten wong yên ngehalalke Riba serto tetap melakukannya.
+
+[^167]: Bermuamalah nikulah pecak besade numbas, hutang piutang, atawa sewa menyewa serto liannyo.
+
+[^168]: Barang tanggungan (borg) itu diadakan bila sios sama lain nano percaya mempercayai.
+
+[^169]: Maksudnyo: Allah ngatur langit serto bumi serta seisinyo.
+
+[^170]: Al Furqaan wêntenla kitab yên medoke antaro yên benar serto yên salah.
+
+[^171]: Ayat yên muhkamaat wêntenla ayat-ayat yên terang serto teges Maksudnyo, angsal dipahami dengen muda.
+
+[^172]: Temasû' jerû pengertian ayat-ayat mutasyaabihaat: ayat-ayat yên ngandûng pinten-pinten pengertian serto nano angsal ditentuke reti pundi yên dimaksud kecuali sesampun diselidiki secaro mendalam; atawa ayat-ayat yên retinyo cuman Allah yên wikan ma'kayo ayat-ayat yên behubungan dengen yên ghaib-ghaib peca' ayat-ayat  dinten kiamat, surga, neraka serto liannyo.
+
+[^173]: Haderengan duo iko' gûgû' niku - antaro kaum muslimin dengen kaum musyrikin - tedades jerû perang Bwêntenr. Bwêntenr nami sios enggon yên terletak antaro Mekah dengen Madinah dipundi terangsal mato banyu.
+
+[^174]: Yên dimaksud dengen binatang ternak di ngeriki wêntenla binatang-binatang yên temasû' jenis unto, sapi, kambing serto biri-biri.
+
+[^175]: Sahur: waktu sedereng fajar nyingsing para' subuh.
+
+[^176]: Ayat niki peranti nyelaske martabat wong-wong berilmu.
+
+[^177]: Maksudnyo wêntenla Kitab-Kitab yên ditûrûnke sedereng Al Quran.
+
+[^178]: Ummi retinya wêntenla wong yên nano wikan tulis baco. nurut sebagêan ahli tafsir yên dimaksud dengen Ummi wêntenla wong musyrik Arab yên nano wikan tulis baco. nurut sebagêan yên lian wêntenla wong-wong yên nano di sung Al Kitab.
+
+[^179]: Sebagêan mufassirin ngesung pecak' peranti ayat niki dengen metuke anak ayam dari telo', serto telo' dari ayam. serto angsal juga diretike bahwo giliran kekuasoan diantaro bangso-bangso serto timbul tenggelemnya sesios umat wêntenla nurut hukum Allah.
+
+[^180]: Wali jamaknya auliyaa: retinyo rencang yên akrab, juga retinyo pemimpin, pelindung atawa penolong.
+
+[^181]: Maksudnyo: ngeleserke rawunyo sios Nabi yên diciptoke dengen kalimat kun (dadesla) tanpa bapak ya'niku Nabi Isa a.s.
+
+[^182]: Semayangla dengen berjama'ah.
+
+[^183]: Maksudnyo: ngeleserke rawunyo sios Nabi yên diciptoke dengen kalimat kun (dadesla) tanpa bapak ya'niku Nabi Isa a.s.
+
+[^184]: Al kitab di ngeriki wênten yên nafsirke dengen pelajaran nulis, serto wênten pulo' yên nafsirkenya dengen Kitab-Kitab yên ditûrûnke Allah sederengnyo selian Taurat serto Injil.
+
+[^185]: Mubahalah wêntenla dewe'-dewe' pihak diantaro wong-wong yên bebeda Pendapet bedoa kepado Allah dengen selesernyo, supayo Allah nyampa’ke la'nat kapado pihak yên ngota'i. Nabi ngaja' utusan Nasrani Najran bermubahalah tapi wong-wong niku nano berani serto niki dades bukti keleseran Nabi Muhammad s.a.w.
+
+[^186]: Wong Yahudi serto Nasrani dewe'-dewe' nganggep Ibrahim a.s. niku dari gûgû'nya. sampun niku Allah manta wong-wong niku dengen alesan bahwo Ibrahim a.s. niku rawu sedereng wong-wong niku.
+
+[^187]: Yakni tentang Nabi Musa a.s., Isa a.s. serto Muhammad s.a.w.
+
+[^188]: Yakni tentang hal Ibrahim a.s
+
+[^189]: Lurus retinyo tebî dari syirik (nuoke Allah) serto tebî dari kesesetan.
+
+[^190]: Yakni: ayat-ayat Allah ditûrûnke kapado Nabi Muhammad s.a.w.
+
+[^191]: ya'niku: nutupi firman-firman Allah yên temaktub jerû Taurat serto Injil dengen kelapan-kelapan yên dibuat-buat wong-wong niku (ahli Kitab) dewe'.
+
+[^192]: Maksudnyo: keleseran tentang kenabian Muhammad s.a.w. yên tesebut jerû Taurat serto Injil.
+
+[^193]: Kapado wong-wong yên tumut igamo niko Maksudnyo: kapado wong yên seigamo dengen niko (Yahudi/Nasrani) supayo wong-wong niku nano dades melebet Islam atawa kapado wong-wong Islam yên berasal dari igamo niko supayo goncang iman wong-wong niku serto mantu' kapado kekafiran.
+
+[^194]: Sedanten Nabi bejanji kapado Allah s.w\.t. bahwo bila pundi rawu sios Rasul benami Muhammad wong-wong niku ayun iman kepadonyo serto nolongnyo. semayoan nabi-nabi niki ngiket pulo' sedanten ummatnyo.
+
+[^195]: Fasik wêntenla wong yên nano ngindakan perintah Allah s.w\.t.
+
+[^196]: Dusta tehadep Allah wêntenla dengen ngelapke bahwo sedereng Taurat ditûrûnke, Allah sampun ngeharamke pinten-pinten tedoan kapado Bani Israil.
+
+[^197]: Ahli kitab ngelapke bahwo rompo’ niku yên bungaran dibangun wênten di Baitul Maqdis, dadesnyo Allah mantanyo.
+
+[^198]: Wêntenla: enggon Nabi Ibrahim a.s. tega’ mangun Ka'bah
+
+[^199]: Ma'ruf: sedanten damelan yên mara’ke kitp kapado Allah; sedengke Munkar wêntenla sedanten damelan yên nebîke kito dari pado-Nyo.
+
+[^200]: Maksudnyo: pelindungan yên ditetepke Allah jerû Al Quran serto perlindungan yên di sungke ole pemerintah Islam peranti wong-wong niku.
+
+[^201]: Peristiwa niki tedades pado perang Uhud yên nurut ahli sejarah tedades pado tahun ke 3 H.
+
+[^202]: Kaum muslimin lemah kareno bilangan wong-wong niku setiti’ serto pelengkapan wong-wong niku kirang cungkup.
+
+[^203]: Wêntenla dades kebiasoan wong-wong Arab Jahiliyah sesampun haji niku Bermegah-megahan tentang keagengan nenek moyangnyo. sesampun ayat niki ditûrûnke dades memegah-megahke nenek moyangnyo niku digenti dengen dzikir kapado Allah.
+
+[^204]: Yên dimaksud Riba di ngeriki wêntenla Riba nasi'ah. nurut sebagêan ageng ulama bahwo Riba nasi'ah niku selamanya haram, walaupun nano berlipat ganda. Riba niku wênten duo iko' macam: nasiah serto fadhl. Riba nasiah wêntenla pembayaran langkung yên disyaratke ole wong yên minjemke. Riba fadhl wêntenla penukaran sios barang dengen barang yên sejenis, tapi langkung kata rikinannyo kareno wong yên nukarke nyaratke ma’niku, ma'kayo nuker emas dengen emas, padi dengen padi, serto sebagainya. Riba yên dimaksud jerû ayat niki Riba nasiah yên belipet ganda yên umum tedades jerû masyarakat Arab zaman jahiliyah.
+
+[^205]: Jihad angsal retinyo: 1. berperang peranti menegakkan Islam serto melindungi wong-wong Islam; 2. merangi hawa nafsu; 3. mendermake harta benda peranti kesaêan Islam serto umat Islam; 4. merantas yên batil serto menegakkan yên hak.
+
+[^206]: Maksudnyo: sedereng perang Uhud kata Para sahabat terutamo yên nano turut perang Bwêntenr menganjurkan supayo Nabi Muhammad s.a.w. metu dari kota Madinah merangi wong-wong kafir.
+
+[^207]: Maksudnyo: Nabi Muhammad s.a.w. wêntenla sios wong yên diangkat Allah dades rasul. Rasul-rasul sederengnyo sampun wafat. wênten yên wafat kareno tebunuh wênten pulo' yên kareno sakit biasa. kareno niku Nabi Muhammad s.a.w. juga akan wafat ma'kayo halnya Rasul-rasul yên dumin niku. di waktu bekecamuknya perang Uhud tersiarlah berita bahwo Nabi Muhammad s.a.w. mati terbunuh. berita niki ngacaukan kaum muslimin, sehingga wênten yên bermaksud nedo perlindungan kapado Abu Sufyan (pemimpin kaum Quraisy). Sementara niku wong-wong munafik ngelapke bahwo kalu Nabi Muhammad niku sios Nabi cengkila Dia nano akan mati terbunuh. Maka Allah menurunkan ayat niki peranti menenteramkan hati kaum muslimin serto manta kata-kata wong-wong munafik niku. (Sahih Bukhari bab Jihad). Abu Bakar r.a. ngelapke ayat niki di pundi tedades pulo' kegelisahan di kalangan Para sahabat di dinten wafatnya Nabi Muhammad s.a.w. peranti nenteremke Umar Ibnul Khaththab r.a. serto sahabat-sahabat yên nano pecaya tentang kewafatan Nabi niku. (Sahih Bukhari bab Ketakwaan Sahabat).
+
+[^208]: Ayat 172, 173, serto 174, di pucu’ ngelapke tentang Peristiwa perang Badar Shughra (Badar kecil) yên tedades sewikan sesampun perang Uhud. sewaktu ninggalke perang Uhud niku, Abu Sufyan pemimpin wong Quraisy nantang Nabi serto sahabat-sahabat beliau bahwo Dia besedio panggî mantu' dengen kaum muslimin pado tahun berikutnyo di Badar. tapi kareno tahun niku (4 H) musim paceklik serto Abu Sufyan dewe' waktu niku merasa takut, dades Dio beserto tentaronyo nano dades neruske pejalanan ke Badar, sampun niku Dio ngengken Nu'aim Ibnu Mas'ud serto kawan-kawan kesa ke Madinah peranti nakut-nakuti kaum muslimin dengen nyebarke kabar bohong, ma'kayo yên disebut jerû ayat 173. Namun ma’niku Nabi beserto sahabat-sahabat tetep maju ke Badar. oleh kareno nano tedades perang, serto pado waktu niku di Badar kebetulan musim pasar,dads kaum muslimin namelke pedagangan serto angsal laba yên ageng. Keuntungan niki wong-wong niku bawa pulo'ng ke Madinah ma'kayo yên tesebut pado ayat 174.
+
+[^209]: Ya'niku: Kewêntenan kaum muslimin bercampur baur dengen kaum munafikin.
+
+[^210]: Yakni: Kitab-Kitab yên ditûrûnke kapado nabi-nabi yên berisi hukum syari'at ma'kayo Taurat, Injil serto Zabur.
+
+[^211]: Di antaro keterangan yên disembunyikan niku wêntenla tentang rawunyo Nabi Muhammad s.a.w.
+
+[^212]: Maksudnyo sebagaipundi laki-laki berasal dari laki-laki serto perempuan, Maka demikian pulo' halnya perempuan berasal dari laki-laki serto perempuan. Keduo iko'-duo iko'nya sama-sama wong, tak wênten kelangkungan yên satu dari yên lian tentang penilaian iman serto amalnya
+
+[^213]: Yakni: kelancaran serto kemajuan jerû perdagangan serto perusahaan wong-wong niku.
+
+[^214]: Yakni: enggon tinggal beserta perlengkapan-perlengkapannya ma'kayo tedoan, minuman serto liannyo.
+
+[^215]: Maksudnyo wêntenla penghargaan dari Allah disamping enggon tinggal beserta perlengkapan-perlengkapannya niku, wêntenla langkung saê daripwênten kesenangan duniawi yên dnikikmati wong-wong kafir niku.
+
+[^216]: Maksud dari padonyo nûrût jumhur mufassirin ya'ni dari bagêan badan (tulang rusuk) Adam a.s. bedasarke hadis riwayat Bukhari serto Muslim. di samping niku wênten pulo' yên nafsîrke dari padonyo ya'ni dari unsur yên serupo ya'ni tanah yên dari padonyo Adam a.s. diciptoke.
+
+[^217]: nûrût adat wong Arab, napibilo wong-wong niku nakenke sesios atawa nedonyo kepado wong lian wong-wong niku ngelapke nami Allah peca': As aluka billah retinyo kulo betaken atawa nedo kepado niko dengen nami Allah.
+
+[^218]: Belaku adil ya'ni pelakuan yên adil ketiko ngago'i sema peca' kelambi, enggon, gîlîran serto lian-lian yên besifat lahiriyah.
+
+[^219]: Islam molêke kata sema dengen syarat-syarat tetentu. sedêrêng tûrûn ayat niki kata sema sampun wênten, serto perna pulo' dijalanke olê sedanten Nabi sedêrêng Nabi Muhammad s.a.w. ayat niki matesi kata sema sampe sekawan wong saos.
+
+[^220]: Sungan niku ya'ni maskawen yên ageng alîtnyo ditetepke pucu' semayoan opihak, kerno sungan niku mesti didamelke dengen ikhlas.
+
+[^221]: Wong yên dêrêng sempurno akalnyo ya'ni anak yatim yên dêrêng balig atawa wong dewasa yên nano angsal ngatûr herto bendonyo.
+
+[^222]: Ya'ni: madêk tehadep wong-wong niku tentang keigamoan, usoho-usoho wong-wong niku, kelakuan serto lian-lian sampe wikan bahwo anak niku angsal dipercayoi.
+
+[^223]: Sana' di ngeriki maksudnyo : sana' yên nano wênten hek warîsan dari herto bendo pusako
+
+[^224]: Sungan ala kadarnyo niku nano bolê langkung dari sepertigo herto warisan.
+
+[^225]: Bagêan lanang duo kali bagêan betino wêntenla kerno kewajiban lanang langkung berat dari betino, peca' kewajiban mayar maskawen serto ngesung nafkah. (tingali surat An Nisaa ayat 34).
+
+[^226]: Langkung dari duo maksudnyo : duo atawa langkung klop dengen yên diamalke Nabi.
+
+[^227]: Ngesung mudharat kepado waris niku ya'ni tindakan peca': a. ngewasiatke langkung dari sepertigo herto pusako. b. Bewasiat dengen maksud ngirangi herto warisan. meski kirang dari sepertigo kalu wênten niat ngirangi hek waris, jugo nano dibolêke.
+
+[^228]: Damelan keji: nûrût jumhur mufassirin yên dimaksud damelan keji ya'ni damelan zina, sedengke nûrût pendapet yên lian ya'ni sedanten damelan mesum peca' : zina, homo sek serto yên sejenisnyo. nûrût pendapet Muslim serto Mujahid yên dimaksud dengen damelan keji ya'ni musahaqah (homosek antaro betino dengen betino).
+
+[^229]: Nûrût jumhur mufassirin jalan yên lian niku ya'ni dengen tûrûnnyo ayat 2 surat An Nuur.
+
+[^230]: Maksudnyo ya'ni: 1. wong yên bedamel maksiat dengen nano wikan bahwo damelan niku wêntenla maksiat kacuali kalu dipikirke dumin. 2. wong yên durhako kepado Allah sengajo atawa nano. 3. wong yên namelke kejahatan kerno kirang kesadaran lantaran murko atawa kerno dorongan hawo nafsu.
+
+[^231]: Ayat niki nano nûnju'ke bahwo ngewarîske betino nano dengen jalan pakso dibolêke. Nûrût adat sebagîan Arab Jahiliyah napibilo sios wong padem, dades anaknyo yên tetuo atawa anggota keluargonyo yên lian ngewaresi jando niku. jando niku bolê dikaweni dewe' atawa dikawenke dengen wong lian yên maharnya diembil olê pewaris atawa nano dibolêke kawen male.
+
+[^232]: maksudnyo: bezina atawa teka'.
+
+[^233]: Maksudnyo ya'ni: pegat sema yên nano demeni serto kawen dengen sema yên daru. Meski io pegat sema yên lami niku dêdê tujuan peranti kawen, Namun nedo kembali sungan-sungan niku nano dibolêke.
+
+[^234]: Maksud embi’ di ngeriki ya'ni embi’, nenek serto seterusnyo ke pucu'. serto yên dimaksud dengen ana’ betino ya'ni ana' betino, cucu betino serto seterusnyo ke bawa, ma'niku jugo yên lian-liannya. sedengke yên dimaksud dengen ana'-ana' sema niko yên jerû tanggungan niko, nûrût jumhur ulami temasû' jugo ana' tiri yên nano jerû tanggungannyo.
+
+[^235]: Maksudnyo: budak-budak yên dihek-i yên domiknyo nano tumut tetawan besami-saminyo.
+
+[^236]: Ya'ni: selian dari macem-macem betino yên tekelap jerû surat An Nisaa' ayat 23 serto 24.
+
+[^237]: Ya'ni: namba, ngirangi atawa nano mayar sami sekali maskawen yên sampun ditetepke.
+
+[^238]: Maksudnyo: wong merdeka serto budak yên dikaweninyo niku wêntenla sami-sami ketûrûnan Adam serto hawa serto sami-sami beriman.
+
+[^239]: Ya'ni jerû syari'at di antaronyo bolê ngaweni budak kalu sampun cungkup syarat-syaratnyo.
+
+[^240]: Larangan munu awa' dewe' mencangkup jugo larangan munu wong lian, sebab munu wong lian retinyo munu awa' dewe', kerno umat ngerupoke sios kesatuan.
+
+[^241]: Tingali wong-wong yên temasû' ahli waris jerû surat An Nisaa' ayat 11 serto 12.
+
+[^242]: Maksudnyo: nano sekewet serto meliaro resio serto herto domiknyo.
+
+[^243]: Maksudnyo: Allah sampun ngewajibke kepado domik supayo ngauli semanya dengen saê.
+
+[^244]: Nusyuz: ya'ni ninggalke kewajiban domik-sema. nusyuz dari pihak sema peca' ninggalke rompo' tanpa izin domiknyo.
+
+[^245]: Maksudnyo: peranti ngesung pelajaran kepado sema yên dikhawatirke teka’nyo. mestila mulo-mulo di sung nasehat, kalu nasehat nano bemanfaat darula dipisake dari enggon tilem wong-wong niku, kalu nano bemanfaat jugo darula dibolêke ngebûg wong-wong niku dengen pukulan yên nano ninggalke bekas. kalu caro petamo sampun wênten manfaatnyo jangan dijalanke caro yên lian serto seterusnyo.
+
+[^246]: Hakim ya'ni juru damî.
+
+[^247]: Para' serto tebî' di ngeriki wênten yên ngertike dengen enggon, hubungan kekeluargoan, serto wênten pulo' antaro yên Muslim serto yên dêdê Muslim.
+
+[^248]: Ibnus sabil ya'ni wong yên jerû lawatan yên dêdê ma'shiat yên sampun abîs sangu. temasû' jugo ana' yên nano wikan embi’ abanyo.
+
+[^249]: Maksudnyo kafir tehadep nikmat Allah, ya'ni kerno medit, ngengken wong lian medit. nyingitke karunia Allah retinyo nano nyukuri nikmat Allah.
+
+[^250]: Riya ya'ni namelke sesios kerno pengen ditingali serto dipuji wong.
+
+[^251]: Maksudnyo: Allah nano ayun ngirangi pahalo wong-wong yên namelke kejahatan meski seageng zarrah, bahkan kalu dia bedamel saê pahalonya ayun dilipet gandoke olê Allah.
+
+[^252]: Maksudnyo: wong-wong niku dikuburke atawa wong-wong niku hancur dades tanah.
+
+[^253]: Nûrût sebagean ahli tafsir jerû ayat niki temuat jugo larangan semayang peranti wong junub yên dêrêng mandi.
+
+[^254]: Sebagean ageng ulama ngelapke, nyenggol di ngeriki nyenggol kulit. Serto sebagean lian ngelapke becampurnyo sema-domik.
+
+[^255]: Maksudnyo: nguba reti kelap-kelap, enggon atawa namba serto ngirangi.
+
+[^256]: Maksudnyo wong-wong niku ngelapke : kame' ngerungu, sedengke ati wong-wong niku ngelapke: kame' nano ayun nûrûti.
+
+[^257]: Maksudnyo wong-wong niku ngelapke: dengerla, tetapi ati wong-wong niku ngelapke: Mudah-mudahan niko nano angsal ngerunguke (tuli).
+
+[^258]: Raa 'ina retinyo: sudila kironyo niko masati kame'. sewaktu sedanten rencang ngadepke kelap niki kepado Rasulullah, wong Yahudi make kelap niki dengen berûtû’ peca’ nyebût Raa'ina padohal yên wong-wong niku kelapke ya'ni Ru'uunah yên retinyo benga’ nian, sebagî uyo’an kepado Rasulullah. nikula sebabnyo Tuhan ngengken supayo rencang-rencang nuker kelapan Raa'ina dengen Unzhurna yên jugo sami retinyo dengen Raa'ina.
+
+[^259]: Wênten yên ngelapke kadar keimanan yên setîtî’ wênten yên ngelapke wong yên setîtî’
+
+[^260]: Nûrût pinten-pinten mufassirin, maksudnyo ya'ni nguba rai wong-wong niku sampun niku diputer ke buri sebagî uyo’an.
+
+[^261]: Yên dimaksud di ngeriki ya'ni wong-wong Yahudi serto Nasrani yên nganggep awa' wong-wong niku bersî. tingali surat Al Baqarah ayat 80 serto ayat 111 serto surat Al Maa-idah ayat 18.
+
+[^262]: Jibt serto Thaghut ya'ni syaitan serto napi saos yên disemba selian Allah s.w\.t.
+
+[^263]: Maksudnyo: wong-wong yên nano angsal ngesungke kesaêan kepado wong atawa masyarakatnyo, nano selaya’nyo tumut megang jabatan jerû pemerintahan.
+
+[^264]: Selami ulil amri nyekel kepado Allah serto sunnah Rosul.
+
+[^265]: Yên sesampun niku musuhi Nabi serto kaum muslimin serto wênten yên ngelapke Abu Barzah sios wong tukang tenung di maso Nabi, serto wênten yên ngelapke Ka’ab bin Asy’raf (wong munafiq)
+
+[^266]: Ya'ni: behakim kepado selian Nabi Muhammad s.a.w.
+
+[^267]: Wong-wong yên nampa'ke awa'nya beriman serto nedo izin beperang sedêrêng wênten perinta perang.
+
+[^268]: Retinyo pahalo tûrût perang nano ayun dikirangi setîtî' saos.
+
+[^269]: Rasul nano tanggung jawab tehadep damelan-damelan wong-wong niku serto nano jamin supayo wong-wong niku nano bedamel kesalahan.
+
+[^270]: Ya'ni: tokoh-tokoh rencang serto sedanten cendekiawan di antaro wong-wong niku.
+
+[^271]: Nûrût mufassirin yên lian maksudnyo ya'ni: kalu sios kabar tentang keamanan serto ketakutan niku disampeke kepado Rasul serto ulil Amri, cengki Rasul serto ulil amri yên ahli angsal netepke simpulan (istimbat) dari kabar niku.
+
+[^272]: Kengkenan perang niku mesti didamelke olê Nabi Muhammad s.a.w kerno yên dibebani wêntenla awa' beliau dewe'. ayat niki behûbûngan dengen lesunyo sebagêan ageng wong Madinah peranti tumut perang besami Nabi ke Badar Shughra. dades tûrûnla ayat niki yên ngengken supaya Nabi Muhammad s.a.w. kesa perang walau dewe'an saos.
+
+[^273]: Syafa'at yên saê ya'ni: Sesaben sya'faat yên ditujuke peranti ngelindungi hek sios wong Muslim atawa nginderkenyo dari sesios kemudharatan.
+
+[^274]: Penghormatan jerû Islam ya'ni: dengen ngelapke Assalamu'alaikum.
+
+[^275]: Maksudnyo: gûgû' wong-wong mukmin yên mela wong-wong munafîk serto gûgû' wong-wong mukmin yên musuhi wong-wong niku.
+
+[^276]: Disesetke Allah retinyo: bahwo wong niku seset behûbûng keingkarannya serto nano ayun mahami petûnjû’-petûnjû’ Allah. jerû ayat niki, kerno wong-wong niku niku ingkar serto nano ayun mahami napi sebabnyo Allah dadeske nyamuk sebagî perumpamoan, dades wong-wong niku niku dades seset.
+
+[^277]: Diriwayatke bahwo pinten-pinten wong Arab rawû kepado Rasulullah s.a.w. di Madinah. sampun niku wong-wong niku melebet Islam, sampun niku wong-wong niku keno demem Madinah, kerno niku wong-wong niku kafîr male sampun niku wong-wong niku metu dari Madinah. sampun niku wong-wong niku panggî dengen rencang Nabi, sampun niku rencang nakenke sebab-sebab wong-wong niku ninggalke Madinah. wong-wong niku nerangke bahwo wong-wong niku keno demem Madinah. rencang-rencang berkelap: napi nian niko nano ngembil teladan yên saê dari Rasulullah? rencang-rencang tebagî kepado dua gûgû', yên sebagîan bependapet bahwo wong-wong niku sampun dades munafik, sedengke yên sebagian maler bependapet bahwo wong-wong niku maler Islam. sampun niku tûrûnla ayat niki yên nyelo kaum muslimin kerno dades dua gûgû' niku, serto ngengken supaya wong-wong Arab niku ditawan serto dibunu, kalu wong-wong niku nano hijra ke Madinah, kerno wong-wong niku disamike dengen kaum musyrikin yên lian.
+
+[^278]: Ayat niki dades dasar hukum suaka
+
+[^279]: Nano mihak serto sampun ngewêntenke hubungan dengen kaum muslimin.
+
+[^280]: Peca': nemba’ burung tekeno sios wong mukmin.
+
+[^281]: Diat ya'ni pembayaran sejumla herto kerno sesios tindak pidana tehadep sesios jiwa atawa anggota badan.
+
+[^282]: Dimaksud jugo dengen wong yên ngelapke kalimat: laa ilaaha illallah.
+
+[^283]: Maksudnyo: wong niku dêrêng katon keislamannyo olê wong rame niko ma'niku pulo' dumin.
+
+[^284]: Yên dimaksud dengen wong yên nganiayo awa' dewe' di ngeriki, ya'ni wong-wong muslimin Mekah yên nano ayun hijrah besami Nabi sedengke wong-wong niku sanggup. wong-wong niku ditindas serto dipaksa olê wong-wong kafir tumut besami wong-wong niku kesa ke perang Badar; akhirnya di antaro wong-wong niku wênten yên tebunu jerû peperangan niku.
+
+[^285]: Nûrût pendapet jumhur reti qashar di ngeriki ya'ni: semayang yên sekawan rakaat didadeske duo rakaat. ngashar di ngeriki wênten kalonyo dengen ngirangi jumlah rakaat dari 4 dades 2, ya'ni di waktu kesa serto suasano aman serto wênten kalonyo dengen ngeringanke rukun-rukun dari yên 2 rakaat niku, ya'ni di waktu kesa suasanonyo khauf. serto wênten kalonyo male ngeringanke rukun-rukun yên 4 rakaat suasanonyo khauf di waktu hadhar.
+
+[^286]: Nûrût jumhur mufassirin kalu sampun selesai serakaat, dades diselesaikan satu rakaat male dewe', serto Nabi duduk menunggu golongan yên kedua.
+
+[^287]: Ya'ni rakaat yên petamo, sedengke rakaat yên keduo wong-wong niku nuntaske dewe' pulo' serto wong-wong niku ngakhiri semayang wong-wong niku besami-sami Nabi.
+
+[^288]: Caro semayang khauf, ma’kayo wênten pado ayat 102 niki didamelke kalu maler mungkin namelkenyo. Napibilo nano mungkin, dades semayang niku didamelke seangsalnyo saos, walau dengen ngelap tasbî saos.
+
+[^289]: Ayat niki serto pinten-pinten ayat selanjutnyo ditûrûnke behûbûngan dengen kemalingan yên didamelke Thu'mah serto ia nyingitke barang palengan niku di rompo' sios wong Yahudi. Thu'mah nano ngakui damelannya niku malahan nudu bahwo yên maleng barang niku wong Yahudi. hal niki diajuke olê kerabat-kerabat Thu'mah kepado Nabi s.a.w. serto wong-wong niku nedo supayo Nabi mela Thu'mah serto ngukum wong-wong Yahudi, meski wong-wong niku wikan bahwo yên maleng barang niku ya'ni Thu'mah, Nabi dewe' Hampir saos ngeleserke tuduhan Thu'mah serto kerabatnyo niku tehadep wong Yahudi.
+
+[^290]: Asak makna Inaatsan ya'ni betino-betino. patung-patung behalo yên disembah Arab Jahiliyah niku biasonyo di sung nami dengen nami-nami betino sebagi Laata, Al Uzza serto Manah. angsal jugo retinyo di ngeriki wong-wong padem, bendo-bendo yên nano berjenis serto bendo-bendo yên lemah.
+
+[^291]: Pado saben-saben wong wênten potensi peranti damelke kesaêan jugo peranti kejahatan, syaitan ayun ngunoke potensi jahat peranti nyelakoke wong.
+
+[^292]: Nûrût kepercayaan Arab jahiliyah, binatang-binatang yên ayun dipersembahkan kepado patung-patung berhala, mestila dipotong kupingnyo dumin, serto binatang yên peca' niki nano bolê dikendarai serto nano digunoke male, serto mesti dilepaske saos.
+
+[^293]: ngeruba ciptoan Allah angsal retinyo, nguba yên diciptoke Allah peca' ngebiri binatang. wênten yên ngertikenyo dengen meruba igamo Allah.
+
+[^294]: Niko di ngeriki wênten yên ngertike dengen kaum muslimin serto wênten pulo' yên ngertike kaum musyrikin. maksudnyo ya'ni pahalo di akhirat dêdêla nûrûti angan-angan serto cito-cito wong-wong niku, tapi klop dengen ketentuan-ketentuan igamo.
+
+[^295]: Baco surat an-Nisa’ ayat 2 serto 3
+
+[^296]: Nûrût adat Arab Jahiliyah sios wong Wali bekuaso tehadep betino yatim yên jerû asuhannyo serto bekuaso tehadep hertonyo. kalu betino yatim niku cantî’ dikaweni serto diembil hertonya. kalu betino niku buruk rainyo, dihalanginya kawen dengen lanang yên lian supaya Dia tetap angsal nguasai hertonyo. kebiasoan di pucu’ dilarang namelkenya olê ayat niki.
+
+[^297]: Nusyuz: ya'ni ninggalke kewajiban domik-sema. nusyuz dari pihak sema peca' ninggalke rompo' nano izin domiknya. nusyuz dari pihak domik ya'ni besikap keras tehadep semanyo; nano ayun ngaulinyo serto nano ayun ngesungke hek-nyo.
+
+[^298]: Peca' sema besedio pinten-pinten heknya dikirangi asak domiknyo ayun saê male.
+
+[^299]: Maksudnyo: tabi'at wong niku nano ayun ngelepaske sebagîan heknya kepado wong lian dengen seikhlas atinyo, meski ma'niku kalu sema ngelepaske sebagian hek-heknyo, dades bolê domik nerimonyo.
+
+[^300]: Ya'ni dengen jalan muka’ke resio-resio wong mukmin serto nyampeke hal ihwal wong-wong niku kepado wong-wong kafir atawa kalu wong-wong niku perang di pihak wong mukmin wong-wong niku perang dengen nano sepenu ati.
+
+[^301]: Maksudnyo: Alah ngelanta’ke wong-wong niku jerû pengakuan beriman, sebab niku wong-wong niku dilayani sebagi melayani sedanten mukmin. Pado waktu niku Allah sampun nyaweske nerako peranti wong-wong niku sebagi balesan tipuan wong-wong niku niku.
+
+[^302]: Maksudnyo: wong-wong niku semayang cuman sekali-sekali saos, ya'ni kalu wong-wong niku wênten di muko wong.
+
+[^303]: Leseri awa’ retinyo damelke kesaêan peranti ngilangke akibat bûrû’ dari kesalahan yên didamelke.
+
+[^304]: Ngesung pahalo tehadep amal hambo-Nyo, maafke kesalahannyo, serto namba nikmat-Nyo.
+
+[^305]: Maksudnya: wong yên keniayo olê kerno ngelapke kepado hakim atawa Penguaso keburukan-keburukan wong yên nganiayonyo.
+
+[^306]: Maksudnyo: beriman kepado Allah, nano beriman kepado rosul-rosul-Nyo.
+
+[^307]: Anak sapi niku didamel wong-wong niku dari emas peranti disemba.
+
+[^308]: Dinten Sabtu ya’ni dinten Sabbat yên khusus peranti ibadat wong Yahudi.
+
+[^309]: Tindakan-tindakan niku ya’ni ngûtû’ wong-wong niku, wong-wong niku disamber petîr, jelmake wog-wong niku dades kero, serto liannyo.
+
+[^310]: Wong-wong niku ngelap Isa putera Maryam niku Rasul Allah wêntenla dades uyo’an, kereno wong-wong niku dewe’  nano pecayo kerasulan Isa niku.
+
+[^311]: Ayat niki wêntenla sebagî bantahan tehadap anggepan wong-wong Yahudi, bahwo wong-wong niku sampun munu Nabi Isa a.s.
+
+[^312]: Saben-saben wong Yahudi serto Nasrani ayun beriman kepada Isa sedereng pademnyo, bahwo Dio wêntenla Rasulullah, dêdênyo anak Allah. sebagîan mufassirin bependapet bahwo wong-wong niku ngimani pekaro niku sedereng padem.
+
+[^313]: Allah bekelap langsung dengen Nabi Musa a.s. ngerupoke keistimewaan Nabi Musa a.s., serto kereno Nabi Musa a.s. dikelap: Kalimullah sedeng Rasul-rasul yên lian angsal wahyu dari Allah dengen perantaro Jibril. Pado waktu niku Nabi Muhammad s.a.w. perna bekelap secaro langsung dengen Allah pado malem mi'raj.
+
+[^314]: Hek Allah sedanten yên di langit serto di bumi tentu saos nano bekenda’ kepado sinten saos kereno niku cengki saos kekafiran niko nano angsal natangke kerugian setîtî’ saos kepado-Nyo.
+
+[^315]: Maksudnyo: jangan niko ngelapke Nabi Isa a.s. niku Allah, peca’ yên dikelapke ole wong-wong Nasrani.
+
+[^316]: Maksudnyo: ngeleserke  sampun rawû sios Nabi yên diciptoke dengan kalimat kun (dadesla) tanpa aba Ya’ni Nabi Isa a.s.
+
+[^317]: Dikelap tiupan dari Allah kereno tiupan niku berasal dari perînta Allah.
+
+[^318]: Ya’ni Malaikat yên wênten di sekiter Arsy peca’ Jibril, Mikail, Israfil serto malaikat-malaikat yên setingkat dengen wong-wong niku.
+
+[^319]: Semayoan di ngeriki ya'ni semayoan setio hambo kepado Allah serto semayoan yen digawé’ wong dengen sesamo wong.
+
+[^320]: Syiar kesucian Allah ya'ni sedanten amalan yên didamel waktu ibadat hajji, peca’ tata caro tawaf, sa’i serto enggon-enggon ngedamelkenyo ka’bah serto Sofa –Marwah.
+
+[^321]: Bulan-bulan haram: Zulkaidah, Zul hijjah, Muharram  serto Rajab.
+
+[^322]: Hadyu  binatang yên disemelê peranti dam (dendo pelanggaran atawa ketinggalan wajib hajji).
+
+[^323]: Qolaa’id. ya'ni Hadyu yên sampûn ditandoi peranti dibakto ke ka’bah.
+
+[^324]: Karunio: Keuntungan yên disûng Allah sewaktu lawatan hajji, keridhoan ya'ni pahalo amalan hajji.
+
+[^325]: Dara yên metu dari badan, peca’ yên dikelapke di Surah al an’am 145
+
+[^326]: Maksudnyo ya'ni: binatang yên tecekî’, yên digebug, yên nyampa’, yên ditanduk serto yên diterkem binatang buas wêntenla halal kalu sekawan semelê sedêrêng padem.
+
+[^327]: Al Azlaam retinyo: anak pana yên dêrêng pake bulu. wong Arab Jahiliyah ngunoke ana’ pana yên dêrêng pake bulu peranti nentuke napi wong-wong niku ayun namelke sios damelan atawa nano. caronyo ya'ni: wong-wong niku ngembil tigo ikok’ ana’ pana yên dêrêng pake bulu. sesampun ditulis dewe’-dewe’ ya'ni dengen: damelke, nano damelke, sedengke yên ketigo nano ditulîs napi-napi, dilepê’ke jerû enggon serto disimpen jerû Ka'bah. kalu wong-wong niku ayun namelke sesios dades wong-wong niku nedo supayo juru kunci ka'bah ngembil sios ana’ pana niku. Basengnyo megkîn napi wong-wong niku ayun namelke atawa nano namelke sesios, klop dengen tulîsan ana’ pana yên diembil niku. kalu yên teembil ana’ panah yên nano wênten tulîsannyo, dades undian diulang male.
+
+[^328]: Yên dimaksud dengen dinten ya'ni: waktu, ya'ni: waktu haji wênten', haji terakhir yên didamelke olê Nabi Muhammad s.a.w.
+
+[^329]: Maksudnyo: binatang buas niku dilatê nûrût kepandaian yên diperolênyo dari pengalaman; pîkîran wong serto ilham dari Allah tentang melatî binatang buas serto caro beburu.
+
+[^330]: Ya'ni: buruan yên ditangkep binatang buas semato-mato peranti niko serto nano didades setîtî' saos olê binatang niku.
+
+[^331]: Maksudnyo: di waktu ngelepaske binatang buas niku dikelapke nami Allah sebagî genti binatang buruan niku dewe' nyebûtke waktu nerkem buruan.
+
+[^332]: Wênten yên ngelapke betino-betino yên merdeka.
+
+[^333]: Maksudnyo: sakit yên nano bolê keno banyu
+
+[^334]: Retinyo: nyenggol. nûrût jumhur ya'ni: nyenggol sedengke sebagêan mufassirin ya'ni: sebadan sema-domik.
+
+[^335]: Semayoan niku ya'ni: semayoan ayun ngerungu serto numut Nabi dengen sedanten kewêntenan yên diikrarke waktu bai'ah.
+
+[^336]: Maksudnyo ya'ni: nafkahke herto peranti nunaike kewajiban dengen ati yên ikhlas.
+
+[^337]: Maksudnyo: meroba reti kelap-kelap, enggon atawa namba serto ngirangi.
+
+[^338]: Cahayo maksudnyo: Nabi Muhammad s.a.w. serto kitab maksudnyo: Al Quran.
+
+[^339]: Maksudnyo: tanah Palestina niku ditentuke Allah peranti kaum Yahudi selami wong-wong niku iman serto taat kepado Allah.
+
+[^340]: Sedanten ngelapke Qabil serto Habil
+
+[^341]: Dipahami dari ayat niki bahwo wong kata pulo' ngembil pelajaran dari alam serto jangan segen-segen ngembil pelajaran dari yên langkung renda tingketan ilmunyo.
+
+[^342]: Ya'ni: munu wong dêdê kerno qishaash.
+
+[^343]: Hukum niki dêdêla ngenoi Bani Israil saos, tapi jugo ngenoi wong sedantennyo. Allah mandang bahwo munu sios niku wêntenla sebagî munu wong sedantennyo, kerno wong niku wêntenla anggota masyarakat serto kerno munu sios wong retinyo jugo munu ketûrûnannyo.
+
+[^344]: Maksudnyo ya'ni: neta' tangan kanan serto kaki kiri; serto kalu namelke male dades diteta' tangan kiri serto kaki kanan.
+
+[^345]: Maksudnyo ya'ni: wong Yahudi demen nian ngerungu kelapan-kelapan pendeta wong-wong niku yên bohong, atawa demen nian ngerungu kelapan-kelapan Nabi Muhammad s.a.w peranti dinggûtkan kepado pendeta-pendeta serto kawan-kawan wong-wong niku dengen caro yên nano jujur.
+
+[^346]: Peca' duet sogokan serto sebagînyo.
+
+[^347]: Penumut penumut Injil niku cengki mûtûske pekaro nûrût napi yên ditûrûnke Allah dijerû Injil niku, nggût sami maso ditûrûnke Al Quran
+
+[^348]: Wong yên nano mutûske pekaro nûrût hukum Allah, wênten tigo macem: a. kerno benci serto ingkarnyo kepado hukum Allah, wong yên ca’ niki kafir (surat Al Maa-idah ayat 44). b. kerno nûrût hawa nafsu serto rugike wong lian dinamike zalim (surat Al Maa-idah ayat 45). c. kerno fasik peca' ditunju’ olê ayat 47 surat niki.
+
+[^349]: Maksudnyo: Al Quran wêntenlah ukuran peranti nentuke saê sami nanonyo ayat-ayat yên ditûrûnke jerû Kitab-Kitab sedêrêngnyo.
+
+[^350]: Maksudnyo: umat Nabi Muhammad s.a.w. serto umat-umat yên sedêrêngnyo.
+
+[^351]: Ya'ni: wong-wong yên dadeske Allah, Rasul-Nya serto wong-wong yên beriman sebagî penolongnyo.
+
+[^352]: Yên dimaksud dingeriki ya'ni: wong-wong Yahudi yên ngelanggar kehormatan dinten Sabtu (tingali surat Al Baqarah ayat 65).
+
+[^353]: Maksudnyo ya'ni medit.
+
+[^354]: Kalimat-kalimat niki wêntenla kutukan dari Allah tehadep wong-wong Yahudi retinyo bahwo wong-wong niku ayun tebelenggu di bawa kekuasoan bangsa-bangsa lian selami di dunio serto ayun disikso dengen belenggu nerako di akhirat mengkîn.
+
+[^355]: Tangan Allah nano sami dengen tangan wong.
+
+[^356]: Maksudnyo: Allah ayun ngelimpahke rahmat-Nyo dari langit dengen nûrûnke ujan serto nimbûlke rahmat-Nyo dari bumi dengen nûmbûke tûmbûan yên buanyo belimpa.
+
+[^357]: Maksudnyo:  nano sios wong saos yên angsal munu Nabi Muhammad s.a.w.
+
+[^358]: Wong-wong mukmin ma’niku pulo' wong Yahudi, Nasrani serto Shabiin yên beriman kepado Allah temasû' iman kepado Muhammad s.a.w., pecayo kepado dinten akhirat serto namelke amalan yên saleh, wong-wong niku angsal pahalo dari Allah.
+
+[^359]: Semayoan niku ya'ni: wong-wong niku beriman kepado Allah serto rasul-rasulNyo.
+
+[^360]: Maksudnyo ya'ni: bahwo Isa a.s. serto embi’nyo wêntenla wong, yên merluke napi yên diperluke wong, peca' dadesnyo, minum serto sebagînyo.
+
+[^361]: Al Azlaam retinyo: anak pana yên dêrêng pake bulu. wong Arab Jahiliyah ngunoke ana’ pana yên dêrêng pake bulu peranti nentuke napi wong-wong niku ayun namelke sios damelan atawa nano. caronyo ya'ni: wong-wong niku ngembil tigo ikok’ ana’ pana yên dêrêng pake bulu. sesampun ditulis dewe’-dewe’ ya'ni dengen: damelke, nano damelke, sedengke yên ketigo nano ditulis napi-napi, dilepê’ke jerû enggon serto disimpen jerû Ka'bah. kalu wong-wong niku ayun namelke sesios dades wong-wong niku nedo supayo juru kunci ka'bah ngembil sios ana’ pana niku. Basengnyo megkîn napi wong-wong niku ayun namelke atawa nano namelke sesios, klop dengen tulisan ana’ panah yên diembil niku. kalu yên teembil ana’ panah yên nano wênten tulisannyo, dades undian diulang male.
+
+[^362]: Allah nguji kaum muslimin yên sedeng make ihram dengen ngelepaske binatang-binatang buruan, nggût muda ditangkep.
+
+[^363]: Ya'ni: binatang buruan saê yên bolê ditedo atawa nano, kacuwali burung gagak, burung elang, kalajengking, tikus serto anjing buas. jerû suatu riwayat temasû' jugo ulo.
+
+[^364]: Ya'ni: binatang (unto, sapi, kambing, biri-biri) yên dibakto ke ka'bah peranti mara'ke awa' kepado Allah, semelê ditana Haram serto dagingnyo dihadiahke kepado fakir mîskîn pado rangka abadat haji.
+
+[^365]: Yên dibakto sampe ke daerah Haram peranti semelê di ngeriko serto dagingnyo disungke kepado fakir mîskîn.
+
+[^366]: Ya'ni puaso yên itûngan dintennyo sekata mud yên di sungke kepado fakîr mîskîn, dengen catetan: sios wong fakîr mîskîn angsal sios mud (langkung kurang 6,5 ons).
+
+[^367]: Maksudnyo: munu binatang sedêrêng tûrûn ayat yên ngaramke niki.
+
+[^368]: Maksudnyo: binatang buruan laut yên diperolê dengen jalan usoho peca' ngaîl, merait serto liannyo. temasû' jugo pado reti  laut di ngeriki ya'ni: sungi, danau, kambang serto liannyo.
+
+[^369]: Maksudnyo: iwa’ atawa binatang laut yên diperolê dengen gampang, kerno sampun padem terapung atawa tedampar dipantai serto liannyo.
+
+[^370]: Ka'bah serto sekiternyo dades enggon yên aman peranti wong peranti namelke luruan-luruannyo yên behûbûngan dengen duniawi serto ukhrawi, serto pusat amalan haji. dengen wênten ka'bah niku, urîp wong dades kuat.
+
+[^371]: Maksudnyo antaro lian ya'ni: bulan Haram (bulan Zulkaidah, Zulhijjah, Muharram serto Rajab), tanah Haram (Mekah) serto Ihram., maksudnyo ya'ni: dilarang namelke perangan di bulan-bulan niku.
+
+[^372]: Ya'ni: binatang (unta, sapi, kambing, biri-biri) yên dibakto ke ka'bah peranti mara'ke awa' kepado Allah, semelê ditanah Haram serto dagingnyo dihadiahke kepado fakir mîskîn pado rangka abadat haji.
+
+[^373]: Dengen sembelîhan had-ya serto qalaid, wong yên bekorban angsal pahalo yên ageng serto fakir mîskîn angsal bagêan dari daging binatang-binatang semelêan niku.
+
+[^374]: Bahiirah: ya'ni unto betino yên sampun berana’ limo kali serto ana’ kelimo niku jantan, sampun niku unto betino niku dibela kupîngnyo, dilepaske, nano bolê dinae’i male serto nano bolê diembil banyu susunyo.
+
+[^375]: Saaibah: ya'ni unto betino yên ditala’ke kesa kepundi saos lantaran sesios nazar. peca', kalu sios wong Arab Jahiliyah ayun namelke sesios atawa lawatan yên berat, dades dio biaso benazar ayun dadeske untonyo saaibah kalu maksud atawa lawatannyo behasil dengen selamat.
+
+[^376]: Washiilah: sios domba betino ngelahîrke ana’ kembar yên tediri dari jantan serto betino, dades yên jantan niki disebut washiilah, nano semelê serto diserenke kepado behalo.
+
+[^377]: Haam: unto jantan yên nano bolê diganggu male, kerno sampun angsal mûntîngke unto betino sedoso kali. pelakuan tehadep bahiirah, saaibah, washiilah serto haam niki wêntenlah kepercayaan Arab jahiliyah.
+
+[^378]: Saksudnyo: kesesetan wong lian niku nano ayun ngesung mudharat kepado niko, asak niko sampun angsal petûnjû’. tapi nanola retinyo bahwo wong nano dikengken bedamel yên ma'ruf serto nyega dari yên munkar.
+
+[^379]: Ya'ni: ngembil wong lian yên nano seigamo dengen niko sebagî saksi dibolêke, kalu nano wênten wong Islam yên ayun didadeske saksi.
+
+[^380]: Maksudnyo: sekewet dengen semayoannyo, serto hal niki wikan sesampun io namelke sumpah.
+
+[^381]: Maksud sumpah niku dimantû’ke, ya'ni saksi-saksi yên belianan igamo niku ditola’ dengen besumpanyo saksi-saksi yên tediri dari sana’ kadang, atawa retinyo wong-wong yên besumpa niku ayun angsal balesan di dunio serto akhîrat, kerno namelke sumpa palsu.
+
+[^382]: Maksudnyo: Allah ridho dengen sedanten damelan-damelan wong-wong niku, serto wong-wong niku ngeraso puas tehadep nikmat yên sampun dicurake Allah kepado wong-wong niku.
+
+[^383]: Ayat di ngeriki retinyo mukjizat atawa ayat Al-Quran atawa peristiwa-peristiwa yên tedades jerû alam yên nûnju'ke kekuasaan Allah.
+
+[^384]: Maksudnyo: peranti nerangke bahwo Muhammad s.a.w. niku sios Nabi
+
+[^385]: Maksudnyo: kalu ditûrûnke kepado wong-wong niku malaikat, sedengke wong-wong niku nano jugo beriman, cengki wong-wong niku ayun diazab Allah seketiko, nggût wong-wong niku binasa sedantennyo.
+
+[^386]: Maksudnyo: kalu Allah ngutus sios Malaikat sebagi rasul, cengki Allah ngutusnyo jerû bentuk sios wong-wong, kerno wong nano angsal ningal malaikat, serto cengki jugo wong-wong niku ayun bekelap: niki dêdê malaikat, cuman wong peca' kame' jugo, dades wong-wong niku maler tetep ragu-ragu.
+
+[^387]: Maksudnyo: Allah sampun janji sebagî kemurahan-Nyo ayun ngelimpake rahmat kepado mahluk-Nyo.
+
+[^388]: Maksudnyo: wong-wong yên nano ngunoke akal-fikirannyo, nano ayun beriman.
+
+[^389]: Sedanten makhluk Allah yên raillaf.
+
+[^390]: Yên dimaksud dengen fitnah di ngeriki ya'ni jawaban yên berupa bebudian.
+
+[^391]: Maksudnyo: wong-wong niku selesernyo nano becito-cito pengen dimantû’ke ke dunio peranti beriman kepado Allah, tetapi kelapan niku semato-mato dikelapke kerno ningali dahsyatnyo nerako.
+
+[^392]: Maksudnyo: kalu wong-wong niku dimantû’ke ke dunio, wong-wong niku ayun ngelapke ma'niku.
+
+[^393]: Maksudnyo: beladasan-beladasan duniawi niku cuman sedenget serto nano kekel. janganla wong tepedayo dengen beladasan-beladasan dunio, serto lalai dari luruan akhirat.
+
+[^394]: Jerû ayat niki Allah ngibur Nabi Muhammad s.a.w. dengen ngelapke bahwo wong-wong musyrikin yên mudike Nabi, sami hakekatnyo dengen mudike Allah dewe', kerno Nabi niku diutus peranti nyampîkan ayat-ayat Allah.
+
+[^395]: Maksudnyo ya'ni: janganla niko ngeraso keberatan tehadep sikap wong-wong niku niku ngelengos dari kame'. kalu niko ngeraso keberatan cubola usohoke sios mukjizat yên angsal muaske ati wong-wong niku, serto niko cengki nano ayun sanggup.
+
+[^396]: Maksudnyo wong-wong yên kafir nano ngerunguke serto nano matuhi seruan Allah.
+
+[^397]: Sebagîan mufassirin nafsîrke Al-Kitab niku dengen Lauhul mahfudz dengen reti bahwo nasib sedanten makhluk niku sampun ditulîske (ditetepke) jerû Lauhul mahfudz. serto wênten pulo' yên nafsîrkenyo dengen Al-Quran dengen reti: jerû Al-Quran niku sampun wênten pokok-pokok igamo, norma-norma, hukum-hukum, hikmah-hikmah serto pimpinan peranti kebahagiaan wong di dunio serto akhirat, serto kebahagiaan makhluk sami umumnyo.
+
+[^398]: Disesetke Allah retinyo: bahwo wong niku seset behubung keingkarannyo serto nano ayun mahami petûnjû’-petûnjû’ Allah. jerû ayat niki, kerno wong-wong niku niku ingkar serto nano ayun mahami napi sebabnyo Allah dadeske nyamuk sebagî perumpamoan, dades wong-wong niku niku dades seset.
+
+[^399]: Ngewêntenke pesaêan retinyo namelke damelan-damelan yên saê peranti ngilangke akibat-akibat yên jahat dari kesalahan-kesalahan yên didamelke.
+
+[^400]: Ketiko Rasulullah s.a.w. lînggî-lînggî besami wong mukmin yên dianggep êndep serto miskin olê kaum Quraisy, rawûla pinten-pinten perai Quraisy ayun bekelap dengen Rasulullah, tapi wong-wong niku enggan lînggî bersami mukmin niku, serto wong-wong niku mengusulkan supaya wong-wong mukmin niku diusir saos, sampun niku tûrûnlah ayat niki.
+
+[^401]: Salaamun 'alikum retinyo mugi-mugi Allah ngelimpake Kesejahteraan tehadep niko.
+
+[^402]: maksudnyo: Allah sampun janji sebagî dengan kasî-Nyo ayun ngelimpke rahmat kepado mahluk-Nyo.
+
+[^403]: maksudnyo ya'ni: 1. wong yên bedamel maksiat dengen nano wikan bahwo damelan niku wêntenla maksiat kacuali kalu dipîkirke dumin. 2. wong yên durhaka kepado Allah saê dengen sengajo atawa nano. 3. wong yên namelke kejahatan kerno kurang kesadaran lantaran mara nian atawa kerno dorongan hawo nafsu.
+
+[^404]: Maksudnyo: Nabi Muhammad s.a.w. wênten bukti yên nyato tehadep keleserannyo.
+
+[^405]: Maksudnyo: cengki Allah sampun nûrûnke azab kepado niko sampe niko binaso.
+
+[^406]: Niko ditilemke di malam dinten serto dibangunke di siang dinten, supaya dengen puteran waktu niku abes umur niko yên sampun dicengkike.
+
+[^407]: Azab yên rawû dari pûcû’ peca'  ujan batu, petîr serto lian lian. yên rawû dari bawa peca' gempa bumi, banjir serto sebagînyo.
+
+[^408]: Maksudnyo: Allah s.w\.t. ngerawûke tando-tando keagengan-Nyo dengen rupo-rupo serto caro yên begenti-genti. Wênten pulo' sedanten mufassirin yên ngertike ayat di ngeriki dengen ayat-ayat Al-Quran yên retinyo bahwo ayat Al-Quran niku ditûrûnke wênten yên berupo kabar gembiro, wênten yên berupo peringatan, cerios, hukum-hukum serto lian-lian.
+
+[^409]: Sebagîan mufassirin ngelapke bahwo yên dibudike niku ya'ni Al-Quran.
+
+[^410]: Ya'ni igamo Islam yên dikengken wong-wong niku matuinya dengen selesernyo.
+
+[^411]: Reti dadeske igamo sebagî penesan serto uca’-uca’ ya'ni nguyo’-nguyo’ igamo niku namelke perînta-perînta serto nebîkei larangan-Nya dengen dasar penesan serto nano selesernyo.
+
+[^412]: Syafa'at: usoho perantaro ngesûngke sesios manfaat peranti wong lian atawa ngela’ke sesios mudharat peranti wong lian. syafa'at yên nano diterimo di sisi Allah wêntenla syafa'at peranti wong-wong kafir.
+
+[^413]: Maksudnyo: syirik.
+
+[^414]: Di antaro mufassirin wênten yên bependapet bahwo yên dimaksud dengen Abiihi (abanyo) ya'ni mamangnyo.
+
+[^415]: Sesampun ditingalike Allah kepado Nabi Ibrahim a.s. tando-tando keagungan-Nyo serto dengen niku tegûla imannyo kepado Allah (ayat 75), dades Ibrahim, mîmpîn kaumnyo kepado tauhid dengen numuti alam pikîran wong-wong niku peranti sampun niku dibantanyo.
+
+[^416]: Kelap lanta’la wong-wong niku bemaen-maen dengen kesesetannyo wêntenla sebagî sindiran kepado wong-wong niku, peca’ wong-wong niku maler buda’ yên dêrêng berakal.
+
+[^417]: Ya'ni kitab kitab serto shahifah shahifah yên ditûrûnke sedêrêng Al Quran.
+
+[^418]: Ma’sudyo: Adam a.s.
+
+[^419]: Ma’sudnyo: Adam a.s.
+
+[^420]: Wong-wong niku ngelapke bahwo Allah wênten anak peca' wong Yahudi ngelapke Uzair putera Allah serto wong musyrikin ngelapke Malaikat putra-putra Allah. wong-wong niku ngelapke ma'niku kerno tolol nian.
+
+[^421]: Ma’sudnyo ya'ni sinten saos wikan keleseran serto namelke amal saleh, serto perolê petûnjû’, dades Dio sampun nyapmî puncak kebahagiaan.
+
+[^422]: Ma’sudnyo: wong-wong musyrikin besumpa bahwo kalu rawû mukjizat, wong-wong niku ayun beriman, kerno niku wong-wong muslimin ngarep kepado Nabi supayo Allah nûrûnke mukjizat yên dimaksud. Allah nola’ harepan kaum mukmnikin dengen ayat niki. \[498] ma’sudnyo peranti dades saksi bahwo Muhammad wêntenla Rasulullah.
+
+[^423]: Ma’sudnyo peranti dades saksen bahwo Muhammad wêntenla Rasulullah.
+
+[^424]: Ma’sudnyo syaitan-syaitan jenis jin serto wong berupaya menipu wong supayo nano beriman kepado Nabi.
+
+[^425]: Peca' ngehalalke napi yên sampun diharamke Allah serto ngeharamke napi yên sampun dihalalke Allah, ngelapke bahwo Allah wênten ana’.
+
+[^426]: Ya'ni dengen ngelapke nami selian Allah.
+
+[^427]: Ma’sudnyo ya'ni wong yên sampun padem atinyo ya'ni wong-wong kafir serto sebagînyo.
+
+[^428]: Disesetke Allah retinyo: bahwo wong niku seset behubung keingkerannyo serto nano ayun mahami petûnjû’-petûnjû’ Allah. jerû ayat niki, kerno wong-wong niku niku ingkar serto nano ayun mahami napi sebabnyo Allah dadeske nyamuk sebagî perumpamoan, dades wong-wong niku niku dades seset.
+
+[^429]: Ma’sudnyo syaitan sampun behasil pedayoke wong nggût wong numuti perînta-perînta serto petûnjû’-petûnjû’nyo, serto wong sampun angsal hasil kelezatan-kelezatan duniawi kerno numuti bûjûkan-bujukan syaitan niku.
+
+[^430]: Ma’sudnyo: pendûdû’ sios kota nano ayun diazab, sedêrêng diûtûs sios wong Rasul yên ayun ngesung peringetan kepado wong-wong niku.
+
+[^431]: Retinyo: tetepla jerû kekafiran niko peca' kulo tetep jerû keislaman kulo.
+
+[^432]: Maksudnyo: Allah dadeske dunia sebagî enggon ngerunut (hasil) yên saê ya'ni kebahagiaan diakhirat.
+
+[^433]: Nûrût yên diriwayatke bahwo hasil tanaman serto binatang terna’ yên wong-wong niku gunoke peranti Allah, wong-wong niku gunoke peranti ngesung tedoan wong-wong fakir, wong-wong miskin, serto bebagai amal sosial, serto yên digunoke peranti berhala-berhala di sungke kepado penjago berhala niku. napi yên disajike peranti berhala-berhala nano angsal di sungke kepado fakir miskin, serto amal sosial sedengke sebagian yên disajike peranti Allah (fakir miskin serto amal sosial) angsal di sungke kepado berhala-berhala niku. kebiasoan yên peca' niki Amat dikutu’ Allah.
+
+[^434]: Sebagian wong Arab niku wêntenla penganut syariat Ibrahim. Ibrahim a.s. perna diperintake Allah ngorbanke ana’nyo Isma'il. sampun niku pemimpin-pemimpin igamo wong-wong niku ngabûrke pengertian berkorban niku, nggût wong-wong niku angsal nanemke kepado penumutnyo, raso mandang saê munu anak-anak wong-wong niku dengen alasan mara'ke awa' kepado Allah, padohal alasan yên selesernyo ya'ni kerno takut miskin serto takut tenoda.
+
+[^435]: Ya'ni: wong-wong niku sering nian nentuke binatang-binatang peranti pujaan serto binatang-binatang niki cuman angsal didadeske wong-wong cengki saos.
+
+[^436]: Maksudnyo ya'ni binatang-binatang yên semelê peranti berhala.
+
+[^437]: Maksudnyo ya'ni binatang-binatang ternak yên nano bolê ditunggangi peca' Bahiirah serto Saaibah.
+
+[^438]: Bahwo Allahlah yên ngesung rezki kepado hamba-hambaNyo.
+
+[^439]: Retinyo sekawan pasang, ya'ni sepasang biri-biri, sepasang kambing sepasang unta serto sepasang lembu
+
+[^440]: Maksudnyo domba jantan serto betino
+
+[^441]: Maksudnyo kambing jantan serto betino
+
+[^442]: Yên dimaksud dengen binatang bekuku di ngeriki ya'ni binatang-binatang yên jari-jarinyo nano terpsah antaro sios dengen yên lian, peca': unta, iti;, angsa serto lian-lian. sebagian ahli tafsir ngertike dengen hewan yên bekuku sios peca' kudo, keledai serto lian-lian.
+
+[^443]: Maksudnyo yên dileserke olê syara' peca' qishash munu wong murtad, rajam serto sebagînyo.
+
+[^444]: Maksudnyo ngelapke yên selesernyo meski  ngerugike sana’ dewe’
+
+[^445]: Maksudnyo penuila sedanten perintah-perintah-Nyo.
+
+[^446]: Semayang wusthaa ya'ni semayang yên di tenga-tenga serto yên langkung utamo. wênten yên bependapet, bahwo yên dimaksud dengen semayang wusthaa ya'ni semayang Ashar. nûrût pinten-pinten ahli hadits, ayat niki nekenke supayo sedanten semayang niku didamelke dengen sesaê-saênyo.
+
+[^447]: Ya'ni wong-wong Yahudi serto Nasrani.
+
+[^448]: Ditûrûnke Al Quran jerû bahasa Arab supayo wong musyrikin Mekah nano angsal ngelapke bahwo wong-wong niku nano wênten kitab kerno kitab yên ditûrûnke kepado golongan Yahudi serto Nasrani ditûrûnke jerû bahasa yên nano wikan wong-wong niku.
+
+[^449]: Maksudnyo: tando-tando kiamat.
+
+[^450]: Maksudnyo: ya'ni golongan yên fanatik nian kepado pemimpin-pemimpinnyo.
+
+[^451]: Maksudnyo: dewe’-dewe; wong mikul dosonyo.
+
+[^452]: Nikula huruf-huruf abjad yên teletak pado awal sebagian dari surat-surat Al Quran pecak: Alif laam miim, Alif laam raa, Alif laam miim shaad serto liannyo. diantaro Ahli-ahli tafsir wênten yên nyerake pengertiannyo kepado Allah kerno dipandang temasuk ayat-ayat mutasyaabihaat, serto wênten pulo golongan yên nafsirkenyo atawa yên mandangnyo sebagî nami surat, serto wênten pulo yên bependapet bahwo huruf-huruf abjad niku gunonyo peranti narîk pehatian sedanten pendengêr supayo merhatike Al Quran niku, serto peranti ngisyaratke bahwo Al Quran niku diturunke dari Allah jerû baso Arab yên tesusun dari huruf-huruf abjad. Kalu wong-wong niku nano yakin bahwo Al Quran niku diturunke dari Allah serto dîdînyo buatan Nabi Muhammad s.a.w.,  cobola wong-wong niku damel pecak Al Quran niku.
+
+[^453]: Maksudnyo: pemimpin-pemimpin yên makto niko kepado kesesetan.
+
+[^454]: Maksudnyo: janganlah kulo serto anak cucung kulo dipademke nggût dinten kiamat nggût kulo wênten waktu ngolo’i Adam serto anak cucungnyo.
+
+[^455]: Ma’sudnyo ya'ni: umat wong
+
+[^456]: Ma’sudnyo ya'ni: sesampun niku bertakwa kepado Allah.
+
+[^457]: Peca': syirik, thawaf telanjang di sekeliling ka'bah serto sebaginya.
+
+[^458]: Maksudnyo: tumpakela peratian niko kepado semayang niku serto pusatkela peratian niko semato-mato kepado Allah.
+
+[^459]: Ma’sudnyo: saben-saben ayun namelke semayang atawa thawaf keliling ka'bah atawa abadat-abadat yên lian.
+
+[^460]: Ma’sudnyo: janganlah tepeliwat yên dibutuke olê badan serto jangan pulo' tepeliwat tehadep tedoan yên dihalalke.
+
+[^461]: Ma’sudnyo: aêsan- dari Allah serto dadesnan yên saê niku angsal dinikmati di dunio niki olê wong-wong yên beriman serto wong-wong yên nano beriman, sedengke di akhirat nanti wêntenla semato-mato peranti wong-wong yên beriman saos.
+
+[^462]: Ma’sudnyo: saben-saben bangsa wênten bates waktu kejayaan atawa keruntuhan.
+
+[^463]: Ma’sudnyo: penumut
+
+[^464]: Ma’sudnyo: pemimpin-pemimpin
+
+[^465]: Retinyo: doa serto amal wong-wong niku nano diterimo Allah.
+
+[^466]: Retinyo: wong-wong niku nano mungkin melebet suarga peca' nano mungkin melebetnyo unto ke lubang jarum.
+
+[^467]: Ma’sudnyo: wong-wong niku tekepung jerû api nerako.
+
+[^468]: Al A'raaf retinyo: enggon yên tertinggi di antaro suarga serto nerako.
+
+[^469]: Retinyo: Mudah-mudahan Allah ngeelimpake Kesejahteraan tehadep niko.
+
+[^470]: Ma’sudnyo: penghuni syurgo.
+
+[^471]: Ma’sudnyo: tehadep dasar wikanmyo kame' tentang napi yên dades kemashlahatan peranti hamba-hamba kame' di dunio serto akhirat.
+
+[^472]: Besemayam di pûcû 'Arsy ya'ni sios sifat Allah yên wajib kito imani, klop dengen keagengan Allah serto kesucian-Nyo.
+
+[^473]: Ma’sudnyo: tepeliwat tentang yên ditedo serto caro nedo.
+
+[^474]: Ma’sudnyo: kulo wikan hel-hel yên ghaib, yên nano angsal wikan cuman dengen jalan wahyu dari Allah.
+
+[^475]: Damelan faahisyah di ngeriki ya'ni: homoseksual peca' diterangke jerû ayat 81
+
+[^476]: Mad-yan wêntenla nami putera Nabi Ibrahim a.s. sampun niku dades nami kakaluh yên tediri dari anak cucu Mad-yan niku. Kkaluh niki diam di suatu enggon yên jugo dinamii Mad-yan yên teletak di pantai laut merah di tenggara gunung Sinai.
+
+[^477]: Fir'aun wêntenla gelar peranti raja-raja Mesir purbakala. nûrût sejarah, Fir'aun di maso Nabi Musa a.s. ya'ni Menephthah (1232-1224 S.M.) anak dari Ramses.
+
+[^478]: Menurut Ibnu Abbas di Tafsir al-Maroghi, Terj, Barun Abu Bakar LC, Semarang,CV Toha Putra, 1987, jilid  9, h, 51
+
+[^479]: Wong-wong tukang sihir niku besujud sami Allah karno yakin ajaran yên dibakto Nabi Musa niku leser, napi yang wong-wong niku kiro Nabi Musa niku tukang sihir nano leser.
+
+[^480]: Retinyo: kalu tangan kanan yên diteta’, dades kaki yên diteta’ kaki kiri, mak niku  juga kalu tangan kiri yên diteta’, kaki kanan yên diteta’
+
+[^481]: Kaum Nabi Musa ngadu sami Nabi Musa, kalu naseb wong-wong niku sami saos, sedereng, jugo sampun rawunyo Nabi Musa guno ngajak wong-wong niku melebet igamo Allah, jugo ayun lepaske dades budak Fir’aun, Mak niki , sung wikan nano wênten semangat wong-wong niku peranti bejuang
+
+[^482]: Maknonyo: Allah ayun bales amal niko yên leser di bales leser, amal jahat di bales jahat
+
+[^483]: Ma’sudnyo banyu minum wong-wong niku beruba dades dara
+
+[^484]: Ma’sudnyo, sebab Musa alaihissalam  sampun di sung pangkat nabi (keabian) dari Allah, dadesnyo wong-wong niku nedo dengan perantaro pangkat nabi (keabian) niku supayo Musa alaissalam nedo sami Allah.
+
+[^485]: Ma’sudnyo negeri Syam dan negeri Mesir jugo negeri-negeri sekiter keduonyo yên dikuasai Fir aun dizaman krihin. Sampun Kerajaan Fir’aun rubu negeri-negeri niku diwarisi Bani Israel
+
+[^486]: Yên dimaksud dengan napi-napi yên ditega’ke  Fir’aun yên sampun diancurke Allah niku wêntenla napi yên ditegakke Fir’aun dengan caro menindes Bani Israel, peca’ kota Romses, menaro yên diperintake  HaMahan negakkeyo, jugo yên lian-liannyo
+
+[^487]: Maksudnyo yên sebela Utara dari Laut Abang (Laut Mera)
+
+[^488]: Bani Israel yên sampun disung rahmat ole Allah jugo di utamoke dari sedanten umat wentela nenek moyang yên wênten di zaman Nabi Musa alaihissalam  \\
+
+[^489]: Ma’sudnyo benerila awa' niko jugo kaum niko serto hal ihwal wong-wong niku
+
+[^490]: Wong-wong ali Tafsir wênten yên ngesung makno yên ditingal bukit niku wentela Keagengan serto Kuaso  Allah , ali tafsir yên lian napsirke yang ditingali niku cahayo Allah. Allah niku nano angsal diukur cak ukuran makhluk. Allah  nano sami dengen makhluk.
+
+[^491]: “Luh” wentela kepingan batu , jugo kayu,  tetulis pado luh niku isi Taurot yên sampun diterimo Nabi Musa alaihissalam sesampun Munajatat di bukit Thursina
+
+[^492]: Yên diayuni dari ayat-ayat di ngriki wêntenla ayat-ayat Taurot, tando-tando keAgengan serto Kuaso Allah
+
+[^493]: Wong-wong niku muat anak sapi dari emas. Wong ali Tafsir bekelap: patung anak sapi niku tetepla patung, nano wênten nyawonyo, jugo lengu peca' lengu sapi niku akibat lengu angin yên lînggî  kejero rongga patung niku dengen teknik yên diwikan ole Samiri saat niku.wênten jugo ahli tafsir bekelap patung niku dari emas,  wênten badan yên punyo nyawo, punyo lengu sapi.
+
+[^494]: Ma’sudnyo: napi niko nano sabar nunggu kuli rawu sampun kulo munajat sami Allah nggût-nggût niko muat patung peranti disemba peca' nyemba Allah
+
+[^495]: Tingali no 15
+
+[^496]: Napi yên didamelke wong-wong niku muat patung anak sapi, sampun niku disembanyo, yên ma’niki wêntenla ujian dari Allah peranti nguji wong-wong niku, sinten yên selesernyo kuat imannyo serto sinten yên ragu-ragu. Wong-wong  yên lema imannyo nikula yên ayun tumut Samiri, nyemba patung anak sapi niku. Wong-wong yên kuat imannyo,  mantep imannyo.
+
+[^497]: Diantaro nikmat Allah kepado wong-wong niku wêntenla : wong-wong niku  kerep dinaungi awan waktu wong-wong niku bejalan saat panas terik matoari padang pasir.
+
+    Manna wêntenla tedoan manis ca’ madu. Salwa wêntenla burung mirip puyuh
+
+[^498]: Wêntenla damelan yên sa’i yên dikegkeke agama Islam, yên wênten kaitannnyo dengen igamo napi yên nano  wênten kaitannyo.
+
+[^499]: Aturan niku wêntenla wong-wong niku nano angsal bedamel pado dinten Sabtu, sebab dinten Sabtu niku wêntenla dinten peranti ibadat
+
+[^500]: Alesan wong niku wêntenla : wong-wong niku sampun damelke  perenta  Allah   ngesung peringetan
+
+[^501]: Separo ali Tafsir bependapat kalu niku Cuma kiasan, maknonyo ati wong niku peca' beruk, sebab sami-sami nano nerimo nasehat serto nano nerimo diingetke. yên liannyo ( Jumhur ali tafsir) ngatoke wong-wong niku dades beruk nian, tapi, nano beranak, nano nedo, nano minum serto uripnyo nano langkung dari tigo ari.
+
+[^502]: Disesetke Allah retinyo wong niku seset keo keingkarannyo serto nano ayun usaho peranti paham hidayah-hidayah Allah. Jero ayat niki, akibat wong-wong niku ingkar serto nano ayun usao peranti paam napi sebabnyo Allah nadeske nyamuk peranti kiasan, laju wong-wong niku dades seset.
+
+[^503]: Ma’sudnyo: Nami-nami yên Mulio yên pas dengen sifat-siat Allah
+
+[^504]: Tingali nomer 26
+
+[^505]: Ma’nonyo: wong-wong musyrik nadeske sekutu (rewang) selian Tuhan nyiptoke sios anak niku, yakni anak niku jugo peranti hamba berhala yên wong-wong niku semba, dadesnyo wong-wong niku ngesung nami  anak niku dengen “Abdul Uzza, Abdul Manaa, Abdu Syams serto lian-liannyo.
+
+[^506]: يبطشون  di ngeriki ma’nonyo wêntenla besikap dengen keras, peca' nabok, numpeske, ngoco wong, merengut , jugo lian-liannyo.
+
+[^507]: Maksudnyo : Baco  اعوذ باالله من الشيطان الرجيم
+
+[^508]: Maksudnyo: kalu dibacoke al-qur’an kito wajib nengernyo serto meratikeyo sambîl bediem awa', sami wênten waktu sholat atawa nano diwaktu sholat, selian waktu sholat bejema‘a, makmum angsal maco suro al-fatiha dewe’ waktu Imam maco ayat-ayat al-qur’an.
+
+[^509]: Maksudnyo: caro mage harto rampasan perang niku nurut ketetepan Allah, jugo ketetepan Rasul-Nyo
+
+[^510]: Maksudnyo: wong-wong yên sempurmo imannyo
+
+[^511]: Maksudnyo: Allah ngatur caro mage harto rampasan perang niku dengen caro-caro yên sa’i, maknikula Allah ngengken kesa dari rompok ( Di Madina) kesa beperang ke Badar dengen caro-caro yên leser jugo
+
+[^512]: Maksudnyo: Kapila Abu Sofyan yên ngebakto sadian dari Syria.Sedengke yên senjatonyo wênten dayo wêntenla  yên rawu dari Mekka yên kepalak rombongan niku  utbah bin rabiah besami abu jahal.
+
+[^513]: Neguke tapak sikil di ngriki dimaknoke jugo tegu ati jugo tegu pendirian
+
+[^514]: Maksudnyo berenti dari musui serto merangi Rasul
+
+[^515]: Maksudnyo: mantuk musui serto merangi Rasul
+
+[^516]: Maksudnyo: Allah mantuk ngesung petolongan kepado Rasul
+
+[^517]: Maksudnyo: wong-wong niku nenger  padohal atinyo ingkar
+
+[^518]: Maksudnyo: wong yên jahat nian ( yên langkûng nano sa’i) nurut Allah wêntenla yên nano ayun nenger, nuturke jugo ayun wikan yên bener
+
+[^519]: Maknonyo: petunjuk yên angsal membezoke antaro yên haq dengen yên bathisertogsal jugo diretike dengen petolongan.
+
+[^520]: Wêntenla; Abu Sufyan serto rencang-rencangnyo
+
+[^521]: Maksudnyo: kalu wong-wong niku  kafir serto mantuk merangi Nabi
+
+[^522]: Maksudnyo: gangguan-ganggguan kepado umat Islam serto Igamo islam
+
+[^523]: Maksudnyo supayo wong-wong bebas meluk igamo
+
+[^524]: Yên dimaksud dengen rampasan perang (ghonimah) wêntenla harto yên berasal dari wong-wong kaper yên diembek dengen caro beperang, kalu harto yên diembek nano dengen peperangan dinamai fa’i. Caro pembagian yên wênten pado ayat niki wêntenla yên wênten hubungan dengen ghanima
+
+
+[^525]: Maksudnyo: seperlimo dari ghonimah niku dibage kepado:
+    a. Allah serto Rasul=Nyo
+    b. Kerabat Rasul, (Banu Hasyim jugo Banu Mutholib}
+    c. Budak-budak yatim
+    d. Wong miskin
+    e. Ibnusabil
+    yên empat perlimo dari ghonima dibageke kepado yên melok perang
+
+
+[^526]: Yên dimaksud dengen napi wêntenla ayat-ayat al-Qur’an, Malaikat serto petolongan
+
+
+[^527]: Furqon wêntenla yên misake antaro yên haq dengen yên batil.
+    Maksud dinten al-furqon wêntenla dinten nyatonyo wong-wong islam yên menang  serto wong-wong kaper kala. Dinten niku wêntenla pangginyo  duo pasukan waktu perang Badar, pado dinten Jum’at 17 Romadon tahun duo Hijrrah, Separo dari wong ahli tafsir bekelap kalu ayat niki meng-isyaratke ari  petamo kali diturunke nyo al-qur’an pado malem 17 Romadhon
+
+[^528]: Maksudnyo: kaum Muslimin saat niku wênten di pinggir lembah yên nano tebi ke Madinah, dan wong-wong kaper wênten di pinggir lembah yên tebi dari Madinah. Kafila yên dipimpin Abu Sufyan niku wênten di tepi pantai kiro-kiro 5 mil dari Badar
+
+[^529]: Maksudnyo: menangnyo kaum Muslimin serto kalahnyo kaum Musyrikin
+
+[^530]: Maksudnyo: supayo wong-wong yên mantep atinyo kaper nano wênten alesan piranti mantep kapernyo niku, jugo wong-wong yên imannyo leser wêntenla yên wênten bukti atawa dalil yên jelas nyato
+
+[^531]: Maksudnyo: ngatake zikir serto doa’
+
+[^532]: Wong-wong yên pedalemannyo  di Madinah, wêntenla dari guguk Auz serto guguk Khazraj yên kerep bebala  sedereng Nabi Muhammad ShollAllahu alaihi wasallam pinda ke Madina. Sampun Nabi Muhammad ShollAllahu alaihi wasallam pinda ke Madina, wong-wong niku masuk Islam, ayun bebala niku ilang.
+
+[^533]: Maksudnyo; wong-wong niku nano wikan kalu beperang niku mesti piranti mela npi-napi yên kito yakini, jugo piranti kito ta’at sami perinta Allah. Wong-wong niku (wong kaper) beperang dengen niat piranti ngekelke tradisi jahiliya saos,  jugo piranti dunio serto lian-liannyo
+
+[^534]: Maksudnyo: antaro wong-wong Muhajirin jugo wong-wong Anshor wênten tali ukhuwah yên tegu nian, piranti mewêntenke rakyat yên sa’i. Maknikilatali ukhuwah wong-wong  niku, wêntenla wong-wong niku pado maso-maso awal Islam wong-wong niku pecak sedulur seumak sebapak
+
+[^535]: Yên dimaksud dengen napi yên sampun dikengken Allah niku nano angsal nano wêntennyo tali ukhuwah yên tegu antaro kaum Mukminin
+
+[^536]: Maksudnyo: yên dades dasar hukum waris nurut ajaran islam  wêntenla hubungan kerabat, nano tebates pado hubungan beduluran secaro igamo pecak wong Muhajirin dengen Anshor pado pemulaan islam.
+
+[^537]: Sedêrêng tûrûnnyo ayat niki wênten semayoan damai antaro Nabi Muhammad s.a.w. dengen wong-wong musyrikin. di antaro isi semayoan niku wêntenla nano wêntennyo perangan antaro Nabi Muhammad s.a.w. dengen wong-wong musyrikin, serto bahwo kaum muslimin dibolêke haji ke Makkah serto tawaf di Ka'bah. Allah SWT matalke semayoan niku serto ngizinke kepado kaum muslimin merangi male. Dades tûrûnla ayat niki serto kaum musyrikin di sungke  sekawan bulan laminya di tana Arab peranti nguatke awa'.
+
+[^538]: Beda pendapet antaro mufassirin (ahli tafsir) tentang yên dimaksud dengen haji akbar, wênten yên ngelapke dinten Nahar, wênten yên ngelapke dinten Arafah. yên dimaksud dengen haji akbar di ngeriki wêntenla haji yên tedades sami wikan ke-9 Hijrah.
+
+[^539]: Ma’sud yên di sung tanggu sekawan bulan niku ya'ni: wong-wong niku yên mungkiri semayoan wong-wong niku dengen Nabi Muhammad SAW. Wênten jugo wong-wong niku yên nano mungkiri semayoannyo dades semayoan niku diterûske nggût berentinyo maso yên ditentuke jerû semayoan niku. sesampun berenti maso niku, dades nano wênten male pedamaian dengen wong-wong musyrikin.
+
+[^540]: Yên dimaksud dengen bulan Haram di ngeriki ya'ni: maso 4 bulan yên di sung tanggû kepado kaum musyrikin niku, ya'ni mulai tanggal 10 Zulhijjah (dinten tûrûnnyo ayat niki) nggût dengen 10 Rabi'ul akhir.
+
+[^541]: maksudnyo: tejamin keamanan wong-wong niku.
+
+[^542]: Yên dimaksud dengen para’ Masjidilvharam ya'ni: Al-Hudaibiyah, sios enggon yên teletak para' Makkah di jalan ke Madinah. sami enggon niku Nabi Muhammad SAW ngewêntenke semayoan gencatan senjato dengen kaum musyrikin jerû maso 10 taûn.
+
+[^543]: Ayat niki ditûrûnke peranti manta anggepan bahwo ngesung minum sedanten haji serto ngûrûs Masjidil Haram langkung utama dari beiman kepado Allah serto hijra di jalan Allah.
+
+[^544]: Ma’sudnyo: jiwo musyrikin niku dianggep kotor, kerno nuoke Allah.
+
+[^545]: Ma’sudnyo: nano dileserke namelke haji serto umrah. nûrût pendapet sebagêan mufassirin yên lian, ya'ni kaum musyrikin niku nano bolê melebet daerah Haram saê peranti keperluan haji serto umrah atawa peranti keperluan yên lian.
+
+[^546]: Ma’sudnyo sesampun wikan 9 Hijrah.
+
+[^547]: Kerno nano ngeleserke wong musyrikin namelke haji serto umrah, kerno pencarian wong-wong Muslim bolê dades bekirang.
+
+[^548]: Jizyah ya'ni paja’ perkepala’ yên dipungut olê pemerintah Islam dari wong-wong yên dêdê Islam, sebagi imbangan peranti keamanan awa' wong-wong niku.
+
+[^549]: Ma’sudnyo: wong-wong niku matuhi ajaran-ajaran wong-wong alim serto rahib-rahib wong-wong niku dengen membabi buto, meski wong-wong alim serto rahib-rahib niku ngengken namelke maksiat atawa ngeharamke yên halal.
+
+[^550]: Ma’sudnyo antaro lian ya'ni: bulan Haram (bulan Zulkaidah, Zulhijjah, Muharram serto Rajab), tana Haram (Mekah) serto ihram.
+
+[^551]: Ma’sudnyo janganla niko nganiayo awa' niko dengen namelke damelan yên dilarang, peca' ngelanggar kehormatan bulan niku dengen ngewêntenke perangan.
+
+[^552]: Muharram, Rajab, Zulqaedah serto Zulhijjah wêntenla bulan-bulan yên dihormati serto jerû bulan-bulan tekelap nano bolê diwêntenke perang. tapi peraturan niki dilanggar olê wong-wong niku dengen ngewêntenke perangan di bulan Muharram, serto dadeske bulan Safar sebagî bulan yên dihormati peranti ngenti bulan Muharram niku. meski bilangan bulan-bulan yên disucike ya'ni, sekawan bulan jugo. tapi dengen damelan niku, tata tertib di Jazirah Arab dades kacau serto sampun niku lintas pesadîan teganggu.
+
+[^553]: Ma’sudnyo: wong-wong kafir sampun sepakat ayun munu Nabi SAW, dades Allah s.w\.t. ngesung wikan maksud jahat wong-wong kafir niku kepado Nabi SAW. kerno niku dades beliau metu dengen direncangi olê Abu Bakar dari Mekah jerû lawatannyo ke Madinah beliau besingitan di sios guo di bukit Tsur.
+
+[^554]: Ma’sudnyo wong-wong niku ayun binaso disebabke sumpa  wong-wong niku yên palsu.
+
+[^555]: Wênten pinten-pinten wong munafik yên nano ayun kesa perang ke Tabuk (daerah kekuasaan Rumawi) dengen bedalî khawatir ayun tegoda olê betino-betino Romawi, behubung dengen niku tûrûnla ayat niki peranti muka’ke rahasio wong-wong niku serto nyelaske bahwo sungkannyo wong-wong niku kesa perang niku wêntenla kerno Kelemahan iman wong-wong niku serto niku wêntenla fitnah.
+
+[^556]: Ya'ni angsal kemenangan atawa padem syahid.
+
+[^557]: Yên berhak nerimo zakat ya'ni: 1. wong fakir: wong yên Amat sengsaro uripnyo, nano wênten herto serto tenago peranti menuhi uripnyo niku. 2. wong miskin: wong yên nano cungkup kebutuhannyo serto selelu kekirangan. 3. Pengurus zakat: wong yên di sung tugas peranti ngûmpûlke serto mayar jekat. 4. Muallaf: wong kafir yên wênten harapan melebet Islam serto wong yên daru melebet Islam yên imannyo male lema. 5. merdekake buda’ nyangkûp jugo peranti ngelepaske Muslim yên ditawan olê wong-wong kafir. 6. wong behutang: wong yên behutang kerno peranti kepentingan yên dêdê maksiat serto nano sanggup mayarnyo. Wênten jugo wong yên behutang peranti meliaro persatuan umat Islam dibayar hutangnyo niku dengen zakat, meski io mampu mayarnyo. 7. sami jalan Allah (sabilillah): ya'ni peranti keperluan petahanan Islam serto kaum muslimin. di antaro mufasirin wênten yên bependapet bahwo fisabilillah niku nyangkûp jugo kepentingan-kepentingan umum peca' nega’ke sekolah, rompo' sakit serto lian-lian. 8. wong yên sedengke jerû lawatan yên dêdê maksiat ngalami kesengsaroan jerû lawatannyo.
+
+[^558]: Ma’sudnyo: medit
+
+[^559]: 'Aad wêntenla kaum Nabi Hud, Tsamud ya'ni kaum Nabi Shaleh; penduduk Madyan ya'ni kaum Nabi Syu'aib, serto penduduk negeri yên sampun musna wêntenla kaum Nabi Luth a.s.
+
+[^560]: Ma’sudnyo: wong-wong niku pengen munu Nabi Muhammad s.a.w.
+
+[^561]: Sesampun Nabi Muhammad SAW mantû’ dari perang Tabuk serto mantû’ male ke Madinah serto panggî segolongan wong-wong munafik yên nano tumut perang, sampun niku wong-wong niku nedo izin kepadonyo peranti tumut perang, dades Nabi Muhammad s.a.w. dilarang olê Allah peranti ngabulke peminta’an wong-wong niku, kerno wong-wong niku dari semulo nano ayun tumut perang.
+
+[^562]: Ma’sudnyo: wong-wong yên nano tumut perang.
+
+[^563]: Ma’sudnyo: betino-betino, ana-ana’, wong-wong lemah, wong-wong yên sakît serto wong-wong yên sampun tua.
+
+[^564]: Ma’sudnyo: wong-wong niku sedî ati kerno nano wênten herto yên ayun dibelanjoke serto kendaraan peranti makto wong-wong niku kesa perang.
+
+[^565]: Maksudnyo: nano nyelo wong-wong niku.
+
+[^566]: Wong-wong Badwi ya'ni wong-wong Arab yên berdiam di pasertog pasir yên hidupnya sesampun niku berpindah-pindah.
+
+[^567]: Ma’sudnyo: wong-wong Badwi yên bediem di sekiter Madinah.
+
+[^568]: Ma’sudnyo: zakat niku nyucike wong-wong niku dari medit serto cinto yên belebî kepado herto bendo
+
+[^569]: Ma’sudnyo: zakat niku nyûbûrke sifat-sifat kesaêan jerû ati wong-wong niku serto mersîke herto bendo wong-wong niku.
+
+[^570]: Yên dimaksud dengen wong yên sampun merangi Allah serto Rasul-Nyo seja’ kerîhîn ya'ni sios wong pendeta Nasrani benami Abu 'Amir, yên wong-wong niku tunggu-tunggu rawûnyo dari Syiria peranti semayang di masjid yên wong-wong niku tega’ke niku, serto makto tentaro Romawi yên ayun merangi kaum muslimin. Tapi rawûnyo Abu 'Amir niki nano Jadi kerno io padem di Syiria. serto masjid yên ditega’ke kaum munafik niku diruntuke tehadep perintah Rasulullah s.a.w. bekenaan dengen wahyu yên diterimanya sesampun mantû’ dari perang Tabuk.
+
+[^571]: Ma’sudnyo: kalu perasaan wong-wong niku sampun lenyep. wênten pulo' yên nafsîrke kalu wong-wong niku nano angsal taubat male.
+
+[^572]: Ma’sudnyo: melawat peranti  ilmu atawa berjihad. wênten pulo' yên nafsîrke dengen wong yên bepuasa.
+
+[^573]: Disesetke Allah retinyo: bahwo wong niku seset behubung keingkarannyo serto nano ayun mahami petûnjû’-petûnjû’ Allah. jerû ayat niki, kerno wong-wong niku ingker serto nano ayun mahami napi sebabnyo Allah dadeske nyamuk sebagî perumpamoan, dades wong-wong niku niku dades seset.
+
+[^574]: Ma’sudnyo: sios hambo nano ayun diazab olê Allah semato-mato kerno kesesetannyo, kacuali kalu hambo niku ngelanggar perinta-perinta yên sampun dijelaske.
+
+[^575]: Ya'ni Ka'ab bin Malik, Hilal bin Umayyah serto Mararah bin Rabi'. wong-wong niku disalake kerno nano tumut perang.
+
+[^576]: Ma’sudnyo penyakit bathniyah peca' kekafiran, kemunafikan, keragua-raguan serto sebagînyo.
+
+[^577]: Yên dimaksud dengen ujian dingeriki ya'ni: musiba-musiba yên nimpo wong-wong niku peca' tebuka’nyo resio tipu dayo wong-wong niku, pengkhianatan wong-wong niku serto sifat wong-wong niku nyalahi janji.
+
+[^578]: Kalimat niki nikula uyo’an tehadep wong yên yembah berhalo, yên nyangko bahwa berhalo-berhalo niku wikan ngesung safa’at di sisi Allah.
+
+[^579]: Ketetepan Allah nikula bahwa peselewahan wong di dunio niku ayun diputuske di akhirat.
+
+[^580]: Bumi yên indah dengen gunung-gunung, serto lembah-lembahnyo sampun ngijo dengen tanam-tanamannyo.
+
+[^581]: Wong yên nyembah berhalo niku selesernyo dêdênyo nyembah berhalo, melianke nyembah hawo nafsu wong-wong niku dewe’, kerno hawo nafsu wong-wong nikulah yên nyuruh nyembah berhalo.
+
+[^582]: Sebagean ayat-ayat Al-Qur’an niku nyelaske secaro teperinci hukum-hukum yên sampun dikelapke jerû Al-Qur’an niku jugo.
+
+[^583]: Retinyo wong-wong niku tetingal ningalke napi yên dibaco ole Rosulullah serto napi yên diajarkennyo, padohal ati wong-wong niku nano nerimonyo.
+
+[^584]: Retinyo ningalke tando-tando kenabian niko, tapi wong-wong niku nano ngakuinyo.
+
+[^585]: Sebagîan mufassir wênten yên ngartike asurrū dengen “ngatonke”
+
+[^586]: Yên diselamatke Allah nikulah badan kasarnyo. Nurut kiso, sampun Fir’aun tebenyu’, mayatnyo tedampar di pantai ditemuke oleh wong-wong Mesir sampun niku dibalsem sehinggo utuh sampe ma’ niki ari serto wikan ditingal di museum Mesir. sampun niku ningal Al-Baqoroh (2);50.
+
+[^587]: Diperinci atawa beberapo mecem, wênten yên tentang tauhid, hokum, qishoh, akhlak, ilmu pengetahuan, semayoan serto peringetan serto lian-lian, disusun suroh demi suroh, ayat demi ayat, serto seterusnyo.
+
+[^588]: ) Nyingitke perasoan pemusuhan serto kemunafikan wong-wong niku tehadep Nabi Muhammad saw.
+
+[^589]: Kelap sebagîan mufassir, yên dimaksud dengen “pedaleman” di ngeriki iola dunio, serto “enggon penyimpenan” iola akhirat. Serto kelap sebagîan mufassir lian, maksud “pedaleman” iolah tulang sulbi, serto “enggon penyimpenan” iola rahim.
+
+[^590]: Wênten yên nafsirke saksi dengen Jibril as, Al-Qur’an atawa Muhammaf saw.
+
+[^591]: Reti sedanten saksi di ngeriki iola malaikat, nabi-nabi, serto anggota badannyo dewe’.
+
+[^592]: Retinyo, wong-wong niku bedamel supayo wong lian pengen agamo yên leser.
+
+[^593]: Nami ana’ Nabi Nuh a.s. yên kafir niku Qan’an, sedeng ana’ lanang-lanangnyo yên beiman iola Sam, Ham, Jafis.
+
+[^594]: Yakni Allah sampun ngelaksanake semayoan-Nyo dengen pademke wong yên kafir kepado Nabi Nuh a.s. serto nyelamatke wong yên beiman.
+
+[^595]: Gunung Jadi teletak di Armenia sebela selatan, bebatesan dengen Mesopotamia.
+
+[^596]: Wong didadeske penunggu dunio peranti nguasoi serto memakmurke dunio.
+
+[^597]: Damelan wong-wong niku munu unto niku iola sios pelanggaran tehadep larangan Nabi Sholeh a.s. Ole sebab niku, Allah nyampa’ke kepado wong-wong niku hukuman yaitu batesi urip wong-wong niku cuman jerû tempo tigo dinten, dades sebage uyo’an wong-wong niku dikongkon beladas selamo tigo dinten niku.
+
+[^598]: Ma’nikula gancangnyo wong-wong niku diancurke ole guntur niku, singgo wong-wong niku ancur lebur ole guntur niku tanpo bekas, peca’ wong-wong niku nano perna wênten.
+
+[^599]: Nabi Lut a.s. ngeraso susah ayun rawŏ sedanten utusan Allah niku kerno wong-wong niku berupo pemudo yên cindo sedengke kaum Lut gala’ nian dengen pemudo-pemudo yên cindo peranti namelke homoseksual. Dio ngeraso nano angsal ngelindungi wong-wong niku kalu wênten gangguan dari kaumnyo.
+
+[^600]: Kelapan niki wong-wong niku kelapke peranti nguyo’ Nabi Syu’aib a.s.
+
+[^601]: Niki kato kiasan yên tertinyo nyelaske kekekelan wong-wong niku jerû nerako salami-laminyo. Alam akhirat jugo punyo langit serto bumi dewe’.
+
+[^602]: Sekironyo nano wênten ketetepan penundaan azab tehadep wong-wong niku sampe dinten Kiamat, tentula wong-wong niku dipademke pado waktu niku jugo.
+
+[^603]: Dades wong pengecut yên uripnyo nano wênten tertinyo.
+
+[^604]: Wong dari Mesir yên numbas Yusuf niku sios wong gerot Mesir Al-Aziz, biaso dikenal dengen nami Qitfir. jerû sebagîan kitab tafsir dikelapke nami semanyo Rail, serto wênten jugo yên ngelapke Zulaikha atawa Zalikha. Tapi riwayat yên ngelapke nami-nami niku nano angsal dipertanggungjawabke.
+
+[^605]: Ayat niki nanola nunju’ke bahwa Nabi Yusuf a.s. punyo kepengenan yên buru’ tehadep wadon niku, tapi godaan niku ageng nian singgo sekironyo dio nano dikuatke dengen keimanan kepado Allah swt. cengki dio nyampa’ ke jerû kema’siatan.
+
+[^606]: Nurut riwayat duo pemudo niku nikula pelayan-pelayan rajo; sios pelayan yên ngurus minuman rajo serto yên sios lagi tukang muat roti.
+
+[^607]: Yên dimaksud dengen keadoan, nikula penangsal wadon-wadon niku tentangYusuf napi dio tepengaru godaan niku atawa nano.
+
+[^608]: Nurut sejara tejadi musim paceklik di Mesir serto sekiternyo, dades ates anjuran Nabi Ya’qub a.s. dulur-dulur Yusuf rawŏ dari Kan’an ke Mesir ngadep pembesa’-pembesa’ Mesir peranti minta’ bahan makanan.
+
+[^609]: Nurut kata mufassir barang-barang dari dulur Nabi Yusuf a.s. yên digunoke sebage alat penukar bahan makanan niku nikulah kulit serto terompa.
+
+[^610]: Damelan niki diembil sebagei siasat dengen caro meran budi kepado wong-wong niku, supayo wong-wong niku mengkinnyo ayun rawŏ lagi ke Mesir dengen bakto Bunyamin.
+
+[^611]: Sios wada yên tebuat dari emas yên digunoke peranti minum serto angsal jugo digunoke peranti nukar.
+
+[^612]: Nurut syare’at Nabi Ya’qub, sinten saos semawo dades ukumannyo dades buda’ setaun.
+
+[^613]: Wênten hubungan silaturrohim serto tali dulur
+
+[^614]: Allah nyesetke retinyo bahwo wong niku seset kerno keingkarannyo serto nano ayun terti petunju’-petunju’.
+
+[^615]: Wong Yahudi serto Nasroni yên sampun maso’ Islam.
+
+[^616]: Pado saben maso wênten hukum yên diberlakuke ole Allah ates hambo-hambo-Nyo sesuai dengen garis kebijakan-Nyo.
+
+[^617]: Ulama’-ulama’ Ahli Kitab yên melu’ Islam
+
+[^618]: Al-Qur’an ditûrûnke jerû baso Arab, dîdînyo reti bahwo Al-Qur’an peranti bangso Arab saos, tapi peranti sedanten wong.
+
+[^619]: Peristiwo yên sampun dades pado kaum-kaum kerîhîn serto ni’mat serto siksoan yên dialami wong-wong niku.
+
+[^620]: Retinyo selamat dari sedanten bencano
+
+[^621]: Temaso’ kalimah yên sae nikula kalimah tauhid ya'ni sedanten kelapan yên ngengken kepado keleseran serto nyegah kemungkaran serto damelan sae. Kalimah tauhid, peca’ kalimah Lā ilāha illallāh.
+
+[^622]: Temaso’ jerû kalimah yên bûrû’’ nikula kufur, syiri’, sedanten kelapan yên nano sae serto damelan yên nano sae.
+
+[^623]: Yên dima’sud kelapan-kelapan yên tegû di ngeriki nikulah kalimah ṭoyyibah yên dikelap jerû ayat 24 di pucu’
+
+[^624]: Ayat-ayat (syare’at) Allah yên tegû peca’ gunung.
+
+[^625]: kelap-kelap niki dikelapke olê wong-wong kafir Mekah kepado Nabi s.a.w. sebagî ejekan.
+
+[^626]: Ayat niki ngesungke jaminan tentang kesucian serto kemurnian Al Quran selami-laminyo.
+
+[^627]: Maksud sunnatullah di ngeriki ya'ni minasoke wong-wong yên nustoke rasul.
+
+[^628]: Ma’sudnyo sedanten sesios niku sumbernyo dari Allah s.w\.t.
+
+[^629]: Dimaksud dengen sujud di ngeriki dêdê nyemba, tapi sebagî penghormatan.
+
+[^630]: Maksudnyo iblis mohon supayo Dio nano diazab dari sekarang melianke di sungke kebebasan urip nggût dinten bebangkît.
+
+[^631]: ya'ni waktu tiupan petamo tando pemulaan dinten kiamat
+
+[^632]: Yên dimaksud dengen mukhlis ya'ni wong-wong yên sampun di sung taufiq peranti naati sedanten petûnjû’ serto perînta Allah s.w\.t.
+
+[^633]: Maksudnyo sungan taufiq dari Allah s.w\.t. peranti naati-Nyo, nggût sios wong telepas dari tipu daya syaitan numuti jalan yên lempeng yên dijago Allah s.w\.t. dades seset atawa dêdênyo sios wong wêntenla Allah yên nentuke.
+
+[^634]: Sejahtera dari bencano serto aman dari malapetako
+
+[^635]: Tamu Nabi Ibrahim a.s. di ngeriki ya'ni malaêkat.
+
+[^636]: yên dimaksud dengen sios wong ana’ lanang yên alim ya'ni Ishak a.s.
+
+[^637]: Pasatila lagi surat Hud ayat 81.
+
+[^638]: Riwayat Luth jerû surat Hijr niki, nano diceritoke nûrût urutan kedadesan peca' sami surat Hud.
+
+[^639]: Wong-wong niku pengen bedamel homosexual dengen tamu-tamu niku serto wong-wong niku memang sampun perna ngancam Luth, supayo nano ngalangi wong-wong niku dari sami bedamel ma'niku.
+
+[^640]: Wong Arab biaso besumpa dengen umur sios wong. dingeriki Allah besumpa dengen umur atawa urîp Nabi Muhammad s.a.w. peranti mulioke beliau.
+
+[^641]: Yên dimaksud kota di ngeriki ya'ni kota Sadom yên teleta’ para' pantai laut Tengah.
+
+[^642]: Pendudu’ Aikah niki ya'ni kaum Syu'aib. Aikah ya'ni enggon yên behutan di daerah Madyan.
+
+[^643]: Ya'ni kota kaum Luth (Sadom) serto Aikah
+
+[^644]: Penduduk kota Al-Hijr niki ya'ni kaum Tsamud. Al-Hijr enggon yên terletak di Wadi Qura antaro Madinah serto Syria.
+
+[^645]: Yên dimaksud Rasul-rasul di ngeriki ya'ni shaleh. Mestinyo di ngeriki disebut rasul, tapi disebut Rasul-rasul (Jama') kerno nustoke wong Rasul sami dengen rasul-rasul.
+
+[^646]: Peristiwa niku tedades sami dinten yên kesekawan, sesampun rawûnyo peringetan kepado wong-wong niku.
+
+[^647]: Yên dimaksud pitu ayat yên dibaco benemen-nemen ya'ni surat Al-Faatihah yên tediri dari pitu ayat. sebagêan ahli tafsir ngelapke pitu surat-surat yên panjang ya'ni Al-Baqarah, Ali Imran, Al-Maaidah, An-Nissa', Al 'Araaf, Al An'aam serto Al-Anfaal atawa At-Taubah.
+
+[^648]: Yên dimaksud dengen wong-wong yên magê-magê kitab Allah ya'ni wong-wong yên nerimo sebagêan isi kitab serto nola’ sebagêan yên lian.
+
+[^649]: Ya'ni wong-wong Yahudi serto Nasrani yên magê-magê Al Quran, wênten bagêan yên wong-wong niku pecayai serto wênten pulo' bagêan yên wong-wong niku ingkeri.
+
+[^650]: Maksud ayat 89, 90, 91, ya'ni Allah s.w\.t. ngengken Nabi Muhammad s.a.w. ngingetke kepado wong Yahudi serto Nasrani bahwo Allah ayun nurunke azab kepado wong-wong niku peca' Allah sampun minasoke kaum Tsamud.
+
+[^651]: ya’niki wong-wong yên ngewênteni ilmu tentang nabi serto kitab-kitab.
+
+[^652]: ya’niki wong-wong yên ngewênteni pengetahuan tentang nabi lan kitab-kitab
+
+[^653]: Menurut sebagian ahli tafsir, “takhawwuf” berarti jerû kewêntenan wedhi
+
+[^654]: wong-wong niku ngelapke bahwo Allah ngewênteni buda' betino ya’niku malaêkat-malaêkat kereno wong-wong niku benci nian kepado buda'-buda' betino sema’mano pado ayat-ayat selanjutnyo.
+
+[^655]: Ayat niki sala sios dasar ukhuwah serto pesamoan jerû Islam.
+
+[^656]: maksud dari perumpamoan niki iola peranti manta wong-wong musyrikun yên nyomoke Tuhan yên magî rezeki dengen berhalo-berhalo yên nano bedayo.
+
+[^657]: yên dimaksud dengen “rencang” dingeriki iola napi-napi yên wong-wong niku samba selian Allah atawa setan-setan yên ngolo’i wong-wong niku  nyemba berhalo
+
+[^658]: yên dimaksud dengen “rencang” dingeriki iola napi-napi yên wong-wong niku samba selian Allah atawa setan-setan yên ngolo’i wong-wong niku  nyemba berhalo
+
+[^659]: Maksudnyo: siksoan yên belipet gando
+
+[^660]: Kaum Muslimin yên rikinannyo maler setitik niku sampun ngadoke persemayoan yên kuat dengen Nabi di waktu wong-wong niku nyingo’ wong Quraisy berikinan kata serto bepangalaman cekap, dades wong-wong niku ayun matalke persemayoan dengen Nabi Muhammad SAW niku. dades damelan yên ma’niku niku dilarang ole Allah SWT.
+
+[^661]: Ditekenke jerû ayat niki bahwo lanang serto betino jerû Islam napet pahalo yên sami serto bahwo amal solė mesti disertoi iman.
+
+[^662]: Baso Ajam wêntenla baso selian baso Arab serto angsal jugo berarti baso Arab yên nano saê kereno wong yên ditûdû ngajar Muhammad niku dîdînyo wong Arab serto wikan setitik-setitik baso Arab saos.
+
+[^663]: Maksudnyo kebuluran serto ketakutan niku ngeliputi wong-wong niku ma’kayo kelambi ngeliputi awa’ wong-wong niku.
+
+[^664]: Tingali surat Al-An’am ayat 146
+
+[^665]: Hanif maksudnyo sesios wong yên serîng becekel pado keleseran serto nano perna ninggalkeyo.
+
+[^666]: Dengen jalan ngatake ibadat serto amalan-amalan sole serto ninggalke damelan sehari-hari
+
+[^667]: Maksudnyo pembalesan  yên dinyampa’ke peranti wong-wong niku nano angsal ngelebihi dari siksoan yên ditimpoke peranti kito.
+
+[^668]: Mesjidil Aqso serto daera sekiternyo angsal berkah dari Allah dengen diturunke nabi-nabi di negeri niku berikut kesuburan lemanyo.
+
+[^669]: Bekelap kato “ai da” kepado walid nano diangsalke oleh agami, napi male bekelap kelapan atawa ndamelke wong-wong niku dengen lebî kasar dari pado niku.
+
+[^670]: Retinyo napi bilo niko nano wikan damelke perinta Allah peca’ yên tecerios jerû ayat 26 mangko kelapkela kepado wong-wong niku kelapan yên leser, supayo wong-wong niku nano cuga’ kerno wong-wong niku déréng angsal bantuan dari niko. Jerû pado niku bedamel peranti angsal rezeki (rahmat) dari Tuhan niko, supayo niko angsal ngesung kepado wong-wong niku hak-hak wong-wong niku.
+
+[^671]: Ningal catetan Al An’am (6) : 151.
+
+[^672]: Kekuasoan di ngeriki iola hal ahli waris yên tebunu atawa sirah peranti nuntut qisas atawa nerimo diat. Ningal Al-Baqoroh (2): 178, serto An-Nisā (4): 92.
+
+[^673]: Sedanten larangan yên dikelap pado ayat 22, 23, 26, 29, 31, 32, 33, 34, 46, serto 37 suroh niki.
+
+[^674]: Mukjizat yên songo niku wêntenla: tongkat, tangan, belalang, tumo, kodok, dara, topan, laut, serto bukit Thur.
+
+[^675]: Nano wênten makna yang belawanan serto nano wênten penyimpangan dari keleseran
+
+[^676]: Sebagîan mufasir ngertike nami anjing serto sebagîan liannyo ngertike batu besirat
+
+[^677]: Allah nilemke wong-wong niku 309 taun qomaria di jero guo niku (tingal ayat 25 dari surat niku) sehinggo wong-wong niku nano angsal dibangunke sami suaro napi saos.
+
+[^678]: Keduo golongan niku wêntenla bujang-bujang niku dêwê’ yên beselisi tentang pinten lambatnyo wong-wong niku nêtêp di jero guo niku.
+
+[^679]: Maksudnyo: tegak di luan rajo Dikyanus (Decius) yên zalim serto nyombongke diri.
+
+[^680]: Kelapan niki tedades antaro wong-wong niku dêwê’ yên nongolnyo kereno ilham dari Allah.
+
+[^681]: Yên wong-wong niku peselîsîke niku tentang dinten kiamat: napila ayun tedades atawa nano serto napibilo dibangkîtke pado dinten kiamat dengen jasad atawa roh atawa dengen roh saos. Dadesnyo Allah manggîke wong-wong niku dengen pemuda-pemuda jero kiso niki peranti nyelaske bahwo dinten kiamat niku cengki rawu serto bebangkît niku wêntenla dengen tûbû serto jiwo.
+
+[^682]: Yên dimaksud dengen wong yên ayun ngelapke niki diola wong-wong ahli kitab serto lian-liannyo pada zaman Nabi Muhammad s.a.w.
+
+[^683]: Nûrût riwayat, wênten pinten-pinten wong Quraisy betaken sami Nabi Muhammad s.a.w. tentang roh, kisa ashhabul kahfi (penunggu guo) serto kisa Dzulqarnain sampun niku beliau nyawab, rawula benjîng pagi sami kulo supayo kulo kisoke. serto beliau nano ngelapke Insya Allah (retinyo kalu Allah ngayun). tapi kironyo sampî benjeng dintennyo wahyu telat rawu peranti nyerioske hal-hal tesebut serto Nabi nano angsal nyawabnyo. Dadesnyo turunla ayat 23-24 di pûcûk, sebagî pelajaran sami Nabi; Allah ngimutke pulo napibilo Nabi lali ngelap Insya Allah mesti begancang ngelapkennyo Mengkîn.
+
+[^684]: Sami wong-wong mukmin serto wong-wong kafir.
+
+[^685]: Kale wong Yahudi yên sios wong mukmin serto yên lian kafir.
+
+[^686]: Dengen keangkuan serto kekafirannya.
+
+[^687]: Yên dimaksud dengen waktu di ngeriki wêntenla dinten bebangkît yên sampun disemayoanke Allah peranti nerimo balesan.
+
+[^688]: Sujud di ngeriki retinyo ngormati serto mulioke Adam, nanola retinyo sujud ngambake diri, kereno sujud ngambake diri niku cuma semato-mato sami Allah.
+
+[^689]: Kelap ahli tafsir, murid Nabi Musa a.s. niku wêntenlaYusya’ bin Nun.
+
+[^690]: Kelap ahli tafsir hamba di ngeriki wêntenla Khidhr, serto yên dimaksud dengen rahmat dingeriki wêntenla wahyu serto kenabian. sedeng yên dimaksud dengen ilmu wêntenla ilmu tentang yên ghaib ma’ kayo yên ayun diterangke dengen ayat-ayat niki.
+
+[^691]: Sampe di pantai sebela barat, panggonan Zulkarnain ningal matoari sedeng tegelînsîr’.
+
+[^692]: Nurut sebagîan mufasir, golongan yên dipanggi Zulkarnain niku umat yên mîskîn.
+
+[^693]: Wong-wong niku nano wikan ngêrtike bahaso wong lian, kerno wong-wong niku sangat tebî bezonyo dari bahaso yên lian, serto wong-wong niku saos nano wikan nerangke maksud wong-wong niku dengen leser kerno kekirang cerdasan wong-wong niku.
+
+[^694]: Ya’jūj serto Ma’jūj iolah duo bangso  yên daemelk kerusa’an di bumi.
+
+[^695]: Nano beiman kepado dinten Kiamat
+
+[^696]: Pelajarila Taurat niku, damelke isinyo, dan kisokela kepado umat niko.
+
+[^697]: Pemahaman Taurat serto pendaleman agami
+
+[^698]: Sampun sedanten alam niki ancur, mangko Allah saos yên kekel.
+
+[^699]: Nabi Ibrahim a.s. wêntenla sios nabi yên gancang nian ngeleserke sedanten hal yên ghoib yên rawunyo dari Allah
+
+[^700]: Sebagîan mufassir bekelap bahwa yên dima’sud ahlahu ya’ni sana’nyo, serto sebagîan bekelap umatnyo.
+
+[^701]: Mangjangke umur serto miarke wong-wong niku idup jerû keladasan.
+
+[^702]: Allah ayun mantu’ ngembil harto serto buda’-buda’nyo, sehinggo dio nemui Allah sesios dewe’.
+
+[^703]: “Ngewêntenke semayoan dengen Allah” ya’ni nyalanke sedanten perinta Allah dengen beiman serto betaqwa kepado-Nyo.
+
+[^704]: Sifat Allah yên wajib kito imani, sesuai dengen keagengan Allah serto kesucian-Nyo.
+
+[^705]: Maksud ayat niki wêntenla nano perlu ngagengke suaro jerû bedo’a kerno Allah ngerungu do’a meski dikelapke dengen suaro alit
+
+[^706]: Nabi Musa a.s. nedo kepado Allah agar dadonyo dilapangke peranti ngadepi Fir’aun yên tekelahar sebagî sesios wong rajo yên bengis
+
+[^707]: Sedanten wong yên ningal Nabi Musa a.s. ayun ngeraso kasî sayang kepadonyo.
+
+[^708]: Yên tebunu wêntenla sesios wong bangso Qibṭi yên sedeng bebala dengen sesios wong Bani Isroil sema’pundi yên dicerioske jerû Al-Qaṣaṣ (28) :15.
+
+[^709]: Nabi Musa a.s. rawu ke negeri Madyan peranti ngelarike awa’nyo dewe’, di ngeriko dio dikawenke ole Nabi Syu’eb a.s. dengen sala sesios putrinyo serto netep pinten-pinten tahun laminyo.
+
+[^710]: Bani Isroil sewaktu wong-wong niku wênten di Mesir wêntenla di bawa pebuda’an Fir’aun. Wong-wong niku dikengken bedamel peranti nega’ke bangunan-bangunan yên ageng serto kota-kota dengen damelan pakso. Dadesnyo Nabi Musa a.s. nedo kepado Fir’aun agar wong-wong niku dibebaske.
+
+[^711]: Ngesung akal, insting (naluri) serto kodrat alamia peranti kelanjutan idupnyo dewe’-dewe’.
+
+[^712]: Yên dimaksud dengen tando-tando di ngeriki wêntenla tando-tando kenabian Musa a.s. Pado haderengan Nabi Musa a.s. dengen Fir’aun niki, yên ditingalke anyar duo mu’jizat, wêntenla tongkat Nabi Musa a.s. dades ulo serto tangannyo dades pûtî becahayo.
+
+[^713]: Ngebuk laut niku dengen tongkat. Ningal Asy-Syu’arā’ (26) : 63
+
+[^714]: Wong-wong niku dikengken bakto pehiasan dari emas punyo wong-wong Mesir, sampun niku ole Samiri disaranke supayo pehiasan niku dibabetke ke jerû api yên sampun dimurupkenyo jerû sios lobang peranti didadeske patung bebentuk sapi alit. Sampun niku wong-wong niku mabîtkenyo serto ditumuti oleh Samiri.
+
+[^715]: Ningal catetan al-A’rof (7) : 148
+
+[^716]: Yên dimaksud “jejak rosul” di ngeriki wêntenla ajaran-ajarannyo. Nurut faham niki Samiri ngembil sebagîan ajaran Musa sampun niku dibabîtkenyo ajaran-ajaran niku sehinggo dio dades seset. Nurut sebagîan mufassir, yên dimaksud “jejak rosul” wêntenla jejak telapak kudo Jibril a.s., retinyo Samiri ngembil segumpal tana dari jejak telapak kudo niku sampun niku mabîtkenyo ke jerû logam yên sedeng diancurke sehinggo logam niku bebentû’ sapi alit yên metuke suaro.
+
+[^717]: Supayo Samiri idup tepencîl, sebagî hukuman di dunio. Serto sebagî hukuman di akhirat, dio ayun di panggonanke di nerako.
+
+[^718]: Tiupan sangkakala yên keduo, ya’ni tiupan peranti bangkîtke wong dari kuburnyo atawa mantu’ ngidupkennyo.
+
+[^719]: Wong yên lurus fikirannyo peranti amalnyo di antaro wong yên bedoso.
+
+[^720]: Nabi Muhammad saw. dilarang oleh Allah niruke bacoan Jibril a.s. kalima demi kalima sedereng Jibril a.s. sampun macokenyo, supayo Nabi Muhammad saw. mengafal serto terti leser-leser ayat yên diturunke.
+
+[^721]: Pesen Allah niki tekelap jerû Al Baqoroh (2) : 35.
+
+[^722]: Yen dimaksud “durhako” di ngeriki wêntenla ngelanggar larangan Allah kerno lali, nano sengajo, sema’pundi dikelapke jerû ayat 115 suroh ngeriki. Serto yên dimaksud “seset” wêntenla numuti napi yên dibisi’ke setan. Kesalahan Adam a.s. meski nano ageng nian nurut ukuran wong awam sampun dinamike durhako serto seset kerno tingginyo martabat Adam a.s. serto peranti dades teladan peranti wong ageng serto sira-sira supayo jauhi damelan-damelan yên telarang, sema’ pundi alitnyo.
+
+[^723]: Allah milih Nabi Adam a.s. peranti dades wong yên para’ kepado-Nyo.
+
+[^724]: Terti sihir di ngeriki wêntenla ayat-ayat Al Qur’an.
+
+[^725]: “Dari bucu Kamê” wêntenla yên sesuai dengen sifat-sifat Allah.
+
+[^726]: Sangkoan bahwo Allah wênten sema serto buda’.
+
+[^727]: Kelapan-kelapan niku dikelapke Nabi Ibrohim a.s. jerû ati saos. Maksudnyo. Nabi Ibrohim a.s. ayun nyalanke mudike peranti ngancurke patung-patung wong-wong niku, sampun wong-wong niku ninggalke tempat-tempat patung niku.
+
+[^728]: Negeri Syam, temasuk di jerûnyo Palestina. Allah merkahi negeri niku, retinyo kata nabi berasal dari negeri niku serto tananyo subur
+
+[^729]: Homoseksual serto malîng, serto wong-wong niku damelke damelan niku dengen terang-terangan.
+
+[^730]: Nûrût riwayat Ibnu Abbas, wênten sekelompok kambîng sampûn ngerusak taneman pado waktu malam. Pemili’ taneman ngaduke hal niki kepado Nabi Dawud a.s. Dio mutuske bahwa kambîng-kambîng niku mesti disungke kepado pemîlî’ taneman sebagî ganti taneman yên rusa’. Tapi Nabi Sulaiman a.s. mutuske supayo kambîng-kambîng niku disungke sementaro kepado pemili’ taneman peranti diembil manfaatnyo. Serto pemili’ kambîng diharuske ngenti taneman niku dengen taneman yên anyar. Napibilo taneman yên anyar sampun wikan diembil hasilnyo, pemili’ kambîng niku angsal ngembil kambîngnyo male. Keputusan Nabi Sulaiman a.s. langkung leser.
+
+[^731]: Di jerû perut iwa’, di jerû laut, serto pado malem ari.
+
+[^732]: Sekironyo Allah nano ngabulke do’anyo, wêntenla ngesung zuriyat. Zakaria nyerake awa’nyo dewe’ kepado Allah, kerno Allah wêntenla ahli waris yên teleser
+
+[^733]: Sedanten kitab yên ditûrûnke kepado nabi-nabi-Nyo. Sebagîan mufassir nyatoke bahwa “Zabur” wêntenla kitab yên ditûrûnke kepado Nabi Dawud a.s. sedengeke “Aż-Żikr” wêntenla kitab Taurot.
+
+[^734]: Nano dengen kebeg keyakinan.
+
+[^735]: Mantu’ kafîr male.
+
+[^736]: Kaat samā’ di ngeriki di retike dengen langit-langit (bûbûngan rompo’). Kalu samā’ diretike dengen langit (reti biaso), mangko tejemahannyo dades: kalu musu Muhammad saw mara kerno dio angsal petolongan dari langit, lanta’la wong-wong niku bentangke tali ke langit, serto ningalla, wikan nano wong-wong niku mûtûske pertolongan niku dengen caro ma’niku? Dengen bayak lian, benga’ nian wong-wong niku kalu ngiro wong-wong niku wikan mûtûske petolongan Allah dengen caro yên picik niku.
+
+[^737]: Dinten rayo aji serto dinten Tasyriq, wêntenla tanggal 10, 11, 12 serto 13 Zulhijjah.
+
+[^738]: Yên dima’sud dengen “ngilangke kotoran” di ngeriki wêntenla neta’ rambut, neta’ kuku serto sebagînyo.
+
+[^739]: Reti yên tehormat (ḥurumāt) pado ayat niki wêntenla bulan harom (Muharrom, Rojab, Zulqoidah, Zulhijjah), tanah harom, serto maqom Ibrohim.
+
+[^740]: Syiar Allah wêntenla sedanten damelan yên didamelke pado ibadah haji serto panggonan-panggonan damelkennyo.
+
+[^741]: Ningal Al Baqoroh (2): 196.
+
+[^742]: Maksudnyo, binatang-binatang hadyu angsal niko embil manfaatnyo peca’ dikendaroi, diembil susunyo, serto sebagîannyo, sampe dinten nahar.
+
+[^743]: Lazimnyo, unto disembelî jerû posisi tega’.
+
+[^744]: Sebagîan mufassir ngertike tamannā dengen “maco” serto umniyyatihi dengen “bacoannyo.” Ya’ni napibilo Nabi saw maco sesios ayat yên isinyo ngesûngke pengimutan kepado wong-wong kafir, wong-wong niku begancang numuti bacoan Nabi saw, dengen tambahan bayak-bayak yên meleserke keyakinan wong-wong niku.
+
+[^745]: Buda’ belian yên wênten beperang dengen wong kafîr, dîdînyo buda’ yên selian perang. Yên ma’niki dinten nano wênten
+
+[^746]: sebagîan wong sampun padem, serto sebagîan lian dilaîrke.
+
+[^747]: Ma’niku saos buru’nyo akibat wong-wong niku, sampî wong-wong niku nano bedayo setiti’ saos, nano ubanyo peca’ sampa yên dianyutke banjîr. Padohal wong-wong niku badannyo ageng jugo kuat.
+
+[^748]: Mu’jizat Nabi Musa AS yên songo macem.
+
+[^749]: Bahayo kelaparan. Kaum Musyrik perna ngalami kelaparan, keremo nano rawunyo teedoan dari Yaman ke Mekah, sedeng Mekah serto segelemngnyo lagi paceklik, sampî melarat nian pado waktu niku.
+
+[^750]: Antaro lian kekalaan wong-wong niku pado perang Badar, yên jerû perang niku wong-wong tekemuko dari wong-wong niku kata nian tebunu  atawa ditawan, serto musîm kerîng yên nimpo wong-wong niku, sehinggo wong-wong niku kelaparan.
+
+[^751]: Diancem dengen dinten bebangkît.
+
+[^752]: Barzakh, ya’ni panggonan atawa kewêntenan wong sesampun padem sampî dio bangun lagi pado dinten kiamat.
+
+[^753]: Nano pantes wong beiman nika sami pezina, ma’niku jugo sebale’nyo.
+
+[^754]: Maksud ayat 6-7 iola wong yên nudu dades lonte dengen nano ngajuke sekawan saksi, mesti besumpa dengan nami Allah sekawan kali, bahwo dio wêntenla leser sami tuduannyo niku/ sesampun niku dio besumpa lagi bahwo di ayun keno laknat Allah kalu dio ngota’i. Masala niki wênten jerû fiqhdikelap dengen li’an.
+
+[^755]: Kabar ngota’i niki tentang sema Rosululla SAW, Aisyah R.A. Ummul Mukminin, sesampun perang denegn Bani Mustaliq pado bulan Sya’ban 5 H. pepeerangan niku ditumuti kaum munafik serto tumut pulo' Aisyah r.a dengen Nabi Muhammad SAW. Berdasarke undian yên diwêntenke di antaro sema-sema Rosul. Pado pejalanaan mantû’ dari perang, wong-wong niku mandeg sios panggonan. Aisyah r.a. metu dari sekedupnyo niku peranti sios kepentîngan, sesampun mantû’ tumpa'-tumpa' dio ngeraso kalungnyo lenget, sampun niku dio kesa ngerunutnyo lagi. Sementaro niku rombongan kesa dengen sangkoan Aisyah maler wênten jerû sekedupnyo. Sesampun Aisyah r.a wikan sekedupnyo sampun kesa, dio lînggî di panggonannyo serto ngarepke sekedup niku ayun mantû’ nyemputnyo. Kebetulan saos di panggonan niku lewat sios sahabat Rosululla SAW. Safwan Ibnu Mu’atal, ditemukenyo sios wong sedeng tilem dewe’an, serto dio kaget serayo bekelap: “Innalillai wa Inna Ilai Rojiun, sema Rosululla”. Aisyah r.a. bangun. Sampun niku dio dipersilake ole Safwan numpa’i untonyo. Safwan melaku nuntun unto sampî tibo di Madinah. Wong-wong yên ningal ngelapkenyo nurut sangkoan dewe’-dewe’. dadesla wênten gunjengan, sesampun kaum munafik ngagengke kabar niku, fitnah tehadep Aisyah r.a betamba nyebar sehinggo nimbûlke keguncangan di kalangan kaum muslimin
+
+[^756]: Yên dima’sud dengen betino-betino yên lengah niku saos betino-betino yên nano perna temut dengen damelannyo yên keji.
+
+[^757]: Ayat niki nunjû’ke kesucian Aisyah r.a serto Safwan dari sedanten fitnahan yên dituduke kepadonyo. Rosululla wêntenla wong yên langkung saî, dades betino yên saê pulo'’ yên dades semanyo.
+
+[^758]: Lobang yên nano tembûs (misykat) niku saos sios lobang di dinding rompo’ yên nano nembûs sampî ke sebelanyo. Bisaonyo digunoke peranti lepe’ke lampu atawa barang liannyo.
+
+[^759]: Pohon zaitun niku tûmbû di punca’ bukit. Dio napetke sinar matoaridi waktu terbit atawa tebenem. Dades pohonnyo sûbûr serto buanyo ngasilke minyak yên se.
+
+[^760]: Wong-wong kafîr, kerno amal-amal wong-wong niku nano didasarke dengen iman, nanola angsal balesan dari Allah di akhîrat, walau di dunio wong-wong niku nyangko ayun angsal balesan dari amal wong-wong niku.
+
+[^761]: Di antaro sesami kaum muslimin, serto di antaro kaum muslimin dengen yên dîdînyo muslim.
+
+[^762]: Tigo macem waktu yên biasonyo pado waktu-waktu niku badan kata tebuka’. ole sebab niku, Allah ngelarang buda’ belian serto buda’-buda’ di bawa umur masu’ ke rompo’ tilem wong ageng.
+
+[^763]: Buda’-buda’ dari wong merdeka yên dîdînyo muhrim yên sampun baligh, supayo nedo izin dumin kalu ayun masu’ rompo’ tilem wong tuo, peca’ caro wong-wong yên disebut jerû ayat 27 serto 28 pado ayat niki.
+
+[^764]: Kelambi jabo yên kalu dibuka’ nano nampa’ke aurat
+
+[^765]: Rompo’ yên diserenke kepado kaum peranti ngurusnyo.
+
+[^766]: Wong-wong niku ngarepke kebinasoan, supayo telepas dari sikso yên ageng nian, yakni azab di nerako yên panas nian dengen dibelenggu, di panggonan yên sempît nian sema’pundi yên digambarke niku.
+
+[^767]: Sesampun wong-wong niku dikumpulke besami-sami dengen napi yên wong-wong niku semba, yaitu malaikat , Uzair, Nabi Isa as serto behalo-berhalo, serto sampun Allah nakenke kepado yên disemba niku, napi wong-wong yên nyesetke wong-wong niku atawa wong-wong niku yên seset dewe’, dades yên disemba niku nyawab bahwa nano pantes peranti wong-wong niku nyemba selian Allah, napi lagi ngengken wong lian nyemba selian Allah.
+
+[^768]: Niki ungkepan yên biaso dikelapke ole wong Arab ketiko panggi musu yên nano angsal diela’ke, atawa ditimpo sios bencano yên nano angsal dihindari. Ungkepan niki retinyo “mugi-mugi Allah nginderke bahayo niki dari kulo.”
+
+[^769]: Amal-amal saê yên wong--wong niku damelke di dunio. Amal-amal niku nano dibales Allah kerno wong-wong niku nano beriman.
+
+[^770]: Kerajaan yên hak, wêntenla kekuasoan yên mutlak.
+
+[^771]: Setan atawa wong yen sampun nyesetkenyo di dunio
+
+[^772]: Al-Qur’an niku nano ditûrûnke sekaligus, tapi ditûrûnke secaro betahap supayo ati nabi Muhammad SAW dades kuat serto istiqomah
+
+[^773]: Rass wêntenla telago yên sampun kerîng banyunyo. Sampun niku didadeske nami sios kaum, ya’ni kaum Rass. Wong-wong niku nyemba patung, sampun niku Allah ngûtûs Nabi Syuaib AS kepado wong-wong niku.
+
+[^774]: Bayang-bayang niku kame’ apuske dengen lambat sesuai dengen tebenemnyo matoari setiti’ ke setîtî’.
+
+[^775]: Musaharoh retinyo hubungan kekeluargoan yên berasal dari hubungan nika ma’kayo menantu, ipe, mertuo, serto seliannyo.
+
+[^776]: Supayo Harun diangkat dades Rosul peraanti nolongnyo.
+
+[^777]: Musa mantep besami Fir’aun seja’ alit, lebî kirang 18 taon.
+
+[^778]: Damelan nabi Mua as. Munu wong Qibti. Tingali al-Qashash (28) : 15
+
+[^779]: Tali-temali serto tongkat-tongkat yên dibabîtke pesihir niku yen tebayang peca’ dades ulo, sedantennyo ditelen ole tongkat nabi Musa as yên leser-leser dades ulo.
+
+[^780]: Dengen pengejeran Fir’au serto kaummnyo peranti nutul Nabi Musan as serto Bani Israil, dades wong-wong niku sampun metu dari negeri wong-wong niku, ninggalke kerajoan, keagengan, kemewahan serto liannyo.
+
+[^781]: Allah ayun ngesungke kepado Bani Israil kerajoan yên kuat, kerasulan seto liannyo.
+
+[^782]: Yen dimaksud golongan yên lian niku saos Fir’aun serto kaumnyo. Maksud ayat niki wêntenla di bagian laut yen teteta’ niku Allah mara’ke antaro Fir’au serto keumnyo dengen Nabi Musa as serto Bani Israel.
+
+[^783]: Wêntenla pendûdû’ Madyan, ya’ni kaum Nabi Syuaib as
+
+[^784]: Yen dima’sud dengen ayat niki wêntenla bahwo sebagîan penyair niku gala’ maenke kelap-kelap, nano wênten ma’sud tujuan yen saê, serto nano punyo penawa'an.
+
+[^785]: Lepe’ke tangan ke dado dari gulo kelambi.
+
+[^786]: Nabi Sulaiman as. Ngentike kenabian serto kerajoan Nbi Daud as. Serto ngewarisi ilmu dari kitab Zabur yên ditûrûnke kepadonyo.
+
+[^787]: Hud-hud wêntenla ma’kayo bûrûng pelatu’
+
+[^788]: Saba’ wêntenla nami kerajoan pado zaman kerîhîn, ibu kotanyo Ma’rib, para’ kota San’a, ibu kota Yaman ma’niki dinten.
+
+[^789]: Ratu Balqis yên merinta kerajoan Sabaiyah pado zaman Nabi Sulaiman as.
+
+[^790]: Ma’kayo nûrûnke ujan dari langit, nûmbûke tanam-tanaman, metuke logam dari bumi, serto liannyo.
+
+[^791]: Kitab di ngeriki ma’sudnyo kitab yên ditûrûnke sedereng nabi Sulaiman as ya’ni Taurat serto Zabur.
+
+[^792]: Balqis sampun wikan kenabian Sulaiman as. Sedereng singgasanonyo dipindake dari negeri Saba’ ke Palestina sekejepan mato.
+
+[^793]: Nûrût mufassir, yên dima’sud dengen kota niki wêntenla kota kaum Samud, ya’ni kota al-Hijr.
+
+[^794]: Nabi Saleh as. Serto sedanten penumutnyo
+
+[^795]: Ma’sud fahisyah di ngeriki wêntenla penyimpangan seks, temasû’ homoseks.
+
+[^796]: Kale laut di ngeriki wêntenla laut yên asin serto sungi ageng yên bemuaro di laut. Sungi yên tawar niku sampun sampî di moaro nano langsung dades asin.
+
+[^797]: Fir’aun kerep takût bahwo kerajaannyo ayun diancurke ole Bani Isroil, kerno niku dio munu anak-anak lanang yên lair di gûgûk Bani Isroil. Ayat niki nyatoke bahwo ayun tedades napi yên ditakûtkenyo niku.
+
+[^798]: Sesampun emaknyo Musa nganyutke Musa di sungi Nil, dades timbûl nyesel serto ripal atinyo kerno getun dengen keselametan Musa, mala ampîr saos dio nyerît nedo tolong kepado wong peranti ngembil anaknyo niku mantû’, yên ayun ngakibatke tebuka’nyo resio bahwo Musa wêntenla anaknyo dewek.
+
+[^799]: Musa a.s. nyesel dengen pademnyo wong niku kerno gocoannyo, kerno dio dîdîla bekendak peranti mununyo, tapi cuman semato-mato mela kaumnyo.
+
+[^800]: Sesampun Musa a.s. nelaske semayoan dengen Syu’aib a.s. dio kesa besami keluargonyo dengen sejumla kambing yên disung mertuonyo, dades pado sios malem yên gelep nian serto dingin Musa a.s. sampe di sios panggonan, tapi sedanten dio mûrûpke api, suletan api nano ayun mûrûp. Hal niku ngeranke nian Musa, dades dio bekelap kepado semanyo pecak disebut jerû ayat 29.
+
+[^801]: Di panggonan serto saat niku saos Nabi Musa a.s. mula-i mungga dades rosul.
+
+[^802]: Nabi Musa a.s. selian ngeraso takut kepado Fir’aun jugo ngeraso awa'nyo kirang lancar bekelap ngadepi Fir’aun. dades dimohonkenyo supayo Allah ngûtûs Nabi Harun a.s. besaminyo, yên langkung lancar ngomongnyo.
+
+[^803]: Nûrût sebagîan mufasir, yên dikendaki sihron wêntenla Kitab Taurot serto al-Qur’an..
+
+[^804]: Sesampun wong-wong niku ancûr, panggonan niku sampun kosong serto nano dimakmurke lagi, hinggo mantû’la dio kepado yên punyonyo yên hakiki wêntenla Allah.
+
+[^805]: Wong yên disung kelema’-an îdûp duniawi, tapi nano digunokenyo peranti ngerunut kebahagioan îdûp di akhîrat, kerno niku dio di akhîrat diseret ke jerû nerako.
+
+[^806]: Saksi di ngeriki wêntenla rosul yên sampun diutus kepado wong-wong niku pado waktu di dunio.
+
+[^807]: Karun wêntenla sala sios anak  mamang Nabi Musa a.s.
+
+[^808]: Lola suargo
+
+[^809]: Kota Mekah niki saos sios semayoan dari Tuhan bahwo Nabi Muhammad Saw ayun mantuk ke Mekah sebagî wong yên menang, serto niki sampun dades pado taon kelapan Hijriya, pado waktu Nabi naklu’ke Mekah. Niki ngerupoke sios mukjizat peranti Nabi Saw.
+
+[^810]: Wong niku takut kepado kezoliman wong, ma’kayo ketakutannyo kepado azab Allah, kerno niku dio tinggalke imannyo niku.
+
+[^811]: Dio nyatoke bahwo berhalo-berhalo niku angsal ngesung syafaat kepado dio di bucu Allah, serto niki wêntenla bebudian.
+
+[^812]: Allah mangkîtke wong sesampun padem mengkin di akhîrat.
+
+[^813]: Dengen ngesungke anak cucung yên saî, kenabian yên terûs-menerûs pado dzurriyatnyo, serto puji-pujian yên saê.
+
+[^814]: Sebagîan mufasir ngertike taqta ‘unas sabil dengen “ngelakoni damelan keji tehadep wong-wong yên jerû pejalanan”, kerno dio sebagêan ageng namelke homoseksual niku dengen tamu-tamu yeng rawo ke pedaleman wong-wong niku. wênten lagi yên ngartike dengen “ngerusak jalan dzurriyat” kerno dio bedamel homoseksual.
+
+[^815]: Kabar bahwo Nabi Ibrohim a.s. ayun angsal anak lanang.
+
+[^816]: Nabi Lut a.s. ngeraso besedî ati ayun betamu utusan-utusan Allah niku kerno dio berupo bujang anom yeng cindo, sedengke kaum Lut demen nian  bujang-bujang anom yeng cindo peranti namelke homoseksual. Serto dio ngeraso nano sanggûp ngelindungi dio niku kalu wênten gangguan dari kaumnyo.
+
+[^817]: Bekas-bekas runtohan kota Sodom, negeri kaum Luth.
+
+[^818]: Allah nyiptoke sedanten yên disebutke niku dîdînyo sio-sio, melianke dengen kata hikma.
+
+[^819]: Ayat-ayat al-Qur’an niku tepeliharo jerû dado dengen dihafal ole kata kaum muslimin tûrûn-temûrûn serto difahami wong-wong niku, sehinggo nano wênten sios jugo yên angsal ngubanyo.
+
+[^820]: Ditetepke azab niku pado dinten pembalesan, di akhîrat.
+
+[^821]: Dengen murnike ketoatan semato-mato kereno Allah
+
+[^822]: Nustoke kenabian Nabi Muhammad saw.
+
+[^823]: Nikula huruf-huruf abjad yên teletak pado awal sebagian dari surat-surat Al Quran pecak: Alif laam miim, Alif laam raa, Alif laam miim shaad serto liannyo. diantaro Ahli-ahli tafsir wênten yên nyerake pengertiannyo kepado Allah kerno dipandang temasuk ayat-ayat mutasyaabihaat, serto wênten pulo golongan yên nafsirkenyo atawa yên mandangnyo sebagî nami surat, serto wênten pulo yên bependapet bahwo huruf-huruf abjad niku gunonyo peranti narîk pehatian sedanten pendengêr supayo merhatike Al Quran niku, serto peranti ngisyaratke bahwo Al Quran niku diturunke dari Allah jerû baso Arab yên tesusun dari huruf-huruf abjad. Kalu wong-wong niku nano yakin bahwo Al Quran niku diturunke dari Allah serto dîdînyo buatan Nabi Muhammad s.a.w.,  cobola wong-wong niku damel pecak Al Quran niku.
+
+[^824]: Maksudnyo: Rumawi timur yên bepusat di Konstantinopel
+
+[^825]: Maksudnyo: terpara' ke negeri Arab ya'ni Syria serto Palestina sewaktu dades jajahan kerajaan Rumawi Timur
+
+[^826]: Bangs Rumawi wêntenla sios bangso yên berigamo Nasrani yên wênten kitab suci sedengke bangsa Persia wêntenla berigamo Majusi, nyemba api serto berhalo (musyrik). keduo bangso niku salîng perang merangi. ketiko tesiar kabar kalahnyo bangso Rumawi olê bangsa Persia, dades kaum musyrik Mekah nyambutnyo dengen gembiro kerno berpihak kepado wong musyrikin Persia. sedengke kaum muslimin berduka cita kernonya. sampun niku tûrûnlah ayat niki serto ayat yên berikutnyo nerangke bahwo bangsa Rumawi sesampun kalah niku ayun angsal kemenangan jerû maso pinten-pinten wikan saos. Yên ma’niku leser-leser tedades. pinten-pinten wikan sesampun niku menangla bangsa Rumawi serto kalahla bangsa Persia. dengen kedadesan yên ma'niku nyatola keleseran Nabi Muhammad s.a.w. sebagî Nabi serto Rasul serto keleseran Al Quran sebagî firman Allah
+
+[^827]: Ya'ni antaro tigo sampî semilan taun. waktu antaro kalahnyo bangso Rumawi (wikann 614-615) dengen kemenangannyo (taûn 622 M.) bangsa Rumawi wêntenla kiro-kiro pitu taûn.
+
+[^828]: Syafa'at: usoho perentaroan jerû ngesungke sesios manfaat peranti wong lian atawa ngela’ke sesios mudharat peranti wong lian. syafa'at yên nano diterimo di sisi Allah wêntenla syafa'at peranti wong-wong kafir.
+
+[^829]: nûrût sebagêan ahli tafsir, ayat niki diretike: ... sedengke wong-wong niku dades kafir, wêntenla disebabke berhalo-berhalo.
+
+[^830]: Maksud betasbî jerû ayat 17 ya'ni semayang. ayat-ayat 17 serto 18 nerangke tentang waktu semayang yên limo.
+
+[^831]: Wong nano berigamo tauhid, dades hal niku nanola wajar. wong-wong niku nano berigamo tauhid niku cuman lantaran pengaruh lingkungan.
+
+[^832]: Maksudnyo: ninggalke igamo tauhid serto nganut pelbagî kepercayaan nûrût hawa nafsu wong-wong niku.
+
+[^833]: Yên dimaksud dengen rahmat di ngeriki ya'ni lepas dari bahaya niku.
+
+[^834]: Yên berhak nerimo zakat ya'ni: 1. wong fakir: wong yên Amat sengsaro uripnyo, nano wênten herto serto tenago peranti menuhi uripnyo. 2. wong miskin: wong yên nano cungkup serto serbo kekirangan. 3. Pengurus zakat: wong yên di sung tugas peranti ngûmpûlke serto mayar jekat. 4. Muallaf: wong kafir yên wênten harepan melebet Islam serto wong yên daru melebet Islam yên imannyo male lemah. 5. merdekake buda’: cangkup jugo peranti ngelepaske Muslim yên ditawan olê wong-wong kafir. 6. wong behutang: wong yên behutang kerno peranti kepentingan yên dêdê maksiat serto nano sanggup mayarnya. wêntenpun wong yên berhutang peranti meliharo persatuan umat Islam dibayar hutangnya niku dengen zakat, meski io mampu mayarnyo. 7. sami jalan Allah (sabilillah): ya'ni peranti keperluan pertahanan Islam serto kaum muslimin. di antaro mufasirin wênten yên bependapet bahwo fisabilillah niku nyangkup jugo kepentingan-kepentingan umum peca' nawa'ke sekolah, rompo' sakit serto lian-lian. 8. wong yên sedengke jerû lawatan yên dêdê maksiat ngalami kesengsaroan jerû lawatannyo.
+
+[^835]: Ya'ni sebagean wong-wong niku wênten jerû suarga serto sebagean male di nerako.
+
+[^836]: Pemakto kabar gembiro maksudnyo: awan yên tebel yên ditiup angin sampun niku nûrûnk ujan. kernonya angsal dirasoke rahmat Allah dengen tûmbûny biji-biji yên sampun disemaike serto hijauke tanaman-tanaman serto bebuahnyo tumbuh-tumbuhan serto sebagînyo.
+
+[^837]: Ya'ni: dengen seizin Allah serto dengen sekendak-Nyo.
+
+[^838]: Dengen kerawûan Rasul-rasul yên cungkup makto keterangan-keterangan kepado kaumnyo niku, dades sebagean wong-wong niku percayo serto sebagean male nustokenyo bahkan sampe wênten yên nyakitinyo. Dades tehadep wong yên bedoso peca' niku Allah nyikso wong-wong niku
+
+[^839]: Wong-wong kafir niku disamike Tuhan dengen wong-wong padem yên nano mungkin male ngerunguke pelajaran-pelajaran. Ma’niku jugo disamike wong-wong kafir niku dengen wong-wong tuli yên nano angsal ngerungu panggilan sami sekali napibilo wong-wong niku sedengke ngelangkai kito.
+
+[^840]: Maksudnyo: peca' wong-wong niku bebudi dengen kelapan wong-wong niku niki, peca' niku pulo'lah wong-wong niku sesampun niko bebudi di dunio.
+
+[^841]: Kepado wong yên ngunoke cerios kosong peranti nyesetke wong.
+
+[^842]: Salami-laminyo waktu nyapi niku kale tahun.
+
+[^843]: Maha Halus, ya’ni ilmu Allah niku ngeliputi sedantennyo ma’pundi saos alitnyo.
+
+[^844]: Sewaktu melaku, nano angsal begancang jugo nano angsal belembet.
+
+[^845]: Ilmu-Nyo serto hikma-Nyo, retinyo sedanten niku nano cungkup peranti nuliske ayat Allah.
+
+[^846]: Jalan yên leser niku wentenla ngakui keesaan Allah.
+
+[^847]: Wong niku nano angsal wikan dengen ceto napi yên ayun didamelkenyo benjang atawa yên ayun diperolenyo, tapi wong-wong niku diwajibke ikhtiar.
+
+[^848]: Besemayam di pûcû’ 'Arsy ya'ni sios sifat Allah yên wajib kito imani, klop dengen keagengan Allah serto kesucian-Nyo.
+
+[^849]: Syafa'at: usoho perantaroan jerû ngesungke sesios manfaat peranti wong lian atawa ngela’ke sesios mudharat peranti wong lian. syafa'at yên nano diterimo di sisi Allah wêntenla syafa'at peranti wong-wong kafir.
+
+[^850]: Maksud urusan niku munggah kepadonyo ya'ni kabarnya yên dibakto olê malaêkat. ayat niki sios tamsil peranti keagengan Allah serto keagunganNyo.
+
+[^851]: maksudnyo diuripke male peranti nerimo balesan Tuhan sami dinten kiamat
+
+[^852]: maksudnyo wong-wong niku sujud kepado Allah serto khusyuk. Disunahke namelke sujud tilawah napibilo maco atawa ngerungu ayat-ayat sajdah yên peca' niki.
+
+[^853]: maksudnyo wong-wong niku nano tilem di waktu biasonyo wong tilem peranti namelke shalat malam.
+
+[^854]: maksudnyo: peca' sampun di sungke kepado Musa, Taurat, ma’niku jugo di sungke kepado Muhammad Al-Quran. serto peca' Taurat didadeske petûnjû’ peranti Bani Israil, dades didadeske Al-Quran petûnjû’ peranti ummat niko.
+
+[^855]: yên dimaksud dengen sabar ya'ni sabar jerû nega’ke keleseran.
+
+[^856]: Dinten kemenangan ya'ni dinten kiamat, atawa kemenangan jerû perang Badar, atawa penaklukan kota Makkah
+
+[^857]: Nabi Muhammad SAW besami wong-wong mukmin dikengken nunggu kemenangan tehadep wong kafir serto kehancuran wong-wong niku.
+
+[^858]: Zhihar ya'ni kelapan sios domik kepado semanyo: punggung niko Haram peranti kulo peca' punggung embi’kulo atawa kelapan lian yên sami maksudnyo. wêntenla dades adat kebiasoan peranti wong Arab Jahiliyah bahwo kalu Dio bekelap ma'niku kepado semanyo dades semanyo niku haramnyo peranti dio selami-laminyo. tapi sesampun Islam rawû, dades yên Haram peranti selami-laminyo niku diapûske serto sema-sema niku mantu’ halal perantinyo dengen mayar kaffarat (denda).
+
+[^859]: Ayunla-ayunla ya'ni sios hamba sahaya yên sampun dimerdekake atawa sios wong yên sampun didadeske ana’ angkat, peca' Salim anak angkat Huzaifah, dipanggil ayunla Huzaifah.
+
+[^860]: Maksudnyo: wong-wong mukmin niku nyintoi Nabi wong-wong niku langkung dari nyintoi awa' wong-wong niku dewe' jerû sedanten luruan.
+
+[^861]: Yên dimaksud dengen bedamel saê dingeriki ya'ni bewasiat yên nano langkung dari sepertigo herto.
+
+[^862]: Semayoan yên tegû ya'ni kesanggupan nyampîke igamo kepado umatnyo dewe’-dewe’.
+
+[^863]: Sami dinten kiamat Allah ayun nakenke kepado Rasul-rasul sampe dipundi usoho wong-wong niku nyampîke ajaran-ajaran Allah kepado umatnyo serto nggût di pundi umatnyo ngelaksanoke ajaran Allah niku.
+
+[^864]: Ayat niki nerangke kisah Ahzab ya'ni golongan-golongan yên dihancurke sami perangan Khandaq kerno nentang Allah serto Rasul-Nyo. yên dimaksud dengen tentaro yên nano angsal niko tingali wêntenla sedanten Malaêkat yên sengajo dirawûke Tuhan peranti ngancûrke musuh-musuh Allah niku.
+
+[^865]: Maksudnyo ya'ni ngambarke ma’pundi hebatnyo perasaan takut serto perasaan genter sami waktu niku
+
+[^866]: Yên dimaksud dengen bedamel fitnah ya'ni: murtad, atawa merangi wong Islam.
+
+[^867]: Yên dijankalun Allah serto Rasul-Nya niku ya'ni kemenangan sesampun mengalami kesukaran.
+
+[^868]: Maksudnyo nunggu napi yên sampun Allah janjike kepadonyo.
+
+[^869]: Maksudnyo wong mukmin nano perlu perang, kerno Allah sampun ngehalau wong-wong niku dengen ngirimke angin serto malaêkat.
+
+[^870]: Sesampun golongan-golongan yên besekutu niku kocar-kacir, dades Allah ngengken Nabi peranti ngancurke Bani Quraizhah (ahli Kitab) serto ngehalau wong-wong niku dari benteng-benteng wong-wong niku. sampun niku sedanten lanang yên tumut perang dibunu, betino serto anak-anak ditawan.
+
+[^871]: Tanah yên dêrêng diinjak ya'ni: tanah-tanah yên ayun dimelebeti tentaro Islam.
+
+[^872]: Mut'ah ya'ni: suatu sungan yên di sungke kepado betino yên sampun dipegat nûrût kesanggupan domik.
+
+[^873]: Yên dimaksud dengen tunduk di ngeriki ya'ni bekelap dengen sikap yên nimbulke keberanian wong betindak yên nano saê tehadep wong-wong niku.
+
+[^874]: Yên dimaksud dengen jerû ati wong-wong niku wênten penyakit ya'ni: wong yên wênten niat bedamel serong dengen betino, peca' namelke zina.
+
+[^875]: Maksudnyo: sema-sema Rasul supayo tetap di rompo' serto ke luar rompo' kalu wênten keperluan yên dileserke olê syara'. perintah niki jugo ngeeliputi sedanten mukminat.
+
+[^876]: Yên dimaksud Jahiliyah yên dahulu ya'ni Jahiliah kekafiran yên angsal sedêrêng Nabi Muhammad s.a.w. serto yên dimaksud Jahiliyah ya'ni Jahiliyah kemaksiatan, yên tedades sesampun rawûnya Islam.
+
+[^877]: Ahlul bait di ngeriki, ya'ni keluargo Rasulullah s.a.w.
+
+[^878]: Yên dimaksud dengen Muslim di ngeriki ya'ni wong-wong yên numuti perinta serto larangan sami lahirnyo, sedengke yên dimaksud dengen wong-wong mukmin di ngeriki ya'ni wong yên ngeleserke napi yên mesti dileserke dengen atinyo.
+
+[^879]: Maksudnyo: sesampun habis idahnyo.
+
+[^880]: Yên dimaksud dengen wong yên Allah sampun ngelimpake nikmat kepadonyo ya'ni Zaid bin Haritsah. Allah sampun ngeelimpake nikmat kepadonyo dengen ngesung taufik Islam. Nabi Muhammad jugo sampun ngesung nikmat kepadonyo dengen memerdekake kaumnya serto ngangkatnyo dades anak. ayat niki ngesungke reti bahwo wong bolê ngawêni bekas sema anak angkatnyo.
+
+[^881]: Yên dimaksud dengen sunnah Allah di ngeriki ya'ni namelke sesios yên dibolêke Allah tanpa ragu-ragu.
+
+[^882]: Maksudnyo: sedanten Rasul yên nyampaike syari'at-syari'at Allah kepado wong.
+
+[^883]: Maksudnyo: Nabi Muhammad s.a.w. dêdêla aba dari salah sios wong rencang, kerno niku jando Zaid angsal dikaweni olê Rasulullah s.a.w.
+
+[^884]: Retinyo: sejahtero dari sedanten bencano
+
+[^885]: Yên dimaksud dengen mut'ah di ngeriki sungan peranti nyenengke ati sema yên dipegat sedêrêng dicampuri.
+
+[^886]: Nûrût riwayat, sami sios waktu sema-sema Nabi Muhammad s.a.w. wênten yên cemburu, serto wênten yên nedo tambahan belanja. dades Nabi Muhammad s.a.w. memutuskan perhubungan dengen wong-wong niku sampe sebulan laminya. olê kerno takut dipegat Nabi, dades wong-wong niku rawû kepado Nabi ngelapke kerelaannoa tehadep napi saos yên ayun didamelke Nabi tehadep wong-wong niku. tûrûnnyo ayat niki ngesungke izin kepado Nabi peranti ngauli sinten yên dikendak-iNyo serto sema-semanyo atawa nano nggaulinyo; serto jugo ngesung izin kepado Nabi peranti ruju’ kepado sema-semanyo kalu wênten semanyo yên sampun dipegatnyo.
+
+[^887]: Nabi nano dibolêke kawen sesampun wênten sema-sema sebanyak yên sampun wênten niku serto nano pulo' dibolêke ngenti sema-semanya yên sampun wênten niku dengen ngaweni betino lian.
+
+[^888]: Maksudnyo, sami maso Rasulullah s.a.w perna tedades wong-wong yên ngenteni waktu nedo Rasulullah s.a.w. sampun niku tûrûn ayat niki ngelarang melebet rompo' Rasulullah peranti nedo sambil ngenteni waktu dadesnnyo Rasulullah.
+
+[^889]: Bershalawat retinyo: kalu dari Allah retinyo ngesung rahmat: dari Malaikat retinyo nedoke ampunan serto kalu dari wong-wong mukmin retinyo berdoa supaya di sung rahmat peca' dengen perkelapan:Allahuma shalli ala Muhammad.
+
+[^890]: dengen ngelapke kelapan peca':Assalamu'alaika ayyuhan Nabi retinyo: mugi-mugi keselametan tecurah kepado niko Hai Nabi
+
+[^891]: Menyakiti Allah serto rasul-rasulNya, ya'ni namelke damelan- damelan yên nano di ridhai Allah serto nano dileserke Rasul- nya; peca' kufur, nustoke kenabian serto sebagînyo.
+
+[^892]: Jilbab ya'ni sejenis baju kurung yên lapang yên angsal menutup kepala, rai serto dwênten.
+
+[^893]: Yên dimaksud dengen amanat di ngeriki ya'ni tugas-tugas keigamoan.
+
+[^894]: Sebagîan mufassir ngelapke bahwa kelapan yên saê niku wêntenla Kalimat Tauhid yaitu Lā ilāha illallāh, serto wenten pulo' yên ngelapke zikir kepado Allah serto wenten pulo' yên ngelapke  sedanten kelapan yên saê yên dikelapke kerno Allah.
+
+[^895]: Kelapan saê serto amal yên saê niku dimunggahke peranti diterimo serto disung-Nyo pahalo
+
+[^896]: Sebagîan mufassir nafsirke bil ghoib jerû ayat niki wêntenla sewaktu wong-wong niku dewe’an tanpo ningal wong lian.
+
+[^897]: Nabi Muhammad saw nano angsal ngesung petunju’ kepado wong-wong musyrik yên sampun padem atinyo
+
+[^898]: Agamo tauhid serto hukum-hukumnyo.
+
+[^899]: Allah ngesung petunju’ kepado sinten yên Dio kenda’i dengen ngesung kesanggupan peranti dengerke serto nerimo keterangan-keterangan.
+
+[^900]: Wong-wong yên wikan ilmu keagengan serto kekuasoan Allah.
+
+[^901]: Allah nyukuri hambo-Nyo, ngesung pahalo terhadep amal-amal hamba-Nyo memaafke kesalahannyo, nambah ni’mat-Nyo serto sebagainyo.
+
+[^902]: Menzholimi awa’ dewe’ wêntenlah wong yên langkung kata kesalahannyo daripado keleserannyo, serto “pertengahan” wêntenla wong yên keleserannyo berbanding sami dengen kesalahannyo, sedeng yên dimaksud dengen “wong-wong yên langkung dumin bedamel keleseran” wêntenla wong-wong yên keleserannyo kata nian serto jarang bedamel kesalahan.
+
+[^903]: Yên direti dengen “ketentuan wong-wong yên kerihin” wêntenla nyampa’nyo azab kepado wong-wong yên nano percayo rosul.
+
+[^904]: Perîngetan yên disungke oleh Nabi Muhammad saw, cumen beguno peranti wong yên ayun numutinyo
+
+[^905]: Nurut mufassir, lanang niku benami Habib An-Najar.
+
+[^906]: Nurut riwayat, lanang niku dibunu ole kaumnyo sampun io ngelapke kato-katonyo sebagê nasehat kepado kaumnyo sema’pundi niku jerû ayat 20 s/d 25. Sewaktu dio ayun padem; malaikat turun ngesung wikan bahwa Allah sampun ngampuni dosonyo serto dio ayun ngelebet ke suargo.
+
+[^907]: Wong-wong niku nano mantû’ ke dunio.
+
+[^908]: Bulan niku pado awalnyo alit bebentu’ sabit, sampun niku sesampun nempati panggonan ideran, io dades purnamo, sampun niku pado panggonan ideran pengabesan ningal ma’kayo tandan kering yên ngelengkung.
+
+[^909]: Binatang-binantang tunggangan serto alat-alat pengangkutan umumnyo.
+
+[^910]: Suaro embusan terompet yên pertamo yên babasbingkas bumi niki.
+
+[^911]: Embusan niku wêntenla embusan sangkakalo yên keduo yên mangkitke wong-wong jerû kubur.
+
+[^912]: Mantû’ dades lema serto kirang akal, ma’kayo buda’ alit.
+
+[^913]: Malaikat, langit, bumi serto lian-lian.
+
+[^914]: Dinten sewaktu Allah ngesung kepûtûsan serto balesan kepado hambo-hambo-Nyo.
+
+[^915]: Pesirah-pesirah niku natangi ana’ buanyo dengen makto tipu muslihat yên mikat ati.
+
+[^916]: Nabi Ibrohim a.s. telebet kelompo’ Nabi Nuh a.s. jerû keimanan kepado Allah serto poko’-poko’ ajaran Islam
+
+[^917]: Mengikhlaske atinyo kepado Allah dengen sedantennyo.
+
+[^918]: Nguyo’ patung-patung niku, kerno para’ patung niki kata ditaru’ke tedoan yên saê peranti sajian.
+
+[^919]: Nabi Ibrohim a.s. mintar ke sios negeri peranti angsal nyemba Allah serto beda’wa.
+
+[^920]: Mempercayoi bahwa mimpi niku leser dari Allah swt. serto wajib didamelke.
+
+[^921]: Sampun nyato kesabaran serto ketaatan Nabi Ibrohim a.s. serto Nabi Ismail a.s. dades Allah ngelarang nyembele Nabi Ismail a.s. Peranti neruske kurban, Allah gantinyo dengen sios sembelean (kambing). Peristiwo niki dades dasar disyareatkenyo kurban yên didamelke pado Dinten Rayo Haji
+
+[^922]: Ba’l wêntenla nami sala sios patung dari wong Phunicia.
+
+[^923]: Wong-wong niku yên enggon di kota yên nano tumut besami Nabi Lut a.s.
+
+[^924]: Kesa ninggalke kewajiban
+
+[^925]: Undian diadoke kerno muatan baito penu nian. Kalu nano dikirangi mengkin ayun tebenyu’. Ole sebab niku diadoke undian. Sinten saos yên kala jerû undian niku diuntalke ke laut. Nabi Yunus a.s. telebet wong-wong yên kala jerû undian niku singgo dio diuntalke ke laut.
+
+[^926]: Tecelo kerno dio lari ninggalke kaumnyo.
+
+[^927]: Wong musyrik ngelapke bahwa Allah punyo buda’-buda’ wadon (malaekat) padohal wong-wong niku dewe’ nganggep hino buda’ wadon niku
+
+[^928]: Gûgû' jin yên beiman.
+
+[^929]: Rosul beserto pengikut-pengikutnyo.
+
+[^930]: Dêdê waktu pagi tapi basîng waktu di pundi wong-wong yên nyerang niku namelke serangannyo sedereng fajar seruput, wong-wong yên kalah, menderito kekalahannyo pado waktu pagi.
+
+[^931]: Nurut wong-wong kafir bahwa nyemba tuhan-tuhan nikula yên selesernyo dikenda’i ole Allah.
+
+[^932]: Yên dimaksud ole wong kafir Quraisy dengen igamo yên terakhir iola igamo Nasroni.
+
+[^933]: Ayat niki nyerioske perang Khondak di pundi terangsal bala tentera yên terawa' dari beberapo golongan iola golongan kaum musyrikin, Yahudi serto beberapo kabila Arab yên nyerang kaum muslimin di Madinah. Peperangan niki berakhir dengen bocar-bacirnyo bala tentera wong-wong niku. Sebagean mufassir ngelapke bahwa yên dimaksud di ngeriki iola perang Badar.
+
+[^934]: Pendudu’ Madyan iola kaum Nabi Syu’aib a.s
+
+[^935]: Peranti tando dinten Kiamat serto peki’an niki keras nian serto gancang.
+
+[^936]: Kenabian, kesempurnaan ilmu serto ketelitian amal damelan.
+
+[^937]: Sebagean mufassir wenten yên nerjemahke ayat 32 ma’niku. Kulo leser-leser suko barang yên saê (kudo) niki singgo kulo lalai imut Tuhan kulo sampe kudo niku ilang dari peningalan
+
+[^938]: Sebagean mufassir wenten yên nerjemahke ayat 32 ma’niku. “Baktola mantu’ sedanten niku kepado kulo, laju dio neta’ sikil serto gulunyo.
+
+[^939]: Sebagean mufassir ngelapke iola yên dimaksud dengen ujian niki iola keberantakan keratin Sulaiman singgo wong lian lînggi di pucu’ singgosananyo.
+
+[^940]: Nabi Ayyub a.s. menderito penyakit kulit beberapo waktu laminyo serto dio nyatu pertulungan kepado Allah swt. Allah sampun niku mengabulke da’anyo serto merintake supayo dio ngenta’ke sikilnyo ke bumi. Nabi Ayyub mandi serto minum dari toyo niku, singgo sembula dio dari penyakitnyo serto dio angsal bekumpul dengen sana’nyo. Mangko wong-wong niku sampun niku berana’ pina’ sampe jumla wong-wong niku duo kali lipet dari jumla sederengnyo. Pado sios waktu, Nabi Ayyub a.s. teimut ayun sumpanyo, abhwa dio ayun mukul semanyo napibilo sakitnyo sembu dikernoke semanyo perna lalai ngurusnyo sewaktu dio maler sakit. Tapi muncul jerû atinyo raso iba serto sayang kepado semanyo singgo dio nano angsal menui sumpanyo. Mangko turunla petunju’ Allah peca’ yên tecantum jerû ayat 44 suroh niki, supayo dio angsal namelke sumpanyo dengen nano nyakiti semanyo, iola mukulnyo dengen sekebet rumput.
+
+[^941]: Wong-wong yên sampun disung taufik peranti mento’ati sedanten petunju’ serto perenta Allah.
+
+[^942]: Keleseran berito-berito Al Qur’an niku wenten yên terlaksano di dunio serto wenten pulo' yên terlaksano di akherat, yên terlaksano di dunio peca’ keleseran semayoan Allah kepado wong-wong mu’min bahwa wong-wong niku ayun menang jerû peperangan dengen kaum musyrikin, serto yên terlaksano di akherat peca’ keleseran semayoan Allah tentang balesan ates rikinan yên ayun didamelke teradep manusio.
+
+[^943]: Tigo kegelepan niki iola kegelepan jerû perut, kegelepan jerû rohim serto kegelepan selaput yên nutup buda’ jerû rohim.
+
+[^944]: Manusio beriman atawa nano peca’ nki nano ngerugike Allah setiti’ saos.
+
+[^945]: Sewang-sewang mikul dosonyo dewe’-dewe’
+
+[^946]: Perinta niki dedenyo nurut reti yên selesernyo, tapi sebage pernyataan kemurkaan Allah teradep kaum musyrikin yên sampun bekali-kali diajak kepado Tauhid tapi wong-wong niku selalu ingker
+
+[^947]: Tagut iola setan serto napi saos yên disemba selian Allah.
+
+[^948]: Wong-wong niku yên nengerke ajaran-ajaran Al Qur’an serto ajaran-ajaran yên lian, tapi yên ditumutinyo iola ajaran-ajaran Al Qur’an kerno io iola yên paling saê.
+
+[^949]: Hukum-hukum, pelajaran serto kitab-kitab niku diusertog-usertog ngelapkenyo jerû Al Qur’an supayo lebi kuat pengaruhnyo serto lebih ngeresap. Sebagean mufassir ngelapke bahwo retinyo niku iola bahwa ayat-ayat Al Qur’an niku dibalen-balen maconyo peca’ dikelapke jerû muqoddimah suroh Al Fatihah.
+
+[^950]: Wong-wong yên padem niku rohnyo ditahan Allah singgo nano angsal mantu’ kepado badannyo, serto wong-wong yên nano padem cumen tilem saos, rohnyo diculke singgo angsal mantu’ kepadonyo lagi.
+
+[^951]: Ningal An Nisaa’ (4) : 48 kecuali doso syirik.
+
+[^952]: Ayat niki menggambarke keleseran serto kekuasoan Allah serto cumen Diola yên bekuaso pado dinten Kiamat.
+
+[^953]: tingala pado hal-hal yên telarang, peca’ ningal kepado wado yên dede muhrimnyo.
+
+[^954]: Mu’jizat, hukum-hukum serto ajaran-ajaran yên dibaktonyo.
+
+[^955]: Dinten Kiamat niki dinamike dinten panggil memanggil kerno wong yên bekumpul di Padang Mahsyar sebagean manggil sebagean yên lian peranti nedo tolong.
+
+[^956]: Wong-wong niku nula’ ayat-ayat Allah tanpo alesan yên rawû kepado wong-wong niku.
+
+[^957]: Peradaban peca’ bangunan, benteng, keratin serto alat-alat perlengkapan
+
+[^958]: Wong-wong niku sampun ngeraso cungkup dengen ilmu pengetahuan yên wenten pado wong-wong niku serto nano ngeraso perlu lagi dengen ilmu pengetahuan yên diajarke ole rosul-rosul wong-wong niku. Mala wong-wong niku meremeke serto menguyo’-uyo’ keterangan yên dibakto sedanten rosul.
+
+[^959]: Yên dimaksud dari luar serto dari buri, wêntenla dari sedanten ûrûsan.
+
+[^960]: Wong-wong niku namelke doso dengen terang-terangan kerno wong-wong niku nyangko bahwa Allah nano wikan damelan wong-wong niku serto wong-wong niku nano nyangko bahwa pendengaran, peningalan serto kulit wong-wong niku ayun dades saksi di akhîrat mengkîn ates damelan wong-wong niku.
+
+[^961]: “yên wênten dihaluan” wêntenla nafsu serto kelezatan di dunio yên sedeng dicapai, sedeng yên dimaksud dengen “di buri wong-wong niku” wêntenla angan-angan serto cito-cito yên nano angsal dicapai.
+
+[^962]: Nano ngesung petunju’ kepado wong-wong niku.
+
+[^963]: Cumen Allah-la yên wikan kapan rawûnyo dinten Kiamat niku.
+
+[^964]: Patung-patung yên wong-wong niku anggep sebage sekutu Allah.
+
+[^965]: Nikula huruf-huruf abjad yên teletak pado awal sebagian dari surat-surat Al Quran pecak: Alif laam miim, Alif laam raa, Alif laam miim shaad serto liannyo. diantaro Ahli-ahli tafsir wênten yên nyerake pengertiannyo kepado Allah kerno dipandang temasuk ayat-ayat mutasyaabihaat, serto wênten pulo golongan yên nafsirkenyo atawa yên mandangnyo sebagî nami surat, serto wênten pulo yên bependapet bahwo huruf-huruf abjad niku gunonyo peranti narîk pehatian sedanten pendengêr supayo merhatike Al Quran niku, serto peranti ngisyaratke bahwo Al Quran niku diturunke dari Allah jerû baso Arab yên tesusun dari huruf-huruf abjad. Kalu wong-wong niku nano yakin bahwo Al Quran niku diturunke dari Allah serto dîdînyo buatan Nabi Muhammad s.a.w.,  cobola wong-wong niku damel pecak Al Quran niku.
+
+[^966]: Nikula huruf-huruf abjad yên teletak pado awal sebagian dari surat-surat Al Quran pecak: Alif laam miim, Alif laam raa, Alif laam miim shaad serto liannyo. diantaro Ahli-ahli tafsir wênten yên nyerake pengertiannyo kepado Allah kerno dipandang temasuk ayat-ayat mutasyaabihaat, serto wênten pulo golongan yên nafsirkenyo atawa yên mandangnyo sebagî nami surat, serto wênten pulo yên bependapet bahwo huruf-huruf abjad niku gunonyo peranti narîk pehatian sedanten pendengêr supayo merhatike Al Quran niku, serto peranti ngisyaratke bahwo Al Quran niku diturunke dari Allah jerû baso Arab yên tesusun dari huruf-huruf abjad. Kalu wong-wong niku nano yakin bahwo Al Quran niku diturunke dari Allah serto dîdînyo buatan Nabi Muhammad s.a.w.,  cobola wong-wong niku damel pecak Al Quran niku.
+
+[^967]: maksudnyo: penduduk dunio sedantennyo.
+
+[^968]: yên dimaksud: igamo di ngeriki ya'ni meng-Esake Allah s.w\.t., beriman kepado-Nyo, kitab-kitab-Nyo, rasul-rasul-Nyo serto dinten akhîrat serto naati sedanten perînta serto larangan-Nyo.
+
+[^969]: maksudnyo: Ahli-ahli kitab niku bepeca bela sesampun wong-wong niku wikan keleseran dari nabi-nabi wong-wong niku. sesampun rawû Nabi Muhammad s.a.w serto nyato keleserannyo wong-wong niku saos tetep bepeca bela serto nano percayoinyo.
+
+[^970]: yên dimaksud dengen wong-wong yên diwariske kepado wong-wong niku Al-Kitab ya'ni ahli kitab yên urip sami maso Nabi Muhammad s.a.w.
+
+[^971]: maksudnyo: tetepla jerû igamo serto lanjutkela bedakwah
+
+[^972]: yên dimaksud bedamel saê di ngeriki ya'ni bedamel saê kepado wong yên bedamel jahat kepadonyo.
+
+[^973]: yên dimaksud dengen keilangan awa' serto keluargo ya'ni nano ngerasoke kenikmatan urip abadi kerno disikso.
+
+[^974]: Di buri tabir retinyo ya'ni sios wong angsal ngerungu kalam Ilahi ayun tapi Dia nano angsal ningali-Nyo peca' yên tedades kepado Nabi Musa a.s.
+
+[^975]: Wong musyrikin ngelapke bahwa malaêkat niku wêntenla ana’ wadon Allah, padohal malaêkat niku sebagîan dari makhluk serto ciptaan-Nyo.
+
+[^976]: Ayat niki ngambarke keadaan wadon Arab pado waktu Al Qur’an diturunke. Wong-wong niku nano disung kesempetan jerû pendidikan, singgo kirang kecerdasannyo serto cumen didadeske periasan saos. Wadon nano wikan besikap teges, garang, serto jelas nyampeke kenda’nyo peranti angsal kemenangan.
+
+[^977]: Nabi Ibrohim a.s. nadeske kalimat tauhid sebagî pegangan bage zuriyatnyo, singgo kalu teangsal di antaro wong-wong niku yên nyekutuke Allah supayo gancang mantu’ kepado tauhid niku.
+
+[^978]: Di antaro zuriyat Nabi Ibrohim a.s. wênten yên ngelalilke tauhid serto Allah nano ngazab wong-wong niku, tapi ngesung keni’matan serto keuripan kepado wong-wong niku yên semestinyo wong-wong niku syukuri. Wong-wong niku nano nyukuri, bahkan nûrûti keinginannyo, kerno niku Allah nûrûnke Al Qur’an serto ngutus sios Rosul peranti mimbing wong-wong niku.
+
+[^979]: Kemenangan Nabi Muhammad saw. serto keancuran kaum musyrik.
+
+[^980]: Yên dimaksud “azab” di ngeriki wêntenla azab duniowi sebagî cobaan dari Allah, peca’ kekirangan tedoan, bejangkitnyo hama taneman, serto lian-lian.
+
+[^981]: Reti wong-wong niku wêntenla Nabi Musa a.s.
+
+[^982]: Ayat 57 serto 58 di pucu’ nyerioske lagi kejadian sewaktu Rosulullah macoke diadepan wong-wong Quraiys ayat 98 suroh Al Anbiyā’ (21) yên retinyo, “Selesernyo  niko serto yên niko sembah selian Allah wêntenla kayu bakar (pelawan) Jahannam.” dades sios wong Quraisy benami Abdullah bin Az-Zab’ari betaken kepado Rosulullah saw. tenteng keadaan Isa yên disemba wong Nasroni, napike dio jugo dades kayu bakar nerako Jahannam peca’ halnyo sembahan-sembahan wong-wong niku. Rosulullah tediem serto wong-wong niku pun nawokenyo; laju wong-wong niku betaken lagi ngenoi pundi yên sertogkung sae, antaro sembahan-sembahan wong-wong niku serto Nabi Isa a.s. Takenan-takenan wong-wong niku cumen nyari selewahan saos, dêdênyo nyari keleseran. jalan pikiran wong-wong niku wêntenla kesalahan yên ageng. Nabi Isa a.s. nano wikan bahwa dio disemba, serto dio nano redho didadeske sembahan.
+
+[^983]: Kenabian, Injil serto hukum.
+
+[^984]: Kaum musyrikin Mekan dêdênyo benci saos kepado keleseran, bahkan wong-wong niku jugo sampun merencanoke munu Nabi Muhammad saw. tapi rencano niku gagal, kerno Allah jugo punyo rencano peranti nyelamatke Nabi.
+
+[^985]: Malem Al Qur’an bungaran diturunke
+
+[^986]: Sedanten pekaro yên behubungan dengen keuripan makhluk peca’ urip, mati, rezeki, nasib saê, nasib buru’, serto liannyo.
+
+[^987]: Bencano kelaperan yên nimpo kaum Quraiys kerno wong-wong niku nentang Nabi Muhammad saw.
+
+[^988]: Nabi Muhammad saw. ditudu nerimo pelajaran dari sios wong yên dêdênyo bangsa Arab benami Addas yên beigamo Nasroni.
+
+[^989]: Anteman yên keras niku tedades pado perang Badar, sewaktu wong-wong musyrik dipukul mundur singgo menderito kekalahan, serto kata di antaro pesira wong-wong niku yên padem.
+
+[^990]: Peca’ naungan awan, turunnyo mann serto salwa; tepancarnyo toyo dari batu, serto tebelanyo laut abang.
+
+[^991]: Wong-wong musyrik Mekkah nustoi bahwo sampun padem wong ayun diuripke lagi.
+
+[^992]: Wong-wong Himyar di Yaman, serto Tubba’ wêntenla gelar peranti rajo-rajo wong-wong niku.
+
+[^993]: Tanpo khawatir keabisan atawa khawatir sakit.
+
+[^994]: Dinten-dinten pado waktu Allah nimpoke siksoan kepado wong-wong niku.
+
+[^995]: Allah sertota’ke wong niku seset kerno Allah sampun wikan bahwa dio nano nerimo petunju’-petunju’ yên disungke kepadonyo.
+
+[^996]: yên dimaksud dengen “sios wong dari Bani Isroil” wêntenla Abdullah bin Salam. Dio nyatoke keimananyo kepado Nabi Muhammad Saw. sesampun meperhatike bahwo di antaro isi al-Qur’an wênten yên akor dengen Taurot , makkayo ajaran tauhid, semayoan, serto anceman, kerosulan Nabi Muhammad Saw. wêntennyo keuripan akhîrat, serto seliannyo.
+
+[^997]: Bahwo wong-wong kafir niku nguyo' wong-wong Islam dengen ngelapke, “Sekironyo al-Qu’an niki leser, cengki kame' langkung dokenan beriman kepadonyo daripado wong-wong miskin serto nano kuwawo, peca' Bilal, ‘Ammar, Suhaib, Habbab, serto liannyo.
+
+[^998]: Tegû penawa'an dalem tauhid serto tetep beramal soleh.
+
+[^999]: Kelap-kelap, kalimat, atawa isyarat, yên  nadonyo melawan.
+
+[^1000]: maksudnyo: sedanten amal damelan wong-wong niku nano angsal bimbingan dari Allah, nano dihargoi serto nano angsal pahalo.
+
+[^1001]: yên dimaksud dengen surat di ngeriki ya'ni surat yên berisi perînta peranti merangi wong-wong kafir.
+
+[^1002]: Penolong yên didadeske Allah peranti wong-wong mukmin ma'kayo malaikat, binatang-binatang, angin topan serto liannyo.
+
+[^1003]: Allah nyanjike harto rampasan perang yên kata kepado kaum muslimin. Sebage penduluan, Allah ngesungkenyo, pado Perang Khaibar.
+
+[^1004]: Maksudnyo, wong-wong mukmin nano angsal netepke sesios hukum, sedereng wenten ketetepan dari Allah serto Rosul-Nyo.
+
+[^1005]: Nikula huruf-huruf abjad yên teletak pado awal sebagian dari surat-surat Al Quran pecak: Alif laam miim, Alif laam raa, Alif laam miim shaad serto liannyo. diantaro Ahli-ahli tafsir wênten yên nyerake pengertiannyo kepado Allah kerno dipandang temasuk ayat-ayat mutasyaabihaat, serto wênten pulo golongan yên nafsirkenyo atawa yên mandangnyo sebagî nami surat, serto wênten pulo yên bependapet bahwo huruf-huruf abjad niku gunonyo peranti narîk pehatian sedanten pendengêr supayo merhatike Al Quran niku, serto peranti ngisyaratke bahwo Al Quran niku diturunke dari Allah jerû baso Arab yên tesusun dari huruf-huruf abjad. Kalu wong-wong niku nano yakin bahwo Al Quran niku diturunke dari Allah serto dîdînyo buatan Nabi Muhammad s.a.w., cobola wong-wong niku damel pecak Al Quran niku.
+
+[^1006]: yên dimaksud dengen yên nyertoi Dio di ngeriki ya'ni syaitan yên nyesetke di dunio niki.
+
+[^1007]: Garis edar bintang, planet, serto bendo-bendo angkaso liannyo. Wenten jugo yên ngertike zatil hubuk ngen “punyo ciptoan yên sae”, “punyo aesan bintang-bintang,” atawa “punyo bangunan yên tego”.
+
+[^1008]: Lian-liannyo pendapet kaum musyrikin tentang Nabi Muhammad saw serto al-Qur’an.
+
+[^1009]: Batu-batu niku disung tando ngên nami wong yên ayûn dibinasoke
+
+[^1010]: Tando di ngeriki iola batu-batu yên betumpuk-tumpuk yên digunoke peranti minasoke kaum Luth. Wênten pulo yên ngelapke sios telago yên banyunyo item serto busuk mambunyo
+
+[^1011]: Riwayat Bukhari , Muslim serto Tafsir Ibnu Katsir, rompok di langit pitu yên senantiaso diramike 70.000 malaikat yên betasbî
+
+[^1012]: wêntennyo musim kemarau, kelaparan, bencano yêng nimpo wong-wong niku, azab kubur serto liannyo
+
+[^1013]: 1 Sidratil Muntaha ya’niki panggonan yên pucuk nian pado langit pitu, yên sampun dikunjungi Nabi SAW sewaktu Mi’raj
+
+[^1014]: bintang yên disemba wong Arab maso jahilia,
+
+[^1015]: panggonan terbît serto tebenem matoari pado mûsîm panas serto pado mûsîm dingin
+
+[^1016]: Di antaro ahli tafsir wênten yén bependapet bahwo la yabghiyan Maksudnyo masîng-masîngnyo nano ngayûni. ngen ma’niku maksud ayat 19-20 ya’niki bahwo wênten kalê laut yén kalênyo tepisa kareno dibatasi ole tana genting, tapi tana genting niku nanola diayûni (nano diperluke) dadesnyo pado akhirnyo, tana genting niku dibuang (digali peranti keperluan lalu lintas), dadesnyo kepanggêla kalê lautan niku. peca' terusan Suez serto terusan Panama.
+
+[^1017]: Allah senentiaso nyiptoke, ngîdupke, mademke, nyago, ngesung rezeki, serto liannyo.
+
+[^1018]: tapi pado saatnyo ayûn ditedoi petanggung jawaban sedanten amasertonyo
+
+[^1019]: suargo peranti wong serto suargo peranti Jîn. Wênten jugo mufasîr yên bependapet suargo dunio serto suargo akhîrat
+
+[^1020]: wong yêng nerimo buku siratan amalan dengen tangan kanan
+
+[^1021]: wong yêng nerimo buku siratan amalan dengen tangan kiri
+
+[^1022]: sedanten umat sedêreng nabi Muhammad SAW, serto yên dimaksud wong yên terakhîr nikula umat Nabi Muhammad SAW
+
+[^1023]: Wong-wong niku diciptoke nano ngen kelahîran serto langsung dades gadîs
+
+[^1024]: Yên dimaksud dengên: yên Awal ya’niki, yên sampun wênten sedêreng sedanten sesios wênten, yên akhir ya’niki yên tetep wênten sesampun sedanten sesios musna, yên Zhahir ya’niki, yên nyato wêntennyo kerno kata bukti- buktinyo serto yên Bathin ya’niki yên nano angsal digambarke hikmat zat-Nyo ole akal
+
+[^1025]: yên dimaksûd dengen yên munggah, antaro lian amal serto doa hamba-Ny
+
+[^1026]: nano wenten sema atawa domik serto ngûrûng awa' jerû biara.
+
+[^1027]: Sebab tûrûnnyo ayat niki ya’niki behûbûngan dengên masalah sios betino benami Khaulah binti Tsa´labah yên sampun dizhihar ole domiknyo Aus ibn Shamit, ya’niki ngên ngelapke kepado semanyo: niko peranti kulo ma’kayo punggung ibu kulo dengên maksud Dio nano angsal lagi nggauli semanyo, peca' dio nano angsal ngauli embi'nyo. Kelap adat Jahiliya kalimat Zhihar ma’ kayo niku sampun sami dengên nalak sema. dades Khaulah nyaduke hal niku kepado Rasulullah s.a.w. Rasulullah nyawab, bahwo perihal niki dereng wênten keputusan dari Allah. serto pado riwayat yên lian Rasulullah ngelapke: Niko sampun diharamke besetûbû dengên dio. sampun niku Khaulah bekelap: Domik kulo dereng ngelapke kelap-kelap thalak sampun niku Khaulah pinten kali nesek Rasulullah supayo netepke sios keputusan jerû hal niki, sehinggo sampun niku tûrûnla ayat niki serrto ayat-ayat sesampun niku.
+
+[^1028]: Harto pampasan yên diperole dari mûsû tanpa tedadesnyo perang. Pembagîannyo berlianan ngên pembagîan ghanimah. Ghanimah wêntenla harto pampasan yên diperole dari mûsû sesampûn tedades perang. Pembagîan Fai-i pecak yên wênten pado ayat 7. Padohal pembagîan ghanimah tesebut pado ayat 41 Al Anfal.
+
+[^1029]: Nabi Ibrahim perna nedo ampunan peranti bapaknyo yên musyrik kepado Allah: niki nano angsal ditiru, kerno Allah nano ngeleserkenyo wong mukmin nedoke ampunan peranti wong-wong kafîr (tingal surat An Nisa ayat 48: wikan bahwo wong-wong niku (nian-nian) beriman mako nano angsal niko mantu’ke wong-wong niku kepado (domik-domiknyo) wong-wong kafîr. Wong-wong niku nano halal peranti wong-wong kafîr niku serto wong-wong kafîr niku nano halal pulo peranti wong-wong niku. serto sungkela kepado (domik domik) wong-wong niku, mahar Yên sampun wong-wong niku bayar. serto nano bedoso niko ngawîni wong-wong niku napibilo niko bayar kepado wong-wong niku maharnyo. serto nano angsal niko tetep becekel pado tali (pekawînan) dengên betino-betino kafîr; serto ayunla niko nedo mahar Yên sampun niko bayar; serto ayunla wong-wong niku nedo mahar Yên sampun wong-wong niku bayar. Ma’ nikula hukum Allah Yên ditetepke-Nyo di antaro niko. serto Allah Maha wikan jugo Maha Bijaksano.
+
+[^1030]: Sedereng ghanimah diperantike kepado segangsal kaum yên berhak, dibayarke bungaran dari mahar-mahar kepado domik-domik yang sema-sema wong-wong niku lari ke daera kafîr.
+
+[^1031]: Damelan yên wong-wong niku ngewentenke antaro tangan serto kaki wong-wong niku, maksudnyo iola ngewêntenke pengakuan-pengakuan palsu ngenai hubungan antaro lanang serto betino ma’ kayo tuduan bezina, tuduan bahwo anak si Fulan dîdî anak domiknyo serto liannyo
+
+[^1032]: Kareno wong-wong niku bepalîng dari keleseran, mako Allah nala’ke seset ati wong-wong niku sehinggo wong-wong niku betamba tebî dari kesaêan.
+
+[^1033]: Wong-wong niku besumpa bahwo wong-wong niku beriman wêntenla peranti nyago harto wong-wong niku supayo nano dibunu atawa ditawan atawa dirampas hartonyo.
+
+[^1034]: Wong-wong niku diumpamoke ma’ kayo kayu yên tesender, Maksudnyo peranti ngelapke sifat wong-wong niku yang jahat meski badan wong-wong niku molek-molek serto wong-wong niku pinter ngomong, tapi selesernyo otak wong-wong niku wêntenla kosong nano angsal wikan keleseran. bekelap: "Ya Tuhan kulo, napi Niko nano nanggûke (kepademan) kulo sampî waktu yên para’, yên nyebabke kulo dapet besedeka serto kulo temasuk wong-wong yên soleh?
+
+[^1035]: Maksudnyo: kadang-kadang sema atawa buda’ angsal nyerûmuske domik atawa abanyo peranti damelke damelan yên nano diserke igamo.
+
+[^1036]: Maksudnyo sema-sema niku ayunla ditala’ di waktu suci sedêrêng dicampuri. Tentang maso iddah niku tingali ayat 228, 234 surat 2 (Al Baqarah) serto surat 65 (Ath-thalaq) ayat 4.
+
+[^1037]: yên dimaksud “damelan keji” dingeriki wêntenla damelke damelan pidana, berperilaku nano sopan tehadep mertuo, ipar, besan dsb
+
+[^1038]: “Sesios hal yên anyar” masudnyo wêntenla dari domik ayun rujuk bali napibilo talaqnyo daru dicampa’ke sios kali atawa kalê kali.
+
+[^1039]: Bukhari serto Muslim nyerioske bahwo Nabi Muhammad s.a.w\.perna ngeharamke ates awaknyo dewek ngumbê madu piranti nyenengke ati sema-semanyo. dades turunla ayat niki sebagi teguran kepado Nabi.
+
+[^1040]: Napibilo sesios wong besumpa ngaramke yên halal dades wajib atasnyo membebaske awa' dari sumpanyo niku ngen mayar kaffarat, pecak tesirat pado surat Al-Maidah ayat 89.
+
+[^1041]: Wong yên wêntên kata anak serto harto langkung muda wênten penumut. tapi kalu dio wêntên sifat-sifat peca’ pado ayat 10-13, nanola dio angsal ditumuti
+
+[^1042]: Yên dimaksud dengen belalai di ngeriki iola cungur. dipake kelap belalai di ngeriki sebagî penghinoan
+
+[^1043]: Dades mutungla kebun niku serto tinggal areng-arengnyo yên item peca’ malem
+
+[^1044]: Yên dimaksud bertasbi kepado Tuhan nikula nyukuri nikmat-Nyo serto nano niatke sesios yên betentangan dengen kêngkênan Tuhan peca’; niatke nano ayun ngesung fakîr miskin.
+
+[^1045]: Maksudnyo: sami tentang balesan yêng diwêntenke Allah peranti wong-wong niku masing-masing.
+
+[^1046]: yên dimaksud dengen betîs disingkepke nikula ngambarke wong yên sedeng ketakutan yên ayûn lari kerno hebatnyo huru-hara dinten kiamat.
+
+[^1047]: Wong-wong niku dikengken sujud niku peranti nguji keimanan wong-wong niku Padohal wong-wong niku nano sanggup lagi kerno pesendian tulang-tulang wong-wong niku sampun lema serto azab sampun ngeliputi wong-wong niku
+
+[^1048]: Nurut kebiasoan yên tedades di tana Arab, sesios wong angsal minasoke binatang atawa wong ngên nujuke pandangannyo yên tajam. Hal niki ayûn didamelke pulo' kepado Nabi Muhammad s.a.w., tapi Allah meliharonyo, sehinggo tehindar dari bahaya niku, sema’pundi disemayoke Allah jerû surat Al Maidah ayat 67. Kekuatan pandangan mato niku pado maso ma’niki dinten diwawôi ngên hypnotisme.
+
+[^1049]: Al Haaqaah nurut bahaso retinyo yên cengki tedades. dinten kiamat dinamoke Al Haaqqah kerno Dia cengki tedades.
+
+[^1050]: Al Qaari'ah nurut bahaso retinyo yên genterke ati, dinten kiamat dinamike Al Qaari'ah kareno Dio genterke ati.
+
+[^1051]: Petir yên keras nian yên nyebabke suara yên ngguntur yên angsal ngancurke.
+
+[^1052]: Wong-wong niku abîs diancûrke sami sekali serto nano wênten keturunan
+
+[^1053]: umat-umat kerehen yên ngingkari nabi-nabi ma’kayo kaum shaleh, kaum Syu'aib serto lian-lian serto negeri-negeri yên dijungkir bali’ke nikula negeri-negeri kaum Luth. padohal kesalahan yên didamelke wong-wong niku nikula nustoi sedanten rasul.
+
+[^1054]: Yên dibakto jerû baito Nabi Nuh peranti diselametke nikula keluargo Nabi Nuh serto wong-wong yên mukmin selian anaknyo yên durhako.
+
+[^1055]: Tiupan yên bungaran yên pado waktu niku alam semesto dades ancûr.
+
+[^1056]: catetan amalan damelannyo.
+
+[^1057]: Kame’ sung tindakan yên sekeras-kerasnyo.
+
+[^1058]: Sedanten malaêkat-malaêkat serto Jibril kalu ngadep Tuhan nedo waktu sios dinten. Napibilo didamelke ole wong, nedo waktu sêkêt pulu ribu taun.
+
+[^1059]: Wong yên nyimpen hertonyo serto nano ayun metuke zakat serto nano pulo' nafkakenyo ke jalan yên lese
+
+[^1060]: Budak-budak tumbasan yên angsal jerû peperangan dengên wong kafîr, dêdê buda’ tumbasan yên angsal di luar peperangan. jerû peperangan dengên wong-wong kafîr niku, betino-betino yên ditawan biasonyo dibagî-bagîke kepado kaum muslimin yên tumut jerû peperangan niku, serto kebiasoan niki dêdêla sios yên diwajibke. Imam angsal ngelarang kebiasoan niki. Maksudnyo: budak-budak yên diwênteni yên domiknyo nano tumut tetawan besami-semanyo.
+
+[^1061]: Maksudnyo: zina, homoseksual, lesbian.
+
+[^1062]: Yen dimaksud dengen ayat niki nikula bahwo wong-wong kafir niku diciptoke Allah dari mani peranti beriman serto betakwa kepado Nyo, ma’kayo yên dikelapke ole Rasul. dades kalu wong-wong niku nano beriman nano berhak melebet suargo.
+
+[^1063]: Tingali surat Al Mu'minun ayat 12, 13 serto 14
+
+[^1064]: Ngelapke bahwo Allah wênten sema jugo anak. Nurut Ibnu Katsir kelapan niki dikelapke sedêrêng jin niku melebet Islam.
+
+[^1065]: wênten di antaro wong-wong Arab kalu wong-wong niku ngelintasi enggon yên sunyi, dades wong-wong niku nedo pelindûngan kepado jin yên wong-wong niku anggep kuaso di enggon niku.
+
+[^1066]: waktu sesampun Nabi Muhammad s.a.w. diutus dades rasul.
+
+[^1067]: Sembahyang dinten niki mulo-mulo wajib, sedêrêng turun ayat ke 20 jerû surat niki. Sesampun tûrunnyo ayat ke 20 niki hukumnyo dades sunat.
+
+[^1068]: (Maksudnyo ayat niki iola, bahwo anggota-anggota badan wong dades saksi tehadep damelan yêng sampun wong-wong niku damelke ma’ kayo wênten jerû surat Nur ayat 24)
+
+[^1069]: \[kareno hebatnyo penderitoan pado saat ayun padem serto ketakutan ayun ninggalke dunio serto ngadepi akhirat]
+
+[^1070]: sebagian mufasir ngertike “demi angin yên dikîrîm
+
+[^1071]: Maksudnyo: terbang peranti ngelaksanoke kêngkênan Tuhannyo
+
+[^1072]: Di waktu malaêkat tûrûn peranti makto wahyu, sebagîan ahli tafsir bependapet, bahwo yêng dimaksûd dengên An nasyiraat wêntenla angin yêng betiûp dengên makto ujan.
+
+[^1073]: Maksudnyo: waktu peranti bekûmpûl besami-sami beserto umat wong-wong niku masîng-masîng
+
+[^1074]: Maksudnyo: bumi ngûmpûlke wong-wong urip dipemukoannyo serto wong-wong padem jerû perûtnyo
+
+[^1075]: Yên dimaksud dengên naungan di ngeriki dêdêla naungan peranti betedû tapi asap api nerako yên ngewêntêni telu gejolak, Yakni di kanan, di kiri serto di pûcû’. niki retinyo bahwo azab niku ngepûng wong-wong kafîr dari sedanten penjuru.
+
+[^1076]: \[Sebagîan ahli tafsir ngelapke, bahwo yêng dimaksud dengên rûkû’ di ngeriki ya’ni tûndûk kepado kêngkênan Allah; sebagîan yêng liannyo ngelapke, Maksudnyo nikula semayang]
+
+[^1077]: yên dimaksûd dengen berito ageng niku wênten berito tentang dinten bebangkît.
+
+[^1078]: Niki wêntenla bantahan tehadep pendapet wong-wong kafir Mekah yên ngingkari dinten bebangkît sami dinten kiamat.
+
+[^1079]: Malam niku disebût sebagî kelambi kareno malam niku gelep nutupi dunio sebagî kelambi nutupi beserto wong.
+
+[^1080]: Maksûdnyo: di nerako Jahannam wenten sios panggonan yeng dari panggonan niku sedanten penjago nerako ngêntêp serto ningali isi nerako.
+
+[^1081]: Yên dimaksûd dengen kitab di ngeriki wentenla buku catetan amalan wong.
+
+[^1082]: Pakar tafsir wenten Pendapet yên lian tentang maksud rûh pado ayat niki. wenten yên ngelapke Jibril, wenten yeng ngelapke tentero Allah, wenten pulo' yên ngelapke rûh wong.
+
+[^1083]: jerû ayat 1 s/d 5 Allah besumpa dengen malaêkat-malaêkat yên bemacem-macem perangi serto ûrûsannyo, bahwo wong ayûn dibangkîtke pado dinten kiamat. Sebagîan ahli tafsir bependapet, bahwo jerû ayat-ayat niku Allah besumpa dengen bintang-bintang.
+
+[^1084]: Sesampûn wong-wong kafîr ngerungu wentennyo dinten kebangkitan sesampûn pademnyo wong-wong niku ngeroso heran serto nguyo’ sebab nûrût keyakinan wong-wong niku nano wenten dinten kebangkitan niku. Nikula sebabnyo wong-wong niku betaken yên ma’niku.
+
+[^1085]: Cerios-cerios niki wong-wong niku ngelapke wentenla sebagî katoan saos, dîdînyo kareno wong-wong niku pecayo dengen dinten bebangkît.
+
+[^1086]: Kereno hebatnyo suasano dinten bebangkît niku wong-wong niku ngeroso bahwo îdûp di dunio niki sedenget saos.
+
+[^1087]: wong buto niku benami Abdullah bin Ummi Maktum. Dio rawû kepado Rasulullah s.a.w. nyûwûn ajaran-ajaran tentang Islam; sampûn niku Rasulullah s.a.w. berai masem serto melengos daripadonyo, kereno beliau sedeng ngadepi pengageng Quraisy dengen pengarepan supayo pengageng -pengageng niku ayûn masûk Islam. dades tûrûnla surat niki sebagî tegûran kepado Rasulullah s.a.w
+
+[^1088]: Ya’niku pengageng-pengageng Quraisy yên sedeng dihadepi Rasulullah s.a.w. yên diarepkenyo ayun malebu ke Islam.
+
+[^1089]: Maksûdnyo: Kitab-Kitab yên ditûrûnkan kepado nabi-nabi yên asalnyo dari Lauhul Mahfuzh.
+
+[^1090]: Yên dimaksûd dengen nentukennya iolah nentuke tahapan kedadesannyo, umurnyo, rezkinyo, serto nasibnyo.
+
+[^1091]: Memudake jalan maksudnyo memudake kelahirannyo atawa ngesûng pesedioan kepadonyo peranti nyalani jalan yên leser atawa jalan yên seset.
+
+[^1092]: Maksûdnyo wong-wong niku ditimpo kehinoan.
+
+[^1093]: Maksûdnyo: sesampûn diterangke bahwo Al Quran niku selesernyo  dari Allah serto di jerûnyo berisi pelajaran jugo petûnjû’ yên mîmpîn wong ke jalan yên lûrûs, ditakenkenyola kepado wong-wong kafir niku :"Jalan pundi yên ayûn niko tempû male?"
+
+[^1094]: Yên dimaksûd dengen wong-wong yên curang di ngeriki nikula wong-wong yang sekewet waktu naker serto nimbang.
+
+[^1095]: Sijjin: nami kitab yên nyatet sedanten damelan wong-wong yên durhako
+
+[^1096]: Maksûdnyo: sesios-sios nano peca’ napi yên wong-wong niku kelapke bahwo wong-wong niku para’ pado sisi Allah.
+
+[^1097]: 'Illiyyin: nami kitab yên nyatet sedanten damelan wong-wong yên bebakti.
+
+[^1098]: Maknonyo: wong di dunio niki yên disadarinyo atawa nano, wêntenla jerû pejalanan kepado Tuhannyo. Serto nano angsal nano dio ayûn kepanggî Tuhannyo peranti nerimo balesanNnyo dari damelannyo yên jahat jugo yên saê.
+
+[^1099]: Yên dimaksûd dengen kîjîng ke kîjîng niki wêntenla dari setetes banyu mani sampî diberana’ke, sampûn niku di maso budak alit, anom, serto sampe ageng. Dari urip sampe padem serto ditangike lagi.
+
+[^1100]: ya’ni pengageng-pengageng Najran di Yaman.
+
+[^1101]: Yên dimaksûd dengen “natangke cobaan” ya’ni pecak nyikso, ngerawûke bencano, munu serto liannyo
+
+[^1102]: Maksûdnyo: wong-wong niku nano wikan lolos dari kekuasoan Allah.
+
+[^1103]: Raj'i retinyo mantû’. hujan dinamike Raj'i jerû ayat niki, kerno hujan niku berasal dari uap yên munggah dari bumi ke udaro, sampûn niku tûrûn ke bumi, mantû’ male ke pûcû’, serto dari pûcûk tûrûn ke bumi serto ma’ nikula seterûsnyo
+
+[^1104]: Maksûdnyo: jalan yên ngebakto kepado kebahagioan dunio serto akhîrat.
+
+[^1105]: Malem yên sepûlû niku ya’ni malem sepûlû teakhîr dari bulan Ramadhan. Serto wênten jugo yên ngelapke sepûlû yên pangkal dari bulan Muharram temasûk di jerûnyo dinten Asyura. wênten pulo'’ yên ngelapke bahwo malem sepûlû niku wêntenla sepûlû malem setunggal bulan Zulhijjah.
+
+[^1106]: Iram nikula ibukota kaum 'Aad.
+
+[^1107]: Lemba niki panggonannyo di bagȇan utaro Jazirah Arab antaro kota Madinah serto Syam. Wong-wong niku neta’-neta’ batu gunung peranti ngawȇk gedûng-gedûng enggon wong-wong niku serto wênten pulo' yên ngelubangi gunung-gunung peranti panggonan wong-wong niku serto panggonan belîndûng.
+
+[^1108]: Maksûdnyo: wêntenla Allah nyalake wong-wong yên ngelapke bahwo kesogêan niku wêntenla sios kemulioan serto kemiskinan niku sios kehinoan peca’ yên tekelap jerû ayat 15 serto 16. Tapi selesernyo kesogêan serto kemiskinan niku ujian Tuhan peranti hambo-hambo-Nyo.
+
+[^1109]: yên dimaksûd dengen nano mulioke buda’ yatîm wêntenla nano ngesûngke hak-haknyo serto nano bedamel saê kepadonyo.
+
+[^1110]: Maksûdnyo: kekerasan azab Allah sami dengen keadilan-Nyo.
+
+[^1111]: Yên dimaksûd dengen duo jalan nikula jalan kesaêan serto jalan kejahatan.
+
+[^1112]: Maksûdnyo: malem-malem yên gelep.
+
+[^1113]: Yên dimaksûd dengen ngeraso dirinyo cekap ya’ni nano merluke petolongan Allah serto nano betakwa kepado-Nyo.
+
+[^1114]: Maksûdnyo: ketiko tûrûnnyo wahyu kepado Nabi Muhammad s.a.w. terenti sementaro waktu, wong-wong musyrik bekelap: "Tuhannyo (Muhammad) sampûn ninggalkennyo serto benci kepado-Nyo". dades tûrûnla ayat niki peranti manta kelapan wong-wong musyrik niku.
+
+[^1115]: Yên dimaksûd dengen bingung di ngeriki wentenla kebingungan peranti angsl kesaêan yên nano angsal dicapî ole akal, sampun niku Allah nûrûnke wahyu kepado Muhammad s.a.w. sebagî jalan peranti mîmpîn umat nuju keselamatan dunio jugo akhîrat.
+
+[^1116]: Yên dimaksûd dengen beban di ngeriki wentenla kesaroan-kesaroan yên diderito Nabi Muhammad s.a.w. waktu nyampeke risalah.
+
+[^1117]: ninggike nami Nabi Muhammad s.a.w di ngeriki maksûdnyo wentenla munggake derajat serto numutke naminyo dengen nami Allah pado kalimat syahadat, dadeske taat kepado Nabi Temasû’ taat kepado Allah serto lian-lian.
+
+[^1118]: Maksûdnyo: sebagîan ahli tafsîr nafsîrke napibilo niko (Muhammad) sampûn telas cawesan, dades beribadatla kepado Allah; napibilo niko sampûn nelaske namelke ûrûsan dunio dades damelkela ûrûsan akhîrat, serto wenten jugo yên ngelapke: napibilo sampûn nelaske namelke semayang bedoala.
+
+[^1119]: yên dimaksûd dengen “Tin” ole sebagîan ahli tafsîr wêntenla aranan Nabi Nuh, Ya’ni Damaskus yên kata taneman Tin; serto zaitun niku Baitul Maqdis yên kata tûmbû Zaitûn.
+
+[^1120]: Bukît Sinai ya’ni enggon Nabi Musa a.s. nerimo wahyu dari Tuhannyo
+
+[^1121]: Maksûdnyo: Allah ngajar wong dengen perantaroan nulîs maco.
+
+[^1122]: yên dimaksûd dengen wong yên ayûn nano angsal niku iola Abu Jahal, yên nano angsal niku wentenla Rasulullah dewe’. Tapi usoho niki nano behasil kereno Abu Jahal ningali wênten yên nakûtkenyo. Sesampûn Rasulullah semayang disampeke wong kabar niku kepado Rasulullah. Sampun niku Rasulullah ngelapke: "Kalu dadesla Abu Jahal bedamel ma’niku ceto dio ayûn dibinasoke Malaêkat".
+
+[^1123]: Maksûdnyo: melebetla ke jerû nerako dengen narî’ kepala’nyo.
+
+[^1124]: Malaêkat Zabaniyah wêntenla Malaêkat yên nyikso wong-wong yên bedoso di jerû nerako
+
+[^1125]: Malem kemulioan niku pado baso Indonesia dikelapke dengen malem Lailatul Qadr ya’niku sios malem yên penu kemulioan, keagengan, kareno pado malem niku bungaran tûrûnnyo Al Quran.
+
+[^1126]: yên dimaksûd dengan isi Kitab-Kitab yên lempeng ya’ni isi Kitab-Kitab yên ditûrûnke kepado nabi-nabi ma’kayo Taurat, Zabur, serto Injil yên murni.
+
+[^1127]: Lempeng retinyo tebî dari syirik (nyekutuke Allah) serto tebî dari kesesetan.
+
+[^1128]: Maksûdnyo wênten di antaro wong-wong niku yên pûtî rainyo serto wênten pulo’ yên item serto seliannyo.
+
+[^1129]: Sebagîan ahli tafsîr nerangke bahwo maksud ayat niki iola: wong niku kuat nian cintonyo kepado harto sehinggo dio dades kîkît.
+
+[^1130]: Maksûdnyo: Bemega-mega soal kata harto, anak, pengikut, kemulioan, lan seumpamonyo sampûn melalike niko dari ketaatan.
+
+[^1131]: 'ainul yaqin artinyo ningali dengan mato kepalo dewek singgo nîmbûlke keyakinan yên kuat.
+
+[^1132]: Maksûdnyo ngumpulke serto ngerȇkên-rȇkên harto yang kernonyo Dio dades ketat serto nano ayûn ngesûngkenyo di jalan Allah.
+
+[^1133]: Yên dimaksûd dengen tentero begaja iola tentero yên dîpîmpin ole Abrahah Gubernur Yaman yên ayûn ngancûrke Ka'bah. Sedereng melebet ke kota Mekah tentero niku diserang bûrûng-bûrûng yên mabêtinyo dengen batu-batu alit sehinggo wong-wong niku musno.
+
+[^1134]: Wong Quraisy biaso ngewentenke pejalanan terutamo peranti beniago ke negeri Syam pado mûsîm panas serto ke negeri Yaman pado mûsîm dingin. Pado pejalanan niku wong-wong niku angsal jaminan keamanan dari penguaso-penguaso dari negeri-negeri yén dilewatinyo. Niki wentenla sios nikmat yén ageng nian dari Tuhan wong-wong niku. Kerenonyo niku sewajarnyola wong-wong niku nyemba Allah yén sampûn ngesûngke nikmat niku kepado wong-wong niku.
+
+[^1135]: Riya’ wentenla namelke sios damelan saê nano peranti cari keridhoan Allah tapi peranti nyari pujian wong-wong atawa tekelahar di masyarakat.
+
+[^1136]: Sebagîan mufassirin ngertike: nano ayûn mayar zakat.
+
+[^1137]: Yén dimaksûd bekorban di ngeriki ya’ni nyemelê binatang Qurban serto nyukuri nikmat Allah.
+
+[^1138]: Maksûdnyo tepûtûs di ngeriki
+
+[^1139]: Yên dimaksûd dengen “keduo tangan Abu Lahab” wêntenla Abu Lahab dewe’.
+
+[^1140]: Tukang makto kayu tunu jerû baso Arab wêntenla sîndîran peranti penyebar fitnah. Sema Abu Lahab diarani tukang makto kayu tunu kereno dio kerep nyebar-nyebarke fitnah peranti nyahat-nyahatke Nabi Muhammad s.a.w. serto kaum Muslim.
+
+[^1141]: Biasonyo tukang-tukang sihir waktu namelke sîhîrnya damelke bûhûl-bûhûl dari tali lalu macoke jampi-jampi dengen ngembûs-ngembûske nafasnyo ke bûhûl niku.

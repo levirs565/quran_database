@@ -21,8 +21,6 @@ Nu Mahawelas (tur) Nu Mahaasih.
 
 Anu kagungan dinten wawales. [^1]
 
-[^1]: Yaumid-dīn (dinten wawales), poé nalika manusa narima wawales amalna, alus atawa goréng. Disebut ogé yaumul qiyāmah, yaumul ḥisāb, jeung sajabana.
-
 ## 1:5
 
 Mung ka Gusti abdi sadaya ibadah sareng mung ka Gusti abdi sadaya neda pitulung.
@@ -31,37 +29,25 @@ Mung ka Gusti abdi sadaya ibadah sareng mung ka Gusti abdi sadaya neda pitulung.
 
 Paparin abdi sadaya pituduh kana jalan (agama) anu lempeng, [^2]
 
-[^2]: Jalan anu lempeng nyaéta jalan hirup anu bener, anu ngadatangkeun kabagjaan di dunya tur di ahérat.
-
 ## 1:7
 
 (nyaéta) jalanna jalmi-jalmi nu parantos dipaparinan ni’mat ku Gusti, sanés jalanna jalma-jalma anu dibenduan (ku Gusti), sareng sanés jalanna jalma-jalma anu sasar. [^3]
-
-[^3]: Jalma-jalma anu dibenduan (ku Gusti) nyaéta anu ngahaja nolak ajaran Islam. Jalma-jalma anu sasar nyaéta anu ngahaja nyokot jalan séjén salain ajaran Islam.
 
 ## 2:1
 
 Alif Lām Mīm. [^4]
 
-[^4]: Sababaraha surat dina Al-Qur’an dibuka ku hurup abjad saperti Alif Lām Mīm, Alif Lām Rā, jeung sajabana. Makna éta hurup-hurup téh mung Allah anu uninga. Aya anu boga pamadegan yén éta hurup-hurup téh nyaéta ngaran surat; Aya ogé anu boga pamadegan yén éta hurup-hurup téh gunana keur narik perhatian, atawa keur ngaisaratkeun yén Al-Qur’an téh diturunkeun dina basa Arab anu disusun tina hurup-hurup abjad nu kasebut tadi.
-
 ## 2:2
 
 Ieu Kitab (Al-Qur’an) henteu aya kamangmangan di jerona, minangka pituduh pikeun jalma-jalma anu takwa, [^5]
-
-[^5]: Takwa nyaéta ngalaksanakeun sagala peréntah Allah jeung ngajauhan sagala larangana-Na.
 
 ## 2:3
 
 (nyaéta) jalma-jalma anu iman ka nu gaib, anu ngadegkeun salat, anu ngainpakkeun [^6] sabagian rejeki anu ku Kami geus dipaparinkeun ka aranjeunna,
 
-[^6]: Kaasup “ngainpakkeun harta di jalan Allah” nyaéta ngabalanjakeun harta pikeun kapentingan jihad, pangwangunan masjid, rumah sakit, upaya panaluntikan ilmiah, jeung sajabana.
-
 ## 2:4
 
 anu iman kana (Al-Qur’an) anu diturunkeun ka hidep (Muhammad) sarta kana (kitab-kitab) [^7] anu diturunkeun ka saméméh hidep, jeung aranjeunna téh yakin kana (ayana) poé ahérat.
-
-[^7]: Anu diturunkeun ka nabi-nabi seméméh Nabi Muhammad Saw. nyaéta Torét, Jabur, Injil, jeung Suhuf-suhuf (lembaran-lembaran) anu henteu saperti Kitab.
 
 ## 2:5
 
@@ -71,13 +57,9 @@ Aranjeunna pisan anu meunang pituduh ti Pangéranana jeung nya mung aranjeunna p
 
 Sabenerna jalma-jalma anu kupur, [^8] sarua baé pikeun maranéhna, naha hidep (Muhammad) méré pépéling atawa teu méré pépéling ka maranéhna, tetep baé maranéhna mah moal iman.
 
-[^8]: Kapir/nu kupur nyaéta jalma nu teu percaya ka Allah, rasul-rasul-Na, malaikat-malaikat-Na, kitab-kitab-Na, sarta Poé Kiamat.
-
 ## 2:7
 
 Allah geus ngonci haté jeung pangdéngé maranéhna. Panénjona ogé geus katutup. [^9] Maranéhna bakal meunang siksaan anu kacida beuratna.
-
-[^9]: Ku lantaran kitu, naséhat atawa pituduh moal bisa asup ka jero haté maranéhna.
 
 ## 2:8
 
@@ -91,13 +73,9 @@ Maranéhna téh seja nipu ka Allah jeung jalma-jalma anu iman, padahal maranéhn
 
 Dina haté maranéhna téh aya panyakit [^10] tuluy ku Allah ditambahan panyakit anu séjén. Pikeun maranéhna siksaan anu kacida (matak) nyerina, lantaran maranéhna ngabohong.
 
-[^10]: Kasakit haté téh contona mangmang sarta teu yakin kana bebeneran, munapék, jeung teu boga iman.
-
 ## 2:11
 
 Lamun seug dicaritakeun ka maranéhna, “Omat aranjeun ulah nyieun karuksakan di bumi,” [^11] nya maranéhna ngajawab, “Saenyana kuring saréréa téh justru jalma-jalma anu nyieun kahadéan.”
-
-[^11]: Ngarémpang ajén-ajén anu ditetepkeun agama bakal ngakibatkeun ieu alam ruksak malah ancur.
 
 ## 2:12
 
@@ -159,10 +137,6 @@ Pék bubungah ku hidep (Muhammad) jalma-jalma anu iman sarta migawé amal-amal s
 
 Saleresna Allah henteu ragu-ragu midamel paupamaan ku naon baé ogé (saperti umpamana) ku rametuk, malah ku nu leuwih lembut tibatan éta. Sedengkeun jalma-jalma anu iman mah tangtu aranjeunna terangeun yén sabenerna éta (paupamaan) téh bebeneran ti Pangéranana, tapi jalma-jalma nu kupur mah kalah ka ngomong kieu, “Naon maksudna Allah nyieun paupamaan ku nu kitu?” Mantenna nyasarkeun ku éta (paupamaan) ka jalma loba, [^12] jeung deui Mantenna maparin pituduh ku éta (paupamaan) ka jalma nu loba ogé, tapi henteu aya nu disasarkeun ku Mantenna ku éta (paupamaan) iwal ti jalma-jalma pasék. [^13]
 
-[^12]: Éta jalma téh kasasar ku lantaran ingkar sarta embung nurut kana pituduh-pituduh Allah. Dina ieu ayat dijelaskeun: Ku lantaran éta jalma ingkar kana naon sababna Allah ngajantenkeun rambetuk minangka paupamaan, mangka éta jalma téh barobah jadi kasasar.
-
-[^13]: Jalma pasék nyaéta anu ngarempak katangtuan-katangtuan agama, boh mangrupa omongan boh mangrupa pagawéan.
-
 ## 2:27
 
 (Jalma-jalma pasék téh) nyaéta nu geus ngabolaykeun jangji Allah anu geus dipaheutkeun, megatkeun perkara anu ku Allah diparéntahkeun kudu disambungkeun, jeung ngaruksak di (ieu) bumi. Maranéhna nu kitu téh golongan jalma-jalma anu rugi.
@@ -178,8 +152,6 @@ Mantenna (Allah) anu geus midamel sagala nu aya di (ieu) bumi keur maranéh. Ti 
 ## 2:30
 
 (Sing inget) nalika Pangéran hidep (Muhammad) ngadawuh ka para malaikat, “Sabenerna Kami rék ngangkat kalipah [^14] di (ieu) bumi.” Aranjeunna (para malaikat) unjukan, “Naha Gusti badé ngangkat (kalipah) di lebet éta (bumi) jalmi anu bakal ngadamel kareksakkan sareng bakal ngocorkeun getih, padahal apan abdi sadaya (nu tara lirén) ngucapkeun tasbéh muji-muji ka Gusti mah sareng deui (salamina) nyucikeun (Jenengan) Gusti?” Mantenna ngawaler, “Sabenerna Kami Mahauninga kana sagala rupa anu henteu dipikinyaho ku aranjeun.”
-
-[^14]: Kalipah téh ngandung arti pangganti, pamingpin, tur pangawasa.
 
 ## 2:31
 
@@ -197,15 +169,9 @@ Mantenna malik ngadawuh (ka Adam), “Hé Adam, sok terangkeun ka aranjeunna (ma
 
 Sing inget ogé hidep (Muhammad) waktu Kami maréntah ka para malaikat, “Prak geura sujud ka Adam (kalayan sujud kahormatan)!” Atuh tuluy aranjeunna pada sujud, iwal ti Iblis. [^15] Manéhna nolak, nyombongkeun diri, jeung kaasup kana golongan anu kapir.
 
-[^15]: Iblis téh kaasup kelompok jin sarta kaasup anu diperéntah pikeun sujud.
-
 ## 2:35
 
 Kami geus ngadawuh, “Hé Adam, sok hidep jeung pamajikan hidep cicing di ieu sawarga, jeung pék ku hidep duaan dahar kalayan ni’mat (sagala rupa kadaharan anu aya) di dinya sakarep hidep, (tapi) omat ulah rék ngadeukeutan ieu tangkal, [^16] sabab engké hidep bakal kaasup jalma-jalma anu dolim.” [^17]
-
-[^16]: Ceuk Iblis, saha anu ngadahar buah éta tangkal bakal abadi salilana aya di jero sawarga.
-
-[^17]: Dolim hartina kaniaya. Jalma anu dolim nyaéta anu ngalakukeun paggawéan kaniaya, anu ngarugikeun ka dirina sorangan atawa batur.
 
 ## 2:36
 
@@ -215,13 +181,9 @@ Tuluy sétan ngusrukkeun aranjeunna duaan ti éta sawarga nepi ka aranjeunna dik
 
 Saterasna Adam nampi sababaraha kalimah [^18] ti Pangéranana, nya Mantenna nampi kana tobatna (Adam). Saleresna Mantenna Maha Nampi Tobat (tur) Mahaasih.
 
-[^18]: Kecap “kalimah” nurutkeun sawaréh ahli tapsir nyaéta omongan pikeun ménta pangampura (tobat).
-
 ## 2:38
 
 Kami ngadawuh, “Jung aranjeun duaan geura turun ti ieu sawarga. [^19] Engké upama bener-bener datang ka aranjeun pituduh ti Kami, mangka saha baé anu nurut kana éta pituduh Kami, tangtu moal aya rasa kasalempang dina dirina jeung maranéhna moal nalangsa.”
-
-[^19]: Nabi Adam a.s. sarta Hawa nuang buah tangkal anu dicegah téa, anu ngabalukarkeun aranjeunna diusir ku Allah ti sawarga sarta diturunkeun ka dunya.
 
 ## 2:39
 
@@ -231,10 +193,6 @@ Sedengkeun jalma-jalma anu kupur jeung ngabohongkeun kana ayat-ayat Kami, maran�
 
 Hé Bani Israél, [^20] sing inget kana ni'mat (ti) Kami nu geus dipaparinkeun ku Kami ka maranéh jeung cumponan jangji [^21] maranéh ka Kami, tangtu Kami ogé bakal nyumponan jangji Kami ka maranéh. Ka Kami wungkul nya maranéh kudu sieun téh.
 
-[^20]: Israél nyaéta sebutan pikeun Nabi Yaqub a.s. Bani Israél nyaéta turunan anjeunna. Ayeuna dipikawanoh ku ngaran bangsa Yahudi.
-
-[^21]: Ti antara jangji Bani Israél ka Allah nyaéta ngan nyembah ka Mantenna, henteu ngayakeun tandingan kanggo Mantenna, sarta iman ka Nabi Muhammad Saw. sakumaha anu kasebut di jero Torét.
-
 ## 2:41
 
 Sing iman maranéh kana (Al-Qur’an) anu geus diturunkeun ku Kami, anu ngaenyakeun kana (Torét) anu aya di maranéh. Maranéh ulah jadi jalma anu pangheulana kapir kana éta (Al-Qur’an), sarta ulah rék ngajualan ayat-ayat Kami kana pangaji anu saeutik. Ngan ka Kami wungkul maranéh kudu takwa téh.
@@ -242,8 +200,6 @@ Sing iman maranéh kana (Al-Qur’an) anu geus diturunkeun ku Kami, anu ngaenyak
 ## 2:42
 
 Maranéh ulah rék nyampur-adukkeun nu bener jeung nu salah, [^22] sarta ulah nyumputkeun anu bener padahal maranéh nyaho.
-
-[^22]: Batil hartina kesalahan, kejahatan, kemungkaran, jeung sajabana.
 
 ## 2:43
 
@@ -269,13 +225,9 @@ Hé Bani Israél, sing inget kana ni’mat Kami anu geus dipaparinkeun ku Kami k
 
 Kudu sieun maranéh kana hiji poé (nalika) taya hiji jalma ogé anu bisa ngabéla anu lian saeutik ogé, jeung moal bakal ditarima sapaat (bébéla) [^23] ti éta (jalma), jeung moal bakal ditarima tebusan ti éta (jalma), sarta maranéhna téh moal ditulungan.
 
-[^23]: Sapa’at téh nyaéta pitulung nu dibikeun ku rasul atawa jalma-jalma nu tinangtu pikeun ngahampangkeun siksa atawa tanggungan hiji jalma di ahérat, tangtuna kalayan widi Allah.
-
 ## 2:49
 
 (Sing inget ogé hé Bani Israél) waktu Kami nyalametkeun maranéh ti (Fir’aun [^24] jeung) baladna Fir’aun anu nibankeun siksaan anu beurat ka maranéh. Maranéhna meuncitan anak-anak lalaki maranéh jeung ngantep ka anak-anak awéwé maranéh sina hirup. Nya di dinya (ayana) cocoba anu kacida beuratna ti Pangéran maranéh.
-
-[^24]: Fir’aun nyaéta gelar pikeun raja-raja Mesir di mangsa-mangsa nu geus kaliwat. Nurutkeun babad, Fir’aun di jaman Nabi Musa a.s. ngaranna Menephthan (1232-1224 SM) anakna Ramses.
 
 ## 2:50
 
@@ -285,8 +237,6 @@ Kudu sieun maranéh kana hiji poé (nalika) taya hiji jalma ogé anu bisa ngabé
 
 (Sing inget ogé hé Bani Israél) nalika Kami ngajangjikeun ka Musa opat puluh peuting. [^25] Tuluy maranéh (Bani Israél) bet ngajadikeun (arca mangrupa) anak sapi (pikeun sesembahan) sanggeus (miang)na (Musa), jeung maranéh (jadi) jalma-jalma anu dolim.
 
-[^25]: Hiji témpo mangsa nu dijangjikeun ku Allah pikeun narima pitunjuk (Torét); tapi umat Nabi Musa a.s. teu sabar nungguanana. Ku kituna, maranéhna nyembah patung anak sapi nu dijieun ku Samiri.
-
 ## 2:52
 
 Tuluy Kami ngahampura ka maranéh sanggeus éta sangkan maranéh sukuran.
@@ -295,13 +245,9 @@ Tuluy Kami ngahampura ka maranéh sanggeus éta sangkan maranéh sukuran.
 
 (Sing inget ogé hé Bani Israél) waktu Kami maparinkeun ka Musa Kitab jeung Furqān (anu ngabédakeun nu bener ti nu salah) sangkan maranéh meunang pituduh. [^26]
 
-[^26]: Nu dimaksud Kitab téh nyaéta Torét, sedengkeun nu dimaksud Furqān téh nyaéta katerangan-katerangan séjén pikeun ngabédakeun nu bener ti nu salah.
-
 ## 2:54
 
 (Sing inget ogé hé Bani Israél) nalika Musa nyanggem ka kaomna, “Hé kaom kuring! Aranjeun bener-bener geus ngadoliman diri aranjeun sorangan ku ngajadikeun (arca mangrupa) anak sapi (pikeun sesembahan). Ku kituna, geura tobat ka anu midamel aranjeun. Pék geura paéhan diri aranjeun! [^27] Kitu téh leuwih alus pikeun aranjeun mungguh nu midamel aranjeun. Mantenna bakal nampi tobat aranjeun. Saleresna Mantenna Maha Pangampunten (tur) Mahaasih.”
-
-[^27]: ”Ngabunuh diri anjeun” aya nu ngartikeun jalma-jalma nu teu nyembah kana patung anak sapi maéhan jalma nu nyembah kana éta patung. Aya ogé nu ngartikeun yén jalma nu nyembah patung anak sapi silih paéhan. Aya ogé nu ngartikeun maranéhna dititah maéhan diri maranéhna séwang-séwang dina ngalaksanakeun tobat.
 
 ## 2:55
 
@@ -315,8 +261,6 @@ Tuluy Kami ngahudangkeun deui maranéh sanggeusna paéh sangkan maranéh sukuran
 
 Kami ogé geus ngiuhan maranéh ku méga sarta nurunkeun “mannā” jeung “salwā” [^28] pikeun maranéh. Pék dalahar (dadaharan) nu aralus nu geus dipaparinkeun ku Kami ka maranéh! Maranéhna téh henteu ngadoliman Kami, tapi maranéhna sorangan nu sok ngadoliman dirina.
 
-[^28]: Mannā téh sarupa madu, sedengkeun Salwā sarupa jeung manuk puyuh.
-
 ## 2:58
 
 (Sing inget ogé) nalika Kami ngomong (ka Bani Israél), “Geura arasup ka ieu nagri (Baitul Maqdis). Pék dalahar sawaregna (sagala dahareun) nu aya di dinya sakarep maranéh. Geura arasup kana panto gerbang(na) bari dongko jeung ucapkeun ku maranéh, ‘Mugia Gusti ngahampunten ka abdi sadaya!’ Kami tangtu ngahampura ka maranéh tina dosa-dosa maranéh jeung bakal nambahan (kurnia) ka jalma-jalma anu migawé kahadéan.”
@@ -329,8 +273,6 @@ Tuluy jalma-jalma anu dolim mah anggur der ngarobah éta paréntah ku (paréntah
 
 (Sing inget ogé) waktu Musa meredih cai pikeun kaomna. Tuluy Kami nyarita, “Teunggeul éta batu ku iteuk hidep!” Saharita kénéh tina éta (batu) ngocor dua belas cai nyusu. Unggal rombongan geus nyahoeun kana tempat panginumanana (séwang-séwang). [^29] Pék geura dalahar jeung arinum sabagian tina rejeki (anu dipaparinan ku) Allah, jeung kadé ulah pisan-pisan nyieun karuksakan di ieu bumi.
 
-[^29]: Sakabéhna aya12 rombongan ti Bani Israél, sakumaha disebutkeun dina surat Al-A‘rāf/7:160.
-
 ## 2:61
 
 (Sing inget ogé hé Bani Israél) waktu maranéh ngomong kieu, “Hé Musa, kuring saréréa henteu tahan ngan (ngadahar) ku sarupa kadaharan wungkul. Atuh cing pangnyuhunkeun ka Pangéran anjeun pikeun kuring saréréa, sangkan Mantenna maparin naon-naon anu ditumuwuhkeun ku bumi, sarupaning sayurna, bonténgna, bawang bodasna, kacang adasna, jeung bawang beureumna.” Musa ngawaler, “Naha aranjeun ménta nu teu pira keur gaganti anu sakitu alusna? Atuh jung baé turun ka hiji dayeuh, pasti (di dinya) aranjeun bakal manggihan anu dipénta téa.” Nya tuluy maranéhna ditibanan kahinaan jeung kamiskinan, sarta maranéhna meunang (deui) bebendon ti Allah. Éta hal (kajadian) bongan maranéhna ingkar kana ayat-ayat Allah jeung (kungsi) nelasan nabi-nabi kalayan teu ḥaq (alesan anu bener). Éta téh lantaran maranéhna terus-terusan doraka jeung ngarempak wates.
@@ -338,8 +280,6 @@ Tuluy jalma-jalma anu dolim mah anggur der ngarobah éta paréntah ku (paréntah
 ## 2:62
 
 Sabenerna jalma-jalma anu iman, jalma-jalma Yahudi, jalma-jalma Nasrani, katut jalma-jalma Sabi’in [^30] saha baé (ti antara maranéhna) anu iman ka Allah jeung kana Poé Ahir sarta milampah amal soléh, aranjeunna meunang ganjaran ti mungguhing Pangéranana. Teu aya rasa pikarisieun dina dirina sarta aranjeunna moal pinanggih jeung kanalangsaan.
-
-[^30]: Sabi\`in téh umat saméméh umat Nabi Muhammad Saw. anu nyahoeun ayana Pangéran Anu Mahatunggal, sarta percaya kana pangaruh béntang-béntang.
 
 ## 2:63
 
@@ -352,10 +292,6 @@ Ti dinya apan sanggeusna éta (perjangjian) maranéh terus mangkir. Lamun teu ay
 ## 2:65
 
 Sabenerna maranéh geus nyaho ka jalma-jalma ti antara maranéh kénéh anu ngarempak cegahan dina poé Sabat. [^31] Nya Kami ngadawuh ka maranéhna, “Maranéh kabéh sing jadi monyét-monyét anu hina!” [^32]
-
-[^31]: Poé Sabat nyaéta dinten Saptu, poé husus pikeun ngalaksanakan ibadah jeur urang Yahudi.
-
-[^32]: Monyét: Bener-bener barobah kaayaan jadi monyét minangka kutukan ti Allah. Sabagian ahli tapsir ngartikeun “ngabogaan sipat-sipat saperti monyét.”
 
 ## 2:66
 
@@ -397,13 +333,9 @@ Tuluy kalah ka jadi teuas haté maranéh téh (nepi ka) saperti batu, malah leuw
 
 Naha aranjeun (kaom muslimin) ngarep-ngarep pisan (sangkan) maranéhna percaya kana (agama) aranjeun, sedengkeun aya sagolongan ti maranéhna anu geus ngadéngékeun dawuhan Allah, (ngan) tuluy maranéhna ngarobah kana éta (dawuhan) sabada maranéhna ngarti, padahal maranéhna nyaho (yén maranéhna téh geus ngarobah éta dawuhan)? [^33]
 
-[^33]: Anu dimaksud nyaéta jalma-urang Yahudi di Madinah anu ngarobah-robah eusi Torét, utamana ngeunaan Nabi Muhammad Saw.
-
 ## 2:76
 
 Lamun seug paamprok jeung jalma-jalma anu iman, maranéhna ngomong, “Kuring saréréa ogé geus iman (kana agama jeung nabi anjeun anu geus dijelaskeun dina Torét).” Tapi lamun geus baralik deui ka batur-baturna mah, maranéhna téh nanya kieu, “Naha maranéh maké nyaritakeun ka maranéhna (kaom muslimin) hal-hal anu geus dijelaskeun ku Allah ka maranéh (dina Torét). Atuh engké ku maranéhna dipaké hujah pikeun ngabantah maranéh di payuneun Pangéran maranéh. Naha maranéh téh teu ngagunakeun akal?” [^34]
-
-[^34]: Di jero Torét dijelaskeun ngeunaan Nabi Muhammad Saw. anu badé sumping minangka nabi pamungkas, tapi éta katerangan téh disumputkeun ku urang Yahudi, sabab rémpan bakal jadi bumérang pikeun maranéhna.
 
 ## 2:77
 
@@ -441,8 +373,6 @@ Sing inget hidep (Muhammad) waktu Kami nagih jangji ti Bani Israél (nyaéta nge
 
 Ti dinya geuning maranéh (Bani Israél) kalah ka maéhan sapapada maranéh sorangan jeung ngusir sabagian maranéh ti lembur-lemburna, padahal diharamkeun ka maranéh milampah hal éta. Maranéh kalah ka silih bantu dina ngusir maranéhna ku kajahatan jeung ku mumusuhan. (Tapi,) lamun seug (aya ti antara) maranéhna diboyong (ku musuh), tuluy ditarebus ku maranéh. Naha maranéh téh ngan iman kana sabagian tina Kitab (Torét) bari kupur (mungkir) kana sabagianana deui? Euweuh deui wawales (anu pantes) pikeun jalma ti antara maranéh nu milampah kitu kajaba kahinaan dina kahirupan dunyana, sarta dina Poé Kiamat maranéhna bakal ditibanan siksa anu kacida beuratna. Allah mah moal hilapeun kana sagala anu dipilampah ku maranéh. [^35]
 
-[^35]: Sakabéh jangji sarta sumpah anu diucapkeun ku Bani Israél sakumaha disebut dina ayat 83 jeung 84 di luhur dirempak. Ieu téh kanyataan sajarah antara dua suku Yahudi di Madinah, nyaéta Bani Quraézah sarta Bani Nadir sok perang. Tapi lamun aya urang Yahudi di antara kadua suku éta kaboyong ku suku séjén, contona ku suku Aus sakutuna Bani Quraézah, atawa suku Khazraj sakutuna Bani Nadir, maranéhna ngahiji pikeun nebusna.
-
 ## 2:86
 
 Maranéhna anu karitu téh nyaéta anu geus meuli kahirupan dunya ku ajén (kahirupan) ahérat. Mangka, siksaanana moal teuing bakal diénténgkeun. Maranéhna ogé moal bakal ditulungan.
@@ -459,15 +389,9 @@ Maranéhna kalah ka ngomong kieu, “Haté kuring kabéh geus katutup.” Malah 
 
 Sanggeus datang ka maranéhna Kitab (Al-Qur’an) ti mungguhing Allah anu ngaenyakeun kana eusi (Torét) nu aya di maranéhna, [^36] (maranéhna ngabohongkeun kana éta kitab). Padahal saméméhna mah maranéhna téh ngarep-ngarep (datangna Muhammad supaya méré) bantuan pikeun ngéléhkeun jalma-jalma kapir.Tapi barang geus datang ka maranéhna Nabi (Muhammad) anu geus dipikanyaho ku maranéhna, maranéhna téh bet jadi ingkar. Ku sabab kitu, la’nat Allah pikeun jalma-jalma kapir.
 
-[^36]: Al-Qur’an ogé ngajarkeun taohid anu diajarkeun Torét.
-
 ## 2:90
 
 Kacida goréngna (pagawéan) maranéhna ngajual dirina ku jalan ingkar kana naon-naon nu geus diturunkeun ku Alloh, karna dengki yén Alloh maparinkeun kurnia-Na ka nu dikersakeun ku Mantenna ti antara hamba-hamba-Na. [^37] Ku sabab kitu, maranéhna meunang kaambek anu manglipet-lipet. [^38] Atuh pikeun jalma-jalma kapir mah siksaan anu kacida hinana.
-
-[^37]: Wahyu (kanabian) ka Nabi Muhammad Saw.
-
-[^38]: Bebendon kahiji ku sabab maranéhna mantangul ka Nabi Musa a.s. Bebendon kadua ku sabab maranéhna ingkar ka Nabi Muhammad Saw.
 
 ## 2:91
 
@@ -492,8 +416,6 @@ Tapi maranéhna moal ngarep-ngarep paéh salawasna ogé lantaran dosa-dosa anu g
 ## 2:96
 
 Sabenerna hidep (Muhammad) bakal manggih (kanyataan yén) maranéhna (Yahudi) téh jalma anu pangsarakah-sarakahna kana kahirupan (dunya), malah (leuwih sarakah) tibatan jalma-jalma musrik. [^39] Salah saurang ti antara maranéhna aya nu hayangeun dibéré umur sarébu tahun, padahal éta (umur panjang) téh moal matak ngajauhkeun maranéhna tina siksaan. Allah Maha Ningali kana naon-naon nu dipilampah ku maranéhna.
-
-[^39]: Musrik nyaéta jalma anu nyarékatkeun Allah jeung anu lian-Na.
 
 ## 2:97
 
@@ -527,8 +449,6 @@ Sabenerna upama maranéhna iman (ka Muhammad sarta kana Al-Qur’an) tur takwa m
 
 Hé jalma-jalma anu iman, omat ulah ngucapkeun (ka Muhammad) “rā’inā”, tapi pok ucapkeun, “unẓurnā”, [^40] jeung regepkeun ku aranjeun. Pikeun jalma-jalma kapir mah (disadiakeun) siksaan anu kacida nyerina.
 
-[^40]: Rāinā hartina “perhatoskeun abdi sadaya!” Tapi urang Yahudi waktu ngedalkeunana bari monyongkeun biwirna, nepi ka anu dipimaksud ku maranéhna nyaéta “ru‘ūnah” anu hartina “kalintang beletna”, minangka poyokan ka Rasulullah. Éta pisan sababna kunaon Allah miwarang para sahabat pikeun nukeur kecap “rāinā” ku kecap“unẓurnā” anu hartina sarua jeung “rāinā.”
-
 ## 2:105
 
 Jalma-jalma kapir ti golongan Ahli Kitab jeung jalma-jalma musrik mah teu ngaharepkeun diturunkeunana kahadéan (wahyu) ka aranjeun ti Pangéran aranjeun. (Nanging,) ari Allah mah ngahususkeun rahmat-Na ka saha baé nu dikersakeun (ku Mantenna). (Apan) Allah téh anu kagungan kurnia anu agung.
@@ -556,8 +476,6 @@ Prak adegkeun salat jeung kaluarkeun jakat ku aranjeun. Kahadéan naon baé anu 
 ## 2:111
 
 Maranéhna (kaom Yahudi jeung Nasrani) ngomong kieu, “Moal pisan-pisan aya nu bakal asup sawarga kajaba urang Yahudi atawa Nasrani.” [^41] Éta téh saukur lamunan maranéhna wungkul. Caritakeun ku hidep (Muhammad) ka maranéhna, “Atuh sok ngadatangkeun bukti bebeneran (omongan) aranjeun lamun aranjeun jalma-jalma anu bener!”
-
-[^41]: Urang Yahudi ngomong yén maranéhana baé anu bakal asup sawarga téh. Urang Nasrani ogé ngomong yén maranéhna baé anu bakal asup sawarga téh.
 
 ## 2:112
 
@@ -615,8 +533,6 @@ Sing ngarasa hariwang maranéh kana hiji poé (nalika) taya saurang ogé anu bis
 
 (Sing inget deui) waktu Kami ngajadikeun Baitullah tempat ngumpul jeung tempat anu aman pikeun manusa. Pék geura jadikeun sabagian Maqām Ibrāhīm [^42] tempat salat! Kami geus méré paréntah ka Ibrahim jeung Ismail, “Geura beresihan Imah Kami (Ka’bah) pikeun jalma-jalma nu towaf, anu itikaf, anu ruku’, jeung nu sujud!”
 
-[^42]: Nyaéta tempat Nabi Ibrahim a.s. ngadeg waktu ngawangun Ka’bah.
-
 ## 2:126
 
 (Sing inget deui) waktu Ibrahim ngadoa, “Nun Gusti, mugi Gusti ngajantenkeun (ieu nagri Mekah) tempat nu aman, sareng mugi Gusti maparin rejeki mangrupi bubuahan ka pangeusina, nyaéta ka jalmi-jalmi ti antawis aranjeunna anu iman ka Allah sareng kana dinten pamungkas.” Mantenna ngadawuh, “Ka jalma kapir ogé Kami bakal maparin kasenangan saheulaanan, sanggeus kitu Kami bakal maksa manéhna (ngarasakeun) siksa naraka, jeung éta téh panggoréng-goréngna tempat pangbalikan.”
@@ -669,8 +585,6 @@ Upama maranéhna (urang Yahudi jeung Nasrani) iman ka nu sakumaha diimanan ku ar
 
 (Sing tetep dina) Sibgah Allah (celepan Allah). [^43] Saha nu leuwih alus sibgah-Na tibatan Allah? (Ucapkeun ogé) abdi sadaya ibadah mung ka Mantenna.
 
-[^43]: Sibgah Allah maksudna agama Mantenna.
-
 ## 2:139
 
 Pék caritakeun ku hidep (Muhammad), “Naha aranjeun rék ngadébat kuring saréréa tina perkara Allah? Padahal Mantenna téh Pangéran kuring saréréa jeung Pangéran aranjeun. Pikeun kuring saréréa amal-amalan kuring jeung pikeun aranjeun amal-amalan aranjeun. Kuring sadaya mah ihlas sumerah ka Mantenna.
@@ -678,8 +592,6 @@ Pék caritakeun ku hidep (Muhammad), “Naha aranjeun rék ngadébat kuring sar�
 ## 2:140
 
 Atawa naha aranjeun (urang Yahudi jeung Nasrani) nyarita yén Ibrahim, Ismail, Ishaq, jeung Yaqub katut turunanana téh pangagem agama Yahudi atawa Nasrani? Pék caritakeun ku hidep (Muhammad), “Naha aranjeun nu leuwih nyaho téh atawa Allah? Saha nu leuwih dolim tibatan jalma nu nyumputkeun kasaksén ti Allah [^44] anu aya di manéhna?” Allah moal pisan-pisan lalieun kana naon-naon nu geus dipilampah ku maranéh.
-
-[^44]: Nyaéta kasaksian Allah anu kasebut dina Torét sarta Injil, yén Nabi Ibrahim a.s. sarta anak incuna lain pangagem agama Yahudi atawa Nasrani, sarta yén Allah badé ngutus Nabi Muhammad Saw.
 
 ## 2:141
 
@@ -693,8 +605,6 @@ Jalma-jalma nu kurang akal ti antara manusa bakal nanya kieu, “Naon nu méngko
 
 Nya saperti kitu ogé Kami geus ngajadikeun aranjeun (kaom muslimin) umat siger tengah [^45] sangkan aranjeun jadi saksi pikeun (lalampahan) jalma-jalma jeung (sangkan) Rasul (Muhammad) ogé jadi saksi keur (lalampahan) aranjeun. Kami henteu ngajadikeun kiblat anu disanghareupan ku hidep (baheula salaku kiblat hidep ayeuna), anging pikeun nganyahokeun saha anu tumut ka Rasul jeung saha anu balik deui ka tukang (murtad). Sabenerna (pindahna kiblat) téh beurat karasana anging pikeun jalma-jalma anu geus dipaparinan pituduh ku Allah. Allah moal pisan-pisan nyapirakeun kana iman aranjeun. Sabenerna Allah Mahawelas (tur) Mahaasih.
 
-[^45]: Umat anu adil anu teu beurat sabeulah, boh ka dunya atawa ka ahérat, tapi saimbang di antara duanana.
-
 ## 2:144
 
 Kami temen-temen ningali beungeut hidep (Muhammad) sering tatanggahan ka langit. Mangka, Kami bakal nyanghareupkeun hidep kana kiblat anu dipikaresep ku hidep (Ka’bah). Atuh prak geura sanghareupkeun beungeut hidep ka lebah Masjidil Haram. Di mana baé aranjeun ayana, sanghareupkeun beungeut aranjeun ka lebah dinya. Sabenerna jalma-jalma anu dipaparinan Kitab (Torét jeung Injil) nyahoeun pisan yén (pindahna kiblat ka Masjidil Haram) téh éstu bebeneran ti Pangéranana. Allah moal bakal lalieun kana naon-naon anu dipilampah ku maranéhna.
@@ -706,8 +616,6 @@ Sanajan hidep (Muhammad) bener-bener ngadatangkeun sakabéh ayat (katerangan) ka
 ## 2:146
 
 Jalma-jalma anu geus dipaparinan Kitab (Torét jeung Injil) ku Kami pada nyahoeun ka hidep (Muhammad), [^46] sakumaha maranéhna nyahoeun ka anak-anakna sorangan. Sabenerna sabagian ti antara maranéhna nyumputkeun bebeneran, padahal maranéhna téh nyahoeun.
-
-[^46]: Nyahoeun kana kanabian Muhammad Saw. sarta sipat-sipatna sakumaha anu kasebut dina Torét jeung Injil.
 
 ## 2:147
 
@@ -733,8 +641,6 @@ Sakumaha Kami geus ngutus ka aranjeun (kaom mu’minin) rasul (Muhammad) ti (ant
 
 Mangka, sing éling aranjeun ka Kami, engké Kami ogé bakal éling ka aranjeun. [^47] Sing sukuran ka Kami jeung omat ulah kupur ka Kami.
 
-[^47]: Kami ngalimpahkeun rahmat jeung pangampura ka aranjeun.
-
 ## 2:153
 
 Hé jalma-jalma anu iman, geura ménta pitulung (ka Allah) ku jalan sabar jeung salat. Saleresna Allah babarengan jeung jalma-jalma anu sabar.
@@ -742,8 +648,6 @@ Hé jalma-jalma anu iman, geura ménta pitulung (ka Allah) ku jalan sabar jeung 
 ## 2:154
 
 Aranjeun ulah nyarita yén jalma-jalma anu ditelasan dina jalan Allah téh maot. Sabenerna (aranjeunna téh) hirup, [^48]  ngan baé aranjeun mah henteu nyadar.
-
-[^48]: Hirup dina alam séjén anu béda jeung alam urang ieu. Di dinya aranjeunna meunang kani’matan-kani’matan ti mungguhing Allah. Mung Allah anu uninga kumaha kaayaan kahirupan di éta alam.
 
 ## 2:155
 
@@ -753,8 +657,6 @@ Kami pasti bakal nyoba aranjeun ku hiji perkara mangrupa rasa kasieun, lapar, sa
 
 (Nyaéta) jalma-jalma anu waktu ditibanan musibah sok ngucapkeun “Innā lillāhi wa innā ilaihi rāji\`ūn” [^49] (saenyana abdi sadaya kagungan Allah sareng saenyana ka Mantenna abdi sadaya wangsul).
 
-[^49]: Ieu kalimah dingaranan “kalimah istirjā'” (ujaran nandakeun balik ka Allah). Disunnahkeun ngucapkeunana dina wanci ditimpa musibah, boh gedé boh leutik.
-
 ## 2:157
 
 Aranjeunna pisan anu meunang pangampura jeung rahmat ti Pangéranana. Aranjeunna pisan ogé anu meunang pituduh téh.
@@ -763,12 +665,6 @@ Aranjeunna pisan anu meunang pangampura jeung rahmat ti Pangéranana. Aranjeunna
 
 Sabenerna Sofa jeung Marwah mangrupakeun sabagian tina syiar (agama) Allah. [^50] Mangka, saha baé anu ngalaksanakeun haji ka Baitullah atawa ngalakonan umroh, henteu matak dosa pikeun maranéhna ngalaksanakeun sa’i [^51] di antara éta dua tempat. Saha baé ogé kalayan karidoan haté migawé (rupa-rupa) kahadéan, saleresna Allah téh Nu Mahasukur [^52] (tur) Mahauninga.
 
-[^50]: Tempat-tempat ibadah ka Allah.
-
-[^51]: Leumpang jeung lulumpatan tujuh kali antara Sofa jeung Marwah waktu ngalaksanakeun ibadah haji atawa umroh. Allah ngungkabkeun kalayan dawuhan “teu aya dosa” sabab sabagian sahabat Nabi ngarasa beurat ngalaksanakeun sa‘i di dinya, sabab éta tempat téh urut tempatna berhala. Ogé dina mangsa Jahiliah éta tempat téh dipaké tempat sa‘i. Pikeun ngaleungitkeun éta rasa beurat, Allah ngalungsurkeun ieu ayat.
-
-[^52]: Allah nyukurkeun ka hamba-hamba-Na, maparin ganjaran kana amal alusna, ngahampura kana kasalahanana, nambahan kana ni’matna, jeung sajabana.
-
 ## 2:159
 
 Sabenerna jalma-jalma anu nyumputkeun naon anu geus diturunkeun ku Kami (dina Kitab) mangrupa katerangan-katerangan jeung pituduh, sanggeusna Kami nerangkeun kandungan éta kitab ka maranéhna, pasti Allah ngala’nat ka maranéhna. Kitu deui sakabéh anu ngala’nat (nyaéta para malaikat, kaom mu’min, jeung nu lianna).
@@ -776,8 +672,6 @@ Sabenerna jalma-jalma anu nyumputkeun naon anu geus diturunkeun ku Kami (dina Ki
 ## 2:160
 
 Kajaba jalma-jalma anu tobat, ngoméan lalampahan dirina, jeung nerangkeun (anu disumputkeun). [^53] Mangka, pikeun maranéhna Kami bakal narima tobatna, da Kami mah Maha Nampi-tobat (tur) Mahaasih.
-
-[^53]: Hartina ngalakukeun pagawéan-pagawéan alus pikeun ngaleungitkeun akibat-akibat anu goréng lantaran kasalahan-kasalahan anu geus dipigawé, sarta ngajelaskeun bebeneran anu disumputkeun.
 
 ## 2:161
 
@@ -798,8 +692,6 @@ Sabenerna dina diciptakeunana langit jeung bumi, silih gentina peuting jeung beu
 ## 2:165
 
 Ti antara manusa aya nu ngajadikeun pirang-pirang sesembahan salian ti Allah. Maranéhna mikacinta kana éta (sesembahan) saperti mikacintana (kaom mu’minin) ka Allah. Padahal jalma-jalma anu iman mah mikacintana ka Allah téh leuwih beurat. Lamun seug jalma-jalma anu dolim [^54] téh (nalika di dunya) nyaksian (kajadian) waktu (maranéhna) nénjo siksaan (dina Poé Kiamat), (terus maranéhna sadar) yén sabenerna kakuatan téh sakabéhna ogé kagungan Allah jeung saleresna Allah téh beurat pisan siksaan-Na, (tangtu maranéhna moal ngajadikeun sesembahan salian ti Allah).
-
-[^54]: Jalma anu dolim dina ieu ayat maksudna anu nyembah salian ti Allah. Maksud ieu ayat: Nalika éta jalma anu dolim nempo sesembahanana henteu méré mangpaat saeutik ogé dina Poé Kiamat, maranéhna tangtu ngayakinan yén sakabéh kakuatan téh ngan wungkul kagungan Allah.
 
 ## 2:166
 
@@ -837,8 +729,6 @@ Saleresna Mantenna (Allah) ngan haramkeun ka maranéh (mangrupa) bangké, getih,
 
 Sabenerna jalma-jalma anu nyumputkeun naon anu diturunkeun ku Allah, nyaéta (kandungan) Kitab, sarta ngajual éta kandungan ku pangaji nu saeutik, nya maranéhna téh ngan ngadahar seuneu naraka dina (ngeusian) beuteung-beuteungna. [^55] Dina Poé Kiamat Allah moal maliré ka maranéhna jeung moal ngabersihkeun maranéhna (tina dosa-dosana). Malah pikeun maranéhna téh disayagikeun siksaan anu kacida nyerina.
 
-[^55]: Barang anu didahar asalna tina meunang ngajual ayat-ayat anu diturunkeun ku Allah. Éta téh nyebabkeun maranéhna asup naraka.
-
 ## 2:175
 
 Nya maranéhna pisan jalma-jalma anu meuli kasasaran ku pituduh, jeung (meuli) siksaan ku pangampura. Na aya ku wani-wani teuing maranéhna nangtang siksaan naraka téh!
@@ -855,8 +745,6 @@ Kahadéan téh lain ngan saukur madepkeun beungeut aranjeun ka beulah wétan jeu
 
 Hé jalma-jalma anu iman, diwajibkeun ka aranjeun (ngalaksanakeun) qisos [^56] dina perkara jalma-jalma anu dipaéhan. (Nyaéta) nu merdika (diqisos) lantaran (maéhan) nu merdika, abid (diqisos) lantaran (maéhan) abid, awéwé (diqisos) lantaran (maéhan) awéwé. (Tapi,) saha baé jalma anu meunang pangampura ti (sabagian) dulur anu dipaéhan, kudu diturutkeun kalayan hadé jeung (anu meunang pangampura téh) kudu mayar (diyat) ka jalma anu méré pangampura téa ku cara anu hadé ogé. Tah éta téh hiji kaénténgan jeung hiji rahmat ti Pangéran aranjeun. Tapi saha baé anu ngaliwatan wates sanggeusna kitu, manéhna bakal katibanan siksaan anu kacida nyerina.
 
-[^56]: Qisos téh nyaéta hukuman anu sapadan jeung kajahatan anu dipigawé.
-
 ## 2:179
 
 Dina (ngalaksanakeun hukum) qisos téh aya (jaminan hak) hirup pikeun aranjeun, hé jalma-jalma anu boga akal séhat, sangkan aranjeun takwa.
@@ -864,8 +752,6 @@ Dina (ngalaksanakeun hukum) qisos téh aya (jaminan hak) hirup pikeun aranjeun, 
 ## 2:180
 
 Diwajibkeun ka aranjeun, lamun salah saurang ti antara aranjeun rék maot jeung manéhna ninggalkeun harta banda, wasiat ka indung-bapa jeung ka kulawarga anu dareukeut ku cara anu hadé, [^57] (minangka) kawajiban pikeun jalma-jalma anu takwa.
-
-[^57]: Wasiat teu meunang ngaleuwihan sapertilu harta jalma anu méré wasiat. Ieu ayat, hususna pikeun ahli waris, di-nasakh (digantian hukumna) ku ayat ngeunaan waris (an-Nisā’/4:11).
 
 ## 2:181
 
@@ -875,8 +761,6 @@ Saha baé anu ngarobah éta (wasiat) sanggeusna manéhna ngadéngé, mangka sabe
 
 Tapi saha baé anu hariwang yén anu méré wasiat beurat sabeulah atawa milampah kasalahan (ngeunaan eusi wasiat), tuluy ngarukunkeun antara anu méré wasiat jeung ahli warisna, [^58] mangka henteu dosa pikeun manéhna. Saleresna Allah mah Maha Jembar-pangampura (tur) Mahaasih.
 
-[^58]: Maksud ngarukunkeun di dieu nyaéta nitah jalma anu méré wasiat adil dina wasiatna luyu jeung katangtuan agama. Kaasup kana maksud ieu ayat nyaéta ngarobah eusi wasiat lamun ngarempak kana katangtuan.
-
 ## 2:183
 
 Hé jalma-jalma anu iman, diwajibkeun pikeun aranjeun puasa sakumaha geus diwajibkeun ka jalma-jalma saméméh aranjeun sangkan aranjeun takwa.
@@ -884,10 +768,6 @@ Hé jalma-jalma anu iman, diwajibkeun pikeun aranjeun puasa sakumaha geus diwaji
 ## 2:184
 
 (Nyaéta) sababaraha poé anu ditangtukeun. Saha baé ti antara aranjeun anu gering atawa nyanyabaan (tuluy teu puasa), atuh (wajib ngaganti) sajumlah poé (anu ditinggalkeun téa) dina poé séjénna. Jalma anu ngarasa ripuh ngajalankeun puasa [^59] wajib mayar pidyah (nyaéta) méré dahareun ka saurang jalma miskin. Saha baé kalayan karélaan haté migawé kahadéan (ngaleuwihan tina anu geus ditangtukeun), [^60] éta téh leuwih hadé pikeun manéhna. Tapi, ngalakonan puasa téh leuwih hadé pikeun aranjeun lamun seug nyaho mah.
-
-[^59]: Nyaéta jalma anu gering parna, jalma anu kolot pisan, tur jalma anu keur kakandungan atawa nyusuan budak.
-
-[^60]: Méré dahareun ka leuwih ti saurang jalma miskin keur sahiji poé.
 
 ## 2:185
 
@@ -901,10 +781,6 @@ Lamun aya hamba-hamba Kami nanyakeun ka hidep (Muhammad) ngeunaan Kami, (béjake
 
 Dihalalkeun ka aranjeun campur jeung pamajikan-pamajikan aranjeun dina peutingna bulan puasa. Maranéhna téh pakéan pikeun aranjeun, nya kitu deui aranjeun ogé pakéan pikeun maranéhna. Allah uningaeun yén aranjeun téh henteu kuat nahan napsu aranjeun (ka pamajikan-pamajikan aranjeun), tapi Allah nampi tobat ti aranjeun jeung maparin pangapunten ka aranjeun. Tah ayeuna mah pék baé geura campur jeung maranéhna, jeung pék geura téangan naon nu geus ditetepkeun ku Allah pikeun aranjeun. [^61] Pék barang dahar jeung nginum tepi ka jelas pikeun aranjeun (bédana) benang bodas tina benang hideung, nyaéta (bijilna) pajar. Ti dinya, terus sampurnakeun puasana nepi ka (datangna) peuting, (tapi) omat ulah rék campur jeung maranéhna lamun aranjeun keur itikaf [^62] di masjid. Éta téh katangtuan Allah, omat pisan aranjeun ulah rék ngadeukeutan. Tah kitu Allah ngajelaskeun ayat-ayat-Na ka manusa sangkan maranéhna takwa.
 
-[^61]: Maksudna: Dihalalkeunana pasatemon dina peutingna bulan Romadon. Maksud “naon nu geus ditetepkeun ku Allah” nyaéta katurunan anu geus ditangtukeun ku Allah.
-
-[^62]: I\`tikap nyaéta aya di masjid kalayan niat ibadah sarta ngadeukeutkeun diri ka Allah.
-
 ## 2:188
 
 Omat aranjeun ulah rék ngadahar harta banda ti antara aranjeun ku cara nu batil, jeung (ulah ogé) aranjeun nyogok ku éta harta ka hakim-hakim kalayan maksud sangkan aranjeun bisa ngadahar sabagian harta batur ku jalan dosa, padahal aranjeun téh nyaho (yén kalakuan kitu téh salah).
@@ -913,8 +789,6 @@ Omat aranjeun ulah rék ngadahar harta banda ti antara aranjeun ku cara nu batil
 
 Aranjeunna (para sahabat) nanya ka hidep (Muhammad) tina perkara bulan sabit. Terangkeun ku hidep, “Éta téh (tuduh) wanci pikeun manusa jeung (tuduh wanci ibadah) haji.” Kahadéan téh lain ku pédah abus ka imah ti tukangna, [^63] tapi kahadéan téh nyaéta (kahadéan) jalma anu takwa. Pék asupan imah tina lawang-lawangna. Kudu takwa ka Allah sangkan aranjeun untung.
 
-[^63]: Dina mangsa jahiliah, jalma anu keur ihrom dina waktu haji asup ka imahna tina luhurna, lain tina pantona. Kabiasaan ieu ditaroskeun ku para sahabat ka Rasulullah Saw. Ku kituna, mangka turun ieu ayat.
-
 ## 2:190
 
 Prung geura perangan dina jalan Allah jalma-jalma anu merangan ka aranjeun, tapi omat ulah ngaleuwihan wates. Saleresna Allah teu resepeun ka jalma-jalma anu sok ngaleuwihan wates.
@@ -922,8 +796,6 @@ Prung geura perangan dina jalan Allah jalma-jalma anu merangan ka aranjeun, tapi
 ## 2:191
 
 Pék paéhan maranéhna di mana baé kapanggihna ku aranjeun. Usir maranéhna ti mana baé maranéhna kungsi ngusir ka aranjeun. Ari pitnah [^64] téh leuwih kejem tibatan maéhan. Omat ulah merangan maranéhna dina (sabudeureun) Masjidil Haram, kajaba marahnéhna merangan aranjeun di dinya. Lamun marahnéhna merangan aranjeun (di dinya), mangka prung baé perangan. Tah saperti kitu wawales pikeun jalma-jalma kapir.
-
-[^64]: Pitnah (ngabalukarkeun bancang pakéwuh) saperti ngusir dulur ti lemburna, ngajabel harta, sarta nganyenyeri atawa ngaganggu kabébasan hiji jalma dina ngajalankeun agamana.
 
 ## 2:192
 
@@ -937,10 +809,6 @@ Prung geura perangan maranéhna tepi ka taya deui pitnah jeung (tepi ka) ibadah 
 
 Bulan haram kalayan bulan haram deui. [^65] Pikeun naon-naon anu kudu dihormatan (lamun dirempak) keuna (katangtuan) qisos. [^66] Ku sabab éta, saha baé anu nyerang ka aranjeun, atuh bales deui baé ku nu saimbang jeung seranganana ka aranjeun. Sing takwa aranjeun ka Allah jeung sing nyaho sabenerna Allah téh nyarengan ka jalma-jalma anu takwa.
 
-[^65]: Lamun umat Islam diserang dina bulan haram, anu sabenerna di éta bulan téh teu meunang perang, mangka meunang males éta serangan dina éta bulan ogé.
-
-[^66]: Maksud antara lain nyaéta bulan haram (Julkaidah, Julhijah, Muharam, sarta Rajab), tanah haram (Mekah), jeung ihrom.
-
 ## 2:195
 
 Geura inpakkeun (harta aranjeun) dina jalan Allah, omat ulah ngunclungkeun (diri aranjeun) kana karuksakan ku lampah paripolah sorangan, jeung kudu migawé kahadéan. Saleresna Allah téh mikaresep ka jalma-jalma anu migawé kahadéan.
@@ -949,15 +817,9 @@ Geura inpakkeun (harta aranjeun) dina jalan Allah, omat ulah ngunclungkeun (diri
 
 Prak geura sampurnakeun ibadah haji jeung umroh karana Allah. Lamun aranjeun kakepung (ku musuh nepi ka teu bisa nyampurnakeunana), mangka (peuncit baé) hadyu [^67] anu gampang (dibeuli), (tapi) aranjeun ulah waka dicukur saméméh hadyu tepi ka tempat pemeuncitanana. Lamun ti antara aranjeun aya anu gering atawa aya kasakit dina sirahna (terus manéhna motong rambut), wajib pikeun manéhna mayar pidyah, nyaéta ku puasa atawa ku sidekah atawa ku (meuncit) korban. Lamun aranjeun dina kaayaan aman, mangka ka saha baé anu ngalakonan umroh saméméh haji, manéhna (wajib meuncit) hadyu anu gampang (dibeuli). Tapi, lamun teu manggih (hadyu peunciteun atawa henteu sanggup), manéhna (wajib) puasa tilu poé dina (usum) haji jeung tujuh (poé) deui engké di mana geus mulang. Éta téh sapuluh (poé) anu sampurna. Éta katangtuan téh (nyaéta kawajiban mayar pidyah) pikeun jalma-jalma anu kulawargana taya di (sabudereun) Masjidil Haram. Kudu takwa aranjeun ka Allah sarta sing nyaho sabenerna Allah téh rongkah pisan balesana-Na.
 
-[^67]: Hadyu nyaéta sato anu dipeuncit minangka gantina (dam) pagawéan wajib haji anu ditinggalkan; atawa minangka denda sabab ngarempak perkara-perkara anu dicegah migawéna di jero ngalaksanakeun ibadah haji.
-
 ## 2:197
 
 (Usum ibadah) haji téh (dina) sababaraha bulan anu geus dima’lum. [^68] Saha baé anu ngalaksanakeun haji dina (bulan-bulan) éta, mangka teu meunang ngomong jorok (rapaṡ), [^69] migawé ma’siat, jeung papaséaan sabot (ngalakonan ibadah) haji. Kahadéan naon baé anu ku aranjeun dipigawé, tangtu kauninga ku Allah. Geura prak bebekelan, sabenerna ari bekel anu panghadé-hadéna téh nyaéta takwa. Atuh kudu takwa aranjeun ka Kami, hé jalma-jalma nu boga akal séhat!
-
-[^68]: Nyaéta bulan Syawal, Julkaidah, jeung Julhijah.
-
-[^69]: Jorok (rafaṡ) hartina ngaluarkan omongan anu nimbulkeun birahi, ngalakukan pagawéan anu teu pantes, atawa ngalakukeun hubungan séksual.
 
 ## 2:198
 
@@ -971,8 +833,6 @@ Sanggeus kitu bral geura mariang ti tempat budalna jalma-jalma anu loba (Arafah)
 
 Lamun aranjeun geus réngsé ngalaksanakeun ibadah haji, atuh pék dikir ka Allah saperti (baheula) aranjeun nyebut-nyebut karuhun aranjeun, [^70] malah dikirna kudu leuwih tibatan éta. Ti antara jalma-jalma aya anu ngadoa kieu, “Nun Gusti Pangéran abdi sadaya, mugi Gusti maparin ka abdi sadaya (kasaéan) di dunya.” Bari di ahérat manéhna moal meunang bagian (kahadéan) saeutik ogé.
 
-[^70]: Kabiasaan jalma-jalma Arab Jahiliah sanggeusna ngalaksanakeun haji téh nyaéta ngagungkeun karuhun-karuhunna. Sanggeus ieu ayat diturunkeun, kabiasaan nu tadi diganti ku dikir ka Allah.
-
 ## 2:201
 
 Ti antara maranéhna aya ogé anu ngadoa kieu, “Nun Gusti Pangéran abdi sadaya, mugi Gusti maparin ka abdi sadaya kasaéan di dunya sinareng di ahérat, sareng mugi Gusti ngajagi abdi sadaya tina siksa naraka.”
@@ -984,8 +844,6 @@ Nya aranjeunna pisan anu bakal meunang bagian tina naon-naon anu geus diupayakeu
 ## 2:203
 
 Prak dikir ka Allah dina poé-poé anu geus ditangtukeun jumlahna. [^71] Saha baé anu buru-buru mulang (ninggalkeun Mina) sanggeus (nganjrek) dua poé, atuh teu matak jadi dosa pikeun manéhna. Saha baé anu mandeurikeun manéh mulang (ninggalkeun Mina), atuh éta ogé teu matak jadi dosa keur manéhna, (yakni) pikeun jalma anu takwa. Kudu takwa aranjeun ka Allah jeung sing nyaho yén sabenerna aranjeun téh bakal dikumpulkeun ka Mantenna.
-
-[^71]: Maksud dikir di dieu nyaéta maca takbir, tasbih, tahmid, sarta sajabana. “Sababaraha poé anu ditantukeun jumlahna” nyaéta tilu poé sanggeusna lebaran haji, nyaéta ping 11,12 sarta 13 bulan Julhijah, dingaranan ogé poé tasrék.
 
 ## 2:204
 
@@ -1043,8 +901,6 @@ Diwajibkeun perang ka aranjeun, padahal perang téh dipikangéwa ku aranjeun. (T
 
 Aranjeunna (jalma-jalma anu iman) nanya ka hidep (Muhammad) ngeunaan perang dina bulan haram. Béjakeun ku hidep kieu, “Perang dina bulan haram téh (dosa) gedé, tapi ngahalang-halang (batur) tina jalan Allah, ingkar ka Mantenna, (ngahalang-halang batur asup ka) Masjidil Haram, jeung ngusir pangeusina ti sabudeureunana (Masjidil Haram), éta leuwih gedé (dosana) mungguhing Allah. (Éta téh sakabéhna pitnah), sedengkeun pitnah [^72] téh leuwih gedé (dosana) tibatan maéhan. Maranéhna moal eureun merangan ka aranjeun, tepi ka (bisa) ngabalikkeun aranjeun tina agama aranjeun (kana kakapiran), lamun téa mah maranéhna sanggupeun. Saha baé ti antara aranjeun anu murtad tina agamana, tuluy maot dina jero kakapiran, éta jalma-jalma téh sirna sakabéh amalna di dunya jeung ahérat. Maranéhna pisan anu jadi pangeusi naraka téh. Maranéhna bakal langgeng di dinyana.
 
-[^72]: Pitnah di dieu hartina pagawéan aniaya sarta sagala rupa pagawéan anu dimaksudkeun pikeun nindes Islam sarta kaom muslimin.
-
 ## 2:218
 
 Sabenerna jalma-jalma anu iman sarta jalma-jalma anu hijrah jeung anu jihad dina jalan Allah, aranjeunna téh miharep rahmat Allah. Allah Maha Jembar-pangampura (tur) Mahaasih.
@@ -1052,8 +908,6 @@ Sabenerna jalma-jalma anu iman sarta jalma-jalma anu hijrah jeung anu jihad dina
 ## 2:219
 
 Aranjeunna (jalma-jalma anu iman) nanyakeun ka hidep (Muhammad) ngeunaan arak [^73] jeung judi. Pék béjakeun kieu, “Duanana ogé ngandung dosa gedé jeung sababaraha mangpaat pikeun manusa, tapi dosana leuwih gedé tibatan mangpaatna.” Aranjeunna ogé nanyakeun ka hidep naon nu kudu diinpakkeun. Béjakeun deui kieu, “Saleuwihana tina keperluan.” Tah kitu Allah nerangkeun ayat-ayat-Na ka aranjeun sangkan mikir
-
-[^73]: Segala inuman anu ngamabokkeun.
 
 ## 2:220
 
@@ -1067,10 +921,6 @@ Omat aranjeun ulah rék ngawin awéwé-awéwé musrik saméméh maranéhna iman.
 
 Aranjeunna nanyakeun (ogé) ka hidep (Muhammad) ngeunaan héd. Béjakeun ku hidep “Héd téh gangguan.” Ku sabab kitu, aranjeun kudu ngajauhan [^74] pamajikan-pamajikan dina waktu keur héd. Omat ulah ngadareukeutan (campur jeung) maranéhna saméméh maranéhna suci. [^75] Lamun maranéhna geus beresih, pak baé campur jeung maranéhna dina tempat nu ku Allah diparéntahkeun ka aranjeun. Saleresna Allah mikacinta ka jalma-jalma anu tobat jeung ka jalma-jalma anu nyucikeun diri.
 
-[^74]: Teu meunang pasatemon/campur jeung istri dina waktu héd.
-
-[^75]: Anu dimaksud suci di dieu téh nyaéta sanggeusna mandi wajib sarengséna héd. Aya deui anu napsirkeun sanggeusna getih héd eureun kaluarna.
-
 ## 2:223
 
 Istri-istri aranjeun téh (ibarat) taneuh tempat aranjeun melak pepelakan. Ku kituna, pék datangan éta taneuh tempat aranjeun melak pepelakan téh iraha baé (jeung) ku cara naon baé anu dipikahayang ku aranjeun. Heulakeun (éta pasatemon) pikeun (kahadéan) diri aranjeun. Kudu takwa ka Allah jeung sing terang yén aranjeun téh bakal ngadeuheusan ka Mantenna. Pék tepikeun béja pikabungaheun ka jalma-jalma nu iman.
@@ -1079,19 +929,13 @@ Istri-istri aranjeun téh (ibarat) taneuh tempat aranjeun melak pepelakan. Ku ki
 
 Omat ulah ngajadikeun (asma) Allah dina sumpah aranjeun minangka hahalang nyieun kahadéan, nanjeurkeun katakwaan, jeung ngaislahkeun antara papada manusa. [^76] Allah Maha Ngadangu (tur) Mahauninga.
 
-[^76]: Teu meunang sumpah kalayan ngagunakeun Asma Allah keur tujuan nahan migawé anu hadé, saperti “Demi Allah, abdi moal ngabantuan anak yatim.” Tapi, lamun éta sumpah geus tanggung kaucapkeun, mangka kudu dirempak ku cara mayar kiparat.
-
 ## 2:225
 
 Allah henteu nungtut tanggung jawab aranjeun ku sabab sumpah-sumpah aranjeun anu teu dipimaksud (pikeun sumpah), tapi Mantenna nungtut tanggung jawab aranjeun ku sabab (sumpah-sumpah aranjeun) anu diniatkeun ku haté aranjeun. Allah Maha Jembar-pangampura (tur) Mahasantun. [^77]
 
-[^77]: Anu dimaksud “Santun” téh nyaéta henteu gura-giru nyiksa jalma anu migawé kasalahan.
-
 ## 2:226
 
 Jalma-jalma anu sumpah ila [^78] ka istri-istrina dibéré témpo salila opat bulan (pikeun nangtukeun sikep). Lamun maranéhna balik deui (ka istri-istrina), saleresna Allah Maha Jembar-pangampura (tur) Mahaasih.
-
-[^78]: Nga-ila istri maksudna sumpah moal nyampur jeung istri. Ku sumpah ieu, istri katalangsara sabab teu dicampur, henteu ogé diserahkeun. Ku turunna ieu ayat, mangka salaki sanggeusna opat bolan tina ngedalkeun sumpah kudu milih antara pasatemon deui jeung pamajikanana kalayan mayar kiparat sumpah, atawa nyerahkeun pamajikanana.
 
 ## 2:227
 
@@ -1101,15 +945,9 @@ Lamun maranéhna netepkeun haté pikeun masrahkeun (istri-istrina saengeusna ila
 
 Pamajikan-pamajikan anu ditalak (kudu) nunggu kalayan nahan dirina (salila) tilu kali qurū’. [^79] Maranéhna teu meunang nyumputkeun naon-naon anu diciptakeun ku Allah dina rahimna, lamun maranéhna iman ka Allah jeung Poé Ahir. Salaki-salakina leuwih hak ngarujuk maranéhna dina éta waktu (idah) lamun maranéhna (para salaki) rék islah (rujuk). Maranéhna (para pamajikan) téh boga hak anu saimbang jeung kewajibanana nurutkeun cara nu patut, tapi salaki-salakina boga (hiji) darajat (tingkatan) di luhur pamajikan-pamajikanana. [^80] Allah Mahaperkasa (tur) Mahawijaksana.
 
-[^79]: Qurū' jama tina kecap qar' anu hartina suci atawa héd.
-
-[^80]: Sabab salaki, di antarana, ngabogaan tanggung jawab kana kasalametan sarta karaharjaan rumah tangga (an-Nisā’/4:34).
-
 ## 2:229
 
 Talak (anu bisa dirujuk deui) téh dua kali. Ku kituna, (salaki) bisa ngarujuk deui ku cara nu hadé atawa papisah kalayan hadé deui. Henteu halal pikeun aranjeun (para salaki) nyokot deui naon-naon nu geus dibikeun (mangrupa maskawin atawa hadiah) ka maranéhna sanajan saeutik ogé, kajaba lamun maranéhna (salaki jeung pamajikanana) pada hariwang moal pibisaeun ngajalankeun hukum-hukum Allah. Mangka, lamun aranjeun (para wali) manghariwangkeun duanana teu bisa ngajalankeun hukum-hukum Allah, taya dosa (mutuskeun) ka duanana ngeunaan bayaran anu (kudu) dibikeun (ku pamajikanana) pikeun nebus dirina. [^81] Éta téh katangtuan-katangtuan Allah, omat aranjeun ulah ngarempak éta hukum-hukum. Saha baé anu ngarempak, mangka maranéhna téh jalma-jalma anu dolim.
-
-[^81]: Ieu ayat jadi dasar hukum ngeunaan khulu' sarta panarimaan ‘iwaḍ (tebusan). Khulu' téh hak pamajikan pikeun pisah ti salakina kalayan mayar ‘iwaḍ ngaliwatan pangadilan.
 
 ## 2:230
 
@@ -1119,13 +957,9 @@ Lamun salaki nyerahkeun pamajikanana sanggeus (talak nu kadua), éta (urut) pama
 
 Lamun aranjeun masrahkeun istri-istri, terus maranéhna ngadeukeutan ahir idahna, [^82] pék rujuk maranéhna ku cara nu hadé, atawa pék talak ku cara nu hadé (deui). Omat ulah ngarujuk lamun boga maksud pikeun milaraan maranéhna. Saha baé anu migawé kitu, manéhna bener-bener geus ngadoliman dirina sorangan. Omat ulah ngajadikeun ayat-ayat (hukum-hukum) Allah minangka bahan léléwéan. Sing inget kana ni'mat Allah (anu geus dipaparinkeun) ka anjeun sarta naon anu geus diturunkeun ku Allah ka aranjeun, nyaéta Kitab (Al-Qur’an) sareng Hikmah (Sunnah). Mantenna maparin atikan ka aranjeun ku (naon-naon anu geus diturunkeun ka aranjeun). Kudu takwa ka Allah jeung kudu terang yén saleresna Allah Mahauninga kana sagala perkara.
 
-[^82]: Idah téh mangsa nungguan (teu meunang kawin deui) pikeun awéwé ku sabab pepegatan atawa ditinggal maot salakina.
-
 ## 2:232
 
 Lamun aranjeun masrahkeun istri-istri (aranjeun), terus nepi ka (béak) idahna, omat ulah nyegah maranéhna kawin deui jeung pisalakieunana, [^83] lamun geus pada cocok di antara maranéhna kalayan cara anu patut. Tah éta téh anu dinaséhatkeun pikeun jalma-jalma ti antara aranjeun anu iman ka Allah jeung Poé Ahir. Éta téh leuwih hadé jeung leuwih suci pikeun aranjeun. Allah mah uningaeun, sedengkeun aranjeun mah henteu nyaho.
-
-[^83]: Kawin deui jeung urut salakina atawa jeung lalaki anu séjén.
 
 ## 2:233
 
@@ -1135,33 +969,21 @@ Para indung pék nyusuan anak-anakna salila dua taun pinuh, (nyaéta) pikeun nu 
 
 Jalma-jalma anu maot ti antara aranjeun bari ninggalkeun istri-istri, mangka maranéhna (istri-istrina) kudu ngadagoan (idah) pikeun dirina (kawin deui) salila opat bulan sapuluh poé. Tuluy waktu idahna geus béak, teu aya dosa pikeun aranjeun (para wali) ngeunaan naon anu dipigawé ku maranéhna keur dirina sorangan [^84] (lamun) turut katangtuan anu hadé. Allah Mahauninga kana naon-naon dipigawé ku aranjeun.
 
-[^84]: Saperti ngahias diri, indit-inditan, atawa narima lamaran.
-
 ## 2:235
 
 Teu matak dosa pikeun aranjeun ngalamar awéwé-awéwé (anu ditinggal maot salakina jeung masih dina waktu idah) ku cara sindir sampir [^85] atawa (ku cara) nyumputkeun (kahayang ngawin maranéhna) dina haté aranjeun. Allah uningaeun yén aranjeun (ahirna mah) bakal terus-terang ka maranéhna. Tapi omat aranjeun ulah nyieun jangji (pikeun ngawin) jeung maranéhna ku jalan rasiah, anging saukur ngucapkeun kecap-kecap anu hadé. [^86] Omat aranjeun ulah netepkeun akad nikah saméméh waktu idahna béak. Sing terang yén saleresna Allah uningaeun kana gerentes haté aranjeun, mangka sing ajrih ka Mantenna sareng sing terang yén saleresna Allah Maha Jembar-pangampura (tur) Mahasantun.
-
-[^85]: Awéwé anu meunang dilamar ku cara sindiran nyaéta awéwé anu aya dina jero idah ku sabab ditinggal maot salakina, atawa ku sabab talak bā’in, sedengkeun awéwé anu aya dina jero idah talak raj‘i teu meunang dilamar sanaja ku cara sindiran.
-
-[^86]: Ucapan sindiran anu hadé.
 
 ## 2:236
 
 Teu aya kawajiban pikeun aranjeun (mayar maskawin) lamun masrahkeun istri-istri (aranjeun) anu can dicampur ku aranjeun atawa can ditangtukeun maskawinna. (Tapi), pék méré mut\`ah [^87] ka maranéhna. (Salaki) anu beunghar (paméréna) nurutkeun kamampuhanana jeung anu miskin ogé nurutkeun kamampuhanana, nyaéta paméré anu hadé (nurutkeun kabiasanana). Éta téh mangrupakeun katangtuan pikeun jalma-jalma anu ngalakukeun kahadéan.
 
-[^87]: Nyaéta paméré salaki ka pamajikan anu dipasrahkeun minangka panglilipur haté. Éta téh di luar napakah anu luyu jeung kamampuhanana.
-
 ## 2:237
 
 Lamun aranjeun masrahkeun maranéhna saméméh campur, padahal aranjeun geus nangtukeun (jumlah) maskawinna, mangka (wajib bayar) satengah tina anu geus ditangtukeun, kajaba lamun maranéhna ngabébaskeun atawa dibébaskeun ku anu nyekel beungkeut pernikahan. [^88] Silih bébaskeunana aranjeun (hé salaki jeung pamajikan) éta leuwih deukeut kana takwa. Omat aranjeun ulah mopohokeun kana jasa kautamaan (hubungan hadé) di antara aranjeun. Saleresna Allah Maha Ningali kana sagala rupa nu dipilampah ku aranjeun.
 
-[^88]: Salaki atawa wali. Lamun walina anu ngabébaskeun, mangka salaki dibébaskeun tina kawajiban mayar separoh maskawin. Tapi lamun salakina anu ngabébaskeun, mangka manéhna kudu mayar sakabéh jumlah maskawin anu geus ditangtukeun.
-
 ## 2:238
 
 Geura silih riksa ku aranjeun (kalayan soson-soson) sakabéh salat jeung (kitu deui) salat wusta. [^89] Prak adegkeun éta (salat) karana Allah bari husu.
-
-[^89]: Salat wusto nurutkeun hadis anu sohih mah nyaéta salat Asar.
 
 ## 2:239
 
@@ -1183,8 +1005,6 @@ Tah kitu Allah nerangkeun ayat-ayat-Na (hukum-hukum-Na) ka aranjeun sangkan ngar
 
 Naha hidep teu niténan jalma-jalma anu kaluar ti lemburna sabab sieun maot bari jumlahna rébuan? [^90] Lajeng Allah ngadawuh ka maranéhna, “Hos wé paraéh (kabéh)!” Lajeng Mantenna ngahirupkeun deui maranéhna. Saleresna Allah bener-bener maparin kurnia ka manusa, tapi lolobana mah teu sukuran.
 
-[^90]: Nyaéta Bani Israél anu kaluar ti nagarana ku lantaran katibanan paceklik.
-
 ## 2:244
 
 Prung geura perang dina jalan Allah, sarta kanyahokeun ku aranjeun yén saleresna Allah Maha Ngadangu (tur) Mahauninga.
@@ -1193,13 +1013,9 @@ Prung geura perang dina jalan Allah, sarta kanyahokeun ku aranjeun yén saleresn
 
 Saha nu daék méré injeuman [^91] ka Allah kalayan injeuman nu hadé, tangtu Allah bakal nikel-nikel (pamayaran éta injeuman) ka manéhna kalayan tikelan anu loba pisan. Allah téh anu nahan jeung ngajembarkeun (rejeki). Nya wungkul ka Mantenna aranjeun bakal dipulangkeun.
 
-[^91]: Maksud méré injeuman ka Allah téh nyaéta ngainpakkeun harta di jalan Mantenna.
-
 ## 2:246
 
 Naha hidep (Muhammad) teu niténan para pamingpin Bani Israél sabada Musa (wapat), waktu maranéhna ngomong kieu ka salah saurang nabina, “Cobi angkat pikeun abdi sadaya hiji raja supaya (kalayan paréntahna) abdi sadaya perang dina jalan Allah.” Nabina ngawaler kieu, “Boa-boa lamun aranjeun diwajibkeun perang mah, aranjeun téh moal daék perang.” Maranéhna ngajawab, “Ku naon abdi sadaya moal perang di jalan Allah, apan abdi sadaya téh parantos diusir ti lembur abdi sadaya sareng (ditebihkeun) ti anak-anak abdi sadaya?” [^92] Tapi waktu perang geus diwajibkeun ka maranéhna, maranéhna téh kalah ka ting laléos, kajaba sabagian leutik ti antara maranéhna. Allah Mahauninga ka jalma-jalma nu dolim.
-
-[^92]: Maksudna, maranéhna diusir bari anak-incuna diboyong.
 
 ## 2:247
 
@@ -1208,8 +1024,6 @@ Nabina nyarios kieu ka maranéhna, “Saleresna Allah parantos ngangkat Talut ja
 ## 2:248
 
 Nabina nyarios deui kieu ka maranéhna, “Sabenerna ciri kakawasaan (karajaan) Talut téh nyaéta datangna Tabut [^93] ka aranjeun. Di jerona aya katengtreman ti Pangéran aranjeun jeung sésa titinggalan kulawarga Musa katut kulawarga Harun. (Ieu Tabut) dicandak ku para malaikat.” Sabenerna dina éta (Tabut) téh aya tanda (bebeneran jeung kakawasaan Allah) pikeun aranjeun lamun enya-enya iman mah.
-
-[^93]: Tabut nyaéta hiji peti tempat nyimpen Torét.
 
 ## 2:249
 
@@ -1231,8 +1045,6 @@ Maranéhna (bala tentara Talut ahirna bisa) ngéléhkeun bala tentara Jalut kala
 
 Éta rasul-rasul téh ku Kami geus diunggulkeun sabagianana ti sabagianana deui. Di antarana aya nu ku Allah diajak sasauran (langsung), sarta sabagian deui ku Allah diangkat (sababaraha) darajat. Kami geus maparinkeun ka Isa, putra Maryam, mangpirang-pirang bukti anu jelas (mujijat) sarta Kami geus ngukuhkeun ka anjeunna ku Ruhul Kudus. [^94] Upama Allah ngersakeun, tangtu jalma-jalma sabada aranjeunna (rasul-rasul) moal silih paéhan, sanggeus pirang-pirang bukti datang ka maranéhna. Tapi maranéhna pasalia paham, mangka ti antarana aya nu iman jeung sabagian (deui) aya nu kapir. Upama Allah ngersakeun, tangtu maranéhna téh moal silih paéhan, tapi Allah midamel saluyu sareng kersa-Na.
 
-[^94]: Mungguhing sabagian ahli tapsir, anu dimaksud Rohulkudus téh nyaéta Malaikat Jibril.
-
 ## 2:254
 
 Hé jalma-jalma nu iman! Pék inpakkeun (di jalan Allah) sabagian rejeki anu geus dipaparinkeun ku Kami ka aranjeun saméméh datang poé (Kiamat) anu moal aya deui dina éta poé jual-beuli, sosobatan anu dalit, jeung sapaat. Nya jalma-jalma kapir anu darolim mah.
@@ -1241,13 +1053,9 @@ Hé jalma-jalma nu iman! Pék inpakkeun (di jalan Allah) sabagian rejeki anu geu
 
 Allah, teu aya deui pangéran anging ti Mantenna, Nu Mahahirup, Anu teras-terasan ngurus (mahluk-Na). Mantenna henteu kalindih ku tunduh jeung komo deui ku kulem. Mung kagungan Mantenna naon-naon nu aya di langit sareng nu aya di bumi. Teu aya anu bisa méré sapaat di mungguhing Allah mun teu aya widi-Na. Mantenna uningaeun kana naon-naon nu aya di hareupeun jeung nu aya di tukangeun maranéhna, sedengkeun maranéhna mah teu nyahoeun naon-naon ngeunaan élmu-Na, anging anu dikersakeun (dipaparinkeun) ku Mantenna. Kursi [^95] Allah ngawengku langit jeung bumi. Mantenna moal ngaraos capé ngaraksa ka duanana. Mantenna Mahaluhur (tur) Mahaagung.
 
-[^95]: Ku sabagian ahli tapsir, kursi dihartikeun élmu Allah. Aya deui anu ngartikeun kakawasaana-Na, sarta aya ogé anu ngartikeun séjén. Tingal ogé catetan kaki surat al-A\`raf/7:54.
-
 ## 2:256
 
 Taya paksaan dina (ngagem) agama (Islam). Sabenerna geus jelas (bédana) jalan anu bener tina jalan anu sasar. Ku kituna, saha baé jalma anu ingkar ka Tāgūt [^96] jeung iman ka Allah, tangtu manéhna bener-bener geus nyekel pageuh kana gantungan tali nu kacida kuatna nu moal bisa pegat. Allah Maha Ngadangu (tur) Mahauninga.
-
-[^96]: Tāgūt nyaéta sétan sarta naon baé anu disembah salian ti Allah Swt.
 
 ## 2:257
 
@@ -1256,10 +1064,6 @@ Allah téh Anu nangtayungan jalma-jalma nu iman. Mantenna ngaluarkeun aranjeunna
 ## 2:258
 
 Naha hidep (Muhammad) henteu niténan jalma [^97] anu ngadébat ka Ibrahim ngeunaan Pangéranana, lantaran Allah geus maparinkeun ka manéhna karajaan (kakawasaan)? Nalika Ibrahim nyarios kieu, “Pangéran kuring mah nyaéta anu tiasa ngahirupkeun jeung ngamaotkeun,” éta jalma ngajawab, “Kuring ogé bisa ari ngahirupkeun jeung ngamaotkeun mah.” [^98] Ibrahim nyarios deui, “Saleresna Allah mah anu kawasa medalkeun panonpoé ti wétan, cik pék ku anjeun pedalkeun éta panonpoé ti beulah kulon.” Terus éta jalma kapir téh bingungeun tur cicing. Allah henteu maparin pituduh ka jalma-jalma anu dolim.
-
-[^97]: Nurutkeun hiji riwayat, nu dimaksud téh nyaéta Namrud, raja Babilonia.
-
-[^98]: Nu dimaksud “ngahirupkeun” ku manéhna nyaéta ngantep hirup, jeung anu dimaksudkeun “ngamaotan” téh nyaéta maéhan. Caritaan kitu téh ditujukeun ku éta jalma kapir pikeun ngahina Nabi Ibrahim a.s.
 
 ## 2:259
 
@@ -1281,8 +1085,6 @@ Jalma-jalma anu ngainpakkeun hartana dina jalan Allah, tuluy aranjeunna henteu m
 
 Omongan anu hadé jeung méré hampura [^99] leuwih alus tibatan sidekah anu dibarengan ku nganyerikeun (rarasaan anu dibéré). Allah Mahasugih (tur) Mahasantun.
 
-[^99]: Omongan anu hadé téh maksudna nampik ku cara anu hadé, sedengkeun méré hampura maksudna téh ngahampura kana paripolah anu kurang sopan ti jalma anu ménta-ménta.
-
 ## 2:264
 
 Hé jalma-jalma anu iman, omat ulah tepi ka mupus (ganjaran) sidekah-sidekah aranjeun ku nyebut-nyebut (éta kaalusan) atawa nganyerikeun (rarasaan jalma anu dibéré), saperti jalma anu ngainpakkeun hartana lantaran hayang ditingal batur (riya) bari henteu iman ka Allah jeung kana Poé Kiamat. Paupamaanana téh lir ibarat batu lemes anu di luhurna aya kebul, tuluy katinggang hujan ngagebrét nepi ka éta batu téh lemes deui. Maranéhna teu meunang mangpaat saeutik ogé tina naon-naon anu geus diupayakeunana. Allah téh moal maparin pituduh ka jalma-jalma kapir.
@@ -1294,8 +1096,6 @@ Paupamaan jalma-jalma anu ngainpakkeun hartana karana miharep karidoan Allah jeu
 ## 2:266
 
 Naha (aya) salah saurang ti antara aranjeun anu hayang boga kebon korma jeung anggur, anu di handapeunana cur-cor walungan-walungan? Di jero éta kebon manéhna boga mangrupa-rupa bubuahan. Tuluy datang mangsa (umur) kolot ka manéhna, padahal manéhna téh boga turunan anu laleutik kénéh.Tuluy kebonna téh ditebak ku angin puyuh anu ngandung seuneu nepikeun kaduruk. [^100] Tah kitu pisan Allah nerangkeun ayat-ayat-Na ka aranjeun sangkan mikir.
-
-[^100]: Ieu téh paupamaan jalma anu ngainpakkeun hartana bari jeung riya, ngabangga-banggakeun pangbéréna ka batur, sarta nganyenyeri haté jalma anu dibéré.
 
 ## 2:267
 
@@ -1309,19 +1109,13 @@ Sétan nyingsieunan aranjeun ku kamiskinan jeung maréntah sangkan milampah kago
 
 Mantenna maparin hikmah [^101] ka saha baé anu dikersakeun ku Mantenna. Saha baé anu dipaparinan hikmah, manéhna bener-bener geus dipaparinan kahadéan anu loba. Taya anu bisa ngalap atikan anging jalma-jalma anu boga akal séhat.
 
-[^101]: “Hikmah” di dieu maksudna téh pangabisa pikeun mahaman rasiah-rasiah saréat agama.
-
 ## 2:270
 
 Inpak naon baé anu dikaluarkeun ku aranjeun, atawa nadar [^102] naon baé anu dijangjikeun ku aranjeun, saleresna Allah mah uningaeun. Moal aya pikeun jalma-jalma dolim mah anu nulungan saurang ogé.
 
-[^102]: Jangji ngalakukeun hiji kahadéan ka Allah Swt. geusan ngaraketkeun diri ka Mantenna, boh kalayan sarat atawa henteu.
-
 ## 2:271
 
 Upama aranjeun némbongken sidekah-sidekah (aranjeun), [^103] éta hadé pisan, tapi upama aranjeun nyumputkeun éta sidekah jeung masrahkeun (kalayan rerencepan) ka jalma-jalma pakir, éta (nyumputkeun) téh leuwih alus deui pikeun aranjeun. (Ku éta jalan,) Allah bakal mupus ti aranjeun sabagian kagoréngan-kagoréngan aranjeun. Allah Mahauninga kana sakabéh lalampahan aranjeun.
-
-[^103]: Némbongkeun sidekah kalayan tujuan supaya diconto batur, lain pikeun riya.
 
 ## 2:272
 
@@ -1339,17 +1133,9 @@ Jalma-jalma anu ngainpakkeun harta bandana dina mangsa peuting jeung (atawa) din
 
 Jalma-jalma anu ngadahar (ngalakukeun) riba téh teu bisaeun nangtung anging saperti nangtungna jalma anu kasurupan sétan (nepi ka teu nyahoeun lebah) ku sabab usapana. [^104] Éta téh lantaran sabenerna maranéhna geus ngomong kieu, “Sabenerna mah jual beuli téh sarua baé jeung riba.” Padahal (teu sarua). Allah mah ngahalalkeun jual beuli, sedengkeun riba mah diharamkeun. Ku kituna, saha baé anu kungsi kadatangan pépéling ti Pangéranana, tuluy manéhna eureun (tina ngalakukeun riba), nya keur manéhna naon-naon anu geus katarima baréto (saméméh datangna cegahan) [^105], sedengkeun urusanana (dihampura atawa henteuna dipasrahkeun) ka Allah. Saha baé anu balik deui (ngalakukeun riba), mangka maranéhna jadi pangeusi naraka. Maranéhna langgeng di dinyana.
 
-[^104]: Jalma anu nyokot riba henteu aman jiwana saperti jalma kaasupan sétan.
-
-[^105]: Riba anu geus dicokot saméméh turun ieu ayat meunang teu dibalikkeun deui.
-
 ## 2:276
 
 Allah ngamusnahkeun riba jeung nyuburkeun sidekah. [^106] Allah mah henteu resepeun ka sakur jalma anu terus-terusan dina kakupuran tur lumokot ku dosa. [^107]
-
-[^106]: Ngamusnahkeun riba hartina ngamusnahkeun éta harta atawa ngeuweuhkeun berkahna. Nyuburkeun sidekah hartina ngembangkeun harta anu geus dikaluarkeun sidekahna atawa ngalipat-lipat berkahna.
-
-[^107]: Jalma-jalma anu ngahalalkeun riba sarta angger ngalakonana.
 
 ## 2:277
 
@@ -1395,13 +1181,9 @@ Allah henteu méré hiji beban ka saurang ogé anging anu luyu jeung kasanggupan
 
 Alif Lām Mīm. [^108]
 
-[^108]: Tingal catetan kaki surat al-Baqarah/2:1.
-
 ## 3:2
 
 Allah, teu aya deui Pangéran anging Mantenna, Nu Mahahirup, (tur) anu teras-terasan ngurus (mahluk-Na). [^109]
-
-[^109]: Allah ngatur langit jeung bumi sarta eusina.
 
 ## 3:3
 
@@ -1410,8 +1192,6 @@ Mantenna nurunkeun Kitab (Al-Qur’an) ka hidep (Muhammad) kalayan ḥaq (bener 
 ## 3:4
 
 saméméhna, minangka pituduh pikeun manusa. Mantenna ogé geus nurunkeun Al-Furqān. [^110] Sabenerna jalma-jalma nu ingkar kana ayat-ayat Allah bakal meunang siksaan anu kacida beuratna. Allah Mahaperkasa Anu kagungan wawales.
-
-[^110]: Al-Furqān (Al-Qur’an) nyaéta Kitab anu ngabédakeun antara anu bener jeung nu salah.
 
 ## 3:5
 
@@ -1424,10 +1204,6 @@ Nya Mantenna anu ngabentuk aranjeun di jero rahim sakumaha anu dikersakeuna-Na. 
 ## 3:7
 
 Nya Mantenna anu nurunkeun Kitab (Al-Qur’an) ka hidep (Muhammad). Ti antarana aya ayat-ayat nu muḥkamāt, [^111] nya éta pisan pokok-pokok Kitab (Al-Qur’an) téh, sedengkeun anu séjénna mah ayat-ayat nu mutasyābihāt. [^112] Anapon jalma-jalma anu jero haténa condong kana kasasaran, maranéhna miluan kana ayat-ayat anu mutasyābihāt pikeun néangan pitnah sarta pikeun néangan takwilna, padahal teu aya anu uninga kana ta’wilna anging Allah. (Anapon) jalmi-jalmi anu élmuna masagi nyarios kieu, “Abdi sadaya iman kana éta (Al-Qur’an). Sadayana ti mungguhing Pangéran abdi sadaya.” Teu aya anu bisa ngalap atikan iwal jalma anu boga akal séhat.
-
-[^111]: Ayat-ayat anu jelas sarta teges maksudna, bisa dipahaman kalayan gampang.
-
-[^112]: Ayat-ayat anu ngandung sababaraha maksud, susah dipahaman, atawa mung Allah nyalira anu uninga.
 
 ## 3:8
 
@@ -1453,13 +1229,9 @@ Pék caritakeun ku hidep (Muhammad) ka jalma-jalma kapir, “Maranѐh (pasti) ba
 
 Sabenerna aya atikan keur aranjeun dina (kajadian) dua golongan anu adu hareupan (pikeun perang). [^113] Ari nu sagolongan mah perangna tѐh dina jalan Allah, sedengkeun anu sagolongan deui mah (nyaѐta jalma-jalma) kapir anu nѐnjo ku panѐnjo panonna yѐn kaom muslimin lobana téh dua kali lipet ti maranѐhna. Allah mengkuhkeun ku bantuana-Na ka saha baé anu dikersakeun ku Mantenna. Sabenerna dina ѐta kajadian tѐh aya atikan pikeun jalma-jalma anu boga paningal anu jero.
 
-[^113]: Silih adu hareupan antara ѐta dua golongan tѐh nyaѐta antara kaom muslimin jeung kaom musrikin, lumangsung dina Perang Badar. Badar nyaѐta ngaran hiji tempat anu aya beulah kiduleun Madinah.
-
 ## 3:14
 
 Dipapaѐskeun keur manusa kacintaan kana hal-hal anu dipikahayang sarupaning wanoja, anak, jeung harta banda anu numpuk mangrupa emas, perak, kuda pilihan, ingon-ingon, [^114] jeung sawah (kebon). Ѐta tѐh kasenangan hirup di dunya (anu bakal punah), padahal di mungguhing Allah mah aya tempat mulang anu hadѐ (tur abadi).
-
-[^114]: Sato-sato mangrupa unta, sapi, embѐ, sarta domba.
 
 ## 3:15
 
@@ -1481,13 +1253,9 @@ Allah nѐtѐlakeun yѐn sabenerna teu aya deui pangѐran (anu wajib diibadahan) 
 
 Sabenerna agama (nu dpirido) di mungguhing Allah mah wungkul Islam. Jalma-jalma anu dipaparinan Kitab henteu pasalia paham [^115] iwal sanggeus datangna ѐlmu ka maranѐhna kajurung ku hiri dengki di antara maranѐhna. Saha baé anu ingkar kana ayat-ayat Allah, saleresna Allah mah ѐnggal pisan balitungana-Na.
 
-[^115]: Nyaѐta kitab-kitab anu diturunkeun samѐmѐh Al-Qur’an.
-
 ## 3:20
 
 Lamun seug maranѐhna ngadѐbat ka hidep (Muhammad), ucapkeun baѐ kieu, “Kuring masrahkeun diri ka Allah jeung (kitu deui) jalma-jalma anu tumut ka kuring.” Tanyakeun ku hidep ka jalma-jalma anu dibѐrѐ Kitab jeung ka jalma-jalma anu ummi, [^116]  “Naha aranjeun geus asup Islam?” Lamun seug maranѐhna (geus) asup (ngagem agama) Islam hartina geus meunang pituduh, tapi lamun heug maranѐhna ngabalieur, kawajiban hidep mah ngan saukur nepikeun. Allah Maha Ningali ka hamba-hamba-Na.
-
-[^116]: Ummi hartina jalmi anu teu nyaho kana maca-nulis. Nurutkeun sabagian ahli tapsir, anu dimaksud ummi tѐh nyaѐta jalma musrik Arab anu henteu nyaho kana maca-nulis. Nurutkeun sabagian anu sѐjѐnna nyaѐta jalma-jalma anu teu dibѐrѐ Kitab Suci.
 
 ## 3:21
 
@@ -1517,13 +1285,9 @@ Pok ucapkeun ku hidep (Muhammad), “Allah Anu Kagungan kakawasan. Gusti maparin
 
 Gusti ngalebetkeun wengi kana siang sareng ngalebetkeun siang kana wengi. Gusti ogѐ ngaluarkeun nu hirup tinu maot, sareng Gusti ngaluarkeun anu maot tinu hirup. [^117] Gusti (teras-terasan) maparin rejeki ka saha baé anu dikersakeun ku Gusti tanpa itungan.”
 
-[^117]: Sabagian ahli tapsir méré conto nalika ngaguar ieu ayat, nyaéta ngaluarkan anak hayam tina endog, sarta endog tina hayam.
-
 ## 3:28
 
 Omat pisan jalma-jalma nu iman ulah ngajadikeu jalma-jalma kapir salaku waly [^118] bari ninggalkeun jalma-jalma nu iman. Saha baé anu milampah kana éta kalakuan, tangtu manéhna moal meunang nanaon ti Allah. (Hal éta) kajaba upama ngan saukur (siasat) keur ngajaga diri tina perkara anu dipikahariwang ti maranéhna. Allah ngingetan ka aranjeun ngeunaan (siksaan) Mantenna. Wungkul ka Allah tempat pangbalikan (sagala perkara).
-
-[^118]: Waly hartina pamingpin, batur dalit, anu nulungan, atawa anu nangtayungan.
 
 ## 3:29
 
@@ -1545,8 +1309,6 @@ Caritakeun ku hidep (Muhammad), “Sing taat ka Allah jeung ka Rasul. Lamun aran
 
 Saleresna Allah geus milih Adam, Nuh, kulawarga Ibrahim, jeung kulawarga ‘Imran (kalayan) ngungkulan sakabéh umat (dina jamanna masing-masing). [^119]
 
-[^119]: Ku diangkatna para nabi ti turunan aranjeunna.
-
 ## 3:34
 
 (Nyaéta) hiji turunan anu sabagianana mangrupa (turunan) tinu séjénna. Allah Maha Ngadangu (tur) Mahauninga.
@@ -1563,8 +1325,6 @@ Nalika ngalahirkeun, anjeunna nyarios (bari sasadu), “Duh Gusti Pangéran abdi
 
 Salajengna, Pangéranana istrina \`Imron nampi Maryam kalayan panampian anu saé, numuwuhkeun (ngadidik) anjeunna kalayan saé ogé, tur ngajantenkeun Zakariya anu ngurusna. Saban lebet nepangan (Maryam) di jero mihrob, [^120] Zakariya mendakan rejeki (mangrupa kadaharan) di gigireunana (Maryam). Zakariya naros, “Hé Maryam, ti mana hidep meunang ieu (rejeki)?” Maryam ngawaler, “Ieu (rejeki) téh ti Allah.” Saleresna Allah maparin rejeki ka saha baé anu dikersakeun ku Mantenna kalayan tanpa wilangan.
 
-[^120]: Mihrob téh kamar husus keur ibadah.
-
 ## 3:38
 
 Di dinya pisan Zakariya ngadoa ka Pangéranana. Anjeunna ngadoa, “Nun Pangéran abdi, mugia Gusti maparin ka abdi ti mungguhing Gusti turunan anu saé. Saleresna Gusti Maha Ngadangu kana doa.”
@@ -1572,8 +1332,6 @@ Di dinya pisan Zakariya ngadoa ka Pangéranana. Anjeunna ngadoa, “Nun Pangéra
 ## 3:39
 
 Tuluy malaikat (Jibril) nyaur ka Zakariya anu nuju ngadeg salat di mihrab, “Saleresna Allah maparin wartos pikabungaheun ka hidep ku (lahirna) Yahya, nu ngaenyakeun kana kalimah (Dawuh) [^121] ti Allah, janten panutan, (gaduh kamampuan) nyengker diri (tina hawa napsu), sareng nabi anu kaasup (golongan) jalma-jalma anu soléh.”
-
-[^121]: Ngaenyakeun kadatangan saurang nabi anu diciptakeun kalayan dawuhan “kun” (geura jadi!) tanpa bapa, nyaéta Nabi Isa a.s.
 
 ## 3:40
 
@@ -1595,8 +1353,6 @@ Hé Maryam, kudu taat ka Pangéran hidep, sarta prak geura sujud jeung ruku’ b
 
 Tah éta sabagian tina béja-béja gaib (penting) anu geus diwahyukeun ku Kami ka hidep (Muhammad), padahal hidep téh henteu aya di gigireun maranéhna waktu ngalungkeun kalamna [^122] (pikeun ngundi) saha ti antara maranéhna anu bakal ngasuh Maryam. Hidep ogé teu aya di gigireun maranéhna waktu maranéhna keur papasalia paham.
 
-[^122]: Aya sabagian ahli tapsir anu ngartikeun “jamparing.” Hartina, undian éta dipigawé ku cara ngabalangkeun jamparing.
-
 ## 3:45
 
 (Sing inget) nalika para malaikat nyarios, “Hé Maryam, saleresna Allah maparin béja pangbubungah ka hidep (ku lahirna hiji putra pameget anu diciptakeun) kalayan kalimah (Dawuh) ti Mantenna. Jenenganana Al-Masih Isa putra Maryam, (hiji jalma) anu pinunjul di dunya jeung di ahérat, sarta kaasup jalma-jalma anu diraketkeun (sareng Allah).”
@@ -1612,8 +1368,6 @@ Maryam nyarios, “Nun Pangéran abdi, kumaha abdi tiasa gaduh putra, padahal te
 ## 3:48
 
 Mantenna (Allah) bakal ngawurukan ka anjeunna (Isa) ngeunaan Kitab, [^123] Hikmah, Torét, jeung Injil,
-
-[^123]: Kitab di dieu aya anu napsirkeun “pangajaran nulis.” Aya deui anu napsirkeun “kitab-kitab anu dilungsurkeun ku Allah samѐmѐhna Nabi Isa salain Torét jeung Injil”.
 
 ## 3:49
 
@@ -1667,8 +1421,6 @@ Ari bebeneran anu sampurna téh (datang) ti Pangéran hidep. Ku kituna, omat pis
 
 Saha baé anu ngabantah ka hidep (Muhammad) ngeunaan ieu perkara (Isa) sanggeus hidep meunang élmu, mangka pok ucapkeun (ka maranéhna), “Hayu urang geroan anak-anak kuring jeung anak-anak anjeun, bojo-bojo kuring jeung istri-istri anjeun, tur diri kuring saréréa jeung diri aranjeun sakabéh, geus kitu hayu urang mubāhalah, [^124] sangkan la'nat Allah ditibankeun ka jalma-jalma anu bohong.”
 
-[^124]: Mubāhalah tѐh masing-masing pihak ti antara jalma-jalma anu bѐda pamadegan ngadoa ka Allah kalayan soson-soson sangkan Mantenna nibankeun la’nat ka pihak anu ngabohong. Nabi ngajak utusan Nasrani Najran mubāhalah, tapi maranѐhna teu wanieun. Ku kituna, ieu tѐh jadi bukti bebeneran Nabi Muhammad Saw.
-
 ## 3:62
 
 Sabenerna ieu téh kisah-kisah anu ḥaq (bener jeung mawa bebeneran). Teu aya deui Pangéran anging Allah. Saleresna Allah Mahaperkasa (tur) Mahawijaksana.
@@ -1685,21 +1437,13 @@ Ucapkeun ku hidep (Muhammad), “Hé Ahli Kitab, hayu (urang kabéh) ngajugjug k
 
 Hé Ahli Kitab, ku naon aranjeun silih bantah [^125] baé dina perkara Ibrahim, padahal Torét jeung Injil téh teu diturunkeun iwal sanggeusna anjeunna (Ibrahim). Naha aranjeun teu ngarti?
 
-[^125]: Boh Yahudi boh Nasrani ngaku yѐn Nabi Ibrahim a.s. tѐh ti golongan maranѐhna. Lajeng Allah ngabantah maranѐhna kalayan alesan yѐn anjeunna datang samѐmѐh maranѐhna.
-
 ## 3:66
 
 Mémang kitu kaayaan maranéh téh! Maranéh silih bantah dina perkara nu (geus) dipikanyaho ku aranjeun sorangan. [^126] Naha atuh bet silih bantah ogé dina perkara anu teu dipikanyaho saeutik ogé ku aranjeun? [^127] Allah uninga, sedengkeun aranjeun mah teu nyaho.
 
-[^126]: Nyaѐta ngeunaan Nabi Musa a.s., Nabi Isa a.s., sarta Nabi Muhammad Saw.
-
-[^127]: Nyaѐta ngeunaan Nabi Ibrahim a.s.
-
 ## 3:67
 
 Ibrahim mah lain urang Yahudi jeung ogé lain urang Nasrani, tapi anjeunna téh hiji jalma anu lempeng [^128] tur muslim (tunduk tur sumerah diri ka Allah). Anjeunna henteu kaasup (golongan) jalma-jalma musrik.
-
-[^128]: Lempeng hartina jauh tina sirik (nyarékatkeun Allah) sarta jauh tina kasasaran.
 
 ## 3:68
 
@@ -1713,15 +1457,9 @@ Sagolongan ti Ahli Kitab hayangeun pisan lamun saupamana maranéhna nyasarkeun a
 
 Hé Ahli Kitab, ku naon maranéh terus-terusan ingkar kana ayat-ayat Allah, [^129] sedengkeun maranéh ogé nyaho (kana benerna)?
 
-[^129]: Ayat-ayat Allah anu diturunkeun ka Nabi Muhammad Saw.
-
 ## 3:71
 
 Hé Ahli Kitab, ku naon maranéh bet nyampuradukkeun perkara anu ḥaq (bebeneran nu sampurna) jeung anu batil (salah tur sasar), [^130] jeung ku naon maranéh bet nyumputkeun anu ḥaq, [^131] padahal apan maranéh téh nyaho?
-
-[^130]: Nutupan dawuh-dawuh Allah anu aya dina Torét sarta Injil kalayan ucapan-ucapan anu dijieun-jieun ku maranѐhna (Ahli Kitab) sorangan.
-
-[^131]: Bebeneran ngeunaan kanabian Muhammad Saw. anu kasebut dina Torét sarta Injil.
 
 ## 3:72
 
@@ -1730,8 +1468,6 @@ Sagolongan ti Ahli Kitab ngomong (ka papada baturna), “Pék tingalikeun dina w
 ## 3:73
 
 Maranéhna ngomong ogé), “Omat aranjeun ulah percaya anging ka jalma anu nuturkeun agama aranjeun (Yahudi).” [^132] Pék caritakeun ku hidep (Muhammad) yén sabenerna ari pituduh (nu sampurna) téh nyaéta pituduh Allah.)Maranéhna ngomong ogé), “(Omat aranjeun ulah percaya) yѐn aya hiji jalma anu bakal dipaparinan (ku Allah) saperti anu dipaparinkeun ka aranjeun, atawa yѐn maranéhna (kaom muslimin) téh bakal ngabantah aranjeun engké di hadirat Pangéran aranjeun.” Béjakeun ku hidep (Muhammad), “Saenyana kurnia mah mung aya dina kakawasaan Allah. Mantenna maparinkeun (kurnia-Na) ka saha baé anu dikersakeun ku Mantenna. Allah Mahajembar (kurnia-Na) (tur) Mahauninga.”
-
-[^132]: Maksudna percaya ka jalma anu saagama jeung manéhna (nyaéta Yahudi/Nasrani) sangkan maranѐhna teu jadi asup Islam, atawa percaya ka jalma Islam anu asalna ti agama manéhna sangkan oyag imanna sarta balik deui kana kekapiran.
 
 ## 3:74
 
@@ -1764,8 +1500,6 @@ Moal (mungkin ogé) anjeunna maréntah ka aranjeun sangkan ngajadikeun malaikat 
 ## 3:81
 
 (Sing inget) nalika Allah netepkeun perjangjian jeung para nabi (samѐmѐh Muhammad), “Lamun (engkѐ) Kami maparinkeun Kitab jeung hikmah ka aranjeun, tuluy datang ka aranjeun rasul anu ngaenyakeun kana (Kitab) anu aya di aranjeun, tangtu aranjeun bakal bener-bener iman jeung ngabéla ka anjeunna.” Allah naros, “Naha aranjeun satuju jeung narima kana perjangjian ka Kami bieu (anu diucapkeun ka aranjeun)?” Para nabi ngawaler, “Abdi sadaya satuju.” Mantenna ngadawuh, “Lamun kitu, pék saksian (hé para nabi), Kami ogé milu jadi saksi babarengan jeung aranjeun.” [^133]
-
-[^133]: Para nabi jangji ka Allah Swt. yén saupama sumping rasul anu namina Muhammad, aranjeunna badé iman sarta nulungan ka anjeunna. Jangji-pasini nabi-nabi ieu ngabeungkeut ogé para umatna.
 
 ## 3:82
 
@@ -1815,15 +1549,9 @@ Aranjeun moal pisan meunang kahadéan (nu sampurna) saméméh ngainpakkeun sabag
 
 Sakabéh kadaharan téh halal pikeun Bani Israél saméméh Torét diturunkeun, [^134] kajaba anu diharamkeun ku Israél (Yaqub) pikeun dirina ku anjeun. [^135] Pok ceritakeun ku hidep (Muhammad), “(Lamun aranjeun ngaku aya kadaharan nu diharamkeun saméméh Torét diturunkeun), pék geura bawa éta Torét téh sarta pék baca mun enya mah aranjeun bener!”
 
-[^134]: Sanggeus Torét diturunkeun, aya sababaraha inuman anu diharamkeun ka Bani Israél minangka hukuman. Ngaran-ngaran ѐta inuman disebut di jerona. Tingal an-Nisā'/4: 160 sarta al-An\`ām/6:46.
-
-[^135]: Nyaéta daging sapi.
-
 ## 3:94
 
 Ku kituna, saha baé anu ngaya-ngayakeun kabohongan ka Allah [^136] sanggeusna éta, nya maranѐhna téh jalma-jalma anu dolim.
-
-[^136]: Bohong ka Allah tѐh kalayan ngomong yѐn samѐmѐh Torét diturunkeun, Allah tos ngaharamkeun sababaraha inuman ka Bani Israél.
 
 ## 3:95
 
@@ -1833,15 +1561,9 @@ Pok ceritakeun ku hidep (Muhammad), “Allah téh leres (dina sadaya dawuhana-Na
 
 Sabenerna imah (geusan ibadah ka Allah) anu pangheulana diwangun pikeun manusa téh nyaéta nu aya di Bakkah (Mekah) [^137] anu diberkahan jeung (dijadikeun) pituduh keur sakumna alam.
 
-[^137]: Ahli Kitab ngomong yѐn imah geusan tempat ibadah anu kahiji diadegkeun tѐh aya di Baitulmaqdis, ku sabab ѐta Allah ngabantah kana ѐta omongan.
-
 ## 3:97
 
 Di dinya aya tanda-tanda anu jelas, nyaéta (ti antarana) Maqom (tilas ngadegna) Ibrahim. [^138] Saha baé anu asup ka dinya (Baitullah), pasti ngarasa tengtrem. (Ti antara) kawajiban keur manusa karana Allah téh nyaéta munggah haji, nyaéta keur saha baé anu sanggup di jalanna. [^139] Saha baé nu ingkar (kana kawajiban haji), mangka sing nyaho yén saleresna Allah Mahasugih (henteu meryogikeun hiji hal) ti sakumna alam.
-
-[^138]: Tingal al-Baqarah/2:125.
-
-[^139]: Nyaѐta jalma anu boga bebekelan sarta pakakas-pakakas angkutan tur sѐhat jasmani. Di jalanna ogѐ aman sarta kulawarga anu ditinggalkeun dijamin kahirupanana.
 
 ## 3:98
 
@@ -1850,8 +1572,6 @@ Pék caritakeun ku hidep (Muhammad), “Hé Ahli Kitab, naha geuning aranjeun te
 ## 3:99
 
 Pék caritakeun ku hidep (Muhammad), “Hé Ahli Kitab, naha geuning aranjeun terus-terusan nyegah jalma-jalma anu iman tina jalan Allah? Aranjeun miharep (jalan Allah) jadi béngkok, padahal aranjeun téh nyaksian (yѐn jalan Allah téh bener).” [^140] Allah henteu lalieun kana sagala hal anu dipilampah ku aranjeun.
-
-[^140]: Nyaksian, maksudna nyaho yѐn agama anu diridoi ku Allah tѐh wungkul Islam.
 
 ## 3:100
 
@@ -1872,8 +1592,6 @@ Prak aranjeun saréréa geura nyekel sing pageuh kana tali (agama) Allah jeung u
 ## 3:104
 
 Kudu aya ti antara aranjeun sagolongan jalma anu ngajak kana kahadéan, nitah ka nu ma’rup, [^141] jeung nyegah tina mungkar. Aranjeunna téh nya jalma-jalma anu untung.
-
-[^141]: Ma’rup tѐh sagala pagawѐan anu matak ngaraketkeun diri ka Allah, sedengkeun mungkar tѐh sagala pagawѐan anu ngajauhkeun diri ti Allah.
 
 ## 3:105
 
@@ -1911,8 +1629,6 @@ Maranѐhna ditibanan kahinaan di mana waѐ ayana, anging upama nyekel pageuh kan
 
 Maranѐhna henteu (sakabѐhna) sarua. Ti antara Ahli Kitab aya golongan anu jujur [^142] anu sok maca ayat-ayat Allah dina waktu peuting jeung ogѐ sok sujud (salat).
 
-[^142]: Golongan Ahli Kitab anu geus nganut agama Islam.
-
 ## 3:114
 
 Aranjeunna iman ka Allah tur kana poѐ ahir, sok nitah (migawѐ) anu ma\`rup, sok nyegah tina anu mungkar, jeung sok paheula-heula milampah kahadéan. Aranjeunna tѐh kaasup jalma-jalma anu soléh.
@@ -1945,19 +1661,13 @@ Lamun aranjeun meunang kahadéan, tangtu maranѐhna mah kalah ka sedih, tapi (sa
 
 (Sing inget) nalika hidep (Muhammad) indit isuk-isuk ninggalkeun kulawarga hidep seja nempatkeun jalma-jalma anu iman di pos-pos peperangan. [^143] Allah téh Maha Ngadangu (tur) Mahauninga.
 
-[^143]: Kajadian ieu lumangsung dina Perang Uhud anu nurutkeun ahli sajarah lumangsung dina tahun ka-3 H.
-
 ## 3:122
 
 (Sing ingat deui) waktu aya dua golongan ti antara aranjeun [^144] hayangeun (mundur) lantaran kasieunan, padahal Allah bakal nulungan ka éta (dua golongan). Ku kituna, jalma-jalma mu’min sakuduna mah tawekal (ka Mantenna).
 
-[^144]: Nyaѐta Bani Salamah ti suku Khazraj sarta Bani Harisah ti suku Aus. Duanana ti jajaran kaom muslimin.
-
 ## 3:123
 
 (Buktina) Allah bener-bener geus nulungan aranjeun waktu Perang Badar, padahal aranjeun téh (harita) aya dina kaayaan héngkér. [^145] Ku kituna, kudu takwa ka Allah sangkan aranjeun jadi jalma-jalma nu sukuran (ka Mantenna).
-
-[^145]: Kaayaan kaom muslimin lemah ku sabab aranjeunna saeutik sarta perlengkapanana kurang.
 
 ## 3:124
 
@@ -1975,13 +1685,9 @@ Allah henteu ngajadikeun éta hal (maparin balabantuan) kajaba minangka béja nu
 
 (Allah nulungan ka aranjeun dina Perang Badar tѐh) nyaéta pikeun ngabinasakeun sagolongan jalma-jalma kapir, [^146] atawa pikeun ngajadikeun maranѐhna hina nepi ka balik bari teu meunang naon-naon.
 
-[^146]: Nyaѐta dipaѐhanana tujuh puluh pamingpin maranѐhna sarta diboyongna tujuh puluh jalma lianna.
-
 ## 3:128
 
 Lain urusan hidep (Muhammad) saeutik ogѐ [^147] naha Allah nampi tobat maranѐhna atawa nyiksa maranѐhna, sabab geus tétéla yѐn maranѐhna téh jalma-jalma anu dolim.
-
-[^147]: Nurutkeun riwayat Bukhari (ngeunaan turunna ieu ayat) nyaѐta margi Nabi Muhammad Saw. Ngadoa ka Allah supados nyalametkeun sabagian pamingpin musrikin sarta ngabinasakan sabagian lianna.
 
 ## 3:129
 
@@ -1990,8 +1696,6 @@ Kagungan Allah sagala anu aya di langit jeung anu aya di bumi. Mantenna ngahapun
 ## 3:130
 
 Hé jalma-jalma nu iman, omat ulah ngadahar riba kalayan mangtikel-tikel [^148] jeung prak kudu takwa ka Allah supaya jadi jalma-jalma anu meunang kabagjaan.
-
-[^148]: Anu dimaksud riba di dieu nyaéta riba nasi'ah. Nurutkeun kalolobaan ulama, riba nasi’ah tѐh salilana haram sanajan teu ngalipet-lipet.
 
 ## 3:131
 
@@ -2013,8 +1717,6 @@ Prak geura aranjeun buru-buru ngahontal pangampura ti Pangéran aranjeun jeung s
 
 (Nya kitu deui) jalma-jalma anu upama migawé kalakuan goréng atawa dolim ka dirina sorangan, [^149] maranéhna (buru-buru) éling ka Allah, terus ménta pangampura tina sagala dosana. Saha deui atuh anu tiasa ngahapunten kana dosa-dosa iwal ti Allah? Sarta maranéhna mah tara tutuluyan migawé kana (éta) kagoréngan bari jeung maranéhna nyaho (yén éta téh goréng).
 
-[^149]: Anu dimaksud kalakuan anu goréng (fāhisyah) nyaéta kasalahan gedé anu balukarna henteu ukur tumiba ka diri sorangan, tapi ogé ka batur, saperti jinah jeung riba. Dolim ka diri sorangan nyaéta ngalakukeun kasalahan anu balukarna ngan tumiba ka dirina sorangan, boh gedé boh leutik.
-
 ## 3:136
 
 Ari wawales pikeun aranjeunna téh nyaéta pangampura ti Pangéranana jeung sawarga-sawarga anu curcor walungan-walungan di handapeunana bari (aranjeunna) bakal langgeng di dinyana. Nya éta téh panghadé-hadéna ganjaran pikeun jalma-jalma anu migawé (amal soléh).
@@ -2022,8 +1724,6 @@ Ari wawales pikeun aranjeunna téh nyaéta pangampura ti Pangéranana jeung sawa
 ## 3:137
 
 Bener-bener geus liwat ti saméméh aranjeun sunnah-sunnah (Allah). [^150] Ku kituna, pék geura lumampah aranjeun ka (sakuliah) bumi tuluy titénan kumaha balukarna jalma-jalma anu ngabohongkeun (ka rasul-rasul).
-
-[^150]: Anu dimaksud “sunnah Allah” di dieu téh nyaѐta katangtuan-katangtuan Allah mangrupa kacilakaan jeung musibah anu ditimpakeun ka jalma-jalma anu ngabohongkeun ka rasul.
 
 ## 3:138
 
@@ -2045,8 +1745,6 @@ Lamun aranjeun (dina Perang Uhud) ngalaman tatu, sabenerna kaom (kapir) ogé (di
 
 Naha aranjeung nyangka bakal asup ka sawarga padahal can kabuktian pikeun Allah (saha) jalma-jalma anu jihad ti antara aranjeun, [^151] jeung (can) kabuktian pikeun Mantenna (saha) jalma-jalma anu sabar?
 
-[^151]: Jihad ngandung harti: a). Perang pikeun ngadegkeun Islam sarta nangtayungan jalma Islam; b). Merangan hawa napsu; c). Ngainpakkeun harta banda pikeun kaalusan Islam sarta umat Islam; d). Numpes kajahatan sarta ngadegkeun bebeneran.
-
 ## 3:143
 
 Aranjeun téh bener-bener ngarepkeun hayang maot (kalayan sahid) saméméh nyanghareupan éta (perang). Tah (ayeuna mah) aranjeun bener-bener geus pada ningal kana maot jeung geus pada nyaksian.
@@ -2054,8 +1752,6 @@ Aranjeun téh bener-bener ngarepkeun hayang maot (kalayan sahid) saméméh nyang
 ## 3:144
 
 Muhammad téh ngan saukur hiji rasul. Saméméh anjeunna ogé geus aya sababara rasul. [^152] Naha saupama anjeunna wapat atawa ditelasan, aranjeun rѐk balik deui ka tukang (murtad)? Saha baé anu balik deui ka tukang (murtad), mangka maranѐhna téh moal matak ngamadaratkeun ka Allah saeutik ogé. Allah bakal maparin wawales ka jalma-jalma anu sukuran.
-
-[^152]: Nabi Muhammad Saw. tѐh jalmi anu diangkat ku Allah janten rasul. Rasul-rasul sateuacana atos wapat margi ditelasan atawa udur/teu damang. Nabi Muhammad ogѐ pasti wapat saperti rasul-rasul anu ti heula. Dina waktu Perang Uhud lumangsung, nyebar bѐja yѐn Nabi Muhammad wapat ditelasan. Ieu béja nyebakeun kaom muslimin tagiwur, nepi ka aya ti antara kaom muslimin anu boga maksud mѐnta panangtayungan ka Abu Sufyan (pamingpin kaom Qurés). Samentara ѐta, aya jalma munapѐk ngomong yѐn lamun Muhammad bener saurang nabi, tinangtu moal maot bisa ditelasan. Mangka, Allah nurunkeun ieu ayat pikeun nengtremkeun hatѐ kaom muslimin sarta ngabantah kana omongan-omongan jalma munapѐk tѐa (Saḥīḥ al-Bukhārī bab “Jihad”). Abu Bakar r.a. maca ieu ayat dina poѐan wapatna Nabi Muhammad pikeun nengtremkeun Umar Ibnul Khattab r.a. katut sahabat-sahabat sѐjѐnna anu teu percaya kana wapatna Nabi. (Saḥīḥ al-Bukhārī bab “Katakwaan Sahabat”).
 
 ## 3:145
 
@@ -2069,13 +1765,9 @@ Loba nabi anu perang dibarengan ku panganut-panganutna nu takwa. Aranjeunna hent
 
 Ucapan aranjeunna (jalma-jalma nu sabar) téh ngan doa (ieu), “Nun Gusti Pangéran abdi sadaya, mugi Gusti ngahapunten kana dosa-dosa sareng (paripolah) abdi sadaya anu kaleuleuwihi dina urusan abdi sadaya. [^153] Mugi Gusti mageuhkeun tekad abdi sadaya sareng maparin kaunggulan énggoning ngalawan jalma-jalma kapir.”
 
-[^153]: Maksudna: Ngaleuleuwihi hukum anu geus ditetepkeun ku Allah Swt.
-
 ## 3:148
 
 Ku sabab kitu, Allah maparin ka aranjeunna ganjaran di dunya [^154] jeung ganjaran nu hadé di ahѐrat. Allah téh Mikaresep ka jalma-jalma anu migawé kahadéan.
-
-[^154]: Ganjaran dunya bisa mangrupa kaunggulanh perang, meunang harta rampasan, dipuji-dipuji, sarta anu sѐjѐnna.
 
 ## 3:149
 
@@ -2093,33 +1785,17 @@ Kami bakal nibankeun kana jero hatѐ jalma-jalma kapir rasa kasieun, lantaran ma
 
 Allah bener-bener geus nyumponan jangji-Na ka aranjeun (waktu Perang Uhud), (nyaѐta) waktu aranjeun maéhan maranѐhna (kaom musrikin) kalayan widi-Na nepi ka dina waktu aranjeun teu boga kakuatan sarta parasѐa dina éta urusan [^155] jeung teu malirѐ kana parѐntah (Rasul) sanggeusna Allah ningalikeun ka aranjeun naon nu dipikaresep ku aranjeun. [^156] Ti antara aranjeun aya nu miharep dunya jeung aya (ogѐ) nu miharep ahѐrat. Ti dinya Allah ngabalieurkeun aranjeun ti maranѐhna pikeun nguji aranjeun. [^157] Sabenerna Allah geus ngahampura ka aranjeun. Allah téh anu kagungan kurnia pikeun jalma-jalma anu iman.
 
-[^155]: Nyaѐta urusan ngajalankeun parѐntah Nabi Muhammad Saw. supaya pasukan panah tetep panceg di tempat anu geus ditunjukkeun, dina kaayaan kumaha ogѐ.
-
-[^156]: Yakni kaunggulan perang jeung harta rampasan.
-
-[^157]: Kaom muslimin henteu junun ngéléhkeun kaom musrikin.
-
 ## 3:153
 
 (Sing inget) nalika aranjeun kabur (ninggalkeun peperangan) jeung henteu ngalieuk ka sasaha, sedengkeun rasul (Muhammad) mah (tetep di mѐdan peperangan bari) nyalukan ka aranjeun. Ku sabab kitu, Allah nibankeun ka aranjeun kasedih)ѐlѐh perang) jeung kasedih (hanjakal teu malirѐ kana parѐntah Rasul), [^158] sangkan aranjeun henteu ngarasa sedih (deui) ku (alatan) naon nu geus sirna ti aranjeun jeung ku (musibah) anu geus karandapan ku aranjeun. Allah téh Mahauninga kana sakabéh naon nu dipilampah ku aranjeun.
-
-[^158]: Kasedih kaom muslimin jalaran henteu taat kana paréntah Rasul anu ngabalukarkeun éléh perang.
 
 ## 3:154
 
 Sanggeus aranjeun meunang kasedih, Mantenna lajeng nurunkeun ka aranjeun rasa katengtreman (mangrupa) tunduh sakeudeung anu ngawengku ka sabagian ti antara aranjeun. [^159] Ari sabagian deui [^160] mah dihariwangkeun ku dirina sorangan. Maranѐhna nyangka anu teu bener ka Allah (saperti) sangkaan jahiliah. [^161] Maranѐhna ngomong kieu, “Urang sadaya teu boga pilihan dina urusan ieu (alias dipaksa indit perang).” Béjakeun ku hidep (Muhammad), “Sabenerna sakabéh urusan aya dina cepengan Allah.” Maranѐhna nyumputkeun dina jero hatѐna naon anu teu ditémbongkeun ka hidep. Maranѐhna ngomong kieu, “Lamun téa mah aya pilihan keur urang sadaya dina ieu urusan, tangtu urang (moal indit perang jeung) moal dipaéhan (diéléhkeun) di dieu.” Béjakeun ku hidep, “Saupama aranjeun aya di imah sorangan ogé, tangtu jalma-jalma anu geus ditetepkeun bakal maot ku ditelasan mah bakal kaluar (ogé) ngajugjug ka tempat maranѐhna bakal ditelasan.” Allah (midamel éta perkara téh) pikeun nguji naon nu aya dina dada aranjeun jeung pikeun ngabersihkeun naon nu aya dina haté aranjeun. Allah téh Mahauninga kana eusina hatѐ.
 
-[^159]: Jalma-jalma Islam anu kuat kayakinana.
-
-[^160]: Jalma-jalma Islam anu mangmang kѐnѐh.
-
-[^161]: Nyaѐta sangkaan yѐn lamun Nabi Muhammad Saw. bener-bener saurang nabi tur rasul Allah, tangtu moal bisa diѐlѐhkeun dina peperangan.
-
 ## 3:155
 
 Sabenerna jalma-jalma ti antara aranjeun anu ngabalieur (embung indit perang) waktu patepungna dua pasukan [^162] geus dipolésétkeun ku sétan ku lantaran sabagian kasalahan nu geus dipilampah ku maranѐhna (saméméhna). (Tapi,) Allah bener-bener geus ngahampura ka maranѐhna. Sayaktosna Allah mah Maha Jembar-pangampura (tur) Mahasantun.
-
-[^162]: Nyaѐta pasukan kaom muslimin jeung pasukan kaom musrikin dina Perang Uhud.
 
 ## 3:156
 
@@ -2129,8 +1805,6 @@ Hѐ jalma-jalma anu iman, omat ulah saperti jalma kapir (jalma munapѐk anu teu 
 
 Upama aranjeun bener-bener gugur dina jalan Allah atawa maot, [^163] pasti pangampura jeung rahmat Allah tѐh leuwih alus (pikeun aranjeun) tibatan harta rampasan anu dikumpulkeun ku maranѐhna.
 
-[^163]: Maot dina jalan Allah lain karana perang.
-
 ## 3:158
 
 Upama aranjeun bener-bener maot atawa gugur, pasti ngan wungkul ka Allah aranjeun bakal dikumpulkeun.
@@ -2138,8 +1812,6 @@ Upama aranjeun bener-bener maot atawa gugur, pasti ngan wungkul ka Allah aranjeu
 ## 3:159
 
 Nya ku berkah rahmat ti Allah, hidep (Muhammad) leuleuy ka maranѐhna. Saupama hidep kasar jeung heuras hatѐ, tangtu maranѐhna téh ngajauhan ti sakurilingeun hidep. Ku kituna, hampura baѐ maranѐhna téh, pék pangmѐntakeun pangampura pikeun maranѐhna, sarta prak geura musawarah jeung maranѐhna dina ѐta urusan (penting). [^164] Tuluy di mana hidep geus ngabuleudkeun tѐkad, prak geura tawekal ka Allah. Saleresna Allah téh Mikacinta ka jalma-jalma anu tawekal (ka Mantenna).
-
-[^164]: Urusan peperangan sarta urusan-urusan dunya lianna saperti urusan pulitik, ekonomi, kamasarakatan, jeung lian-lianna.
 
 ## 3:160
 
@@ -2173,8 +1845,6 @@ Naon nu tumiba ka aranjeun dina poéan patepungna (peperangan) dua pasukan, éta
 
 Sareng supados (Mantenna) uninga saha jalma-jalma anu munapék. (Nyaéta jalma-jalma anu waktu) dicaritakeun ka maranéhna, “Hayu urang perang di jalan Allah atawa hayu urang ngajaga diri (tina serangan musuh),” maranéhna ngajawab, “Lamun kuring saréréa terang (kumaha carana) perang mah, tangtu ngiring ka aranjeun.” [^165] Maranéhna dina poé éta téh leuwih deukeut kana kakapiran tibatan kana kaimanan. Maranéhna ngucapkeun ku sungutna (sorangan) nu teu saluyu jeung eusi hatѐna. Allah téh langkung uninga kana naon anu disumputkeun ku maranéhna.
 
-[^165]: Ieu ucapan ditujukeun ka Nabi tur sahabat-sahabatna minangka poyokan, sabab maranéhna nganggap Nabi henteu terang strategi perang margi ngalaksanakeun perang sabot jumlah kaom muslimin saeutik. Ieu omongan dipaké ogé ku jalma-jalma munapék pikeun nolak cawadan anu ditujukeun ka maranéhna.
-
 ## 3:168
 
 (Maranéhna téh nyaéta) jalma-jalma anu ngomong ka dulur-dulurna bari maranéhna henteu milu perang, “Lamun seug maranéhna miluan jiga urang mah, tangtu moal ditelasan (ku musuh).” Béjakeun ku hidep (Muhammad), “Cik pék cegah maot téh ti diri aranjeun lamun aranjeun bener mah!”
@@ -2183,13 +1853,9 @@ Sareng supados (Mantenna) uninga saha jalma-jalma anu munapék. (Nyaéta jalma-j
 
 Omat hidep ulah sakali-kali nyangka yén jalma-jalma nu gugur dina jalan Allah téh maot, sabenerna aranjeunna téh jumeneng di mungguhing Pangéranana bari dipaparinan rejeki. [^166]
 
-[^166]: Hirup di alam anu séjén lain alam urang ieu. Aranjeunna meunang sagala rupa ni’mat di mungguhing Allah. Mung Allah nyalira anu uninga kumaha kaayaan hirup di alam anu séjén téh.
-
 ## 3:170
 
 Aranjeunna bingah ku kurnia nu dipaparinkeun ku Allah. Aranjeunna ogé ngarasa gumbira ku jalma-jalma nu di sapandeurieunana (di dunya kénéh) anu can nyusul (ka ahérat), [^167] (sabab éta jalma téh) teu (boga rasa) sieun jeung teu nandangan kasedih.
-
-[^167]: Batur-baturna anu hirup kénéh sarta terus-terusan jihad dina jalan Allah.
 
 ## 3:171
 
@@ -2215,8 +1881,6 @@ Sabenerna maranéhna (nu ngomong yén jalma-jalma Qurés geus ngumpulkeun balad-
 
 Omat hidep (Muhammad) ulah rék sedih ku (kanyataan ayana) jalma-jalma anu gagancangan jadi kapir deui. [^168] Sabenerna maranéhna téh moal ngamadaratkeun saeutik ogé ka Allah. Allah moal rék maparin bagian (ganjaran) ka maranéhna dina poé ahérat. Keur maranéhna malah bakal disadiakeun siksaan anu pohara gedéna.
 
-[^168]: Jalma-jalma kapir Mekah atawa jalma-jalma munapѐk anu sok ngaganggu agama Islam.
-
 ## 3:177
 
 Sabenerna jalma-jalma anu meuli kakupuran ku kaimanan moal pisan ngarugikeun ka Allah saeutik ogé. Pikeun maranéhna bakal disadiakeun siksaan anu kacida nyerina.
@@ -2225,15 +1889,9 @@ Sabenerna jalma-jalma anu meuli kakupuran ku kaimanan moal pisan ngarugikeun ka 
 
 Jalma-jalma kapir ulah pisan nyangka yén témpo nu dibikeun ku Kami ka maranéhna [^169] téh leuwih hadé pikeun dirina. Sabenerna témpo nu dibikeun ku Kami ka maranéhna téh ngan wungkul supaya dosa-dosana nambahan. Nya pikeun maranéhna siksaan anu kacida ngahinakeunana.
 
-[^169]: Ku manjangkeun umur maranѐhana sarta ngantep migawѐ kasalahan sesuka hatѐna.
-
 ## 3:179
 
 Allah moal rék ngantep ka jalma-jalma anu iman dina kaayaan sakumaha kaayaan aranjeun ayeuna, [^170] nepi ka Mantenna ngabéntenkeun anu goréng (munapék) ti nu hadé (bener-bener iman). Allah moal pisan némbongkeun perkara anu gaib ka aranjeun, nanging Allah milih (bakal némbongkeun ka) saha baé ti antara rasul-rasul-Na anu dikersakeun ku Mantenna. [^171] Upama aranjeun iman jeung takwa, tangtu bakal meunang ganjaran anu kacida gedéna.
-
-[^170]: Kaayaan kaom muslimin nyampur jeung kaom munapikin.
-
-[^171]: Ti antara rasul-rasul, Nabi Muhammad Saw. dipilih ku Allah kalayan masihkeun kaistimѐwaan mangrupa kauninga maca eusi hatѐ jalma. Ku sabab kitu, anjeunna uninga saha ti antara sahabat-sahabatna anu bener-bener iman tur saha deui anu munapѐk atawa kapir.
 
 ## 3:180
 
@@ -2255,10 +1913,6 @@ Allah bener-bener geus ngadangu kana omongan jalma-jalma (Yahudi) anu nyarita, �
 
 Lamun maranѐhna ngabohongkeun ka hidep (Muhammad), (sing terang) yén sabenerna rasul-rasul anu saméméh hidep ogé sarua baé geus dibohongkeun. Aranjeunna nyandak mujijat-mujijat anu jelas, Jabur, [^172] jeung Kitab anu méré katerangan anu sampurna. [^173]
 
-[^172]: Jabur nyaѐta lambaran-lambaran anu eusina wahyu anu dibikeun ka nabi-nabi sateuacan Nabi Muhammad Saw. anu eusina ngandung hikmah-hikmah.
-
-[^173]: Kitab-kitab anu diturunkeun ka nabi-nabi anu eusina hukum sarѐ’at saperti Torét, Injil, sarta Jabur.
-
 ## 3:185
 
 Sakur anu nyawaan bakal ngarasakeun maot. Sabenerna dina Poѐ Kiamat wungkul wawales aranjeun bakal disampurnakeun. Saha baé anu dijauhkeun tina naraka jeung diasupkeun ka sawarga, anjeunna bener-bener geus untung. Kahirupan dunya mah ngan saukur kasenangan anu nipu.
@@ -2270,8 +1924,6 @@ Aranjeun bener-bener bakal diuji ku harta-banda jeung ku diri-diri aranjeun. Ara
 ## 3:187
 
 (Sing inget) nalika Allah meungkeut perjangjian jeung jalma-jalma anu dipaparinan Kitab (nyaéta), “Omat maranéh kudu bener-bener nerangkeun éta (eusi Kitab) ka papada manusa jeung ulah nyumputkeun.” [^174] Tuluy maranѐhna ngabalangkeun éta (perjangjian) ka satukangeun tonggongna jeung ngajual éta jangji ku pangaji anu saeutik. Kacida goréngna jual-beuli maranѐhna téh.
-
-[^174]: Ti antara katerangan anu disumputkeun téh nyaéta ngeunaan kasumpingan Nabi Muhammad Saw.
 
 ## 3:188
 
@@ -2305,8 +1957,6 @@ Nun Pangéran abdi sadaya, mugi Gusti maparin ka abdi sadaya naon anu ku Gusti p
 
 Lajeng Pangéranana ngaijabah ka aranjeun (kalayan ngadawuh), “Sabenerna Kaula moal rѐk nyapirakeun kana amalna jalma anu ngamalkeun (kahadéan) ti antara aranjeun, boh lalaki boh awѐwѐ, (sabab) sabagian ti antara aranjeun téh (turunan) ti nu sabagian deui. [^175] Jalma-jalma anu hijrah, anu diusir ti lembur-lemburna, nu dinyenyeri dina jalan Kami, nu perang, jeung anu ditelasan, pasti ku Kami bakal dipupus sagala kasalahanana jeung pasti ku Kami diasupkeun ka sawarga-sawarga anu di handapeunana cur-cor walungan-walungan, minangka ganjaran ti mungguhing Allah. Di mungguhing Allah mah aya ganjaran anu saé.
 
-[^175]: Maksudna: Lalaki asalna ti lalaki-lalaki jeung awéwé, kitu deui awéwé asalna ti lalaki-lalaki jeung awéwé. Dua-duana sarua jalmana, teu aya leuwih anu hiji tinu séjénna ngeunaan pameunteun iman tur amalna.
-
 ## 3:196
 
 Omat aranjeun sakali-kali ulah katipu ku bébasna jalma-jalma kapir milampah (sakahayangna) di pirang-pirang nagri.
@@ -2331,8 +1981,6 @@ Hé jalma-jalma anu iman, omat kudu sabar jeung kuatkeun kasabaran aranjeun, sin
 
 Hé manusa, kudu takwa ka Pangéran aranjeun anu geus nyiptakeun aranjeun tina hiji diri (Adam) jeung nyiptakeun pasanganana (Hawa) ti dirina, jeung ti duanana Mantenna ngarundaykeun lalaki jeung awéwé anu loba pisan. Kudu takwa ka Allah anu kalayan (nyebat) jenengana-Na aranjeun silih péntaan, [^176] sarta (piara) hubungan kakulawargaan. Saleresna Allah teras-terasan ngaraksa tur nalingakeun ka aranjeun.
 
-[^176]: Nurutkeun kabiasaan urang Arab, lamun nanyakeun hiji hal atawa ménta ka batur, maranéhna ngedalkeun jenengan Allah saperti as'aluka billāh, hartina kuring nanya atawa ménta ka anjeun kalayan jenengan Allah.
-
 ## 4:2
 
 Pasrahkeun ka budak-budak yatim (nu geus déwasa) harta-harta maranéhna, ulah nukeurkeun anu goréng ka nu alus, sarta ulah ngadahar harta maranéhna (kalawan dicampurkeun) jeung harta-harta aranjeun. Sabenerna éta (pagawéan nukerkeun jeung ngadahar) téh dosa anu pohara gedéna.
@@ -2341,29 +1989,17 @@ Pasrahkeun ka budak-budak yatim (nu geus déwasa) harta-harta maranéhna, ulah n
 
 Lamun seug aranjeun sieun moal sanggup migawé adil dina urusan (hak-hak) awéwé yatim (lamun aranjeun kawin ka maranéhna), atuh prak kawin baé ka awéwé (séjén) anu dipakaresep ku aranjeun, rék dua, rék tilu, atawa rék opat. Tapi lamun aranjeun sieun moal sanggup migawé adil [^177] (waktu nyandung), nya atuh (kawin ka) saurang baé, [^178] atawa (cukup ku) abid awéwé anu dipimilik ku aranjeun. [^179] Éta téh leuwih deukeut kana moalna aranjeun milampah kadoliman.
 
-[^177]: Adil di dieu maksudna adil dina nyumponan kaperluan istri saperti baju, tempat, giliran, sarta anu lianna anu sipatna lahiriah jeung batiniah.
-
-[^178]: Islam ngameunangkeun ngawayuh kalayan sarat-sarat nu geus ditangtukeun. Saméméh turun ieu ayat, tradisi ngawayuh geus aya tur kungsi dijalankeun ku para nabi sateuacan Nabi Muhammad Saw. Ieu ayat ngabatesan ngawayuh nung dugi ka opat jalmi baé.
-
-[^179]: Hamba sahaya tur perbudakan dina harti ieu, dina wanci ayeuna mah tos teu aya.
-
 ## 4:4
 
 Pasrahkeun maskawin ka istri-istri (nu dikawin ku aranjeun) minangka paparin anu pinuh karélaan. [^180] Tapi lamun seug maranéhna (istri-istri téa) masrahkeun sabagian tina éta (maskawin) kalayan karidoan haténa, atuh pék baé dahar (tarima) éta paméré (minangka dahareun) anu ngeunah tur alus akibatna.
-
-[^180]: Paméréan anu dimaksud nyaéta maskawin anu gedé leutikna ditetepkeun kalayan kasaluyuan kadua pihak, sabab éta paméré téh kudu dipasrahkeun kalayan ihlas.
 
 ## 4:5
 
 Omat aranjeun ulah rék masrahkeun ka jalma-jalma nu can sampurna akalna [^181] harta (maranéhna nu aya dina kakawasaan) aranjeun anu dijadikeun ku Allah poko kahirupan aranjeun. Aranjeun kudu méré balanja jeung pakéan ka maranéhna (tina hasil olahan éta harta), sarta ucapkeun ka maranéhna caritaan anu hadé.
 
-[^181]: Jalma anu can sampurna akalna nyaéta budak yatim anu can balég (sawawa) atawa jalma sawawa anu teu bisaeun ngatur harta bendana.
-
 ## 4:6
 
 Pék uji [^182] éta barudak yatim nepi ka waktuna cukup umur pikeun kawin (balég). Lamun cék aranjeun maranéhna geus pinter (bisa ngurus harta), sok baé geura pasrahkeun ku aranjeun harta-hartana. Omat aranjeun ulah ngadahar harta budak yatim kalawan dihambur-hambur jeung ulah buru-buru (masrahkeun hartana) saméméh maranéhna déwasa. Saha baé (wali) anu cukup, atuh manéhna kudu nahan diri (tina ngadahar harta barudak yatim). Tapi saha baé (wali) anu miskin, atuh teu nanaon manéhna ngadahar ku cara anu hadé. Tuluy, lamun aranjeun masrahkeun éta harta ka maranéhna, atuh kudu ngahadirkeun para saksi (pikeun nyasian). Cekap Allah anu ngawas(na).
-
-[^182]: Ngayakeun panaluntikan ka maranéhna ngeunaan kaagamaan, lampah, sarta lian-lianna nepi ka dipikanyaho yén éta budak téh bisa dipercaya.
 
 ## 4:7
 
@@ -2372,10 +2008,6 @@ Pikeun lalaki aya hak bagian tina harta titinggal indung-bapana jeung dulur deuh
 ## 4:8
 
 Upama dina waktu bagi waris hadir sababaraha dulur deuheus, [^183] barudak yatim, jeung anu mariskin, atuh béré maranéhna tina éta harta (sakadarna) [^184] tur ucapkeun ka maranéhna caritaan anu hadé.
-
-[^183]: Kulawarga anu teu boga hak waris tina harta pusaka/waris.
-
-[^184]: Paméréan anu teu meunang ngaleuwihan tina sapertilu harta pusaka/waris.
 
 ## 4:9
 
@@ -2389,13 +2021,9 @@ Sabenerna jalma-jalma anu ngadahar harta budak yatim ku cara aniaya, maranѐhna 
 
 Allah nyaréatkeun (ngawajibkeun) ka aranjeun ngeunaan (ngabagikeun warisan pikeun) anak-anak aranjeun, (nyaéta) bagian anak lalaki saurang sarua jeung bagian anak awѐwѐ dua urang. [^185] Lamun anak-anakna kabѐh awѐwѐ anu jumlahna leuwih ti dua, nya bagian maranѐhna téh dua-pertilu tina harta (warisan) nu ditinggalkeun (ku mayit). Lamun anak awѐwѐna ngan saurang, nya bagian manéhna téh satengah (tina harta anu ditinggalkeun). Pikeun indung-bapa masing-masing kabagian sapergenep tina titinggal mayit lamun manéhna (mayit) boga anak. Lamun mayit teu ninggalkeun anak jeung ahli warisna ngan indung-bapana (wungkul), nya pikeun indungna sapertiluna (sedengkeun sésana keur bapana). Lamun mayit ninggalkeun dulur sababaraha urang, nya indungna meunang sapergenep. (Ngabagikeun warisan saperti ieu téh) sanggeus (ngalaksanakeun) wasiat anu dijieun atawa sabada (mayaran) hutangna. (Ngeunaan) indung-bapa jeung anak-anak aranjeun, aranjeun moal terang saha ti antara maranéhna anu leuwih loba mangpa'atna pikeun aranjeun. Ieu téh hiji katangtuan ti Allah. Saleresna Allah Mahauninga (tur) Mahawijaksana.
 
-[^185]: Bagian salaki dua kali bagian awéwé, sabab kawajiban salaki leuwih beurat tinimbang awéwé, saperti kawajiban mayar maskawin sarta méré napakah (tingal al-Nisā'/4:34).
-
 ## 4:12
 
 Pikeun aranjeun (salaki) satengah tina harta anu ditinggalkeun ku istri-istri aranjeun, lamun maranѐhna teu boga anak. (Tapi) lamun maranѐhna boga anak mah, nya aranjeun meunang saparapatna tina harta titinggalna sanggeus (nyumponan) wasiatna anu dijieun atawa sanggeus (ngalunasan) hutangna. Istri-istri (aranjeun) meunang saparapat harta anu ditinggalkeun ku aranjeun lamun aranjeun teu boga anak. (Tapi) lamun aranjeun boga anak mah, éta istri (ngan) meunang saperdalapan tina harta titinggal sanggeus (nyumponan) wasiat aranjeun anu dijieun atawa sanggeus (ngalunasan) hutang aranjeun. Lamun aya hiji jalma maot, boh lalaki boh awѐwѐ, anu henteu ninggalkeun bapa atawa anak sama sakali, tapi ngan boga dulur lalaki saurang (anu saindung) atawa dulur awѐwѐ saurang (anu saindung), nya pikeun masing-masing dulurna téh sapergenep (tina titinggalan). Tapi lamun dulur-dulur anu saindung téh leuwih ti saurang, nya maranѐhna babarengan dina sapertilu warisan tina harta titinggalna sanggeus (nyumponan) wasiatna anu dijieun atawa sanggeus (ngalunasan) hutangna, bari henteu nyusahkeun (ka ahli waris). [^186] Anu kitu téh katangtuan ti Allah. Allah téh Nu Mahauninga (tur) Mahasantun.
-
-[^186]: Nyusahkeun ka ahli waris maksudna ku tindakan-tindakan saperti : (a). ngawasiatkeun ngaleuwihan tina sapertilu harta warisan. (b). ngawasiat kalayan maksud ngurangan harta warisan. Sanajan kurang tina sapertilu, lamun aya niat ngurangan hak waris mah tetep teu meunang.
 
 ## 4:13
 
@@ -2408,10 +2036,6 @@ Pikeun aranjeun (salaki) satengah tina harta anu ditinggalkeun ku istri-istri ar
 ## 4:15
 
 (Lamun aya) awѐwѐ ti antara aranjeun ngalakukeun jinah, [^187] pék datangkeun opat jalma ti antara aranjeun (anu nyaksian kana éta kalakuan). Lamun maranѐhna geus méré kasaksian, prak kerem (éta awѐwѐ) di jero imah nepi ka panggih jeung ajalna, atawa nepi ka Allah maparin jalan (anu sѐjѐn) keur manéhna. [^188]
-
-[^187]: Nurutkeun kalolobaan ahli tapsir, anu dimaksud téh nyaéta jinah, sedengkeun nurutkeun pamadegan anu sѐjѐnna nyaѐta sakur pagawѐan mesum saperti jinah, homosѐks, sarta anu sarupana. Nurutkeun pamadegan Muslim jeung Mujahid nyaѐta musaḥāqah (lѐsbian).
-
-[^188]: Nurutkeun kalolobaan ahli tapsir, jalan anu sѐjѐn téh maksudnya ku turunna al-Nūr/24:2 ngeunaan hukum dera.
 
 ## 4:16
 
@@ -2429,8 +2053,6 @@ Tobat téh henteu (ditarima ku Allah) ti jalma-jalma anu milampah kagoréngan ne
 
 Hé jalma-jalma anu iman, henteu halal pikeun aranjeun ngawaris awéwé ku jalan paksa, [^189] jeung omat aranjeun ulah nyusahkeun maranѐhna sabab rѐk nyokot deui sabagian naon (maskawin) anu geus dibikeun ku aranjeun ka maranѐhna, kajaba lamun maranѐhna milampah pagawѐan kotor anu nyata. Pѐk campur gaul jeung maranѐhna kalawan cara anu patut. Lamun aranjeun henteu mikaresep ka maranѐhna (atuh sing sabar), sabab bisa jadi aranjeun mikangѐwa kana hiji perkara, padahal Allah ngajadikeun kahadéan nu loba di dinya.
 
-[^189]: Ieu ayat teu ngandung harti yѐn ngawariskeun awѐwѐ henteu kalayan jalan paksa dimeunangkun. Nurutkeun sabagian adat Arab Jahiliah, lamun hiji jalma maot, mangka anakna anu pangkolotna atawa anggota kulawargana anu sѐjѐn ngawaris ѐta rangda. Ѐta rangda meunang dikawin ku anakna atawa dikawinkeun ka batur anu maskawinna dicokot ku nu ngawaris, atawa dicegah kawin deui.
-
 ## 4:20
 
 Lamun anjeun boga kahayang ngaganti istri ku awѐwѐ nu sѐjѐn, sedengkeun anjeun geus méré ka manѐhna harta banda nu loba (keur maskawinna), nya omat ulah nyokot deui saeutik ogé tina éta harta. Naha anjeun rѐk nyokot deui éta harta ku jalan tuduhan nu bohong bari (nanggung) dosa anu nyata?
@@ -2447,17 +2069,9 @@ Omat ulah ngawin awѐwѐ anu kungsi dikawin ku bapa aranjeun, kajaba (kajadian d
 
 Diharamkeun pikeun aranjeun (ngawin) indung aranjeun, anak awѐwѐ aranjeun, dulur awѐwѐ aranjeun, dulur awѐwѐ bapa aranjeun (bibi aranjeun), dulur awѐwѐ indung aranjeun (bibi aranjeun), anak awѐwѐ ti dulur lalaki aranjeun, anak awѐwѐ ti dulur awѐwѐ aranjeun, indung aranjeun anu kungsi nyusuan aranjeun, dulur awѐwѐ aranjeun anu sasusu, indung istri aranjeun (mitoha awѐwѐ), anak tѐrѐ awѐwѐ anu aya dina asuhan aranjeun [^190] ti istri-istri anu kungsi campur, tapi lamun acan kungsi campur mah jeung maranѐhna (jeung geus dipasrahkeun ku aranjeun) henteu jadi dosa pikeun aranjeun ngawin ѐta anak tѐrѐ, (jeung diharamkeun pikeun aranjeun ngawin) istri anak kandung aranjeun (minantu awѐwѐ) jeung ngumpulkeun (ngawayuh) dua awѐwѐ anu adi lanceuk, anging anu geus kajadian ka tukang-tukang. Saleresna Allah Maha Jembar-pangampura (tur) Mahaasih.
 
-[^190]: Maksud indung dina mimiti ieu ayat nyaéta indung, nini, tur saterusna ka luhur; Anu dimaksud anak-anak awѐwѐ nyaѐta anak awѐwѐ, incu awѐwѐ, tur saterusna ka handap, kitu ogѐ anu lian-lianna; Anu dimaksud “anak-anak pamajikan anjeun anu aya dina pangasuhan aranjeun” nurutkeun kalolobaan ulama kaasup ogѐ budak kawalon anu henteu aya dina pangasuhan aranjeun.
-
 ## 4:24
 
 (Diharamkeun ogé pikeun aranjeun ngawin) awéwé anu boga salaki, kajaba abid anu dipimilik ku aranjeun (ngaliwatan perang nanjeurkeun agama). [^191] (Ieu téh) katangtuan Allah pikeun aranjeun. Dihalalkeun pikeun aranjeun salian (awéwé) nu kitu, [^192] (supaya aranjeun) néangan (istri) ku harta banda aranjeun kalayan maksud pikeun ngajaga kasucian (kawin), lain pikeun ngajak jinah. Mangka, istri-istri anu ti antara maranéhna kungsi dialap suka (campur) ku aranjeun, pék pasrahkeun ka maranéhna imbalanana (maskawinna) minangka hiji kawajiban. Henteu jadi dosa pikeun aranjeun ngeunaan perkara anu aranjeun (sorangan) geus silih pikarido, [^193] sanggeus éta maskawin ditetepkeun. Saleresna Allah Mahauninga (tur) Mahawijaksana.
-
-[^191]: Awéwé-awéwé tawanan perang anu dipibanda bari salakina teu bareng jadi tawanan perang. Penjelasan saterusna tingali dina Q.S. al-Nisā’/4:3.
-
-[^192]: Salian ti awéwé anu dijelaskeun dina al-Nisā'/4:23.
-
-[^193]: Upamana nambah jumlah maskawin, atawa ngurangan jumlahna, atawa teu dibayar sama sakali.
 
 ## 4:25
 
@@ -2474,8 +2088,6 @@ Allah miharep nampi tobat aranjeun, sedengkeun jalma-jalma anu nuturkeun hawa na
 ## 4:28
 
 Allah miharep maparin kaénténgan [^194] ka aranjeun sabab jalma mah diciptakeun (boga sipat) lemah.
-
-[^194]: Dina sabagian syrati’at Islam, lalaki muslim meunang ngawin awéwé abid/amat upama geus dicumponan sarat-saratna.
 
 ## 4:29
 
@@ -2501,10 +2113,6 @@ Pikeun masing-masing (lalaki jeung awéwé), Kami geus netepkeun jadi \`aṣāba
 
 Lalaki (salaki) téh anu nangtayungan awéwé (istri) sabab Allah geus munjulkeun sabagian ti manéhna (lalaki) ti sabagianana deui (awéwé), jeung ku sabab lalaki méré napakah tina harta bandana. Ku kituna, istri anu soléh téh nyaéta anu ta’at (ka Allah) jeung nu ngaraksa dirina waktu (salakina) teu aya, ku lantaran Allah parantos ngaraksa (manéhna). [^195] Istri anu dipikahariwang ngalakukeun nusyūz, [^196] prak béré naséhat, jauhkeun tempat saréna (pisah ranjang), jeung (lamun perlu) pék teunggeul! Tapi lamun manéhna ta’at mah ka aranjeun, atuh ulah néang-néang alesan pikeun nyusahkeun manéhna. Saleresna Allah mah Mahaluhung (tur) Mahaagung.
 
-[^195]: Allah geus ngawajibkeun ka salaki pikeun merenahkeun pamajikanana kalayan hadé.
-
-[^196]: Nusyuz nyaéta pamajikan ninggalkeun kawajiban salaku pamajikan, saperti ninggalkeun imah tanpa idin salakina.
-
 ## 4:35
 
 Lamun aranjeun rémpan kana lumangsungna pacékcokan di antarana (salaki-pamajikan), pék utus saurang panengah (juru tengtrem) ti kulawarga salaki sarta saurang panengah (juru tengtrem) ti kulawarga awéwé. Lamun éta panengah boga maksud ngupayakeun karukunan (antara duanana), tangtu Allah masihan kasaluyuan ka duanana. Saleresna Allah mah Mahauninga (tur) Mahawaspada.
@@ -2512,10 +2120,6 @@ Lamun aranjeun rémpan kana lumangsungna pacékcokan di antarana (salaki-pamajik
 ## 4:36
 
 Prak geura ibadah ka Allah jeung omat ulah nyarékatkeun Mantenna jeung naon baé ogé. Prak ogé nyieun kahadéan ka indung-bapa, ka dulur anu deukeut, ka barudak yatim, ka jalma-jalma anu miskin, ka tatangga anu deukeut jeung anu jauh, [^197] ka babaturan sapagawéan, ka ibn sabil, [^198] jeung ka abid anu dipimilik ku aranjeun. Saleresna Allah henteu mikaresep ka jalma-jalma anu gumedé jeung sok agul ku diri sorangan.
-
-[^197]: Aya ahli tapsir anu ngama’naan “deukeut jeung jauh” di dieu ku tempat jeung hubungan kakulawargaan. Aya ogé anu ngama’naan antara jalma muslim jeung jalma lian ti muslim.
-
-[^198]: Ibnu Sabil nyaéta jalma anu keur lalampahan anu lain pikeun ma’siat tur kabéakeun bekel. Kaasup kana golongan Ibn Sabil ogé nyaéta budak anu teu kanyahoan indung-bapana.
 
 ## 4:37
 
@@ -2533,8 +2137,6 @@ Naon (héséna) pikeun maranéhna lamun seug iman ka Allah jeung kana Poé Ahir,
 
 Saleresna Allah moal ngadoliman ka hiji jalma sanajan sagédé żarrah [^199] ogé. Lamun aya hiji kahadéan (sagédé żarrah), tangtu Allah nikel-nikelkeun jeung bakal maparin ganjaran anu gedé ti mungguhing Mantenna.
 
-[^199]: Żarrah nyaéta banda anu pangleutikna jeung panghampangna.
-
 ## 4:41
 
 Pisakumahaeun (kaayaan jalma-jalma kapir engké) upama Kami ngadatangkeun saksi (rasul) ti saban umat jeung Kami ngadatangkeun hidep (Muhammad) jadi saksi pikeun maranéhna.
@@ -2546,8 +2148,6 @@ Dina éta poé, jalma-jalma anu kupur jeung anu doraka ka Rasul (Muhammad) mihar
 ## 4:43
 
 Hé jalma-jalma anu iman, omat ulah rék ngadeukeutan salat bari dina kaayaan mabok nepi ka aranjeun sadar kana naon anu diucapkeun, jeung ulah (ngadeukeutan masjid waktu) keur junub kajaba ngan saukur ngaliwat, saméméh aranjeun mandi (junub). Anapon lamun aranjeun gering, atawa keur indit-inditan, atawa geus kabeuratan, atawa paantel kulit jeung awéwé, [^200] sedengkeun aranjeun henteu manggih cai, nya prak tayamum baé ku kekebul taneuh anu hadé (suci), geura usap beungeut jeung leungeun aranjeun ku éta (kekebul). Saleresna Allah mah Maha Maparin-pangampura (tur) Maha Jembar-pangampura.
-
-[^200]: Sabagian ulama ngajelaskeun ma’na “paantel kulit” di dieu ku ma’na harpiah, tapi sabagian anu lianna ngama’naan “pasatemon/campur”.
 
 ## 4:44
 
@@ -2561,17 +2161,9 @@ Allah téh langkung uninga ka musuh-musuh aranjeun. Cukup Allah baé anu nangtay
 
 Ti antara urang Yahudi aya nu ngarobah kalimah-kalimah tina tempatna (masing-masing). Maranéhna ogé ngomong kieu, “Kuring saréréa ngadéngé, tapi moal rék nurut.” Maranéhna (pokna deui), “Déngékeun!,” (padahal hidep Muhammad sabenerna) henteu ngadéngé naon-naon. [^201] Maranéhna (pokna deui), “Rā’inā”, [^202] bari muter-muterkeun létahna jeung nyacad kana agama. Lamun seug maranéhna nyarita kieu mah, “Kuring saréréa ngadéngé jeung tumut, jeung regepkeun, jeung raksa kuring saréréa,” tangtu éta leuwih hadé pikeun maranéhna jeung leuwih pantes, tapi Allah ngala’nat maranéhna ku sabab kakapiranana. Maranéhna teu iman kajaba saeutik pisan. [^203]
 
-[^201]: Lisan maranéhna ngarucap, “kupingkeun!”, tapi haténa ngagerentes, “Mudah-mudahan anjeun henteu bisa ngadéngékeun (bongé).”
-
-[^202]: Pakait jeung harti rā’inā, sabagian ahli tapsir ngama’naan ku kecap unẓurnā anu hartina “perhatikeun kuring saréréa!” Satuluyna tingalan ogé surat al-Baqarah/2:104.
-
-[^203]: Aya anu ngama’naan “ipisna kadar kaimanan maranéhna”, tapi aya ogé anu ngama’naan “jumlah anu saeutik”.
-
 ## 4:47
 
 Hé jalma-jalma anu geus dipaparinan Kitab, prak geura iman kana (Al-Qur’an) anu geus diturunkeun ku Kami anu ngaenyakeun (kana Kitab) anu aya di maranéh, saméméh Kami ngarobah beungeut-beungeut (maranéh) sarta muterkeun ka tukang, [^204] atawa saméméh Kami ngala’nat ka maranéhna sakumaha Kami ngala’nat ka jalma-jalma (anu ngarempak cegahan) dina poé Sabtu. Ari katangtuan Allah téh pasti lumangsung.
-
-[^204]: Numutkeun kalolobaan ahli tapsir, maksudna nyaéta “ngarobah beungeut maranéhna, terus diputerkeun ka tukang” pikeun maksud ngahinakeun.
 
 ## 4:48
 
@@ -2588,8 +2180,6 @@ Prak titénan, bisa-bisana maranéhna ngaréka-réka kabohongan ka Allah. Cukup 
 ## 4:51
 
 Naha hidep (Muhammad) henteu niténan jalma-jalma anu geus dipaparinan bagian tina Kitab (Torét)? Maranéhna percaya kana Jibt jeung Tāgūt [^205] sarta nyarita ka jalma-jalma kapir (musrikin Mekah) yén maranéhna téh leuwih bener jalanna tibatan jalma-jalma anu iman.
-
-[^205]: Jibt jeung Tāgūt téh ngandung ma’na anu ampir sarua, nyaéta nuduhken ka sétan jeung naon baé anu disembah salian ti Allah Swt.
 
 ## 4:52
 
@@ -2626,8 +2216,6 @@ Hé jalma-jalma anu iman, kudu ta'at ka Allah jeung kudu ta'at ka Rasul (Muhamma
 ## 4:60
 
 Naha hidep (Muhammad) henteu niténan jalma-jalma anu ngaku-ngaku iman kana sakabéh nu diturunkeun ka hidep jeung kana sakabéh anu diturunkeun ka saméméh hidep, tapi tetep miharep ménta katetepan hukum ka Tāgūt? [^206] Padahal maranéhna geus diparéntah supaya ingkar kana éta Tāgūt. Apan sétan mah hayang nyasarkeun maranéhna sajauh-jauhna.
-
-[^206]: Maranéhna téh jalma-jalma anu ngamusuhan ka Nabi Muhammad Saw. jeung ka kaom muslimin. Aya ogé anu napsirkeun yén ayat ieu téh ngeunaan Abu Barjah, nyaéta salah sahiji tukang teluh (tenung) dina jaman Nabi. Aya ogé anu napsirkeun yén ieu ayat téh ngeunaan Ka’ab bin Asyraf (jalma munapék).
 
 ## 4:61
 
@@ -2709,8 +2297,6 @@ Ni’mat naon baé anu aya di anjeun éta téh (datangna) ti Allah, jeung kagor�
 
 Saha baé anu ta’at ka Rasul (Muhammad), manéhna téh bener-bener geus ta’at ka Allah. (Tapi) saha baé jalma anu ngabalieur (tina éta kata’atan), mangka Kami henteu ngutus hidep (Muhammad) pikeun jadi nu ngajagaan ka maranéhna. [^207]
 
-[^207]: Rasul henteu tanggel waler kana kalakuan anu dipilampah ku maranéhna sarta teu ngajamin maranéhna henteu milampah kasalahan.
-
 ## 4:81
 
 Maranéhna (jalma-jalma munapék) ngomong kieu, “Urang saréréa (sagemblengna) ta’at.” Ngan lamun maranéhna geus indit ti gigireun hidep, sabagian ti antara maranéhna ngatur siasat dina waktu peuting, lain tinu geus diucapkeun ku maranéhna bieu. Allah nyatet (siasat) anu diatur ku maranéhna dina éta peuting. Matak geura tinggalkeun baé maranéhna sarta pék hidep tawakal ka Allah! Cukup Allah anu ngaraksa (nangtayungan).
@@ -2723,15 +2309,9 @@ Atuh naha maranéhna téh henteu niténan Al-Qur’an? Lamun téa mah éta (Kita
 
 Lamun datang ka maranéhna hiji perkara ngeunaan kaamanan atawa kasieun, maranéhna téh tuluy nyebarkeun éta perkara. Padahal lamun maranéhna masrahkeun éta perkara ka Rasul (Muhammad) jeung Ulil Amri [^208] ti antara maranéhna, pasti jalma-jalma anu hayang nyaho kana bebeneran éta perkara bakal ngayangoheukeun ti aranjeunna (Rasul jeung Ulil Amri). [^209] Lamun lain lantaran kurnia jeung rahmat Mantenna ka aranjeun, tangtu aranjeun téh bakal nurut ka sétan, kajaba sabagian leutik baé (ti antara aranjeun).
 
-[^208]: Para inohong ti kalangan sohabat kanjeng Nabi Saw.
-
-[^209]: Numutkeun ahli tapsir anu séjén, yén maksud ieu ayat téh nyaéta lamun aya hawar (obrolan) ngeunaan kaamanan jeung kasieun téh kudu ditepikeun ka Rasul jeung Ulil Amri, tangtuna aranjeunna anu ahlina dina netepkeun kasimpulan (istinbāṭ) tina éta obrolan.
-
 ## 4:84
 
 Bral hidep (Muhammad) geura perang dina jalan Allah! Hidep henteu dibebanan iwal ti (mangrupa) kawajiban hidep sorangan. [^210] Kobarkeun sumanget kaom mu’minin. Mudah-mudahan Allah nolak serangan jalma-jalma kapir. Allah mah kacida rongkah kakuatanana jeung kacida beurat siksaanana.
-
-[^210]: Paréntah ngeunaan éta perang kudu dilaksanakeun ku Nabi Muhammad Saw. Sabab anu diparéntah ku éta ayat téh nyaéta anjeunna nyalira. Ieu ayat patali jeung panolakan sabagian urang Madinah pikeun ngilu perang nyarengan Nabi Saw. ka Badar. Ku kituna, ieu ayat turun pikeun maréntahkan supaya Nabi Saw. angkat perang sanajan mung saurang ogé.
 
 ## 4:85
 
@@ -2749,8 +2329,6 @@ Allah, teu aya deui Pangéran (anu kuasa tur pantes disembah) iwal ti Allah nyal
 
 Ku kituna, kunaon atuh aranjeun (kaom mu’minin bisa kabagi) jadi dua golongan [^211] dina nyanghareupan kaom munapék? Padahal Allah geus mulangkeun maranéhna kana kakapiran ku lantaran kalakuanana sorangan? Naha aranjeun rék (boga maksud) méré pituduh ka jalma-jalma anu geus disasarkeun ku Allah? Saha baé (jalma) anu disasarkeun ku Allah (ku sabab kacondongan haténa kana kasasaran), pasti hidep (Muhammad) moal manggihan jalan (pituduh) pikeun manéhna.
 
-[^211]: Nyaéta golongan kaom mu’min anu ngabéla jalma munapék sarta golongan jalma anu ngamusuhan jalma munapék.
-
 ## 4:89
 
 Maranéhna (jalma-jalma munapék) téh miharep pisan lamun aranjeun jadi kapir sakumaha maranéhna ogé geus kapir, nepi ka aranjeun sarua (jeung maranéhna). Ku sabab kitu, kadé aranjeun ulah rék ngajadikeun saha baé ti antara maranéhna jadi babaturan deukeut, nepi ka maranéhna pindah (hijrah) kana jalan Allah. Mangka, lamun maranéhna ngabalieur, prak baé tawan jeung paéhan maranéhna di mana baé aranjeun manggihan maranéhna. Kadé pisan aranjeun ulah rék ngajadikeun saurang ogé ti antara maranéhna babaturan deukeut jeung anu nulungan (ka aranjeun).
@@ -2758,10 +2336,6 @@ Maranéhna (jalma-jalma munapék) téh miharep pisan lamun aranjeun jadi kapir s
 ## 4:90
 
 Kajaba jalma-jalma (kapir) anu ménta panyalindungan ka hiji kaom anu antara aranjeun jeung éta kaom téh geus aya perjangjian (daméi. Atuh éta jalma anu ménta panyalindungan téh ulah ditawan jeung ulah dipaéhan), [^212] atawa (kitu deui) jalma-jalma (kapir) anu datang ka aranjeun sedengkeun haténa ngarasa beurat merangan aranjeun sarta (beurat) merangan kaomna, [^213] Padahal lamun Allah ngersakeun, tangtu Mantenna maparin kakawasaan ka maranéhna (pikeun) ngalawan aranjeun, tangtu maranéhna (bakal) bisa merangan aranjeun. Tapi, lamun maranéhna ngantep ka aranjeun jeung henteu merangan aranjeun, malah nawarkeun perdaméan ka aranjeun (nyerah), atuh Allah ogé moal maparin jalan ka aranjeun pikeun (merangan jeung maéhan) maranéhna.
-
-[^212]: Ayat ieu jadi dasar pikeun hukum suaka (ménta panyalindungan).
-
-[^213]: Henteu mihak ka mana baé, sarta geus ngayakeun perjangjian kerja sama jeung kaom muslimin.
 
 ## 4:91
 
@@ -2779,10 +2353,6 @@ Saha baé anu maéhan jalma mu’min kalayan ngahaja, atuh wawalesna téh naraka
 
 Hé jalma-jalma anu iman, upama aranjeun indit (perang) dina jalan Allah, prak tabayyun (néangan kajelasan saha anu bakal diperangan) jeung kahadé ulah nyebutkeun ka jalma anu méré salam ka aranjeun, “Manéh mah lain jalma mu’min,” [^214] (terus aranjeun maéhan manéhna) kalawan maksud ngalap banda kahirupan dunya, sabab di mungguhing Allah disadiakeun harta banda anu loba. Nya saperti kitu pisan kaayaan aranjeun basa baheula mah, [^215] tuluy Allah maparin ni’mat-Na ka aranjeun. Ku sabab kitu, atuh taliti (heula ku aranjeun). Saleresna Allah mah uninga kana sakabéh anu dipilampah ku aranjeun.
 
-[^214]: Anu dimaksud nyaéta jalma anu geus ngaikrarkeun kalimah lā ilāha illā-llāh.
-
-[^215]: Nyaéta waktu éta jalma can nembrakkeun kaislamanana di hareupeun balaréa. Baheula ogé aranjeun téh apan kungsi ngalaman kaayaan saperti kitu.
-
 ## 4:95
 
 Henteu sarua antara jalma-jalma mu’min anu cicing (di imah jeung teu milu perang) bari henteu aya halangan jeung jalma-jalma anu jihad dina jalan Allah ku harta jeung jiwana. Allah ngaleuwihkeun darajat jalma-jalma anu jihad ku harta jeung ku jiwana tibatan jalma-jalma anu cicing (teu ngilu perang kalawan tanpa halangan). Ka masing-masing (golongan) Allah ngajangjikeun (ganjaran) anu panghadéna (sawarga), (tapi) Allah ngaleuwihken pikeun jalma anu jihad tibatan jalma-jalma anu cicing (teu milu perang) ku ganjaran anu gedé.
@@ -2794,8 +2364,6 @@ Henteu sarua antara jalma-jalma mu’min anu cicing (di imah jeung teu milu pera
 ## 4:97
 
 Sabenerna jalma-jalma anu dicabut nyawana ku malaikat bari maranéhna keur ngadoliman dirina sorangan, [^216] mangka para malaikat nanya (kieu), “Kumaha kaayaan maranéhna (harita téh)?” Maranéhna ngajawab, “Abdi sadaya téh jalma-jalma nu dikaniaya di ieu bumi (Mekah).” Para malaikat nanya deui, “Naha apan bumi Allah téh lega. Ku naon maranéhna teu hijrah ka éta bumi?” Mangka, tempat maranéhna téh Jahanam jeung éta (Jahanam) téh panggoréng-goréngna tempat mulang,
-
-[^216]: Sabagian kaom muslimin Mekah henteu daék milu hijrah sareng Nabi Saw., padahal maranéhna kawasa pikeun ngalakukeunana. Terus maranéhna dianiyaya jeung dipaksa ku jalma-jalma kapir pikeun ngilu kana Perang Badar. Akhirna ti antara maranéhna aya anu perlaya (kakeunaan panah) dina éta perang.
 
 ## 4:98
 
@@ -2813,17 +2381,9 @@ Saha baé anu hijrah dina jalan Allah, tangtu bakal meunang di ieu bumi tempat h
 
 Lamun aranjeun iinditan di ieu bumi, atuh henteu matak dosa ngaringkes (qaṣr) [^217] salat lamun aranjeun sieun diganggu ku jalma-jalma kapir. Sabenerna jalma-jalma kapir téh musuh anu nyata pikeun aranjeun.
 
-[^217]: Nurutkeun pendapat jumhur (umum), ari ma’na qasr di dieu mah nyaéta ngadegkeun salat anu opat rakaat jadi dua rokaat.
-
 ## 4:102
 
 Lamun hidep (Muhammad) aya di tengah-tengah aranjeunna (kaom muslimin bari sieun diganggu ku jalma-jalma kapir), tuluy hidep rék gadegkeun salat (khauf) jeung aranjeunna, prak sagolongan ti antara aranjeunna sina ngadeg (salat) bareng jeung hidep bari mawa pakarang-pakarangna. Tuluy lamun aranjeunna (anu salat jeung hidep) geus sujud (nyampurnakeun saraka’at), [^218] pék aranjeunna sina pindah ti satukangeun hidep (pikeun nyanghareup ka musuh), [^219] terus prak anu sagolongan deui anu tacan salat sina datang, sina salat (ngama’mun) ka hidep (dina raka’at ka dua), sarta aranjeunna kudu mawa pakarang-pakarangna. Jalma-jalma kapir miharep pisan sangkan aranjeun talédor kana pakarang jeung harta banda aranjeun nepi ka maranéhna bisa nyerang ka aranjeun kalayan sakaligus. (Tapi) henteu matak jadi dosa keur aranjeun nunda pakarang-pakarang lamun boga kasusah (halangan), boh ku sabab hujan boh ku sabab keur gering, tapi tetep baé aranjeun kudu taki-taki. [^220] Saleresna Allah geus nyadiakeun siksaan anu ngahinakeun pikeun jalma-jalma kapir.
-
-[^218]: Nurutkeun kalolobaan ahli tapsir, lamun geus réngsé sarokaat, maka kudu méréskeun sarokaat deui séwang-séwangan (munfarid), sedengkeun Nabi Saw. nungguan golongan kadua (anu acan salat khauf berjamaah)
-
-[^219]: Raka’at kahiji, sedengkeun rakaat kadua dibérékseun ku maranéhna sorangan-sorangan, tapi maranéhna nutup (ngarengsékeun) salat mah babarengan sareng kangjeng Nabi Saw.
-
-[^220]: Cara salat khauf saperti dijelaskeun dina ayat 102 bisa dilaksanakeun dina kaayaan anu masih mungkin pikeun ngalaksanakeunana. Lamun henteu mungkin pikeun ngalaksanakeunana, maka salat dilakukeun sabisana baé, sanajan ngan saukur ngucapkeun takbir atawa tasbéh wungkul.
 
 ## 4:103
 
@@ -2836,8 +2396,6 @@ Kadé aranjeun ulah ngarasa héngkér dina ngudag éta kaom (musuh aranjeun). La
 ## 4:105
 
 Sabenerna Kami geus nurunkeun Kitab Suci (Al-Qur’an) ka hidep (Muhammad) kalayan ḥaq (bener tur mawa bebeneran), sangkan hidep mutuskeun (perkara) di antara manusa ku perkara anu geus diajarkeun ku Allah ka hidep. Poma hidep ulah ngamusuhan (jalma anu teu salah) lantaran (ngabélaan) jalma-jalma anu hianat. [^221]
-
-[^221]: Ieu ayat tur sababaraha ayat anu saterusna patula-patali jeung kasus “maok” anu dilakukeun ku Tu’mah. Hasil maokna ku manéhna ditunda di hiji imah urang Yahudi. Tu’mah nolak ngaku kana lalampahanana, malahan nyieun pitnah yén anu maokna téh nyaéta urang Yahudi. Hal ieu didugikeun ka Nabi Saw. ku kulawargi Tu’mah. Maranéhna meredih ka kangjeng Nabi supaya ngabéla Tu’mah sarta supaya ngahukum urang Yahudi, sanajan maranéhna sebenerna mah apaleun yén anu nyolongna téh nyaéta Tu’mah. Ampir-ampiran Nabi Saw. ngabéla Tu’mah tur rék nibankeun hukuman ka urang Yahudi. Ku kituna, ayat ieu turun pikeun jadi pituduh pikeun anjeunna jeung umat Islam supaya ngahukuman hiji perkara kalayan adil.
 
 ## 4:106
 
@@ -2887,21 +2445,13 @@ Sabenerna Allah moal ngahampura kana (dosa) ku lantaran sirik (nyarékatkeun All
 
 Anu disembah ku maranéhna salian ti Allah téh teu aya lian iwal saukur berhala [^222] jeung (ku nyembahna éta berhala téh) maranéhna (dina hakékatna mah) teu aya lian iwal saukur nyembah sétan nu doraka.
 
-[^222]: Asal ma’na ināṡā nyaéta awéwé-awéwé. Patung-patung berhala anu disembah ku bangsa Arab saméméh datangna Islam biasana dibéré ngaran saperti Latta, Ujja, Manat, jeung sajabana. Makna anu kuweng ku kecap ināṡā ogé kaasup jalma-jalma nu geus maot, banda-banda anu teu aya jinisna, jeung banda-banda anu laip.
-
 ## 4:118
 
 Allah (tétéla geus) ngala’nat éta (sétan). Manéhna (sétan téh) ngomong kieu, “Kuring bener-bener bakal mawa ti antara hamba-hamba Gusti (anu héngkér imanna) bagian anu geus ditangtukeun. [^223]
 
-[^223]: Saban jalma boga poténsi pikeun milampah kahadéan jeung pikeun ngalakukeun kajahatan. Sétan bakal ngagunakeun sakabéh poténsi pikeun ngalakukeun kajahatan supaya bisa nyilakakeun manusa.
-
 ## 4:119
 
 Kuring ogé bener-bener bakal nyasarkeun maranéhna, bakal ngahudangkeun harepan-harepan kosong maranéhna, bakal nitah ka maranéhna supaya neukteuk ceuli sato ingonna (nepi ka maranéhna bener-bener ngalakukeunana), [^224] jeung bakal maréntahkeun ka maranéhna sangkan ngarobah ciptaan Allah (nepi ka maranéhna bener-bener ngalakukeunana).” [^225] Saha baé jalma anu ngajadikeun sétan jadi papayung (anu nangtayungan) salian ti Allah, manéhna bener-bener geus nandangan karugian anu nyata.
-
-[^224]: Nurutkeun kayakinan urang Arab, saméméh datangna Islam, sasatoan anu dipaké sesembahan ka berhala-berhala téh kudu diteukteuk ceulina heula, jeung sasatoan anu saperti kitu henteu meunang dijadikeun sato tutumpakan sarta henteu meunang digawékeun deui, sarta kudu dileupaskeun deui (ka alam bébas).
-
-[^225]: “Ngarobah ciptaan Allah” di dieu bisa dima’naan “ngarobah anu geus diciptakeun ku Allah saperti ngabiri ingon-ingon”.
 
 ## 4:120
 
@@ -2919,8 +2469,6 @@ Anapon jalma-jalma anu iman jeung anu milampah amal soléh mah bakal diasupkeun 
 
 (Ganjaran ti Allah mah) lain (nurut kana) harepan-harepan kosong [^226] aranjeun jeung lain (ogé nurut kana) harepan-harepan kosong Ahli Kitab. Saha baé jalma anu ngalakukeun kagoréngan, tangtu manéhna bakal diwales luyu jeung kagorénganana, jeung manéhna moal manggih anu nangtayungan tur anu nulungan salian ti Allah.
 
-[^226]: Aya ahli tapsir anu méré ma’na “aranjeun” di dieu nyaéta kaom muslimin, tapi aya ogé anu ngama’naan kaom musrikin. Maksudna, ganjaran di ahérat mah moal nurut kana lamunan-lamunan atawa pangharepan manusa, tapi luyu jeung katangtuan agama.
-
 ## 4:124
 
 Saha baé anu milampah amal soléh, boh lalaki boh awéwé, sedengkeun anjeunna téh jalma anu iman, mangka bakal asup ka sawarga jeung moal didoliman saeutik ogé.
@@ -2937,19 +2485,9 @@ Mung kagungan Allah sakabéh anu aya di langit jeung anu aya di bumi. Apan Allah
 
 Maranéhna (jalma-jalma) bakal ménta patwa ka hidep (Muhammad) ngeunaan wanoja. Pék béjakeun (ku hidep), “Allah maparin patwa ka aranjeun ngeunaan maranéhna (wanoja). [^227] Sakabéh anu dibacakeun ka aranjeun dina Kitab (Al-Qur’an ogé méré patwa) ngeunaan barudak awéwé yatim anu maranéhna teu dibéré naon-naon (maskawin) anu geus ditetepkeun pikeun maranéhna, sedengkeun aranjeun téh hayang ngawin ka maranéhna; [^228] jeung ngeunaan barudak anu lemah. (Allah maréntah) sangkan aranjeun ngurus barudak yatim kalayan adil. Kahadéan naon baé anu ku aranjeun dipigawé, saleresna Allah mah Mahauninga (kana éta kahadéan).”
 
-[^227]: Bandingkeun jeung surat al-Nisā/4:2 jeung 3.
-
-[^228]: Nurutkeun kabiasaan bangsa Arab saméméh datangna Islam, wali (bapana atawa dununganana) ngabogaan kakawasaan ngurus jeung ngatur anak awéwé yatim jeung hartana. Lamun éta anak awéwé yatim téh geulis, lalaki Arab sok ngawin éta wanoja jeung ngapimilik hartana. Tapi, lamun éta awéwé teu kaasup geulis mah, walina sok ngahalang-halang lalaki séjén pikeun ngawin éta wanoja, supaya tetep bisa mibanda hartana. Ieu ayat nyegah éta kabiasaan.
-
 ## 4:128
 
 Lamun hiji wanoja ngahawatirkeun salakina bakal nusyūz [^229] atawa teu maliré (ka manéhna), atuh teu matak dosa pikeun duanana lamun rék nyieun perdaméan anu sabenerna [^230] di antara maranéhna. Ari perdaméan téh éta leuwih hadé (pikeun maranéhna), sanajan manusa téh nurutkeun tabé’atna mah kacida meditna. [^231] Padahal lamun aranjeun ngabebener (sikep ka pamajikan) tur ngajaga diri (tina nusyūz jeung sikap teu miroséa), saleresna Allah mah Mahataliti kana sakabéh nu dipilampah ku aranjeun.
-
-[^229]: Makna kecap nusyūz téh pikeun pihak awéwé mah geus dijelaskeun dina catetan kaki surat al-Nisā/4:34. Ari nusyūz-na ti pihak lalaki mah nyaéta sikep anu heuras (barangasan) ka pamajikanana, teu méré napkah batin tur teu méré hak pamajikan jeung kulawarga.
-
-[^230]: Saperti pamajikanana satuju lamun sababaraha hakna dikurangan, asal salakina daék balik deui.
-
-[^231]: Tabéat manusa mah sok embung mikeun sabagian hakna ka batur kalayan dibarengan haté anu ihlas, sanajan kitu lamun pamajikanana rido mikeun sabagian hakna, mangka salakina meunang pikeun narimana.
 
 ## 4:129
 
@@ -2995,8 +2533,6 @@ Pék geura tepikeun (ancaman) ka jalma-jalma munapék, yén sabenerna maranéhna
 
 (Nyaéta) jalma-jalma nu ngajadikeun jalma-jalma kapir minangka nu nangtayungan, [^232] bari ninggalkeun jalma-jalma mu’min. Naha maranéhna téh néangan kakuatan di pihak maranéhna (jalma-jalma kapir)? (Kanyahokeun ku aranjeun yén) sabenerna kakuatan téh sakabéhana ogé kagungan Allah.
 
-[^232]: Tingal catetan kaki surat Āli \`Imrān/3:28.
-
 ## 4:140
 
 Allah bener-bener geus nurunkeun (katangtuan) ka aranjeun dina ieu kitab (Al-Qur’an) yén lamun aranjeun (jalma-jalma mu’min) nguping ayat-ayat Allah diingkaran jeung diheureuykeun (ku jalma-jalma kapir), poma aranjeun ulah rék diuk babarengan jeung maranéhna nepi ka maranéhna asup kana omongan lianna. Sabenerna aranjeun (lamun seug migawé kitu), tangtu sarua baé jeung maranéhna. Sabenerna Allah bakal ngumpulkeun jalma-jalma munapék jeung jalma-jalma kapir dina (naraka) Jahanam.
@@ -3005,13 +2541,9 @@ Allah bener-bener geus nurunkeun (katangtuan) ka aranjeun dina ieu kitab (Al-Qur
 
 (Maranéhna téh) nyaéta jalma-jalma anu ngadagoan (kajadian) anu bakal tumiba ka diri aranjeun. Lamun aranjeun meunang kaunggulan (dina perang) ti Allah, maranéhna téh ngomong kieu (ka jalma-jalma mu’min), “Apan kuring saréréa ogé (milu perang) babarengan jeung aranjeun?” Tapi lamun jalma-jalma kapir meunang bagian (tina peperangan), maranéhna téh ngomong kieu (ka jalma-jalma kapir), “Apan kuring saréréa téh geus milu ngameunangkeun aranjeun [^233] jeung geus mélaan aranjeun tina (serangan) jalma-jalma mu’min?” Allah bakal maparin kaputusan di antara aranjeun jaga dina Poé Kiamat. Allah moal méré jalan ka jalma-jalma kapir pikeun ngéléhkeun kaom mu’minin.
 
-[^233]: Ku jalan muka rasiah-rasiah kaom mu’minin sarta nepikeun perkara aranjeunna ka jalma kapir. Atawa, lamun ngilu icikibung peperangan di pihak kaom mu’minin, jalma-jalma munapék ngiluna ogé kalayan satengah haté.
-
 ## 4:142
 
 Sabenerna jalma-jalma munapék téh rék nipu ka Allah, tapi Allah males tipuan maranéhna (ku jalan diantep lamokot dina kasasaran jeung tipuan). Upama nangtung rék (ngalaksanakeun) salat, maranéhna mah nangtungna ogé bari kalékéd pisan, bari riya (hayang katingal ku batur), jeung maranéhna henteu inget ka Allah kajaba saeutik pisan. [^234]
-
-[^234]: Maranéhna ngalaksanakeun salat ngan saukur kakapeungan, nyaéta lamun maranéhna aya di hareupeun batur.
 
 ## 4:143
 
@@ -3021,8 +2553,6 @@ Maranéhna (jalma-jalma munapék) anu aya dina kaayaan mandeg-mayong di antara n
 
 Hé jalma-jalma anu iman, aranjeun ulah ngajadikeun jalma-jalma kapir jadi batur satia [^235] salian ti jalma-jalma mu’min! Naha aranjeun miharep méré alesan anu nyata ka Allah (pikeun nibankeun hukuman ka aranjeun)?
 
-[^235]: Tingal catetan kaki surat Āli \`Imrān/3:28.
-
 ## 4:145
 
 Sabenerna jalma-jalma munapék téh (pitempateunana) aya dina tingkatan nu panghandapna di jero naraka. Hidep moal manggih nu nulungan saurang ogé pikeun maranéhna.
@@ -3030,8 +2560,6 @@ Sabenerna jalma-jalma munapék téh (pitempateunana) aya dina tingkatan nu pangh
 ## 4:146
 
 Iwal jalma-jalma anu tobat, ngoméan dirina sorangan, [^236] nyekel pageuh kana (agama) Allah, jeung ihlas (ngajalankeun) agama maranéhna karana Allah. Maranéhna tangtu bakal babarengan jeung jalma-jalma mu’min. Jaga Allah bakal maparin ganjaran anu gedé ka jalma-jalma anu iman.
-
-[^236]: “Ngoméan diri sorangan” di dieu bisa dima’naan “gawé anu hadé pikeun ngaleungitkeun perkara anu diakibatkeun kagoréngan jeung kasalahan anu geus dipilampah.
 
 ## 4:147
 
@@ -3041,8 +2569,6 @@ Allah moal bakal nyiksa lamun aranjeun sukuran jeung iman. Allah mah Mahasukur (
 
 Allah henteu mikaresep kana ucapan anu goréng, (anu diucapkeun) kalawan terus terang, kajaba (diucapkeun) ku jalma nu didoliman. [^237] Allah Maha Ngadangu (tur) Mahauninga.
 
-[^237]: Jalma anu kaaniaya meunang nembrakkeun atawa ngabéjakeun perkara kagoréngan jalma séjénna ka hakim atawa ka pihak anu ngabogaan kakawasaan (pamaréntah) ku jalan anu hadé.
-
 ## 4:149
 
 Lamun aranjeun némbongkeun atawa nyamputkeun hiji kahadéan, atawa ngahampura kana hiji kasalahan, saleresna Allah Maha Jembar-pangampura (tur) Mahakawasa.
@@ -3050,8 +2576,6 @@ Lamun aranjeun némbongkeun atawa nyamputkeun hiji kahadéan, atawa ngahampura k
 ## 4:150
 
 Sabenerna jalma-jalma nu ingkar ka Allah jeung ka rasul-rasul-Na, nu rék ngabéda-bédakeun [^238] antara (iman ka) Allah jeung (ka) rasul-rasul-Na ku omongan kieu, “Kuring saréréa percaya kana sabagian, tapi ingkar ka sabagianana deui”, tur nu boga maksud nyokot jalan tengah (antara iman jeung kapir),
-
-[^238]: Maranéhna iman ka Allah, tapi henteu daék iman ka rasul-rasul-Na.
 
 ## 4:151
 
@@ -3065,19 +2589,13 @@ Anapon jalma-jalma anu iman ka Allah jeung ka para rasul-Na, sarta henteu ngabé
 
 (Jalma-jalma ti golongan) Ahli Kitab ménta ka hidep (Muhammad) supaya nurunkeun hiji kitab ti langit pikeun maranéhna. Tétéla maranéhna geus ménta ka Musa nu leuwih gedé (ahéng) tibatan éta. Maranéhan ngucap kieu,”Témbongkeun Allah téh ka kuring saréréa kalayan ébréh.” Tuluy maranéhna dibéntar gelap ku lantaran kadolimanana. Tuluy maranéhna ngajadikeun anak sapi (minangka sesembahan), [^239] (padahal) geus datang ka maranéhna bukti-bukti (kataohidan) anu nyata. Tuluy Kami ngahampura kana éta (kasalahan maranéhna). Kami geus maparin ka Musa kakawasaan nu nyata.
 
-[^239]: Patung anak sapi dijieun ku maranéhna tina emas, terus dijadikeun sesembahan.
-
 ## 4:154
 
 Kami geus ngangkat Gunung (Sinai) saluhureun maranéhna pikeun (nguatkeun) perjangjian maranéhna. Kami maréntah ka maranéhna, “Pék arasup kana éta lawang (Baétulmaqdis) bari sujud!” Kami maréntah (ogé) ka maranéhna, “Omat ulah rék ngarempak (aturan) dina poé Sabt!” [^240] Kami geus nyokot ti maranéhna perjangjian anu paheut.
 
-[^240]: Poé Sabt nyaéta poé Sabtu, husus poéan ibadahna jalma-jalma ti kalangan Yahudi.
-
 ## 4:155
 
 Mangka (Kami ngahukum maranéhna) [^241] ku sabab maranéhna geus ngarempak éta perjangjian, geus ingkar kana katerangan-katerangan ti Allah, geus nelasan para nabi kalayan tanpa alesan anu bener, tur geus ngucap kieu, “Haté kuring saréréa mah geus nutup.” Sabenerna Allah geus ngonci haté maranéhna akibat kakapiranana. Mangka, maranéhna teu iman kajaba saeutik.
-
-[^241]: Maranéhna dibéntar gelap, disapa jadi monyet, jeung sajabana.
 
 ## 4:156
 
@@ -3087,19 +2605,13 @@ Mangka (Kami ngahukum maranéhna) [^241] ku sabab maranéhna geus ngarempak éta
 
 (Kami ogé ngahukum maranéhna) ku sabab ucapanana, “Sabenerna kuring saréréa geus nelasan Almasih, Isa putrana Maryam, Rasul Allah,” [^242] padahal maranéhna henteu nelasan anjeunna jeung teu (ogé) nyalib, tapi (anu dipaéhan téh nyaéta) jalma anu disarupakeun jeung anjeunna. Saenyana maranéhna anu pasalia paham ngeunaan éta (maotna Isa), salawasna aya dina kamangmangan ngeunaan éta (jalma anu geus dipaéhan). Maranéhna bener-bener henteu nyahoeun (saha sabenerna anu ditelasan téh) iwal ti saukur milu kana sangkaan wungkul. (Jadi,) maranéhna henteu yakin geus nelasan (Isa).
 
-[^242]: Caritaan maranéhna yén “Isa putrana Maryam téh Rasul Allah” ngan saukur pikeun moyok, sabab maranéhna sorangan henteu percaya kana karasulan Nabi Isa a.s.
-
 ## 4:158
 
 Nanging Allah geus ngangkat (Isa) ka hadirat-Na. [^243] Allah mah Mahagagah (tur) Mahawijaksana.
 
-[^243]: Ieu ayat mangrupakeun bantahan kana anggapan urang Yahudi yén maranéhna geus nelasan Nabi Isa a.s.
-
 ## 4:159
 
 Teu aya saurang ogé ti antara Ahli Kitab anu henteu iman ka anjeunna (Isa) saméméh maotna. [^244] Dina Poé Kiamat anjeunna téh bakal jadi saksi pikeun maranéhna.
-
-[^244]: Méméh maotna, saban urang Yahudi jeung Nasroni bakal iman kana karasulan Nabi Isa a.s. sarta ngaku yén Nabi Isa téh Rasul Allah, lain anak Allah. Tapi, pangakuan kaimanan saméméh maot saperti kitu mah geus teu aya gunana.
 
 ## 4:160
 
@@ -3120,8 +2632,6 @@ Sabenerna Kami geus ngawahyukeun ka hidep (Muhammad) sakumaha Kami geus ngawahyu
 ## 4:164
 
 Aya sababaraha rasul anu geus dicaritakeun ku Kami ngeunaan (kisah) aranjeunna ka hidep (Muhammad) saméméhna. Aya ogé sababaraha rasul (lianna) anu ku Kami teu kungsi dicaritakeun (kisahna) ka hidep. Allah bener-bener geus ngadawuh ka Musa (kalayan langsung). [^245]
-
-[^245]: Allah ngadawuh langsung ka Nabi Musa a.s. téh mangrupakeun hiji kaistiméwaan anjeunna. Ku kituna, anjeunna dipasihan gelar kalīmullāh, sedengkeun rasul-rasul séjénna kenging wahyu ti Allah ku perantaraan Malaikat Jibril. Hal anu sarupa kaalaman ku Nabi Muhammad Saw. anu parantos sasauran langsung sareng Allah Swt. dina waktu Mi’raj di Sidratul Muntaha.
 
 ## 4:165
 
@@ -3151,17 +2661,9 @@ Hé manusa, tétéla geus datang Rasul (Muhammad) ka aranjeun kalayan (mawa) beb
 
 Hé Ahli Kitab, kadé ulah rék kaleuleuwihi dina (ngajalankeun) agama aranjeun, [^246] jeung kadé ulah rék nyarita ngeunaan Allah anging ku (caritaan) anu bener. Sabenerna Al-Masih Isa putra Maryam téh utusan Allah jeung (mahluk anu diciptakeun ku) kalimah-Na [^247] anu didugikeun ku Mantenna ka Maryam sarta (ku tiupan) roh ti Mantenna. [^248] Ku kituna, geura iman ka Allah jeung ka para rasul-Na jeung kadé ulah rék nyebutkeun kieu, “(Pangéran téh) aya tilu!” Geura eureun (tina ucapan kitu)! Éta téh leuwih hadé pikeun aranjeun. Sabenerna mung Allah wungkul Pangéran Nu Mahatunggal. Mahasuci Mantenna tina (anggapan) kagungan putra. Mung kagungan Mantenna sakabéh anu aya di langit jeung nu aya di bumi. Cekap Allah wungkul anu ngajagana.
 
-[^246]: Kadé ulah rék ngucap yén Nabi Isa a.s. téh pangéran sakumaha anu diucapkeun ku kaom Nasroni.
-
-[^247]: Maksud “kalimah” di dieu téh nyaéta kalimah kun, kalayan éta ucapan Nabi Isa a.s. diciptakeun ku Allah, bari anjeunna henteu ngagaduhan bapa.
-
-[^248]: Disebut tiupan ti Allah ku sabab sumber éta tiupan téh ti paréntah Allah.
-
 ## 4:172
 
 (Isa) Almasih mah henteu pisan-pisan embung jadi hamba Allah jeung kitu deui para malaikat anu deuheus (ka Allah). [^249] Saha baé anu embung ibadah ka Allah sarta nyombongkeun dirina, mangka Allah bakal ngumpulkeun maranéhna kabéh (baralik) ka Mantenna.
-
-[^249]: Malaikat anu deuheus (deukeut) ka Allah téh ayana di caket ‘Arsy, saperti Jibril, Mikail, jeung Isrofil.
 
 ## 4:173
 
@@ -3179,67 +2681,33 @@ Sedengkeun jalma-jalma anu iman ka Allah sarta nyepeng pageuh kana (agama) Mante
 
 Aranjeunna ménta patwa ka hidep (Muhammad ngeunaan kalālah). [^250] Pék caritakeun kieu, “Allah tos maparin patwa ka aranjeun ngeunaan kalālah, (nyaéta) lamun aya jalma anu maot jeung teu boga anak, tapi boga hiji dulur awéwé, mangka bagian waris (éta dulur awéwé téh) saperduana tina harta nu ditinggalkeun ku manéhna. Sedengkeun dulur lalakina mah ngawaris (sakabéh harta éta dulur awéwé) lamun seug éta dulur awéwé téh teu boga anak (lalaki). Tapi lamun (nu maot téh boga) dua dulur awéwé, pikeun duanana (meunang) bagian dua pertiluna tina harta titinggal manéhna. Lamun ahli warisna téh aya sababaraha dulur lalaki jeung sababaraha dulur awéwé, nya bagian hiji dulur lalaki mah saperti bagian keur dua dulur awéwé. Allah nerangkeun (ieu hukum) ka aranjeun supaya henteu sasar (dina ngabagi waris). Allah téh Mahauninga kana sagala hal.
 
-[^250]: Kalālah téh nyaéta jalma anu maot tapi teu ngabogaan anak atawa bapa.
-
 ## 5:1
 
 Hé jalma-jalma anu iman, pék geura cumponan jangji-jangji! [^251] Sasatoan ingon-ingon geus dihalalkeun pikeun aranjeun, kajaba anu bakal disebutan ka aranjeun (kaharamanana), kalayan henteu ngahalalkeun moro sasatoan dina waktu aranjeun keur ngalakonan ihrom (haji atawa umroh). Sabenerna Allah netepkeun hukum luyu jeung naon anu dikersakeun ku Mantenna.
-
-[^251]: Jangji di dieu nyaéta jangji satia hamba ka Allah, kaasup jangji anu dijieun antara manusa jeung manusa dina hirup kumbuh.
 
 ## 5:2
 
 Hé jalma-jalma anu iman, kadé ulah rék ngarempak si’ar-si’ar (kasucian agama) Allah! [^252] Omat ulah rék (ngarempak kahormatan) bulan-bulan haram, [^253] ulah (rék ngaganggu) hady (sasatoan pikeun kurban) [^254] jeung komo qalāid (sato-sato kurban anu maké tanda dina beuheungna), [^255] jeung ulah (rék ngaganggu jalma-jalma) nu rék ngadatangan ka Bayt al-ḥarām anu rék néangan kurnia sarta karidoan ti Pangéranana!  [^256] Tapi lamun aranjeun geus taḥallul (ngaréngsékeun ihrom) mah, mangka pék geura moro sasatoan (lamun hayang mah)! Kadé ulah sakali-kali kaceuceub aranjeun ka kaom anu geus kungsi megatan ka aranjeun ka Masjidilharam ngadorong aranjeun migawé anu ngaleuwihan wates (ka maranéhna)! (Malah) aranjeun kudu silih tulungan dina kahadéan jeung katakwaan, jeung omat ulah silih tulungan dina milampah dosa jeung mumusuhan. Kudu takwa ka Allah. Sabenerna Allah téh rongkah pisan siksaana-Na.
 
-[^252]: Syi’ar-syi’ar kasucian agama Allah téh bisa dima’naan sakabéh amalan anu dilaksanakeun dina raraga ibadah haji saperti tata cara ngalakukan tawaf jeung sa’i, sarta tempat-tempat ngalaksanakeunana saperti Ka’bah, Sofa, jeung Marwa.
-
-[^253]: Bulan Haram téh nyaéta bulan Julka’dah, Muharam, jeung Rajab. Dina tilu bulan éta, saha baé dicegah pikeun ngalakukeun peperangan.
-
-[^254]: Hady nyaéta sato anu dipeuncit pikeun “pangganti” (dam) pagawéan wajib haji anu ditinggalkeun, atawa jadi denda ku sabab ngarempak hal-hal anu dicegah dilakukeunana waktu ibadah haji.
-
-[^255]: Qalāid nyaéta sato hady anu geus dibéré ciri mangrupa kalung, supaya dipikanyaho ku saha baé yén éta sato téh geus ditetepkeun pikeun dikurbankeun jeung dibawa ka Ka’bah.
-
-[^256]: Anu dimaksud “kalayan karunia” di dieu téh nyaéta kauntungan anu geus dipasihkeun ku Allah dina ngalaksanakeun ibadah haji, sedengkeun karidoan Allah di dieu mah nyaéta mangrupa ganjaran amalan haji.
-
 ## 5:3
 
 Diharamkeun pikeun aranjeun (ngadahar) bangké, getih, [^257] daging babi, (daging) sato anu dipeuncit kalawan teu nyebut (jenengan) Allah, nu (paéhna) kacekék, nu (paéhna) diteunggeul, nu (paéhna) tibeubeut, nu (paéhna) digadil, jeung nu (paéhna) dikerekeb sato galak, kajaba (sempet) dipeuncit ku aranjeun. [^258] (Diharamkeun ogé sato) anu dipeuncit pikeun berhala. (Diharamkan ogé) ngundi nasib maké azlām (anak panah). [^259] Èta (kabéh) téh kaasup kana pagawéan pasék. Dina ieu poé, [^260] jalma-jalma kapir téh geus peunggas harepan pikeun (ngéléhkeun) agama aranjeun. Ku kituna, omat aranjeun ulah rék sieun ku maranéhna, tapi sieun mah kudu ku Kami baé. Dina ieu poé, Kami geus nyampurnakeun agama aranjeun pikeun aranjeun, geus nyampurnakeun ni’mat Kami pikeun aranjeun, jeung geus rido Islam jadi agama aranjeun. Mangka, saha baé anu kapaksa [^261] ku sabab lapar, lain ngahaja hayang milampah dosa, saleresna Allah mah Maha Jembar-pangampura (tur) Mahaasih.
-
-[^257]: Maksudna marus, nyaéta getih anu kaluar tina sato sakumaha dijelaskeun dina surat al-An’ām/ 6:145.
-
-[^258]: Sasatoan anu paéhna dicekék, diteunggeul, tibeubeut, digadil ku sato anu tandukan, atawa dikerekeb sato galak, éta kabéh halal pikeun didahar lamun kaburu dipeuncit.
-
-[^259]: Azlām nyaéta anak panah anu can dibuluan. Urang Arab saméméh datangna Islam ngagunakeun éta anak panah pikeun nangtukeun hal anu kudu dilakukeun atawa ulah dilakukan, naha kaasup hadé dilakukeun atawa goréng dilakukeun. Carana nyaéta: Maranéhna nyokot tilu anak panah anu can dipasangan bulu. Saenggeus siap, saban-saban anak panah ditulisan ku tulisan anu ditangtukeun. Anu kahiji ditulisan “pék lakukeun”, anu kadua ditulisan “ulah dilakukeun”, sedengkeun anu katilu henteu ditulisan naon-naon. Tuluy anak panah ditunda dina hiji wadah jeung disimpen di jero Ka’bah. Lamun maranéhna rék ngalakukeun hiji pagawéan, mangka maranéhna ménta ka kuncén Ka’bah pikeun nyokot salah sahiji anak panah téa. Maranéhna bakal nurut kana tulisan anu aya dina anak panah téa. Lamun, kuncén kabeneran nyokot anak panah anu henteu aya tulisanana, mangka undian diulang sakali deui.
-
-[^260]: Anu dimaksud “ieu poé” nyaéta poé dina waktu haji papisahan (wada’), haji terahir anu dilakukeun ku Nabi Muhammad Saw.
-
-[^261]: Dimeunangkeun pikeun ngadahar kadaharan anu diharamkeun ku ayat ieu nalika dina kaayaan kapaksa (darurat).
 
 ## 5:4
 
 Maranéhna nanya kieu ka hidep (Muhammad) ngeunaan naon baé anu dihalalkeun pikeun maranéhna. Pok ucapkeun, “Anu dihalalkeun pikeun aranjeun téh nyaéta (kadaharan-kadaharan) anu alus jeung (buburon anu ditéwak) ku sato paninggaran anu geus dilatih ku aranjeun pikeun moro jeung anu dilatih nurut ka nu geus diajarkeun ku Allah ka aranjeun. Atuh kop baé dahar naon nu geus ditéwak ku éta sato paninggaran pikeun aranjeun, [^262] jeung pok sebut jenengan Allah (waktu ngaleupaskeun éta sato). Aranjeun kudu takwa ka Allah. Saleresna Allah Mahaénggal Balitungana-Na.
 
-[^262]: Sato paninggaran atawa sato paburon nyaéta sato anu dilatih pikeun moro sato séjénna. Sato anu ditéwak ku sato paninggaran (paburon) henteu didahar saeutik ogé ku éta sato paninggaran.
-
 ## 5:5
 
 Dina ieu poé dihalalkeun pikeun aranjeun sagala (kadaharan) anu aralus. Kadaharan (peupeuncitan) Ahli Kitab ogé halal pikeun aranjeun, jeung kadaharan aranjeun ogé halal pikeun maranéhna. (Dihalalkeun pikeun aranjeun kawin ka) wanoja-wanoja ti golongan anu iman anu ngajaga kahormatan, [^263] kitu deui wanoja-wanoja nu ngajaga kahormatan ti golongan golongan Ahli Kitab saméméh aranjeun, lamun aranjeun geus mayar maskawin maranéhna pikeun kawin ka maranéhna lain pikeun (maksud) jinah, jeung lain pikeun dijadikeun piaraan (gundik). Saha baé anu kupur sanggeus iman, mangka tétéla mubah amalna jeung di ahératna manéhna kaasup jalma-jalma anu rugi.
-
-[^263]: Sabagian ahli tapsir nyebutkeun yén wanoja anu ngajaga kahormatan téh nyaéta wanoja merdika.
 
 ## 5:6
 
 Hé jalma-jalma anu iman, lamun rék ngadegkeun salat, aranjeun kudu ngumbah beungeut jeung leungeun nepi kana siku, kudu ngusap sirah, jeung kudu (ngumbah) suku nepi kana mumuncangan! Lamun aranjeun keur dina kaayaan junub, atuh geura mandi junub. Lamun aranjeun gering, [^264] atawa keur nyanyabaan, atawa salah saurang ti antara aranjeun geus kaluar ti jamban, atawa geus paantel kulit jeung awéwé, [^265] sedengkeun aranjeun henteu manggih cai, atuh prak baé tayamum ku kebul taneuh anu alus (suci), nyaéta (ku cara) ngusap beungeut jeung leungeun ku éta (kebul). Allah moal ngersakeun kasusah saeutik ogé pikeun aranjeun, tapi Mantenna rék ngersakeun pikeun ngaberesihkeun aranjeun jeung nyampurnakeun ni'mat-Na pikeun aranjeun sangkan pada sukuran.
 
-[^264]: Gering anu henteu meunang kabaseuhan ku cai.
-
-[^265]: Paantel di dieu, nurutkeun jumhur ulama, nyaéta “paantel antara kulit lalaki jeung awéwé anu lain muhrimna”. Aya ogé sabagian ahli tapsir anu ngama’naan paantel di dieu ku ma’na “pasatemon antara salaki jeung pamajikanana”.
-
 ## 5:7
 
 Sing inget kana ni'mat Allah (anu geus dipaparinkeun) ka aranjeun jeung kana perjangjian (ka) Mantenna [^266] anu geus dipaheutkeun ka aranjeun waktu aranjeun ngucapkeun kieu, “Abdi sadaya nguping sinareng ta'at.” Kudu takwa ka Allah! Saleresna Allah mah Mahauninga kana sagala eusi haté.
-
-[^266]: Perjangjian ngeunaan ba’iah nyaéta sumpah para sahabat Nabi Saw. rék nguping jeung ta’at ka anjeunna dina sagala kaayaan.
 
 ## 5:8
 
@@ -3261,13 +2729,9 @@ Hé jalma-jalma iman, sing inget kana ni'mat Allah (anu geus dipaparinkeun) ka a
 
 Tétéla Allah geus nyandak perjangjian ti kaom Bani Israél. Kami ogé geus ngangkat dua welas pamingpin ti antara maranéhna. Allah ngadawuh kieu, “Sabenerna Kami reureujeungan jeung aranjeun.” Saenyana lamun aranjeun ngadegkeun salat, ngaluarkeun jakat, iman tur ngabantu ka rasul-rasul Kami, jeung nginjeumkeun ka Allah ku injeuman nu hadé, [^267] tangtu Kami bakal ngahapus kasalahan-kasalahan aranjeun sarta bakal ngasupkeun aranjeun ka sawarga nu di handapeunana cor-cor walungan-walungan. Ku sabab kitu, saha baé nu kupur ti antara aranjeun sanggeus éta (perjangjian), tétéla manéhna téh geus sasar tina jalan anu lempeng.”
 
-[^267]: Ngainpakkeun (méré mawéh) harta kalayan haté anu ihlas pikeun ngalaksanakeun kawajiban anu patula-patali jeung harta sarta jiwa.
-
 ## 5:13
 
 (Tapi) ku sabab maranéhna ngarempak jangjina, mangka Kami ngala’nat maranéhna tur ngajadikeun haténa teuas ngabatu. Maranéhna sok ngarobah dawuhan-dawuhan (Allah) tina tempatna (masing-masing) [^268] tur (ngahaja) mopohokeun kana sabagian pépéling nu geus dipépélingkeun ka maranéhna. Hidep (Muhammad) bakal terus-terusan ningal laku hianat maranéhna, kajaba saeutik ti antara maranéhna (nu henteu hianat). Ku sabab kitu, hampura baé jeung antep baé maranéhna ku hidep! Sabenrna Allah téh mikaresep ka jalma-jalma nu migawé kahadéan.
-
-[^268]: Ngarobah ma’na tina lapad jeung tempatna atawa nambah jeung ngurangan.
 
 ## 5:14
 
@@ -3276,8 +2740,6 @@ Ti jalma-jalma anu ngucap, “Sabenerna abdi sadaya téh kaom Nasrani,” Kami g
 ## 5:15
 
 Hé Ahli Kitab, tétéla Rasul Kami geus datang ka aranjeun pikeun ngajelaskeun loba perkara ngeunaan (eusi) Kitab Suci anu ku aranjeun geus disumputkeun jeung ngantep (teu disampékeun ka nu lian). Tétéla ogé geus datang ka aranjeun cahaya ti Allah jeung kitab suci [^269] nu jelas.
-
-[^269]: Cahaya anu dimaksud di dieu nyaéta Nabi Muhammad Saw., sedengkeun anu dimaksud Kitab Suci di dieu nyaéta Al-Qur’an.
 
 ## 5:16
 
@@ -3302,8 +2764,6 @@ Hé Ahli Kitab, tétéla rasul Kami geus datang ka aranjeun pikeun méré béja 
 ## 5:21
 
 Hé kaom kuring, geura asup ka tanah suci (Baétulmakdis) anu geus ditangtukeun ku Allah pikeun aranjeun, [^270] jeung kadé ulah rék malik ka tukang (ku sabab sieun ku musuh), engké aranjeun jadi jalma-jalma anu rugi!”
-
-[^270]: Tanah Paléstina téh dicawiskeun ku Allah pikeun Kaom Yahudi salila maranéhna iman jeung ta’at ka Mantenna.
 
 ## 5:22
 
@@ -3349,15 +2809,9 @@ Lajeng Allah ngutus hiji manuk gagak sina ngaruang taneuh supaya ngébréhkeun (
 
 Ku kituna, Kami netepkeun (hiji hukum) pikeun Bani Israél yén sabenerna saha baé anu maéhan hiji jalma, lain ku sabab (éta jalma nu dipaéhan téh) geus maéhan jalma séjénna, [^271] atawa (lain ku sabab) manéhna geus nyieun karuksakan di ieu bumi, mangka éta téh lir ibarat geus maéhan manusa sakabéhna. [^272] Sabalikna, saha baé anu miara hirupna hiji jalma, mangka éta téh lir ibarat geus miara hirup manusa sakabéhna. Tétéla Rasul Kami geus datang ka maranéhna kalayan (mawa) katerangan-katerangan anu jelas. Tuluy sabenerna loba ti antara maranéhna sanggeus éta ngaliwatan wates di ieu bumi.
 
-[^271]: Nyaéta maéhan batur lain ku sabab perang (qitāl) atawa lain ku sabab qisos.
-
-[^272]: Ieu hukum lain ngan saukur pikeun Bani Israél, tapi ogé pikeun sakabéh manusa. Allah nganggap yén maéhan hiji jalma téh sarua jeung maéhan sakabéh manusa, kitu ogé sabalikna.
-
 ## 5:33
 
 Walesan pikeun jalma-jalma anu merangan ka Allah jeung Rasul-Na sarta nyieun karuksakan di bumi mah taya lian kudu dipaéhan, atawa disalib, atawa diteukteuk leungeunna jeung sukuna kalawan silang, [^273] atawa diusir ti padumukanana. Éta téh mangrupa hiji kahinaan pikeun maranéhna di dunya, jeung di ahératna maranéhna bakal meunang siksaan nu kacida beuratna.
-
-[^273]: Neukteuk leungeun anu katuhu jeung suku anu kénca. Lamun ngalakukeun kajahatan sakali deui, mangka anu diteukteukna téh leungeun anu kénca jeung suku anu katuhu.
 
 ## 5:34
 
@@ -3391,15 +2845,9 @@ Naha anjeun henteu nyaho yén sabenerna mung kagungan Allah karajaan langit jeun
 
 Hé Rasul (Muhammad), poma ulah nepi ka nalangsa ku jalma anu paheula-heula dina kakapiran, nyaéta jalma-jalma (munapék) anu geus ngomong kieu ku sungut-sungutna, “Kuring saréréa mah enggeus iman,” padahal haténa mah henteu iman. (Ulah nepi ka nalangsa ogé) ku sabagian ti jalma-jalma Yahudi anu kacida resepna ngadéngékeun (béja-béja) bohong [^274] sarta resep ngadéngékeun (omongan-omongan) batur anu can kungsi nepi ka hidep. [^275] Maranéhna ngarobah dawuhan-dawuhan (Allah) sanggeus aya dina tempat-tempatna anu sabenerna. Maranéhna nyarita kieu (ka kaomna), “Lamun aranjeun dibéré ieu (dawuhan anu geus dirobah téa), tarima baé, tapi lamun dibéré anu séjén, aranjeun kudu ati-ati (dina narimana)!” Saha baé nu dikersakeun ku Allah sasar (ku sabab teu nurut kana tuntunan Mantenna tur leuwih milih kasasaran), mangka hidep moal pisan bisa nulungan manéhna tina (siksa) Allah. Maranéhna téh jalma-jalma anu henteu dikersakeun ku Allah dibersihan haténa. Di dunya maranéhna meunang kahinaan, sedengkeun di ahératna bakal meunang siksaan anu pohara rongkahna.
 
-[^274]: Sawaréh kaom Yahudi resep pisan ngadéngékeun kabohongan ti para panditana, atawa resep pisan ngadéngékeun ucapan-ucapan Nabi Saw. tapi tuluy ditepikeun deui ka kaom Yahudi séjénna atawa ka para panditana kalayan ditambahan ku bohong (ditambahan atawa dikurangan) pikeun ngaheureuykeun Nabi Muhammad jeung umat Islam.
-
-[^275]: Maranéhna resep pisan ngadéngékeun omongan-omongan bohong ti para pamingpinna anu can kungsi datang atawa papanggih jeung Nabi Muhammad Saw. ku sabab ceuceub pisan ka anjeunna. Sawaréhna ti kalangan kaom Yahudi ogé resep ngadéngékeun ucapan-ucapan ti Nabi Muhammad Saw. tapi pikeun disebarkeun deui ka kaom Yahudi lianna ku jalan henteu jujur (bohong).
-
 ## 5:42
 
 (Kaom Yahudi téh nyaéta) jalma-jalma anu resep ngadéngékeun kabohongan tur loba ngadahar anu haram. [^276] Mangka, lamun maranéhna datang ka hidep (Muhammad pikeun ménta putusan), pék baé putuskeun (perkara) di antara maranéhna, atawa geura nyingkah ti maranéhna. Lamun hidep nyingkahan maranéhna, maranéhna moal pisan bisa méré bahaya ka hidep saeutik ogé. Tapi lamun hidep netepkeun hiji putusan (perkara) maranéhna, pék putuskeun kalayan adil. Sabenerna Allah mikaresep ka jalma-jalma anu migawé adil.
-
-[^276]: Sarupaning kadaharan anu diharamkeun atawa meunang ku jalan haram (maling, suap, jeung réa-réa deui).
 
 ## 5:43
 
@@ -3421,15 +2869,9 @@ Kami geus nuluykeun tapak lacak aranjeunna (para nabi Bani Israél) ku (ngutus) 
 
 Sakuduna para panganut Injil mutuskeun (perkara) nurutkeun kana (pituduh) anu geus diturunkeun ku Allah dina éta Kitab. [^277] Saha baé anu teu ngahukuman (perkara) ku hukum anu geus diturunkeun ku Allah, maranéhna téh (kaasup) jalma-jalma anu pasék. [^278]
 
-[^277]: Para panganut Injil (nyaéta Nasrani) diwajibkeun pikeun mutuskeun perkara ku hukum anu luyu jeung pituduh anu geus diturunkeun ku Allah dina Injil nepi ka wanci diturunkeunana Al-Qur’an.
-
-[^278]: Jalma anu henteu mutuskeun perkara nurutkeun kana hukum Allah téh aya tilu golongan: a) Ku sabab ceuceub jeung ingkar kana hukum Allah. Jalma anu kieu kaasup kana golongan kapir (surat al-Mā’idah/5:44); b) Ku sabab nurutkeun kana hawa napsuna bari ngarugikeun batur. Jalma anu kieu kaasup kana golongan dolim (surat al-Mā’idah/5:4; jeung c) ku sabab pasik sakumaha dijelaskeun dina surat al-Mā’idah/5:47.
-
 ## 5:48
 
 Kami geus nurunkeun kitab (Al-Qur’an) ka hidep (Muhammad) kalayan ḥaq (bener tur mawa bebeneran), anu ngaenyakeun kana kitab-kitab saméméhna (Torét jeung Injil) tur jadi timbangan (kana benerna eusi) éta (dua) kitab. Ku kituna, hidep kudu mutuskeun kana perkara maranéhna nurutkeun (pituduh) anu geus diturunkeun ku Allah, sarta kadé hidep ulah rék nurut kana kahayang maranéhna tur ninggalkeun bebeneran nu geus datang ka hidep. Pikeun saban-saban (umat) ti antara aranjeun, [^279] Kami geus méré aturan jeung jalan anu jelas. Lamun baé Allah ngersakeun, tangtu aranjeun dijadikeun (ku Mantenna) jadi hiji umat (wungkul). Tapi Mantenna seja nguji ka aranjeun ku (pirang-pirang) kurnia anu geus dipasihkeun ku Mantenna ka aranjeun. Ku kituna, aranjeun kudu paheula-heula kana migawé kahadéan. Mung ka Allah wungkul arajeun bakal balik (deui), tuluy dijelaskeun ku Mantenna ka aranjeun naon baé anu baheula kungsi jadi pasalia paham.
-
-[^279]: Umat Nabi Muhammad Saw. jeung umat-umat saméméhna.
 
 ## 5:49
 
@@ -3479,8 +2921,6 @@ Pok ucapkeun ku hidep (Muhammad), “Hé Ahli Kitab, naha aranjeun nganggap kuri
 
 Ucapkeun ku hidep (Muhammad), “Naha kuring kudu ngabéjakeun ka aranjeun ngeunaan jalma anu leuwih goréng wawalesna (tibatan jalma pasék) mungguhing Allah? Nyaéta jalma nu dila’nat jeung dibenduan ku Allah (anu) ti antara maranéhna dijadikeun monyét tur bagong, [^280] jeung jalma anu nyembah ka Ṭagūt. Maranéhna téh leuwih goréng kalungguhanana jeung leuwih sasar tina jalan nu lempeng.
 
-[^280]: Urang-urang Yahudi anu ngarempak kasucian jeung kaagungan poé Sabat (tingal deui surat al-Baqarah/2:65).
-
 ## 5:61
 
 Lamun maranéhna (kaom Yahudi atawa kaom munapék) datang ka aranjeun, maranéhna téh ngomong kieu, “Kuring saréréa geus iman,” padahal sabenerna maranéhna datang (ka aranjeun) téh bari dibarengan ku kakapiran. Kitu deui waktu maranéhna balik. Apan Allah mah langkung uninga kana sakabéh perkara nu disumputkeun ku maranéhna.
@@ -3497,8 +2937,6 @@ Ku naon atuh Rabbāniyyūn (para pandita Nasrani) jeung al-Aḥbār (para pandit
 
 Urang Yahudi geus nyarita kieu, “Leungeun Allah mah diborogod (korét),” padahal mah leungeun maranéhna nu diborogod mah, jeung maranéhna anu geus dila’nat (mah) disababkeun ku sagala nu geus diucapkeun ku maranéhna téa. (Lain kitu,) tapi dua panangan Allah mah mébér. [^281] Mantenna masihan rejeki sakumaha anu dikersakeun ku Mantenna baé. (Al-Qur’an) anu geus diturunkeun ka hidep (Muhammad) ti Pangéran hidep téh tangtu bakal nambahan kadorakaan jeung kakapiran pikeun lolobana ti maranéhna. Kami geus nibankeun mumusuhan sarta kaceuceub di antara maranéhna nepi ka Poé Kiamat. Saban maranéhna ngahurungkeun seuneu peperangan, Allah anu mareumanana. Maranéhna ngupayakeun (nimbulkeun) karuksakan di ieu bumi. Allah mah henteu misuka ka jalma-jalma nu nyieun karuksakan.
 
-[^281]: “Panangan Allah” di dieu henteu sarua jeung leungeunna manusa (mahluk).
-
 ## 5:65
 
 Lamun seug Ahli Kitab téh iman tur takwa mah, pasti Kami bakal ngalebur kana kasalahan-kasalahanana, jeung maranéhna pasti (bakal) diasupkeun ku Kami ka sawarga-sawarga Na’im (anu pinuh ku kani’matan).
@@ -3507,13 +2945,9 @@ Lamun seug Ahli Kitab téh iman tur takwa mah, pasti Kami bakal ngalebur kana ka
 
 Lamun seug maranéhna (Ahli Kitab) bener-bener ngadegkeun (ajaran) Torét jeung Injil sarta naon anu geus diturunkeun ka maranéhna ti Pangéranana, pasti maranéhna téh bakal meunang kadaharan (rejeki anu datang) ti luhureunana jeung ti handapeun suku-sukuna. [^282] Ti antara maranéhna téh aya ogé sagolongan anu jujur jeung ta’at. (Tapi) lolobana mah kacida goréngna naon anu geus dipilampah ku maranéhna.
 
-[^282]: Allah bakal masihan welas-asih-Na ti luhur langit mangrupi hujan, nu muwuhkeun tutuwuhan anu buah-buahna kacida lobana.
-
 ## 5:67
 
 Hé Rasul (Muhammad), pék tepikeun naon baé nu geus diturunkeun ka hidep ti Pangéran hidep. Lamun henteu dilaksanakeun, hidep téh kaasup (jalma anu) henteu nepikeun amanat (ti) Mantenna. Allah bakal ngaraksa ka hidep tina (gangguan) manusa. [^283] Sabenerna Allah moal méré pituduh pikeun jalma-jalma kapir.
-
-[^283]: Moal aya saurang ogé anu tiasa nelasan kangjeng Nabi Muhammad Saw.
 
 ## 5:68
 
@@ -3523,13 +2957,9 @@ Pok ucapkeun ku hidep (Muhammad), “Hé, Ahli Kitab, aranjeun moal dianggap nye
 
 Sabenerna jalma-jalma nu iman (ka Muhammad), jalma-jalma Yahudi (anu ngaku iman ka Musa), Sabi’in, [^284] jeung jalma-jalma Nasrani, saha baé anu iman (ti antara maranéhna) ka Allah jeung kana Poé Ahir, sarta (maranéhna) migawé kahadéan, tangtu moal aya karémpan pikeun maranéhna, jeung maranéhna moal bakal nalangsa.
 
-[^284]: Sabi\`in téh umat saméméh umat Nabi Muhammad Saw. anu nyahoeun ayana Pangéran Anu Mahatunggal, sarta percaya kana pangaruh béntang-béntang.
-
 ## 5:70
 
 Kami tétéla geus maheutkeun perjangjian jeung kaom Bani Israél [^285] jeung geus ngutus ka maranéhna para rasul. (Tapi,) saban datang ka maranéhna saurang rasul kalayan mawa anu henteu dipikaresep jeung dipikahayang ku maranéhna, (mangka) sabagian (ti éta rasul) dibohongkeun jeung sawaréhna deui mah ditelasan ku maranéhna.
-
-[^285]: Perjangjian dimaksud nyaéta maranéhna bakal iman ka Allah jeung rasul-rasul-Na
 
 ## 5:71
 
@@ -3550,8 +2980,6 @@ Naha maranéhna henteu tobat ka Allah jeung henteu ménta pangampura ka Mantenna
 ## 5:75
 
 Al-Masih putra Maryam téh mung saukur rasul. Saméméh anjeunna ogé geus diutus pirang-pirang rasul. Ibuna ogé hiji jalmi nu nyepeng pageuh kana bebeneran. Duanana biasa sok tuang (sakumaha jalma umumna). [^286] Pék tingali ku hidep (Muhammad) kumaha (carana) Kami ngajelaskeun ayat-ayat (tanda kakawasaan Kami) ka maranéhna (Ahli Kitab). Tuluy pék titénan ogé kumaha (carana) maranéhna dibéngbatkeun (nepi ka teu bisa ningali kana éta ayat).
-
-[^286]: Nabi Isa a.s. sareng ibuna (Maryam) téh jalmi biasa anu meryogikeun naon anu diperlukeun ku jalma dina umumna, saperti tuangeun, eueuteun, jeung sajabana.
 
 ## 5:76
 
@@ -3633,29 +3061,13 @@ Hé jalma-jalma anu iman, Allah sabenerna bakal nguji aranjeun (ku sabagian) sat
 
 Hé jalma-jalma nu iman, kadé ulah rék maéhan sato boroan [^287] waktu aranjeun keur (ngalaksanakeun) ihram (haji atawa umroh). Saha baé ti antara aranjeun anu maéhan (éta sato) kalayan dihaja, mangka dengdana téh nyaéta (kudu ngagantian) maké sato ingon-ingon anu sabanding jeung (sato boroan) nu dipaéhan téa, nurutkeun putusan dua lalaki nu adil ti antara aranjeun minangka hady (sato korban) nu dibawa ka Ka’bah, [^288] atawa (mayar) kiparat, nyaéta méré kadaharan ka jalma-jalma miskin, [^289] atawa (ku) puasa nu (waktuna) sabanding jeung kadaharan anu dikaluarkeun (pikeun jalma miskin téa), [^290] sangkan manéhna ngarasakeun wawales tina kagoréngan lampahna. Allah ngahampura kana sakabéh nu geus kaliwat. [^291] Tapi saha baé nu migawé deui, tangtu Allah bakal nyiksa ka manéhna. Allah mah Mahagagah (tur) Maha Ngamilikan (kakawasaan) pikeun ngawales.
 
-[^287]: Sato boroan, boh anu meunang didahar boh henteu meunang, iwal ti manuk gagak, manuk heulang, kalajengking (langir), reungit, jeung anjing galak. Dina hiji riwayat, kaasup kana golongan ieu téh nyaéta oray.
-
-[^288]: Anu dibawa nepi ka wewengkon tanah haram pikeun dipeuncit di dinya, jeung dagingna dibagikeun ka pakir miskin.
-
-[^289]: Sabanding jeung harga sato ingon-ingon, minangka gaganti atawa dengdaan tina sato anu dipaéhan.
-
-[^290]: Ngalaksanakeun puasa anu jumlah poéna sabanding jeung mud anu dibikeun ka pakir miskin, saharga jeung sato anu dipaéhan, kalayan katangtuan saurang pakir miskin meunang sa-mud (kurang leuwih 6,5 ons).
-
-[^291]: Maéhan sato saméméhna turun ieu ayat anu ngaharamkeunana.
-
 ## 5:96
 
 Dihalalkeun pikeun aranjeun sato boroan laut [^292] jeung kadaharan (nu asalna) ti laut, [^293] minangka kadaharan anu ngeunah pikeun aranjeun jeung pikeun jalma-jalma anu (keur) dina lalampahan. Sarta diharamkeun pikeun aranjeun moro sasatoan darat sajeroning ihram (haji atawa umroh). Aranjeun kudu takwa ka Allah anu ka Mantenna wungkul aranjeun bakal dikumpulkeun (deui)!
 
-[^292]: Sato boroan laut anu diala ku jalan upaya saperti nguseup, ngecrik, jeung réa-réa deui. Kaasup dina ma’na laut di dieu nyaéta walungan, situ, balong, jeung sajabana.
-
-[^293]: Lauk atawa sato laut anu diala kalayan gampang, sabab geus paéh ngambang atawa kabawa ombak ka sisi basisir, jeung sajabana.
-
 ## 5:97
 
 Allah geus ngajadikeun Ka’bah, Baétulharam, [^294] minangka puseur kagiatan (ibadah jeung urusan dunya). Kitu deui Allah geus ngajadikeun bulan haram, hady (sato korban), jeung qalā’id (sato korban anu dikalungan). Hal éta téh supaya aranjeun nganyahokeun yén Allah téh Mahauninga kana sakabéh nu aya di langit jeung anu aya di bumi, sarta yén Allah téh Mahauninga kana sakabéh perkara.
-
-[^294]: Ka’bah jeung sabudeureunana jadi tempat anu aman pikeun manusa migawé perkara-perkara anu pakuat-pakait jeung dunya-ahérat, sarta jadi puseur ibadah haji.
 
 ## 5:98
 
@@ -3681,14 +3093,6 @@ Tétéla sagolongan manusa saméméh aranjeun kungsi nanyakeun hal-hal anu sarup
 
 Allah mah henteu kungsi netepkeun saeutik ogé (aturan) ngeunaan bāhirah, [^295] sā’ibah, [^296] waṣīlah, [^297] jeung ḥām, [^298] tapi jalma-jalma kapir geus nyieun-nyieun kabohongan ka Allah. Kalolobaanana ti antara maranéhna mah teu ngarti.
 
-[^295]: Bahīrah: Onta bikang anu geus anakan lima kali jeung anakna anu kalima téh jalu. Tuluy éta onta bikang téh dibeulah ceulina, dileupaskeun, jeung ulah dijadikeun tutumpakan deui, sarta cai susuna teu meunang dijual.
-
-[^296]: Sā’ibah: Onta bikang anu diantepkeun pikeun indit ka mana baé ku sabab hiji nadar, saperti lamun urang Arab saméméh datangna Islam érék milampah hiji lalampahan (nyaba) anu beurat, mangka biasana manéhna nadar rék nagajadikeun ontana jadi sā’ibah lamun maksud jeung perjalanana hasil tur salamet.
-
-[^297]: Wā’ilah: Nyaéta hiji domba bikang anu anakan kembar dua, hiji jalu jeung hiji deui bikang. Anu jaluna disebut wā’ilah, hartina domba anu teu meunang dipeuncit, tapi kudu dipasrahkeun ka berhala.
-
-[^298]: Ḥām: Onta jalu anu teu meunang diganggu-ganggu deui, ku sabab geus bisa ngareuneuhan onta bikang sapuluh kali. Kabiasaan ayana bahīrah, sāibah, wā’ilah, jeung ḥām téh mangrupakeun kapercayaan Arab saméméh datangna Islam.
-
 ## 5:104
 
 Lamun diucapkeun ka maranéhna, “Hayu (urang anut) kana perkara anu geus dilungsurkeun ku Allah jeung (anut) ka Rasul!” Maranéhna ngajawab kieu, “Cukup keur kuring saréréa mah naon baé nu geus kapanggih anu sok (dipigawé) ku karuhun-karuhun kuring saréréa.” Naha sanajan karuhun-karuhun maranéhna téh teu nyaho naon-naon jeung teu meunang pituduh?
@@ -3705,13 +3109,9 @@ Hé jalma-jalma anu iman, panyaksén ti antara aranjeun lamun geus datang ka sal
 
 Lamun kabuktian yén éta dua saksi téh migawé dosa, [^299] atuh dua saksi anu séjénna ngaganti tempatna, nyaéta ti antara ahli waris nu leuwih hak jeung leuwih deukeut ka nu maot, tuluy duanana sumpah kalayan nyebat jenengan Allah, “Demi Allah, sabenerna panyaksén kuring duaan ieu téh langkung pantes ditampi tibatan panyaksénana dua saksi nu tadi, sarta kuring duaan henteu ngaliwatan wates. Sabenerna saupama kuring duaan (migawé) kitu, tangtu kuring duaan kaasup kana golongan jalma-jalma anu dolim.”
 
-[^299]: Ngalakukeun kacurangan dina panyaksénana anu kanyahoan sanggeus maranéhna ngucapkeun sumpah.
-
 ## 5:108
 
 Éta téh leuwih deukeut pikeun maranéhna méré panyaksénana nurutkeun nu sabenerna, atawa maranéhna ngarasa sieun lamun sumpahna dibalikkeun deui (ka ahli waris) sanggeus maranéhna sumpah. [^300] Pék kudu takwa ka Allah sarta dangukeun (paréntah-Na)! Allah mah moal maparin pituduh ka jalma-jalma pasék.
-
-[^300]: Sumpah anu dibalikkeun, nyaéta sumpah ti para saksi anu béda agama ditolak ku sabab aya sumpah ti saksi-saksi anu asalna ti dulur deuheus, atawa bisa dima’naan yén jalma-jalma anu ngucapkeun sumpah téh bakal meunang wawales di dunya jeung ahérat ku sabab ngucapkeun sumpah palsu.
 
 ## 5:109
 
@@ -3777,8 +3177,6 @@ Mantenna téh Allah (anu pantes disembah) di langit jeung di bumi. Mantenna unin
 
 Teu pati-pati nepi ka maranéhna (jalma-jalma kapir) hiji ayat tina ayat-ayat [^301] Pangéran maranéhna, kajaba maranéhna sok ngabalieur.
 
-[^301]: “Ayat” di dieu ma’nana nyaéta mujijat atawa ayat Al-Qur’an atawa kajadian-kajadian anu lumangsung di alam dunya sarta jadi tanda kakawasaan Allah.
-
 ## 6:5
 
 Maranéhna téh tétéla geus ngabohongkeun bebeneran (Al-Qur’an) waktu nepi ka maranéhna, nya jaga bakal nepi ka maranéhna béja-béja (ngeunaan bebeneran) anu tadina sok diguguyonkeun ku maranéhna.
@@ -3795,15 +3193,9 @@ Lamun seug Kami nurunkeun ka hidep (Muhammad) tulisan dina keretas, nepi ka mara
 
 Maranéhna téh nyarita kieu, “Naha atuh teu diturunkeun malaikat hiji-hiji acan ka manéhna (Muhammad) téh?” [^302] Lamun Kami nurunkeun malaikat (ka anjeunna) mah, tangtu bérés éta perkara téh (maranéhna dibinasakeun), [^303] tuluy maranéhna téh moal dibéré témpo saeutik ogé (pikeun tobat).
 
-[^302]: Pikeun ngajelaskeun yén Nabi Muhammad Saw. téh salah sawios Nabi Allah.
-
-[^303]: Lamun malaikat diturunkeun ku Allah ka maranéhna, sedengkeun maranéhna henteu iman ka Allah jeung katangtosana-Na, tangtuna maranéhna bakal disiksa ku Allah nepi ka binasa sakabéhna.
-
 ## 6:9
 
 Lamun seug éta Rasul ku Kami diangkatna (ti golongan) malaikat, tangtu Kami ngangkat anjeunna ti (jinis) lalaki, jeung (ku kituna) tangtu Kami bakal ngajadikeun maranéhna tetep mangmang sakumaha ayeuna ogé maranéhna mangmang. [^304]
-
-[^304]: Lamun Allah ngutus malaikat jadi rasul, tangtuna Allah bakal ngutus éta malaikat dina wujud manusa, ku sabab manusa mah moal bisa ningali wujud (asli) malaikat jeung tangtuna jalma-jalma kapir jeung munapék bakal nyarita, “Ieu mah lain malaikat, ngan manusa bisa saperti urang saréréa ogé”. Jadi, maranéhna bakal tetep mangmang.
 
 ## 6:10
 
@@ -3816,8 +3208,6 @@ Pok ucapkeun ku hidep (Muhammad), “Jung lumampah di (ieu) jagat, sarta geura t
 ## 6:12
 
 Pok ucapkeun ku hidep (Muhammad), “Kagungan saha sagala rupa nu aya di langit jeung bumi?” Tepikeun ku hidep, “Kagungan Allah.” Mantenna geus nangtukeun (sipat) welas-asih dina diri-Na. [^305] Sabenerna Mantenna rék ngumpulkeun maranéh dina Poé Kiamat anu teu (aya) mangmang deui (ngeunaan kadatanganana). Jalma-jalma anu ngarugikeun dirina sorangan mah, maranéhna téh teu iman.
-
-[^305]: Allah geus jangji minangka kadeudeuh Mantenna ka manusa, nyaéta bakal ngagolontorkeun welas asih ka sadaya mahluk-Na.
 
 ## 6:13
 
@@ -3923,8 +3313,6 @@ Maranéhna (jalma-jalma musrik) nyarita kieu, “Naha bet henteu diturunkeun ka 
 
 Teu aya hiji sato ogé nu kumelendang di bumi jeung teu aya hiji ogé manuk nu hiber ku dua jangjangna, kajaba kabéhna ogé minangka umat-umat saperti aranjeun. Hanteu aya hiji perkara ogé anu dikecualikeun tina éta kitab, [^306] tuluy ngan ka Pangéran wungkul maranéhna bakal dikumpulkeun.
 
-[^306]: Sawatara ahli tapsir ngama’naan “Kitab” di dieu ku Loh Mahpud.
-
 ## 6:39
 
 Jalma-jalma anu ngabohongkeun ayat-ayat Kami téh (saperti jalma nu) torék, pireu, jeung dina poék mongkléng. Saha baé nu dikersakeun ku Allah (aya dina kasasaran), tangtu disasarkeun. Saha baé nu dikersakeun (pikeun meunang pituduh), tangtu Mantenna ngajantenkeun manéhna dina jalan anu lempeng.
@@ -3981,8 +3369,6 @@ Pék ingetan ku éta (Al-Qur’an) ka jalma-jalma anu sieun bakal disanghareupke
 
 Kadé hidep ulah rék ngusir jalma-jalma nu sok ngadoa (ibadah) ka Pangéranana dina waktu isuk-isuk jeung pasosoré, sedengkeun aranjeunna miharep kana karidoan Allah. Hidep moal diménta tanggung jawab saeutik ogé ngeunaan pagawéan aranjeunna, jeung aranjeunna moal diménta saeutik ogé ngeunaan pagawéan hidep. Ku kituna, hidep (teu boga hak) pikeun ngusir aranjeunna. (Lamun tetep dilakukeun), hidep bakal kaasup jalma nu dolim. [^307]
 
-[^307]: Nalika Rasulullah Saw. nuju calik sareng sababaraha jalma mu’min anu dianggap laip jeung miskin ku kaom Qurés, tuluy datang sababaraha gegedén Qurés cumarita jeung anjeunna. Tapi ku sabab aya mu’min anu miskin (jeung dianggap hina), para gegedén Qurés ngarasa sanggeuk diuk jeung kaom mu’min téa. Kaom Qurés terus ngusulkeun supaya kaom mu’minin anu aya di éta tempat disingkahkeun (diusir), supaya maranéhna bisa cumarita jeung anjeunna. Ku sabab ieu, nya turun ieu ayat.
-
 ## 6:53
 
 Nya kitu deui, Kami geus nguji sawaréhna ti (golongan) maranéhna (nu jaya) ku (ayana) sabagian deui (jalma-jalma miskin), supaya maranéhna (nu jaya jeung kupur) téh nyarita kieu, “Naha jalma-jalma pantar kieu ti antara urang anu dibéré nugraha ku Allah téh?” (Allah ngadawuh), “Naha Allah téh teu langkung uninga ka jalma-jalma nu sok sukuran (ka Mantenna)?”
@@ -4006,8 +3392,6 @@ Pok ucapkeun ku hidep (Muhammad), “Kuring téh (aya) dina katerangan nu nyata 
 ## 6:58
 
 Pok ucapkeun ku hidep (Muhammad), “Saupama bener mah aya di kuring perkara (nurunkeun siksaan) nu ku aranjeun dipénta supaya gancang-gancang tumibana, tangtu geus réngsé sagala perkara di antara kuring jeung aranjeun téh.” [^308] Allah langkung uninga ka jalma-jalma anu dolim.
-
-[^308]: Tangtuna Allah bakal nurunkeun siksa anu kacida peurihna nepi ka maranéhna binasa.
 
 ## 6:59
 
@@ -4037,15 +3421,9 @@ Pok ucapkeun ku hidep (Muhammad), “Allah wungkul nu geus nyalametkeun tina ét
 
 Pok ucapkeun ku hidep (Muhammad), “Mantenna Mahakawasa ngirimkeun siksa ka aranjeun boh ti luhur (langit) boh ti handapeun suku aranjeun, [^309] atawa nyampurkeun aranjeun jadi pirang-pirang golongan (anu silih paséaan), jeung sabagian ti aranjeun ngarasakeun kana kakejeman ti golongan lianna.” Perhatikeun ku aranjeun, kumaha Kami geus ngajelaskeun ayat-ayat (tanda kakawasaan Kami) [^310] sangkan maranéhna paham.
 
-[^309]: Siksaan anu datang ti luhur saperti hujan batu, samberan petir, jeung sajabana, sedengkeun siksaan anu datangna ti handap mah saperti lini, banjir, jeung sajabana.
-
-[^310]: Allah Swt. ngajelaskeun tanda kakawasaana-Na dina sagala rupa. Aya ogé sabagian ahli tapsir anu ngartikeun ieu ayat pakuat-pakait jeung ayat-ayat pépéling, carita-carita, hukum, jeung réa-réa deui.
-
 ## 6:66
 
 Kaom hidep (Muhammad) mah geus nganggap bohong baé kana éta (siksaan) [^311] téh, padahal éta (siksaan) téh bener pisan (ayana). Pok ucapkeun ku hidep (Muhammad), “Kuring mah lain nu tanggung-jawab kana urusan aranjeun.”
-
-[^311]: Sawatara ahli tapsir nyebutkeun yén anu dianggap bohong téh nyaéta Al-Qur’an.
 
 ## 6:67
 
@@ -4067,8 +3445,6 @@ Pék singkahan baé (ku hidep, Muhammad) jalma-jalma anu ngajadikeun agamana min
 
 Pok ucapkeun ku hidep (Muhammad), “Naha urang saréréa téh rék ngadoa ka salian Allah anu henteu bisa méré mangpaat keur urang saréréa jeung henteu (ogé) ngadatangkeun madarat? Naha urang saréréa téh rék dibalikkeun deui kana (kaayaan) ka tukang [^312] sanggeus Allah masihan pituduh ka urang saréréa, saperti jalma nu geus disasarkeun ku sétan di ieu bumi bari dina kaayaan bingung? Manéhna boga batur-batur nu ngajak ka jalan anu lempeng (kalayan nyarita kieu), “Hayu ngilu ka kuring saréréa!” Pok ucapkeun, “Sabenerna pituduh Allah mah pituduh (anu sabener-benerna). Urang saréréa mah diparéntahkeun pikeun sumerah diri ka Pangéran sakumna alam
 
-[^312]: Maksudna mah “nyandingkeun Allah jeung anu lianna (musrik)”.
-
 ## 6:72
 
 jeung pikeun ngadegkeun salat sarta takwa ka Mantenna. Mantenna téh Pangéran anu ngan ka Mantenna wungkul aranjeun bakal dikumpulkeun.”
@@ -4080,8 +3456,6 @@ Nya Mantenna nu nyiptakeun langit jeung bumi kalayan saleresna. (Tétéla bener 
 ## 6:74
 
 (Sing inget) nalika Ibrahim nyarios ka ramana, Ajar, [^313] “Naha pantes éta berhala-berhala téh ku salira dijantenkeun sesembahan? Sabenerna abdi ningal salira sareng kaom salira téh nuju dina (kaayaan) sasar nu nyata.”
-
-[^313]: Ti antara ahli tapsir aya anu ngama’naan abīhi ku “mamangna” (lain ramana).
 
 ## 6:75
 
@@ -4110,8 +3484,6 @@ Kaomna (Ibrahim) ngabangkang. Anjeunna (Ibrahim) nyarios, “Naha aranjeun bet m
 ## 6:81
 
 Naha kuring maké rék sieun kana naon baé (sesembahan) nu ku aranjeun disarékatkeun (jeung Allah), padahal aranjeun sorangan ogé henteu sieun kana naon baé anu Allah nyalira henteu ngalungsurkeun katerangan ka aranjeun pikeun nyieun pamusrikan (ka Allah). Anu mana ti antara éta dua golongan téh anu leuwih bener pikeun meunang kaamanan (tina siksaan Allah) mun enya mah aranjeun nyaho?” [^314]
-
-[^314]: Saatos Allah ningalikeun ka Nabi Ibrahim a.s. tanda kakawasaana-Na, nya anjeunna langkung kiat imanna ka Allah (ayat 75), sareng anjeunna teras ngabingbing kaomna kana taohid.
 
 ## 6:82
 
@@ -4153,8 +3525,6 @@ Aranjeunna téh (para nabi) nu geus dipaparinan pituduh ku Allah. Tah ku kituna 
 
 Maranéhna (Bani Israél) teu ngagungkeun Allah sakumaha anu samistina waktu maranéhna nyarita, “Allah mah teu nurunkeun sahiji perkara ogé ka manusa téh.” Pok ucapkeun ku hidep (Muhammad), “Nya saha atuh nu geus nurunkeun Kitab (Torét) nu dibawa ku Musa minangka cahaya jeung pituduh pikeun manusa?” Ku maranéh dijadikeun sababaraha lambar kertas anu papisah. Maranéh némbongkeun sabagianana, jeung loba nu disumputkeun, padahal geus diajarkeun ka maranéh perkara-perkara nu henteu dipikanyaho, boh ku maranéh atawa ku luluhur maranéh. Pok jawab, “Apan Allah (nu nurunkeun Kitab téh).” Satuluyna (sanggeus kitu mah), antep baé maranéhna heuheureuyan dina kasasaran. [^315]
 
-[^315]: Minangka sindiran pikeun maranéhna, nyaéta dianggap budak leutik anu can balég.
-
 ## 6:92
 
 Nya ieu (Al-Qur’an) kitab nu ku Kami geus diturunkeun kalayan pinuh ku berkah téh, anu ngaenyakeun kana kitab-kitab anu (diturunkeun) saméméhna, jeung supaya hidep méré pépéling ka (pangeusi) Ummul Qura (Mekah) jeung ka jalma-jalma nu aya di sabudeureunana. Jalma-jalma nu iman kana (kahirupan) ahérat mah, tangtu percaya kana éta (Al-Qur’an) jeung salawasna ngajaga salatna.
@@ -4183,8 +3553,6 @@ Mung Mantenna nu ngadamel béntang-béntang pikeun aranjeun sangkan aranjeun nga
 
 Mung Mantenna nu nyiptakeun aranjeun tina diri anu hiji (Adam), tuluy (pikeun aranjeun) aya tempat pamatuhan jeung (tempat) panundaan. [^316] Kami tétéla geus ngajelaskeun ayat-ayat (kakawasaan Kami) ka jalma-jalma nu ngarti.
 
-[^316]: Sawatara ahli tapsir aya anu ngama’naan “tempat pamatuhan” di dieu ku “tulang sulbi lalaki”, sedengkeun “tempat panundaan” di dieu téh nyaéta “rahim wanoja”. Aya ogé anu masihan pandangan yén tempat pamatuhan téh nyaéta “jagat tempat manusa hirup kumbuh”, sedengkeun “tempat panundaan” téh nyaéta alam kubur waktu manusa geus maot.
-
 ## 6:99
 
 Mung Mantenna nu ngalungsurkeun cai ti langit, tuluy Kami numbuhkeun ku éta cai sagala rupa tutumbuhan, tuluy Kami ngaluarkeun tina éta (tutumbuhan téh) bagian nu haréjo. (Tuluy) Kami ngabijilkeun tina éta (tutumbuhan nu haréjo téh) sisikian nu raranggeuyan; Jeung tina sabagian (mayang) korma kaluar ranggeuyan nu ngareumbay harandap. (Kami numbuhkeun ogé) kebon-kebon anggur, zaitun, jeung dalima anu sarupa jeung nu teu sarupa. Pék titénan geura bubuahan waktu geus baruahan jeung waktu asakna. Tétéla dina éta kajadian téh bener-bener aya tanda-tanda (kakawasaan Allah) pikeun jalma-jalma anu iman.
@@ -4192,8 +3560,6 @@ Mung Mantenna nu ngalungsurkeun cai ti langit, tuluy Kami numbuhkeun ku éta cai
 ## 6:100
 
 Maranéhna (jalma-jalma musrik) ngajadikeun jin minangka sarékat-sarékat Allah, padahal Mantenna nu nyiptakeun maranéhna (jin téa). Maranéhna geus ngabohong nu henteu dumasar kana élmu (ku caritaan) yén Allah ngagaduhan seueur putra pameget jeung istri. [^317] Mahasuci Allah jeung Mahaluhur tina sipat-sipat anu geus digambarkeun ku maranéhna.
-
-[^317]: Maranéhna ngomong yén Allah téh ngagaduhan putra, saperti Kaom Yahudi nyarita yén Ujér téh putra pamegetna Allah, sedengkeun jalma-jalma musrik nyebutkeun yén malaikat téh putra-putra istrina Allah. Maranéhna ngabogaan anggapan saperti kitu téh ku sabab kabodoanana jeung teu dumasar kana élmu pangaweruh anu bener.
 
 ## 6:101
 
@@ -4210,8 +3576,6 @@ Mantenna mah moal bisa katingali ku sagala paningali panon, sedengkeun Mantenna 
 ## 6:104
 
 Tétéla bukti-bukti anu jelas geus datang ka aranjeun ti Pangéran aranjeun. Saha baé nu ningali (kana éta bebeneran), [^318] tangtu (mangpaatna téh) keur dirina sorangan. Saha baé nu lolong (teu ningali kana bebeneran), tangtu manéhna geus ngarugikeun dirina sorangan. Kuring (Muhammad) mah lain nu ngajaga (aranjeun).
-
-[^318]: Saha baé anu nyaho kana bebeneran jeung migawé kahadéan, sarta meunang pituduh, tangtuna manéhna aya dina puncak kabagjaan.
 
 ## 6:105
 
@@ -4232,8 +3596,6 @@ Kadé aranjeun ulah rék moyok sesembahan nu ku maranéhna sok disembah salian t
 ## 6:109
 
 Maranéhna geus sumpah kalayan (nyebut) jenengan Allah kalayan bener-bener, yén lamun seug datang ka maranéhna hiji mujijat, tangtu maranéhna rék iman kana éta mujijat. Ucapkeun ku hidep (Muhammad), “Sabenerna mujijat-mujijat mah ngan (aya) di mungguhing Allah.” Naha aranjeun (para mu’minin) henteu nyaho yén upama mujijat (ayat-ayat) geus datang, maranéhna tetep baé moal iman? [^319]
-
-[^319]: Jalma-jalma musrik geus ngucapkeun sumpah yén lamun datang mujijat ti Allah pikeun maranéhna, maranéhna bakal iman. Ku sabab kitu, jalma-jalma mu’min mah miharep ka Nabi Muhammad supados nyuhunkeun ka Allah supados ngalungsurkeun mujijat saperti anu dipikahayang ku jalma-jalma musrik téa. Nanging Allah nampik kana éta paménta ngaliwatan ieu ayat.
 
 ## 6:110
 
@@ -4291,8 +3653,6 @@ Naha ari jalma nu geus paéh, terus dihirupkeun deui sarta dibéré cahaya ku Ka
 
 Nya kitu téa ogé, dina saban-saban nagri Kami ngajadikeun jalma-jalma nu jahatna minangka gegedén-gegedén, [^320] supaya ngalakukeun tipu daya di dinya. Tapi maranéhna ngan nipu dirina sorangan, bari teu sadar.
 
-[^320]: Nurutkeun sabagian ahli tapsir, kecap akābir mujrimīhā ngandung harti para penjahat anu jadi gegedug.
-
 ## 6:124
 
 Lamun datang hiji ayat ka maranéhna, maranéhna nyarita kieu, “Urang mah moal teuing iman saacan dibéré (wahyu) ka urang saréréa, sakumaha nu dipaparinkeun ka rasul-rasul Allah.” Allah langkung uninga di mana Mantenna nempatkeun tugas karasulan. Jalma-jalma nu boga dosa jaga bakal ditibanan kahinaan ti mungguhing Allah jeung siksaan nu pohara rongkahna ku sabab tipu daya anu dilakukeun ku maranéhna.
@@ -4312,8 +3672,6 @@ Nya pikeun aranjeunna (disadiakeun) tempat anu mulya (sawarga) di mungguhing Pan
 ## 6:128
 
 (Sing inget kana) poéan waktu Mantenna ngumpulkan maranéhna (manusa jeung jin) sakabéhna, (sarta Allah ngadawuh), “Hé golongan jin, maranéh geus loba pisan (nyasarkeun) manusa!” Batur-baturna ti golongan manusa téh nyarita kieu, “Nun Gusti Pangéran abdi sadaya, abdi sadaya téh parantos sami-sami kénging kasenangan (dunya) [^321] sareng ayeuna parantos dugi kana waktos anu parantos ditangtoskeun ku Gusti kanggo abdi sadaya.” Allah ngadawuh, “Nya naraka baé pikeun pitempateun maranéhna mah tur langgeng di dinya, kajaba mun Allah ngersakeun (lian ti éta).” Sabenerna Pangéran hidep mah Mahawijaksana (tur) Mahauninga.
-
-[^321]: Maksudna: Sétan téh geus hasil merdaya ka manusa, nepi ka manéhna nurut kana naon nu geus diparéntahkeun ku sétan tur ngarasakeun kani’matan dunya.
 
 ## 6:129
 
@@ -4347,13 +3705,9 @@ Pok ucapkeun ku hidep (Muhammad), “Hé kaom kuring, prak digawé luyu jeung pi
 
 Maranéhna (kaom musrikin) sok nyadiakeun sabagian tina anu geus diciptakeun pikeun maranéhna, nyaéta hasil pepelakan jeung ingon-ingon, pikeun Allah, bari nyarita nurutkeun panyangkana, “Ieu mah keur Allah jeung anu ieu mah pikeun berhala-berhala abdi sadaya.” Bagian anu (disadiakeun) pikeun berhala maranéhna mah moal nepi ka Allah, sedengkeun bagian anu (disadiakeun) pikeun Allah mah bakal nepi ka berhala maranéhna. [^322] Kacida goréng patutna éta katetapan maranéhna téh.
 
-[^322]: Diriwayatkeun yén hasil pepelakan jeung ingon-ingon anu ku maranéhna ditujukeun pikeun Allah téh dipasrahkeun ka pakir miskin jeung dijadikeun amal kahadéan, malahan dibikeun ogé ka berhala. Sedengkeun bagian anu ditujukeun pikeun berhala maranéhna sok dibikeun ka jalma-jalma nu ngajaga berhala-berhala, lain dibikeun ka pakir miskin atawa dijadikeun amal kahadéan. Kabiasaan kitu téh pastina dila’nat ku Allah.
-
 ## 6:137
 
 Nya kitu téa, berhala-berhala maranéhna (sétan) ngajadikeun karasa alus pikeun kalolobaan jalma-jalma musrikin maéhan budak-budak maranéhna, ngabinasakeun ka maranéhna, jeung ngacowkeun kana agama maranéhna. [^323] Lamun Allah ngersakeun mah, tangtu maranéhna moal bakal milampah kitu. Keun baé antep maranéhna reujeung (kabohongan) nu geus dijieun-jieun.
-
-[^323]: Sabagian urang Arab téh aya anu ngagem saréat kanjeng Nabi Ibrahim a.s. Anjeunna kungsi diparéntah ku Allah pikeun ngorbankeun Ismail (putrana), tapi terus diganti ku domba (gibas). Tapi satuluyna, para gegedén agama Ibrahim téh nyalénggorkeun ieu ajaran ku ngajarkeun yén “ngorbakeun budak-budak leutik (lalaki atawa awéwé)” téh kaasup kana pagawéan anu hadé, kalaya maké alesan pikeun ngadeukeutkeun diri maranéhna ka Allah, padahal alesan anu benerna mah ku sabab maranéhna sieun miskin.
 
 ## 6:138
 
@@ -4391,8 +3745,6 @@ Ucapkeun ku hidep (Muhammad), “Kuring mah teu (kungsi) manggihan dina sagala r
 
 Ka jalma-jalma Yahudi, Kami ngaharamkeun sakabéh (sato) anu aya kukuan. [^324] Kami ngaharamkeun ogé pikeun maranéhna gajih sapi jeung gajih domba, iwal ti gajih nu aya dina tulang tonggongna, atawa eusi kadut, atawa nu pacampur jeung tulang-taléngna. Tah kitu pisan Kami ngahukum maranéhna ku lantaran kadorakaanana. Sabenerna Kami mah Mahabener.
 
-[^324]: Anu dimaksud ku “sato anu kukuan” di dieu nyaéta sasatoan anu kuku-kukuna teu papisah antara hiji kuku jeung anu séjénna, saperti onta, éntog, jeung sajabana.
-
 ## 6:147
 
 Nya lamun maranéhna nganggap bohong ka hidep (Muhammad), pok ucapkeun (baé), “Pangéran aranjeun kagungan rahmat nu jembar sareng siksaan Mantenna ka jalma-jalma doraka mah moal bisa disingkahan.”
@@ -4412,10 +3764,6 @@ Pok ucapkeun ku hidep (Muhammad), “Geura bawa ka dieu saksi-saksi aranjeun nu 
 ## 6:151
 
 Pok ucapkeun ku hidep (Muhammad), “Hayu (ka darieu)! Kaula rék macakeun naon nu geus diharamkeun ku Pangéran aranjeun ka aranjeun, (nyaéta) kadé ulah rék nyarékatkeun naon baé ka Mantenna, kudu nyieun kahadéan ka indung-bapa, jeung kadé ulah maéhan anak-anak aranjeun ku lantaran kasangsaraan. Apan Kami nu méré rejeki ka aranjeun jeung ka maranéhna mah; jeung kadé ulah rék ngadeukeutan pagawéan anu jahat, boh nu nembrak boh nu nyumput. (Nya kitu deui) kadé ulah rék maéhan jalma nu geus diharamkeun ku Allah kajaba ku alesan anu bener. [^325] Tah kitu pisan Allah maréntahkeun [^326] ka aranjeun sangkan aranjeun ngagunakeun akal.
-
-[^325]: Anu dibenerkeun ku saréat (agama Islam) saperti qitāl (peperangan), maéhan jalma anu kaluar tina bebeneran (murtad), maéhan jalma nu geus maéhan batur (qisos), rajam, jeung sajabana.
-
-[^326]: Nyaéta paréntah anu kuat tur anu geus jadi katetapan.
 
 ## 6:152
 
@@ -4444,8 +3792,6 @@ Atawa sangkan maranéh (henteu) nyarita kieu, “Sabenerna lamun éta kitab ditu
 ## 6:158
 
 Anu didago-dago ku maranéhna téh ngan kadatangan malaikat ka maranéhna (pikeun nyabut nyawana), atawa datangna Pangéran hidep (pikeun ngabinasakeun maranéhanana), atawa (datangna) sabagian tanda-tanda Pangéran hidep. [^327] Dina mangsa poé datangna sabagian tanda-tanda ti Pangéran hidep mah teu aya guna deui imanna hiji jalma mun can iman saméméhna, atawa (can) ngupayakeun pikeun migawé kahadéan dina mangsa imanna. Pok ucapkeun ku hidep, “Pék baé daragoan! Sabenerna kuring saréréa ogé sarua ngadagoan.”
-
-[^327]: Nyaéta tanda-tanda Poé Kiamat
 
 ## 6:159
 
@@ -4479,8 +3825,6 @@ Mantenna anu ngajadikeun aranjeun kalipah-kalipah di bumi tur Mantenna munjulkeu
 
 Alif Lām Mīm Ṣāḍ. [^328]
 
-[^328]: Tingal catetan kaki surat al-Baqarah/2:1.
-
 ## 7:2
 
 (Ieu téh) Kitab nu diturunkeun ka hidep (Muhammad), mangka hidep ulah ngarasa rupek dada ku sabab éta (Al-Qur'an), sangkan (ku éta kitab) hidep méré pépéling ku éta kitab (ka jalma-jalma kapir) jeung (sangkan éta kitab téh) jadi atikan pikeun jalma-jalma mu’min.
@@ -4488,8 +3832,6 @@ Alif Lām Mīm Ṣāḍ. [^328]
 ## 7:3
 
 Pék geura turut (hé sakabéh manusa) naon anu geus diturunkeun ka aranjeun ti Pangéran aranjeun, jeung kadé ulah rék turut ka panyalindungan [^329] salian ti Mantenna. Saeutik pisa aranjeun ngalap atikan.
-
-[^329]: Tingal catetan kaki surat Ali\`Imran/3:28.
 
 ## 7:4
 
@@ -4506,8 +3848,6 @@ Pasti Kami bakal nanya ka umat anu geus meunang panggero para rasul. Pasti Kami 
 ## 7:7
 
 Tuluy, pasti Kami bakal ngabéjakeun (éta hal) ka maranéhna dumasar kana élmu (Kami). Saeutik ogé Kami mah teu pernah jauh (ti maranéhna). [^330]
-
-[^330]: Maksudna jaga dina Poé Kiamat Allah bakal ngabéjakeun ka hamba-hamba-Na naon baé anu diucapkeun jeung dilakukeun ku maranéhna, boh nu leutik boh nu gedé, boh nu sepélé boh nu penting, sabab Allah mah Mahauninga kana sagala perkara.
 
 ## 7:8
 
@@ -4585,19 +3925,13 @@ Mantenna ngadawuh, “Di dinya (di bumi) aranjeun bakal hirup, sarta di dinya de
 
 Hé anak-incu Adam, sabenerna Kami geus nyadiakeun keur aranjeun pakéan pikeun nutupan orat aranjeun jeung bulu (minangka bahan pakéan pikeun papaés aranjeun). Tapi pakéan takwa [^331] mah éta anu leuwih alus. Tah éta hal téh sabagian tina tanda-tanda (kakawasaan) Allah sangkan maranéhna terus-terusan inget.
 
-[^331]: Maksudna pakéan batin téh saperti sikep handap asor jeung sieun ka Gusti Allah, sabab bersihna haté mah lewih alus tinimbang papaés anu sipatna lahir.
-
 ## 7:27
 
 Hé anak-incu Adam, kadé pisan aranjeun ulah rék beunang katipu ku sétan, sakumaha manéhna (sétan) geus ngaluarkeun indung-bapa aranjeun ti sawarga. Manéhna (sétan) geus ngarangsadan pakaian aranjeunna duaan pikeun ningalikeun oratna ka aranjeunna sorangan. Sabenerna manéhna (sétan) jeung wadyabaladna bisa nénjo ka aranjeun kabéh, ti tempat nu ku aranjeun teu bisa nénjo ka maranéhna (sétan jeung wadyabaladna). Sabenerna Kami geus ngajadikeun sétan-sétan (minangka) anu nulungan [^332] ka jalma-jalma anu henteu iman.”
 
-[^332]: Tingal catetan kaki surat Āli \`Imrān/3:28.
-
 ## 7:28
 
 Lamun migawé pagawéan jahat, pok maranéhna ngomong kieu, “Kuring saréréa manggihan yén karuhun-karuhun kuring saréréa ogé sok milampah saperti kitu, jeung Allah ogé geus maréntahkeun saperti kitu ka kuring saréréa.” Pok ucapkeun ku hidep (Muhammad), “Saleresna Allah mah henteu pisan-pisan maréntah éta pagawéan jahat. [^333] Naha pantes aranjeun nyaritakeun ngeunaan Allah (ku caritaan) nu aranjeun sorangan teu nyaho?”
-
-[^333]: Saperti “nyarékatkeun Allah jeung sesembahan séjénna”, ngalakukeun towaf bari bubulucunan di sabudeureun Ka’bah, jeung sajabana.
 
 ## 7:29
 
@@ -4614,8 +3948,6 @@ Hé anak-incu Adam, pék paraké pakéan anu ginding dina saban-saban (asup) ka 
 ## 7:32
 
 Pok ucapkeun ku hidep (Muhammad), “Saha nu ngaharamkeun perhiasan (ti Allah) anu geus dicawiskeun pikeun hamba-hamba Mantenna jeung rejeki anu aralus?” Pok ucapkeun (ku hidep), “Éta kabéh téh pikeun jalma-jalma anu iman (tur nu teu iman) dina kahirupan dunya, tapi (jadi) husus (pikeun jalma-jalma nu iman) dina waktu Poé Kiamat mah. [^334] Nya saperti kitu, Kami ngajelaskeun éta ayat-ayat kalayan rinci pikeun kaom nu nyaho.
-
-[^334]: Papaés (perhiasan) ti Allah jeung kadaharan anu alus téh bisa didahar (kalayan ni’mat) di ieu dunya ku jalma-jalma anu iman jeung ku jalma anu teu iman, sedengkeun di ahérat mah (jaga) papaés jeung kadaharan anu alus tur ni’mat téh mung dicawiskeun pikeun jalma-jalma anu iman.
 
 ## 7:33
 
@@ -4637,8 +3969,6 @@ Sedengkeun jalma-jalma anu ngabohongkeun ayat-ayat Kami tur nyombongkeun diri ti
 
 Saha atuh anu leuwih dolim tibatan jalma anu ngaréka-réka kabohongan ka Allah, atawa anu ngabohongkeun kana ayat-ayat Mantenna? Nya maranéhna nu kitu téh bakal meunang bagian anu geus ditangtukeun dina Kitab (Loh Mahpud), nepi ka datang para utusan (malaikat) Kami ka maranéhna anu rék nyabut nyawana. Maranéhna (malaikat) téh bakal nyarita kieu, “Mana atuh (berhala-berhala) anu sok disembah ku maranéhna salian ti Allah téh?” Maranéhna (jalma-jalma musrik) ngajawab, “Sakabéhna geus ngiles ti kuring kabéh.” [^335] Maranéhna méré kasaksian pikeun dirina sorangan yén saenyana maranéhna téh jalma-jalma kapir.
 
-[^335]: Jalma-jalma anu ngaréka-réka kabohongan ka Allah téh waktu ditanyaan ku malaikat ngeunaan berhala-berhala anu sok disembahna, mangka éta berhala téh euweuh di hareupeunana. Ku kituna, maranéhna teu ngaharapkeun kahadéan jeung mangpaatna.
-
 ## 7:38
 
 Allah ngadawuh, “Pék maranéh asup kana seuneu naraka babarengan jeung umat-umat anu geus ti heula saméméh aranjeun ti (golongan) jin jeung manusa!” Saban-saban sagolongan umat asup (ka naraka), maranéhna ngala’nat dulur-dulurna (nu nyasarkeun maranéhna); nepi ka lamun maranéhna geus asup kabéh ka jero naraka, pok jalma-jalma nu (asup) pandeuri ngomong ka nu asup ti heula, “Nun Gusti Pangéran abdi sadaya, maranéhna téh parantos nyasarkeun ka abdi sadaya. Sumangga sumpingkeun siksa seuneu naraka nu manglipet-lipet ka maranéhna (heula),” Mantenna ngadawuh, “Masing-masing bakal meunang (siksaan) nu manglipet-lipet, tapi maranéh henteu nyaho.”
@@ -4650,10 +3980,6 @@ Jalma-jalma nu (asup) ti heula ngajawab ka nu (asup) pandeuri, “Maranéh mah t
 ## 7:40
 
 Sabenerna jalma-jalma nu geus ngabohongkeun kana ayat-ayat Kami jeung nyombongkeun diri tina (narima) éta ayat, tangtu moal bakal dibukakeun pikeun maranéhna panto-panto langit, [^336] sarta maranéhna moal bisa asup ka sawarga saméméh onta asup kana liang jarum. [^337] Tah saperti kitu Kami males ka jalma-jalma nu migawé kadorakaan.
-
-[^336]: Hartina: Doa jeung amal maranéhna moal ditampi ku Allah.
-
-[^337]: Hartina: Maranéhna moal mungkin asup ka sawarga sakumaha henteu mungkinna onta asup kana jero liang jarum.
 
 ## 7:41
 
@@ -4678,8 +4004,6 @@ Para pangeusi sawarga ngagero ka para pangeusi naraka, “Tétéla kuring sarér
 ## 7:46
 
 Ti antara éta dua golongan (pangeusi sawarga jeung pangeusi naraka) aya pipinding, jeung di luhureun al-A’rāf (tempat anu pangluhurna) téa aya jalma-jalma [^338] anu geus pada kenal. Masing-masing boga ciri-ciri. Maranéhna ngagero ka pangeusi sawarga, “Salāmun ‘alaikum” (kawilujengan pikeun aranjeun).” Maranéhna can bisa asup ka sawarga, tapi kacida miharep geura-geura (asup) ka sawarga.
-
-[^338]: Jalma-jalma anu aya dina éta tempat téh nyaéta anu kahadéan jeung kagorénganana sarua. Maranéhna cicing dina éta tempat sakumaha kersana Gusti, lantaran amal kahadéanana teu bisa ngasupkeun maranéhna ka sawarga. Kitu deui amal kagorénganana teu nepi ngasupkeun kana naraka. Dina sabagian riwayat dicaritekun yén éta golongan téh nyaéta ti antarana anu maot perang di jalan Allah tapi heunte diwidian ku ibu ramana, atawa jalma anu maotna dipikarido ku ramana, tapi teu dipikarido ku ibuna, atawa jalma anu dilahirkeun hasil jinah, tapi manéhna jadi jalma soléh.
 
 ## 7:47
 
@@ -4712,8 +4036,6 @@ Taya nu didago-dago ku maranéhna kajaba ta’wilna (kabuktian benerna Al-Qur’
 ## 7:54
 
 Sabenerna Pangéran aranjeun téh nyaéta Allah, anu geus nyiptakeun langit jeung bumi dina genep mangsa, salajengna Mantenna istiwā’ (linggih) di luhureun ‘Arsy. [^339] Mantenna nutupkeun peuting kana beurang anu nuturkeunana kalawan gancang. (Mantenna nyiptakeun) panonpoé, bulan, jeung béntang-béntang anu tunduk kana paréntah-Na. Kudu inget (aranjeun téh) yén sagala ciptaan jeung perkara mah jadi hak Mantenna. Mahasuci Allah, Pangéran sakumna alam.
-
-[^339]: “Istiwā’ (linggih)na Allah di luhureun Arasy” téh kaasup kana sipat Mantenna anu wajib diimanan. Maknana luyu sareng kaagungan tur kasuciana-Na.
 
 ## 7:55
 
@@ -4979,8 +4301,6 @@ Mangka, maranéhna diéléhkeun di éta tempat tur jadi jalma-jalma nu hina.
 
 Éta tukang sihir téh ujug-ujug brek baé ambruk bari sujud. [^340]
 
-[^340]: Maranéhna langsung sujud ka Allah sabab yakin kana bebeneran panggero Nabi Musa a.s. jeung lain sihir saperti anu ku maranéhna disangka pas mimiti.
-
 ## 7:121
 
 Maranéhna nyarita, “Abdi sadaya iman ka Pangéran sakumna alam,
@@ -5049,10 +4369,6 @@ Mangka, Kami méré hukuman ka sabagian maranéhna, tuluy Kami ngerelepkeun mara
 
 Kami geus ngawariskeun ka éta kaom anu geus dikaniaya (Bani Israél) bumi beulah wétan jeung beulah kulon [^341] anu geus diberkahan ku Kami. (Ku kituna,) geus sampurna dawuhan Pangéran hidep anu alus téa (minangka jangji) pikeun kaom Bani Israél ku sabab kasabaranana. Kami geus ngancurkeun sagala nu geus dipigawé ku Fir’aun jeung kaomna, nya kitu deui sagala nu geus diwangun ku maranéhna. [^342]
 
-[^341]: Nyaéta Nagri Sam, Nagri Mesir, jeung nagri-nagri nu aya di sabudereun éta dua nagri nu kungsi dipingpin ku Fir’aun baheulana. Sanggeus karajaanana runtag, éta nagri-nagri diwaris ku Bani Israél.
-
-[^342]: Nu dimaksud Allah ngancurkeun sagala rupa nu geus diwangun téh nyaéta wangunan-wangunan nu dijieun ku alatan kaniaya ka Bani Israél saperti kota Ramsés, munara nu diwangun ngaliwatan paréntah raja Hamman, jeung sajabana.
-
 ## 7:138
 
 Kami meuntaskeun Bani Israél ka éta lautan (kalayan salamet). Nalika datang ka hiji kaom anu keur nyembah berhala, maranéhna (Bani Israél) téh ngomong kieu, “Hé Musa, cing pangdamelkeun kanggo abdi sadaya pangéran (berhala) sakumaha maranéhna gaduh sababaraha sesembahan (berhala).” (Musa) ngajawab, “Aranjeun téh bener-bener kaom nu bodo.”
@@ -5077,8 +4393,6 @@ Kami geus ngajangjikeun ka Musa (rék méré Torét sanggeusna munajat salila) t
 
 Nalika Musa sumping pikeun (munajat) dina waktu nu geus ditangtukeun ku Kami jeung Pangéranana parantos ngadawuh (langsung) ka anjeunna, (Musa) nyarios, “Nun Gusti Pangéran abdi! Tingalikeun (Dat Gusti) ka abdi supados abdi tiasa ningal ka Gusti.” (Allah) ngadawuh, “Hidep moal bisa (kawasa) ningal ka Kami, tapi pék tingal ku hidep éta gunung, lamun éta gunung téh tetep dina tempatna (sakumaha biasana), tangtu hidep bisa ningali ka Kami.” Nalika Pangéran anjeunna némbongkeun (kakawasaana-Na) kana éta gunung, [^343] atuh éta gunung jadi ancur sarta Musa ngalengerek pingsan. Nalika émut deui, anjeunna nyarios, “Mahasuci Gusti! Abdi tobat ka Gusti. Abdi téh nu pangpayunna iman.”
 
-[^343]: Ti antara ahli tapsir aya nu béda-béda dina napsiran “némbongkeunana Allah ka gunung”. Aya nu napsiran yén nu katingali téh kaagungan sareng kakawasaan Allah. Aya ogé nu napsiran yén nu katingali téh ngan saukur cahaya Allah. Allah teu sami sareng mahluk. “Ningalikeunana Allah ka mahluk” kudu dipageran ku béntenna antawis Allah sareng mahluk.
-
 ## 7:144
 
 (Allah) ngadawuh, “Hé Musa, sabenerna Kami geus milih (ngunggulkeun) hidep tibatan jalma-jalma lain (di jaman hidep) pikeun mawa risalah jeung dauhan Kami. Ku sabab kitu, cekel sing pageuh naon anu ku Kuring geus dipaparinkeun ka hidep, sarta hidep kudu jadi bagian ti jalma-jalma anu sukuran!”
@@ -5086,12 +4400,6 @@ Nalika Musa sumping pikeun (munajat) dina waktu nu geus ditangtukeun ku Kami jeu
 ## 7:145
 
 Kami geus nuliskeun pikeun Musa dina lawḥ-lawḥ (Torét) [^344] sagala perkara minangka atikan jeung katerangan ngeunaan sagala perkara. Mangka, (Kami ngadawuh), “Sok geura cepeng sing pageuh ku hidep jeung paréntahkeun ka kaom hidep sangkan maranéhna nyekel kana (paréntah-paréntah-Na) sahadé-hadéna! [^345] Kami bakal némbongkeun ka anjeun (kaancuran) nagri jalma-jalma pasék.” [^346]
-
-[^344]: Lawḥ téh nu ditulis dina batu-batu atawa kai-kai ipis nu dicandak ku Nabi Musa nu eusina téh nyaéta Kitab Torét téa nu ditampi ku anjeunna saatos munggah ka Gunung Sina tur munajat di dinya.
-
-[^345]: Kudu ngaheulakeun pagawéan anu wajib tinimbang pagawéan anu sunnah.
-
-[^346]: Allah Swt. bakal ningalikeun kampung jalma-jalma pasék saperti Fir’aun, ‘Ad, Samud, jeung sabangsana tur pangeusina alancur alatan kajahatan jeung kapasékan maranéhna.
 
 ## 7:146
 
@@ -5105,8 +4413,6 @@ Jalma-jalma anu ngabohongkeun kana tanda-tanda (kakawasaan) Kami jeung kana ayan
 
 Kaom Musa, sanggeus anjeunna (Musa) angkat (ka gunung Sinai), nyieun (sesembahan mangrupa) anak sapi nu bisa nalangsa (aya soraan) [^347] tina perhiasan (emas). Naha maranéhna henteu niténan yén saenyana éta (patung) anak sapi téh teu bisaeun ngomong ka maranéhna jeung henteu (ogé) bisa nuduhkeun jalan (bebeneran) ka maranéhna? (Malah) maranéhna ngajadikeun éta patung téh (jadi sesembahan). Maranéhna téh jalma-jalma anu dolim.
 
-[^347]: Maranéhna nyieun arca anak sapi tina emas. Ahli tapsir kabagi dua bagian dina ngama’naan arca sapi nu aya soraan. Aya anu tetep dina kayakinan yén éta arca sapi téh tetep wé arca sapi nu teu aya soraan tur teu aya nyawaan. Anapon sora nu kaluar tina éta arca sapi nya ngan saukur sora angin nu dijieun-jieun ku si Samiri ku kamotékaranana. Aya deui anu ngayakinan yén mémang éta arca sapi téh jadi boga nyawa tur ngaluarkeun sora.
-
 ## 7:149
 
 Sanggeus maranéhna ngarasa hanjakal ku pagawéanana sarta geus nyaho yén saenyana maranéhna téh geus sasar, maranéhna nyarita kieu, “Saleresna upami Pangéran abdi sadaya henteu maparin rahmat sareng henteu ngahapunten ka abdi sadaya, tinangtos abdi sadaya janten jalmi-jalmi anu rugi.”
@@ -5114,10 +4420,6 @@ Sanggeus maranéhna ngarasa hanjakal ku pagawéanana sarta geus nyaho yén saeny
 ## 7:150
 
 Nalika Musa geus mulih ka kaomna kalayan bendu sareng sedih ati, anjeunna nyarios kieu, “Kacida goréng patutna kalakuan nu dipilampah ku aranjeun salila kuring indit téh! Naha atuh aranjeun téh bet gurung-gusuh miheulaan jangji Pangéran aranjeun?” [^348] Musa ngabalangkeun éta lawḥ-lawḥ [^349] (Torét) sareng nyepeng mastaka sadérékna (Harun) bari ditarik ka anjeunna. (Harun) nyarios kieu, “Hé putra pun biang, ieu kaom tos nganggap héngkér pisan ka kuring téh sarta ampir-ampiran maranéhna téh maéhan kuring. Atuh, anjeun ulah ngajadikeun musuh-musuh surak ningali kanalangsaan sim kuring. Sareng anjeun ulah ngajadikeun sim kuring saperti jalma-jalma anu dolim.”
-
-[^348]: Ku naon aranjeun teu sabar nungguan kadatangan kuring deui saba’da munajat ka Allah, malah aranjeun nyieun patung keur sesembahan salian ti Allah?
-
-[^349]: Sesemplékan tina batu atawa kayu tempat tulisan Kitab Torét
 
 ## 7:151
 
@@ -5139,8 +4441,6 @@ Sanggeus benduna leler, Musa nyandak (deui) éta lawḥ-lawḥ (Torét), nu dina
 
 Musa milih tujuh puluh jalma ti kaomna pikeun (ménta pangampura ka Kami) dina waktu nu geus ditangtukeun ku Kami. Nalika maranéhna ditimpa lini nu kacida gedéna, Musa nyarios, “Nun Gusti Pangéran abdi, upami Gusti ngersakeun mah, tangtos Gusti parantos ngabinasakeun maranéhna tur abdi saméméh ieu. Naha Gusti badé ngabinasakeun abdi sadaya sabab padamelan nu parantos dipilampah ku jalmi-jalmi anu bodo ti antawis abdi sadaya? Éta mung saukur cocobi ti Gusti. Gusti nyasarkeun ku éta cocobi ka saha baé nu dikersakeun ku Gusti sareng Gusti maparin pituduh ka saha baé nu dikersakeun ku Gusti. [^350] Gusti pamimpin abdi sadaya. Kumargi kitu, mugi Gusti ngahapunten ka abdi sadaya sareng mugi maparin rahmat. Gusti mah Pangsaéna ti antawis nu maparin pangapunten.
 
-[^350]: Pagawéanana nyieun patung anak sapi tuluy disembah téh mangrupakeun hiji cobaan ti Allah keur nguji maranéhna saha nu kuat imanna jeung saha nu nu masih aya dina kamangmangan. Jalma-jalma nu lemah imanna mah tuturut munding ngilu ka Samiri nyembah anak sapi, tapi nu karuat imanna mah tetep dina kaimanana teu tuturut nyembah anak sapi.
-
 ## 7:156
 
 Mugi Gusti netepkeun kasaéan kanggo abdi sadaya di ieu dunya sareng kanggo abdi sadaya jaga di ahérat. Saleresna abdi sadaya téh mulih (tobat) ka Gusti.” Mantenna ngadawuh, “Siksaan Kaula bakal ditibankeun ka saha baé nu dikersakeun ku Kaula. Rahmat Kaula ngawengku kana sagala rupa perkara. Mangka, Kaula bakal netepkeun éta rahmat pikeun jalma-jalma takwa jeung anu mikeun jakat, ogé pikeun jalma-jalma anu iman kana ayat-ayat Kaula.
@@ -5148,8 +4448,6 @@ Mugi Gusti netepkeun kasaéan kanggo abdi sadaya di ieu dunya sareng kanggo abdi
 ## 7:157
 
 (Nyaéta) jalma-jalma anu tumut ka éta Rasul, Nabi nu ummi, anu (namina) ku maranéhna kapanggih ditulis dina Torét jeung dina Injil nu aya di maranéhna; Anu maréntah ka maranéhna migawé kahadéan jeung nyegah perkara anu mungkar. Anjeunna ogé ngahalalkeun sagala nu alus pikeun maranéhna, tur ngaharamkeun sagala rupa nu matak goréng ka maranéhna. Anjeunna ogé ngabébaskeun ti maranéhna beungbeurat jeung bangbaluh nu aya di maranéhna. [^351] Aya ogé jalma-jalma anu iman ka anjeunna, ngamulyakeun ka anjeunna, nulungan ka anjeunna, jeung tumut kana cahaya nu caang anu diturunkeun ka anjeunna (Al-Qur’an). Nya aranjeunna téh jalma-jalma nu untung.
-
-[^351]: Saréat nu dicandak ku Nabi Muhammad Saw. mah teu saperti nu disaréatkeun ka Bani Israél, éstuning saréat nu hampang. Waktu di jaman Nabi Musa mah saréat nu dibebankeun ka Bani Israél beurat pisan saperti nebus dosa ku cara nelasan diri sorangan, hukum qisos maragatkeun nyawa batur rék dihaja atawa teu dihaja, neukteuk anggahota badan nu milampah kasalahan, neukteuk baju atawa kaén nu kakeunaan najis, jeung saréat lainna nu bareurat.
 
 ## 7:158
 
@@ -5159,13 +4457,9 @@ Pok carioskeun ku hidep (Muhammad), “Hé manusa, saenyana kuring téh utusan A
 
 Ti antara kaom Musa aya hiji umat anu masihan pituduh (ka manusa) kalayan (anu) bener jeung kalayan éta (ogé) aranjeunna milampah adil jeung ngajalankeun kaadilan. [^352]
 
-[^352]: Aranjeunna masihan pituduh tur nungtun manusa kalayan nyekel pageuh kana pituduh jeung tungtunan ti Allah Swt. Dina masalah ngahukuman perkara-perkara, aranjeunna nyuprih kaadilan ku tetegenan kana pituduh jeng tungtunan Allah Swt.
-
 ## 7:160
 
 Kami geus ngabagi maranéhna (Bani Israél) jadi dua welas golongan anu masing-masing ngabogaan jumlah nu loba. Kami geus ngawahyukeun ka Musa dina waktu kaomna ménta cai ka anjeunna, “Teunggeul éta batu ku iteuk hidep! Tangtu mancer tina éta (batu) téh dua welas cinyusu. Pasti, saban golongan geus pada nyaho kana tempat nginumna séwang-séwangan.” Kami geus mayungan maranéhna ku méga jeung geus nurunkeun ka maranéhna mannā jeung salwa. [^353] (Allah ngadawuh), “Pék geura dahar nu aralus tina rejeki nu geus dikurniakeun ku Kami ka maranéh!” Maranéhna henteu pisan-pisan ngadoliman ka Kami, tapi maranéhna nu sok ngadoliman ka dirina sorangan.
-
-[^353]: Tingal catetan kaki surat Al-Baqarah/2:57.
 
 ## 7:161
 
@@ -5175,21 +4469,13 @@ Kami geus ngabagi maranéhna (Bani Israél) jadi dua welas golongan anu masing-m
 
 Mangka, jalma-jalma nu dolim ti antara maranéhna geus ngaganti (éta ucapan) ku ucapan nu teu diparéntahkeun ka maranéhna, [^354] atuh Kami nibankeun ka maranéhna siksaan ti langit ku sabab maranéhna sok migawé kadoliman.
 
-[^354]: Maranéhna diparéntah ngucapkeun hiṭṭatun (mugia Gusti ngaleupaskeun tina dosa), dirobah jadi hinṭatun fī sya’īrah (siki gandum).
-
 ## 7:163
 
 Pék tanyakeun ku hidep (Muhammad) ka maranéhna (Bani Israél) ngeunaan hiji nagri [^355] nu ayana deukeut lautan waktu maranéhna ngarempak aturan dina poé Sabat, [^356] (nyaéta) dina waktu datang ka maranéhna lauk-lauk (nu aya di sabudeureun) maranéhna bari narémbongan dina cai, padahal dina poé-poé lain Sabat mah éta lauk-lauk téh tara pisan nyalampeurkeun ka maranéhna. Tah kitu pisan Kami méré cocoba ka maranéhna ku sabab maranéhna sok migawé kapasékan.
 
-[^355]: Nyaéta kota Éllah nu ayana téh dekeut lautan tempat dikéremna Fir’aun (laut Merah). Watesna antara kota Madyan jeung gunung Thur.
-
-[^356]: Nurutkeun aturan, poé Sabtu téh poé anu teu meunang dipaké gawé, tapi husus keur ibadah wungkul.
-
 ## 7:164
 
 (Sing inget) dina waktu hiji golongan ti antara maranéhna nyarita, “Ku naon aranjeun maké nganaséhatan hiji kaom anu geus puguh dibinasakeun atawa disiksa ku Allah kalayan siksaan anu beurat?” Maranéhna ngajawab, “Supaya urang saréréa boga alesan (ngaleupaskeun tanggung-jawab) ka Pangéran aranjeun [^357] jeung sangkan maranéhna takwa.”
-
-[^357]: Alesanana téh nyaéta yén maranéhna geus ngalaksanakeun paréntah Allah méré pangéling-éling ka batur.
 
 ## 7:165
 
@@ -5227,8 +4513,6 @@ Jalma-jalma nu nyekel kana Kitab (Toret) sarta ngadegkeun salat, sabenerna Kami 
 
 Atawa sangkan maranéh (teu) ngomong kieu, “Saeunyana karuhun abdi sadaya geus musrik ka (Pangéran) ti baréto, sédéngkeun abdi sadaya téh nyaéta katurunan nu (datang) ti sanggeus aranjeunna. Atuh naha Gusti badé nyiksa abdi sadaya ku margi padamelan jalma-jalma nu (kapungkur) migawé kabatilan?” [^358]
 
-[^358]: Sangkan jalma-jalma musrik teu kudu ngomong yén karuhunna baheula ogé sarua nyarékatkeun Allah, padahal maranéhna teu nyaho nanaon yén nyarékatkeun Allah téh pagawéan salah. Nyarékatkeun Allah nu dilakukeun ku jalma-jalma musrik diteumbleuhkeun ka kolot maranéhna baheula, sangkan maranéhna teu disiksa ku Allah, yén maranéhna ngan saukur nuturkeun naon-naon nu geus dipigawé ku kolot-kolotna.
-
 ## 7:174
 
 Tah kitu pisan Kami ngajelaskeun éta ayat-ayat kalayan jelas sangkan maranéhna mulang deui (kana bebeneran).
@@ -5257,8 +4541,6 @@ Tétéla Kami bener-bener geus nyiptakeun loba pisan ti golongan jin jeung manus
 
 Allah ngagaduhan Asmaul Husna (jenengan-jenengan anu saé). Ku sabab kitu, geura ngadoa ka Mantenna kalayan nyébat éta (Asmaul Husna), jeung tinggalkeun baé jalma-jalma nu nyalah-hartikeun jenengan-jenengana-Na. [^359] Engké maranéhna téh tangtu bakal meunang wawales tina sagala rupa anu geus dipilampah.
 
-[^359]: Ulah dipaliré jalma-jalma anu nyembah Allah kalayan nyebut jenengan-jenengan anu teu payus jeung sipat-sipat tur kaagungan Mantenna, atawa jalma-jalma anu nyebut jenengan-jenengan Mantenna, tapi tujuanana keur ngaruksak jenengana-Na. Hal nu séjénna nu teu kudu dipaliré téh nyaéta jalma-jalma anu nyebut jenengan-jenengan Allah tapi lain pikeun nyebut Allah.
-
 ## 7:181
 
 Sabagian ti antara jalma-jalma anu ku Kami geus diciptakeun aya sagolongan umat anu méré pituduh kalayan (dasar) anu bener jeung kalayan éta (ogé) maranéhna milampah kaadilan.
@@ -5270,8 +4552,6 @@ Jalma-jalma anu ngabohongkeun kana ayat-ayat Kami bakal diantep ku Kami supaya m
 ## 7:183
 
 Kami bakal méré témpo ka maranéhna. Tétéla siasat Kami téh kacida pisan kuatna. [^360]
-
-[^360]: Allah bakal males tipu daya jalma kapir kalayan leuwih hadé.
 
 ## 7:184
 
@@ -5285,8 +4565,6 @@ Naha maranéhna henteu niténan karajaan langit jeung bumi sarta sagala anu dici
 
 Saha baé anu ku Allah disasarkeun, tangtu moal aya anu kawasa méré pituduh. Allah bakal ngantep maranéhna kagubag-gabig dina kasasaranana. [^361]
 
-[^361]: Éta jalma téh sasar ku sabab kaingkaranana jeung teu daék nurut kana pituduh-pituduh Allah.
-
 ## 7:187
 
 Maranéhna nanyakeun ka hidep (Muhammad) ngeunaan Kiamat, “Iraha éta kajadianana?” Pok ucapkeun, “Saenyana élmu ngeunaan Kiamat ngan aya di mungguhing Pangéran kuring. Moal aya (hiji jalma) nu bisa ngébréhkeun kana waktu kajadianana iwal ti Mantenna. (Kiamat) téh kacida beuratna (éwuh-pakéwuhna pikeun mahluk) nu di langit jeung di bumi. Kiamat moal datang ka aranjeun anging ngadadak.” Maranéhna nanyakeun deui ka hidep saolah-olah hidep téh nyaho (iraha kajadian Kiamat). Pok atuh ucapkeun deui, “Sabenerna élmu ngeunaan (Poé Kiamat) téh ngan wungkul aya di mungguhing Allah, tapi lolobana manusa téh henteu nyarahoeun.”
@@ -5299,13 +4577,9 @@ Pék caritakeun ku hidep (Muhammad), “Kuring henteu kawasa ngadatangkeun kaman
 
 Mantenna téh nu nyiptakeun aranjeun tina diri nu sahiji (Adam) jeung ti anjeunna Mantenna ngajadikeun pasanganana sangkan anjeunna condong jeung ngarasa tengtrem ka pasanganana. Tuluy, sanggeus anjeunna sapatemon jeung (garwana), garwana ngandung anu hampang. Mangka, anjeunna lumangsung kalayan hampang. Tuluy, sabot anjeunna ngarasa beurat, duanana (istri sareng carogéna) ngadoa ka Allah Pangéran aranjeunna, “Saleresna, upami Gusti maparinan ka abdi anak anu soléh, tangtu abdi sadaya téh kalebet golongan jalmi-jalmi anu sukuran.” [^362]
 
-[^362]: Ieu kajadian téh lain ngeunaan Nabi Adam, tapi ngeunaan sabagian katurunana.
-
 ## 7:190
 
 Saterusna, saparantos Mantenna maparin ka duanana putra anu soléh, maranéhna (jalma-jalma musrik) ngajadikeun sarékat pikeun Allah [^363] dina (nyiptakeun) putra nu ku Mantenna geus dipaparinkeun. Mahaluhur Allah tina sakur nu disarékatkeun ku maranéhna.
-
-[^363]: Jalma-jalma musrik téh ngajadikeun sarékat ka Allah dina nyiptakeun anak. Maranéhna nganggap yén anak nu dilahirkeun téh nyaéta hamba-hamba berhala ogé. Ku sabab kitu, maranéhna méré ngaran budak nu dilahirkeun saperti ngaran Abdul Uzza, Abdu Mannat, Abdu Latta, Abdu Syam, jeung sabangsana.
 
 ## 7:191
 
@@ -5327,8 +4601,6 @@ Saenyana berhala-berhala anu ku maranéh sok disambat ti salian Allah téh nyaé
 
 Naha maranéhna (berhala-berhala) téh bogaeun suku paranti leumpang, bogaeun leungeun paranti nyekel kalayan kuat, [^364] bogaeun panon paranti nénjo, atawa bogaeun ceuli paranti ngadéngé? Pék caritakeun ku hidep (Muhammad), “Sok geura sambat éta (berhala-berhala aranjeun) téh anu disangka sarékat Allah, tuluy pék geura gawé tipu daya (pikeun nyilakakeun) kuring. Tong ditunda-tunda deui!
 
-[^364]: Kecap yabṭisyūn di dieu bisa diartikeun ku sababaraha harti, ti antarana nampiling, ngaruksak, neunggeul, ngajenggut kalayan kasar, jeung sajabana.
-
 ## 7:196
 
 Saenyana nu nangtayungan kuring mah nyaéta Allah anu parantos nurunkeun Kitab suci (Al-Qur’an). Mantenna nu nangtayungan ka jalmi-jalmi nu soléh.
@@ -5349,8 +4621,6 @@ Atuh hidep (Muhammad) sing jadi jalma anu méré hampura baé! Pék geura parén
 
 Lamun sétan datang pikeun ngagoda hidep (Muhammad), atuh geura ménta panangtayungan ka Allah. [^365] Sabenerna Mantenna mah Maha Ngadangu (tur) Mahauninga.
 
-[^365]: Ngucapkeun kalimah a’ūżubillāhi minasyaiṭānirrajīm.
-
 ## 7:201
 
 Saenyana jalma-jalma anu takwa lamun seug dibayang-bayangan ku pikiran jahat (migawé dosa) ti sétan, aranjeunna mah gancang-gancang inget kana (dosa jeung ganjaran ti) Allah. Mangka, harita kénéh aranjeunna mah ningal (kana bebeneran).
@@ -5367,8 +4637,6 @@ Upama hidep (Muhammad) henteu ngabacakeun hiji ayat ka maranéhna, maranéhna ng
 
 Upama Al-Qur’an dibacakeun, pék déngékeun (kalayan taliti) sarta kudu jempé, sangkan aranjeun dipaparinan rahmat. [^366]
 
-[^366]: Upama dibacakeun ayat-ayat Al-Qur’an, urang kudu ngadangukeun kalayan sikep awak cicing, boh dina salat boh di luar salat, anging bacaan Al-Qur’an nu dibacakeun waktu salat barjama’ah, ma’mum meunang maca surat al-Fātiḥah waktu imam maca ayat-ayat Al-Qur’an ba’da maca surat al-Fātiḥah.
-
 ## 7:205
 
 Sing inget ka Pangéran hidep dina haté hidep kalayan handap asor jeung rasa ajrih, tur teu narikkeun sora, dina saban-saban isuk jeung pasosoré, jeung kadé ulah kaasup jalma-jalma anu haré-haré.
@@ -5377,8 +4645,6 @@ Sing inget ka Pangéran hidep dina haté hidep kalayan handap asor jeung rasa aj
 
 Saenyana jalma-jalma nu aya di mungguhing Pangéran hidep téh henteu nyombongkeun dirina tina ibadah ka Allah sareng aranjeunna ngamahasucikeun (ka Mantenna). Mung ka Allah wungkul aranjeunna sumujud. [^367]
 
-[^367]: Ieu ayat kaasup salah sahiji ayat sajdah, nyaéta ayat anu lamun urang ngadangukeun kana éta ayat atawa maca kana éta ayat, mangka disunnahkeun sujud, boh waktu salat atawa di luar salat. Ieu sujud dingaranan sujud tilawah ku para ulama.
-
 ## 8:1
 
 Aranjeunna nanyakeun ka hidep (Muhammad) ngeunaan (pangbagian) harta rampasan perang. Pék caritakeun, “Harta rampasan perang téh kagungan Allah sareng Rasul (mungguh katangtuan Allah jeung Rasul-Na). Mangka, kudu takwa aranjeun ka Allah jeung geura oméan hubungan jeung sasama sarta sing ta’at ka Allah jeung ka Rasul-Na upama aranjeun jalma-jalma iman mah.”
@@ -5386,8 +4652,6 @@ Aranjeunna nanyakeun ka hidep (Muhammad) ngeunaan (pangbagian) harta rampasan pe
 ## 8:2
 
 Saenyana jalma-jalma anu iman téh nyaéta jalma-jalma anu upama disebut jenengan Allah, [^368] mangka ngageter haténa. Lamun seug dibacakeun ayat-ayat-Na ka aranjeunna, mangka tambah-tambah (kuat) imanna, sarta ngan ka Pangéranana aranjeunna tawakal.
-
-[^368]: Kaasup ogé kana maksud ieu ayat nyaéta jalma-jalma anu nyebut sipat-sipat nu eusina ngaagungkeun sareng ngamulyakeun Allah.
 
 ## 8:3
 
@@ -5401,8 +4665,6 @@ Nya aranjeunna téh jalma-jalma nu bener-bener iman. Pikeun aranjeunna darajat (
 
 (Éta kajadian téh) [^369] sakumaha Pangéran hidep miwarang ka hidep supaya indit ti imah kalayan (dumasar kana) bebeneran, sanajan sabagaian jalma-jalma nu iman téh teu mikaresep.
 
-[^369]: Sawaréh sahabat Nabi ngarasa beurat ku katangtuan pambagian harta boyongan perang, sakumaha maranéhna ngarasa beurat ogé kana paréntah Allah pikeun ngalakonan Perang Badar.
-
 ## 8:6
 
 Maranéhna ngabantah ka hidep (Muhammad) ngeunaan bebeneran (paréntah milu Perang Badar) sanggeusna tétéla (kalawan janji ti Allah yén maranéhna pasti meunang), saolah-olah maranéhna ngarasa digiring kana pimaoteun jeung nénjo (sabab-sabab éta pimaoteun).
@@ -5410,8 +4672,6 @@ Maranéhna ngabantah ka hidep (Muhammad) ngeunaan bebeneran (paréntah milu Pera
 ## 8:7
 
 (Sing inget) nalika Allah ngajangjikeun ka aranjeun yén salah sahiji ti antara dua golongan [^370] (nu ku aranjeun dihareupan) téh nyaéta milik aranjeun, sedengkeun aranjeun miharep yén anu teu boga kakuatan sanjata téh éta milik aranjeun. Tapi Allah rék netepkeun anu bener (Islam) ku katangtuana-Na jeung ngamusnahkeun jalma-jalma kapir nepi ka akar-akarna,
-
-[^370]: Rombongan Abu Sofyan anu mawa dagangan ti Syiria. Anapon rombongan anu dilengkepan ku pakarang perang nyaéta rombongan anu datang ti Mekah ni dipingpin ku Uthbah bin Rabi’ah jeung Abu Jahal.
 
 ## 8:8
 
@@ -5433,8 +4693,6 @@ Allah teu ngajantenkeun (éta bala bantuan) anging jadi béja pikabungaheun jeun
 
 (Sing inget) nalika Pangéran hidep nurunkeun wahyu ka para malaikat, “Sabenerna Kami marengan aranjeun. Ku kituna, pék pancegkeun (pamadegan) jalma-jalma nu geus iman. Engké Kami bakal nibankeun rasa sieun dina haté-haté jalma-jalma kapir. Ku kituna, geura sabet bagian luhur beuheung maranéhna jeung teukteuk tungtung ramo-ramo maranéhna!” [^371]
 
-[^371]: Nu dimaksud tungtung ramo di dieu nyaéta leungeun jeung suku.
-
 ## 8:13
 
 (Katangtuan) nu kitu téh nyaéta ku sabab saenyana maranéhna nangtang ka Allah jeung ka Rasul-Na. Saha baé jalma anu nangtang ka Allah jeung Rasul-Na, sabenerna Allah mah anu pohara beurat siksaan-Na.
@@ -5454,8 +4712,6 @@ Saha baé jalma anu mundur dina éta waktu, kajaba ngabélok pikeun ngatur (sias
 ## 8:17
 
 Mangka, (sabenerna mah) lain aranjeun nu maéhan maranéhna téh, tapi Allah anu maéhan maranéhna. Lain hidep nu malédog waktu hidep malédog téh, tapi Allah nu malédog. (Allah midamel kitu téh pikeun ngabinasakeun maranéhna) jeung maparin kaunggulan ka jalma-jalma mu’min kalayan kaunggulan anu hadé. [^372] Sabenerna Allah mah Maha Ngadangu (tur) Mahauninga.
-
-[^372]: Ieu kajadian téh ngeunaan Perang Badar sakumaha diriwayatkeun ku Ibn Abbas. Anjeunna nyaritakeun yén waktu Perang Badar, Nabi Muhammad nyarios ka Ali, “Cing pang nyokotkeun sakeupeul keusik!” Ali langsung nyandak teras dipasihkeun ka anjeunna. Saterasna anjeunna ngawurkeun éta keusik kana beungeutna musuh nepi ka euweuh saorang ogé nu matana lolos ti anjeunna. Ku sabab éta, ancur tah maranéhna téh.” (H.R. al-Tabrani).
 
 ## 8:18
 
@@ -5481,13 +4737,9 @@ Saenyana panggoréng-goréngna mahluk nu kumarayap di luhureun bumi mungguhing A
 
 Lamun seug Allah uninga aya kahadéan di diri maranéhna, tangtu Mantenna bakal ngersakeun maranéhna bisa ngadéngé. [^373] Lamun seug Allah ngajadikeun maranéhna bisa ngadéngé, tangtu maranéhna ngabalieur jeung maranéhna mémang ngabalieurkeun diri.
 
-[^373]: Ieu teu ngandung harti yén Allah téh teu uninga. Allah pastina Mahauninga yén dina diri maranéhna téh euweuh kahadéan.
-
 ## 8:24
 
 He jalma-jalma nu iman, geura cumponan pangajak Allah jeung Rasul-Na (Muhammad) upama anjeunna ngajak ka aranjeun kana sagala rupa anu méré kahirupan ka aranjeun. Sing nyaho yén sabenerna Allah méré wates antara jalma jeung haténa. [^374] Saenyana mung ka Allah wungkul aranjeun bakal dikumpulkeun.
-
-[^374]: Allah anu ngawasa kana haté manusa.
 
 ## 8:25
 
@@ -5525,8 +4777,6 @@ Upama ayat-ayat Kami dibacakeun ka maranéhna, maranéhna ngomong kieu, “Saeny
 
 Allah teu pati-pati rék nyiksa maranѐhna satungtung hidep (Muhammad) aya kénéh di antara maranéhna, jeung Allah moal nyiksa maranѐhna upama maranéhna masih ménta panghampura. [^375]
 
-[^375]: Ti antara ahli tapsir aya nu ngahartikeun ku tobat. Aya ogé nu ngahartikeun yén ti antara jalma-jalma kapir téh aya nyelap jalma-jalma mu’min anu ménta pangampura ka Allah.
-
 ## 8:34
 
 Naon halanganana Allah teu nyiksa maranѐhna, sedengkeun maranéhna téh terus-terusan ngahalang-halang (jalma) nu rék (ibadah di) Masjidil Haram? Maranéhna téh lain jalma-jalma nu hak jadi pangurusna. Jalma nu boga hak pikeun ngurusna téh nyaéta ngan jalma-jalma anu takwa. Tapi lolobana ti maranéhna téh teu nyahoeun.
@@ -5559,19 +4809,9 @@ Upama maranéhna ngabalieur, sing nyaho yén saenyana Allah téh nu nangtayungan
 
 Kanyahokeun, saenyana naon baé nu ku aranjeun katampa mangrupa rampasan perang, [^376] éta téh sabenerna saperlimana kagungan Allah, Rasul, kulawarga (Rasul), budak yatim, jalma-jalma miskin, jeung Ibnu sabil, [^377] upama aranjeun iman ka Allah jeung kana naon anu geus diturunkeun ku Kami ka abdi Kami (Muhammad) dina poé al-furqān, [^378] nyaéta poé paamprokna dua pasukan. [^379] Allah Mahakawasa kana sagala perkara.
 
-[^376]: Nu dimaksud rampasan perang (ganīmah) nyaéta harta anu dirampas ti jalma-jalma kapir ku alatan perang ku kaom muslimin, sedengkeun harta anu dirampas teu ngaliwatan peperangan dingaranan harta fai’. Pangbagian anu aya dina ieu ayat ngan ngeunaan harta rampasan (ganīmah).
-
-[^377]: Saperlima ti harta rampasan téh dibagi ka: (1) Allah sareng Rasul-Na, (2) Kaluarga Rasul (Bani Hasyim jeung Bani Muthalib), (3) Anak Yatim, (4) Jalma-jalma anup miskin, (5) Ibnu sabil. Opat perlimana dibagikeun ka anu miluan perang.
-
-[^378]: Furqān nyaéta pamisah antara anu ḥaq jeung anu bāṭil. Anu dimaksud poé al-Furqān nyaéta poé kaunggulan kaom muslimin jeung éléhna kaom kapir.
-
-[^379]: Nyaéta poé papanggihna dua pasukan dina peperangan Badar dina poé Jum’at ping 17 Ramadhan taun ka-2 Hijriyyah. Sabagian ahli tapsir nyebutkeun yén ieu ayat ngisaratkeun kana poé ngawitan turunna Al-Qur’an, nyaéta dina peuting ping 17 Ramadhan.
-
 ## 8:42
 
 (Nyaéta) waktu aranjeun aya di pinggir léngkob anu deukeut (kota Madinah) jeung maranéhna aya di sisi léngkob anu jauh (ti Kota Madinah), sedengkeun kapilah mah aya di lebah leuwih handap tibatan hidep (mapai sisi laut). [^380] Saupama aranjeun ngayakeun jangji (pikeun nangtukeun poé peperangan), tangtu aranjeun béda pamadegan dina nangtukeun poé peperangan, tapi (éta kajadian perang téh) supaya Allah ngalaksanakeun kana sagala urusan anu kudu kajadian, supaya jalma-jalma anu binasa téh binasa ku katerangan anu nyata, jeung supaya jalma nu hirup téh hirupna ku katerangan anu nyata (deui). Saleresna Allah mah Maha Ngadangu (tur) Mahauninga.
-
-[^380]: Kaom muslimin dina éta waktu aya dina hiji palataran handapeun gunung deukeut Madinah, sedengkeun jalma-jalma kapir jauh ti Madinah. Rombongan Abu Sofyan aya kira-kira 5 Mil ti wewengkon Badar.
 
 ## 8:43
 
@@ -5616,8 +4856,6 @@ Upama hidep ningali waktu para malaikat nyabut nyawa jalma-jalma kapir bari nyab
 ## 8:53
 
 Anu kitu téh ku sabab sabenerna Allah moal bakal ngarobah hiji ni’mat anu ku Mantenna geus dipaparinkeun ka hiji kaom, nepi ka maranéhna ngarobah kana naon nu aya dina dirina sorangan. [^381] Saleresna Allah Maha Ngadangu (tur) Mahauninga.
-
-[^381]: Allah moal rék nyabut kani’matan anu tos dipasihkeun ka hiji kaom salami éta kaom téh tetep taat tur sukur ka Allah.
 
 ## 8:54
 
@@ -5667,8 +4905,6 @@ Hé Nabi (Muhammad), cukup Allah (nu nangtayungan) pikeun hidep jeung pikeun jal
 
 Hé Nabi (Muhammad), geura gedurkeun sumanget kaom mu’min pikeun perang! Upama aya dua puluh jalma nu sabar ti antara aranjeun, tangtu aranjeun bisa ngéléhkeun dua ratus (musuh). Upama aya saratus jalma (nu sabar) ti antara aranjeun, tangtu aranjeun bisa ngéléhkeun sarébu jalma kapir, lantaran saenyana maranéhna kaom nu teu paham. [^382]
 
-[^382]: Maranéhna teu ngartieun yén perang téh kudu diniatkeun pikeun nanjeurkeun agama Allah. Kanyataanana, maranéhna ilu-biung perang téh ngan saukur mertahankeun adat-kabiasaanana di jaman Jahiliah nu mémang biasa perang. Kajaba ti éta, peperangan nu dilakukeun ku maranéhna téh dimaksudkeun pikeun kapentingan dunyawiah.
-
 ## 8:66
 
 Ayeuna mah (waktu turun ieu ayat) Allah geus ngahampangkeun aranjeun, lantaran Allah uninga yén aya kakurangan dina diri aranjeun. Ku kituna, upama aya ti antara aranjeun saratus jalma nu sabar, tangtu aranjeunna bisa ngéléhkeun dua ratus (musuh); jeung upama ti antara aranjeun aya sarébu jalma (nu sabar), tangtu aranjeunna bisa ngéléhkeun dua rébu jalma kalayan widi Allah. Allah mah nyarengan jalma-jalma nu sabar.
@@ -5680,8 +4916,6 @@ Teu pantes pikeun hiji nabi miboga boyongan saméméh anjeunna bisa ngalumpuhkeu
 ## 8:68
 
 Lamun seug teu aya katangtuan nu leuwih ti heula ti Allah, [^383] tangtu aranjeun ditibanan siksaan anu kacida gedéna sabab (tebusan) nu dicokot ku aranjeun.
-
-[^383]: Nyaéta katangtuan yén Allah moal nibankeun siksaan lamun taya aturan-aturan-Na nu dirempak.
 
 ## 8:69
 
@@ -5719,13 +4953,9 @@ Jalma-jalma anu iman sanggeus éta, anu hijrah, tur jihad babarengan jeung aranj
 
 Pék (kaom musrik) kumelendang di ieu bumi dina sajero opat bulan, jeung kudu nyaho yén saenyana maranéhna téh moal bisa ngalemahkeun Allah. Saleresna Allah téh ngahinakeun ka jalma-jalma kapir. [^384]
 
-[^384]: Seméméh ieu ayat turun, aya perjangjian daméi antara Nabi Muhammad Saw. jeung jalma-jalma musrik. Ti antara perjangjian téh eusina: Teu meunang aya peperangan antara anjeunna jeung jalma-jalma musrik. Eusi perjangjian nu séjénna: Kaom muslimin dimeunangkeun pikeun ngalaksanakeun ibadah haji tur towaf di sabudeureun Ka’bah. Saterusna, saba’da ieu ayat turun, Allah ngabatalkeun éta perjangjian, ngawidian deui kaom muslimin pikeun merangan kaom musrikin anu ngamusuhan kaom muslimin. Kaom musrikin dibéré tempo opat bulan pikeun nyiapkeun kakuatan lamun maranéhna bener-bener hayang ngamusuhan jeung merangan kaom muslimin.
-
 ## 9:3
 
 Ieu téh hiji béwara ti Allah jeung Rasul-Na ka umat manusa dina poé Haji Akbar, [^385] yén saleresna Allah jeung Rasul-Na ngalubarkeun diri ti jalma-jalma musrik. Ku lantaran kitu, lamun maranéhna (kaom musrik) tobat, tangtu éta leuwih alus pikeun maranéhna; tapi lamun maranéhna ngabalieur, mangka kudu nyaho yén saenyana maranéhna moal bisa ngalemahkeun Allah. Geura béré pangbubungah ku hidep (Muhammad) ka jalma-jalma kapir téh (yén maranéhna téh bakal meunang) siksaan nu pohara nyerina.
-
-[^385]: Poéan wukuf di Arofah.
 
 ## 9:4
 
@@ -5735,8 +4965,6 @@ Ieu téh hiji béwara ti Allah jeung Rasul-Na ka umat manusa dina poé Haji Akba
 
 Nalika bulan-bulan haram geus kaliwat, [^386] atuh pek geura paéhan (dina peperangan) jalma-jalma musrik (nu salila ieu ngadoliman ka aranjeun) di mana baé kapanggihan ku aranjeun! Pék téwak jeung kepung maranéhna sarta intip dina saban-saban tempat pangintipan! Lamun maranéhna tobat, ngadegkeun salat, jeung mayar jakat, mangka geura béré kabébasan pikeun maranéhna. Saleresna Allah téh Maha Jembar-pangampura (tur) Mahaasih.
 
-[^386]: Nu dimaksad opat bulan nu dimulyakeun téh nyaéta dina nitih mangsana ngawitan ti kawit turun ieu ayat (10 Julhijah) dugi ka 10 Robi’ul Ahir.
-
 ## 9:6
 
 Lamun aya hiji jalma ti jalma-jalma musrik ménta panyalindungan ka hidep (Muhammad), atuh pék geura lindungan manéhna sangkan ngaregepkeun dawuhan Allah, tuluy anteurkeun ka tempat anu aman pikeun manéhna. Éta téh ku sabab maranéhna kaom anu henteu nyahoeun.
@@ -5744,8 +4972,6 @@ Lamun aya hiji jalma ti jalma-jalma musrik ménta panyalindungan ka hidep (Muham
 ## 9:7
 
 Rék mungkin kumaha aya perjangjian (daméi) pikeun jalma-jalma musrik di mungguhing Allah jeung Rasul-Na? Kajaba pikeun jalma-jalma anu geus ngayakeun perjangjian (jeung aranjeun) di deukeut Masjidil Haram (Hudaibiyah), [^387] salila maranéhna jujur ka aranjeun. Nya aranjeun ogé kudu jujur ka maranéhna. Saleresna Allah téh mikacinta ka jalma-jalma anu takwa.
-
-[^387]: Nu dimaksud deukeut Masjidil Harom téh nyaéta di wewengkon Hudaibiyah, hiji wewengkon anu deukeut jeung Mekah, jalur jalan ka Madinah. Di éta tempat, Nabi Muhammad Saw. ngayakeun perjangjian ngeureunkeun perang salila10 taun.
 
 ## 9:8
 
@@ -5795,8 +5021,6 @@ Saenyana anu pantes ngama’murkeun masjid-masjid Allah mah ngan jalma-jalma anu
 
 Naha (jalma-jalma) anu méré nginum ka jalma-jalma nu ngalaksanakeun haji jeung purah ngurus Masjidil Haram disaruakeun jeung jalma-jalma nu iman ka Allah jeung kana Poé Ahir, sarta aranjeunna jihad dina jalan Allah? Maranéhna henteu sarua mungguhing Allah. Allah henteu rék maparin pituduh ka jalma-jalma anu dolim. [^388]
 
-[^388]: Ayat ieu diturunkeun pikeun ngabantah yén masihan leueut ka nu ibadah haji jeung ngurus Masjidil Harom téh éta langkung utama tinimbang iman nu sabenerna ka Allah jeung hijrah di jalan Allah.
-
 ## 9:20
 
 Jalma-jalma anu iman jeung hijrah sarta jihad dina jalan Allah, ku harta banda jeung jiwana, leuwih luhur darajatna mungguhing Allah. Aranjeunna téh jalma-jalma anu untung.
@@ -5833,17 +5057,9 @@ Salajengna Allah nampi tobat jalma nu dikersakeun ku Mantenna. Allah mah apan Ma
 
 Hé jalma-jalma iman, saenyana jalma-jalma musrik téh najis (kotor jiwana), ku sabab kitu kadé maranéhna ulah sina ngadeukeutan Masjidil Haram [^389] sanggeus ieu taun-taun maranéhna. [^390] Sarta lamun arajeun sieun jadi miskin (sabab jalma-jalma kapir teu datang), [^391] tangtu Allah bakal ngabeungharkeun ka aranjeun ku kurnia-Na upama Mantenna ngersakeun. Saleresna Allah mah Mahauninga (tur) Mahawijaksana.
 
-[^389]: Teu dibenerkeun maranéhna ngalaksanakeun ibadah haji jeung umroh. Aya ogé ahli tapsir nu nyebutkeun yén ayat ieu sipatna umum; kaom musrikin teu meunang asup ka sabudeureun Masjidil Harom, boh rék keur ngalaksanakeun haji-umroh atawa rék migawé kaperluan salian haji jeung umroh.
-
-[^390]: Maksudna saba’da taun 9 Hijriyyah.
-
-[^391]: Ku sabab teu dimeunangkeunana kaom musrikin ngalaksanakeun ibadah haji tur umroh, sabab pakasaban kaom muslimin bisa kaconténg.
-
 ## 9:29
 
 Pék geura perangan jalma-jalma anu teu iman ka Allah jeung kana Poé Ahir, anu henteu ngaharamkeun kana sagala nu diharamkeun ku Allah sareng ku Rasul-Na, jeung anu henteu daék ngagem agama anu bener (agama Allah), (nyaéta jalma-jalma) nu geus dipaparinan Kitab (Yahudi jeung Nasrani), nepi ka maranéhna mayar jijyah [^392] kalayan patuh, bari maranéhna dina kaayaan tunduk.
-
-[^392]: Jijyah téh maksudna pajeg anu dipénta ku pamaréntah Islam nu dipungut ti jalma-jalma nonmuslim, mangrupa jaminan kaamanan pikeun maranéhna.
 
 ## 9:30
 
@@ -5852,8 +5068,6 @@ Jalma-jalma Yahudi ngomong kieu, “Ujér téh putra Allah.” Jalma-jalma Nasra
 ## 9:31
 
 Maranéhna geus ngajadikeun para rabi (Yahudi) jeung para rahib (Nasrani) minangka pangéran-pangéran salian ti Allah, [^393] jeung nya kitu deui (Nasrani ngajadikan) al-Masih putra Maryam (minangka pangéran). Padahal maranéhna téh henteu diparéntah anging nyembah ka Pangéran Nu Mahatunggal, anu henteu aya deui Pangéran anging Mantenna nyalira. Mahasuci Mantenna tina sagala anu ku maranéhna disarékatkeun.
-
-[^393]: Maranéhna manut kana ajaran jalma-jalma pinter jeung rahib-rahib maranéhna tanpa élmu (tuturut munding), sok sanajan éta jalma-jalma pinter jeung rahib-rahib téh nitah migawé kana pagawéan doraka.
 
 ## 9:32
 
@@ -5879,8 +5093,6 @@ Saenyana wilangan bulan mungguhing Allah téh éta aya dua welas bulan, (sakumah
 
 Sabenerna ngundur-ngundur éta (bulan haram) [^394] téh taya lian anging nambahan kakupuran. Jalma-jalma kapir disasarkeun ku sabab éta. Maranéhna geus ngahalalkeun dina sataun, jeung ngaharamkeun deui dina sataun nu séjénna, supaya bisa ngaluyukeun jeung wilangan nu geus diharamkeun ku Allah téa. Tuluy maranéhna ngahalalkeun sakur nu geus diharamkeun ku Allah. Geus dipapaéskeun (ku sétan) ka maranéhna éta pagawéan-pagawéan maranéhna nu goréng téh. Allah moal maparin pituduh ka kaom anu kapir.
 
-[^394]: Maksudna opat bulan téh nyaéta Muharom, Rojab, Julko’dah, jeung Julhijah. Éta opat bulan anu dimulyakeun ku Allah. Dina éta bulan teu meunang aya peperangan. Tapi ieu paréntah dilanggar ku maranéhna ku ngayakeun peperangan di bulan Muharom tur ngaganti bulan Muharram ku bulan Sapar. Ku sabab maranéhna ngarempak kana parétah, kagiatan pakasaban utamana dagang loba kaganggu.
-
 ## 9:38
 
 Hé jalma-jalma nu iman, ku naon lamun dicaritakeun ka aranjeun, “Jung geura indit (perang) di jalan Allah,” aranjeun boga rasa beurat jeung condong kana (kahirupan) dunya? Naha aranjeun téh leuwih suka kana kahirupan dunya tibatan kahirupan ahérat? Padahal kasenangan dunya (lamun dibandingkeun jeung kasenangan ahérat mah) ngan saeutik pisan.
@@ -5893,8 +5105,6 @@ Lamun aranjeun henteu indit perang, tangtu Allah bakal nyiksa ka aranjeun ku sik
 
 Lamun aranjeun henteu daék nulungan ka anjeunna (Muhammad) apanan sabenerna Allah geus nulungan ka anjeunna waktu diusir (ti Mekah) ku jalma-jalma kapir, padahal anjeunna téh ngan salah saurang ti anu duaan waktu anjeunna aya dina jero guha, anjeunna nyarios ka sobatna, “Anjeun ulah nalangsa apan saleresna Allah téh nyarengan urang duaan.” Lajeng Allah ngalungsurkeun katengtreman ka anjeunna jeung nguatan ka anjeunna ku mangpirang-pirang balad (malaikat) anu henteu katémbong ku aranjeun, sarta Mantenna ngajadikeun pangajak jalma-jalma kapir jadi anu panghandapna, sedengkeun dawuhan Allah éta anu pangluhungna. Allah téh Mahaperkasa (tur) Mahawijaksana. [^395]
 
-[^395]: Jalma-jalma kapir geus mupakat rék nelasan Nabi Muhammad Saw. Nanging, Allah masihan uninga ka Nabi ngeunaan maksud jahat maranéhna. Nalika lungsur ti bumina angkat ti Mekah ngajugjug ka Madinah, Nabi diréncangan ku Abu Bakar. Di tengahing lalampahan, anjeunna nyumput di hiji gunung nu ngaranna Tsur.
-
 ## 9:41
 
 Geura indit aranjeun (pikeun perang) rék dina kaayaan boga rasa hampang atawa boga rasa beurat, sarta geura der jihad ku harta-harta aranjeun jeung ku diri-diri aranjeun dina jalan Allah! Éta téh leuwih alus pikeun aranjeun, lamun seug aranjeun nyaho.
@@ -5902,8 +5112,6 @@ Geura indit aranjeun (pikeun perang) rék dina kaayaan boga rasa hampang atawa b
 ## 9:42
 
 Saupama (pangajak hidep ka maranéhna téh) kauntungan anu gampang dipimeunang jeung lalampahan nu teu pati jauh, tangtu maranéhna téh nurut ka hidep, tapi (maranéhna nolak sabab) tempat nu dituju téh karasa jauh pisan pikeun maranéhna. Maranéhna bakal sumpah kalawan (nyebut jenengan) Allah, “Demi Allah, upami abdi sadaya kawasa, tinangtos angkat ngiring perang sareng aranjeun.” Maranéhna geus nyilakakeun dirina sorangan. [^396] Allah uninga yén sabenerna maranéhna téh jalma-jalma anu bohong.
-
-[^396]: Maranéhna bakal musnah jeung ancur akibat sumpah bohongna.
 
 ## 9:43
 
@@ -5932,8 +5140,6 @@ Tetela saméméhna ogé maranéhna téh geus néangan kakacowan, jeung maranéhn
 ## 9:49
 
 Ti antara maranéhna aya jalma nu nyarita kieu, “Mugi hidep (Muhammad) ngawidian ka kuring (teu ngiring perang), sinareng mugi anjeun ulah nibankeun pitnah ka sim kuring.” Kanyahokeun yén puguh maranéhna téh geus ragrag kana jero pitnah. [^397] Sabenerna (naraka) Jahanam téh bakal ngawengku ka jalma-jalma kapir.
-
-[^397]: Aya sababaraha jalma munapék nu teu daék ilu-biung perang ka wewengkon Tabuk (nu aya di handapeun kakawasaan bangsa Romawi). Alesanana, maranéhna sieun kagoda ku mojang-mojang geulis urang Romawi. Mangka, ieu ayat turun pikeun ngabongkar rasiah haté maranéhna nu sabenerna, yén teu daékna ilu-biung perang ka wewengkon Tabuk téh dasarna mah lemah imanna. Tah paripolah maranéhna nu modél kieu téh bisa disebut pitnah.
 
 ## 9:50
 
@@ -5979,8 +5185,6 @@ Lamun seug maranéhna bener-bener rido mah kana sagala rupa nu geus dipaparinkeu
 
 Sabenerna sidekah (jakat) téh ngan wungkul (dibagikeun) pikeun jalma-jalma pakir, jalma-jalma miskin, para amil, jalma-jalma nu dililindeuk haténa (para mualap), pikeun (ngamerdikakeun) budak beulian, pikeun (ngabébaskeun) jalma-jalma nu boga hutang, pikeun (jalma-jalma nu) berjuang di jalan Allah, jeung ka (jalma-jalma) nu keur lalampahan jauh (anu ngabutuhkeun pitulung). Éta téh kawajiban ti Allah. Allah téh Mahauninga (tur) Mahawijaksana. [^398]
 
-[^398]: Nu boga hak pikeun narima jakat téh nyaéta: (1) jalma-jalma pakir, nyaéta jalma-jalma anu sangsara dina hirupna, teu ngabogaan harta atawa tanaga pikeun minuhan kabutuhan hirupna, (2) jalma-jalma miskin, nyaéta jalma-jalma nu teu matak cukup dina minuhan kabutuhna, aya dina kakurangan, (3) Amil (nu nguruskeun) jakat, nyaéta jalma-jalma nu dibéré tugas pikeun ngumpulkeun, ngurus, jeung ngabagikeun jakat ka anu hakna, (4) Mualap, nyaéta jalma-jalma nu asalna kapir asup Islam tapi kaimanana masih lemah tur butuh dibébérah ku jakat supaya kuat kaimanana ku dicukupan kabutuhanana, (5) Budak-budak nu dimerdikakeun, nyaéta budak-budak nu aya dina tawanan musuh tuluy dileupaskeun tur dimerdikakeun ku éta harta jakat, (6) jalma-jalma nu kabeulit hutang, nyaéta jalma-jalma nu kabeulit hutangna téh lain ku alatan ludes sabab migawé ma’siat tur teu sanggup pikeun mayar éta hutang, (7) fī sabīlillāh (di jalan Allah), nyaéta lumampah pikeun kaperluan nanjeurkeun agama. Mimitina mah asnāf nu ieu sok dikaitkeun kana lumampah ngajugjug kana peperangan pikeun mertahankeun agama. Aya ogé ahli tapsir anu ngama’naan “pikeun ngawangun sakola agama (madrasah), pasantrén, jeung sabangsana”, (8) Ibn sabīl, nyaéta jalma anu keur aya di pangumbaraan (lumampah kaluar ti imah), tapi lain keur migawé ma’siat.
-
 ## 9:61
 
 Sabagian ti maranéhna (kaom munapék) aya jalma-jalma anu milaraan ka Nabi jeung nyebutkeun kieu, “Nabi sok percaya kana naon baé anu didéngé (sadéng-déngéna).” Carioskeun ku hidep, “(Muhammad téh) cepil nu alus keur aranjeun. Anjeunna iman ka Allah, percayaeun ka jalma-jalma nu iman, jeung jadi rahmat pikeun jalma-jalma nu iman ti antara aranjeun.” Jalma-jalma nu milaraan ka utusan Allah tangtu bakal meunang siksaan nu kacida nyerina.
@@ -6021,8 +5225,6 @@ Allah geus ngancam ka jalma-jalma munapék, boh lalakina boh awéwéna, jeung ka
 
 Naha can datang ka maranéhna béja penting ngeunaan jalma-jalma nu saméméh maranéhna, (nyaéta) kaom Nuh, ‘Ad, Samud, kaom Ibrahim, urang nagri Madyan, jeung (kaom Lut anu) nagri-nagrina nu geus diancurkeun? [^399] Geus datang ka maranéhna rasul-rasul Mantenna kalayan nyandak katerangan-katerangan anu nyata. Allah henteu pisan-pisan rék ngadoliman ka maranéhna, tapi maranéhna sorangan nu ngadoliman ka dirina sorangan.
 
-[^399]: ‘Ad téh kaom Nabi Nuh a.s. Ṡamud téh kaom Nabi Soléh a.s. Ari pangeusi nagri Madyan nyaéta kaom nabi Su’eb a.s. Sementara kaom nu diancurkeun dina ayat ieu maksudna kaom nabi Lut a.s.
-
 ## 9:71
 
 Jalma-jalma anu iman, boh lalakina boh awéwéna, sabagianana téh (nyaéta) jadi anu nulungan ka nu sabagianana deui. Aranjeunna nitah migawé kahadéan, nyegah migawé kagoréngan, ngadegkeun salat, ngaluarkeun jakat, jeung taat ka Allah tur ka Rasul-Na. Aranjeunna téh anu bakal dipaparinan rahmat ku Allah. Saleresna Allah mah Mahaperkasa (tur) Mahawijaksana.
@@ -6038,8 +5240,6 @@ Hé Nabi, geura der jihad (ngalawan) jalma-jalma kapir jeung jalma-jalma munapé
 ## 9:74
 
 Maranéhna (jalma-jalma munapék) sumpah ku (jenengan) Allah, yén maranéhna henteu kungsi ngucapkeun (omongan anu matak nganyerikeun ka hidep), padahal tétéla maranéhna geus ngucapkeun éta omongan kakapiran (ku jalan nyawad hidep) jeung (ku sabab kitu) jadi kapir sanggeus (asup) Islam. Maranéhna mikahayang kana naon anu ku henteu kahontal ku maranéhna. [^400] Maranéhna moal nyawad (hidep) lamun Allah jeung Rasul-Na geus nganugrahakeun kurnia-Na ka maranéhna. Mangka, lamun seug maranéhna tobat, tangtu éta téh leuwih alus pikeun maranéhna. Tapi lamun maranéhna ngabalieur, tangtu Allah bakal nyiksa ka maranéhna ku siksaan nu pohara nyerina di dunya jeung ahérat. Maranéhna moal bakal boga nu nangtayungan jeung nu bakal nulungan di ieu bumi.
-
-[^400]: Maranéhna hayang pisan ngarogahala Nabi Muhammad Saw. anu éta kahayang téh pastina moal bisa kahontal ku maranéhna.
 
 ## 9:75
 
@@ -6077,8 +5277,6 @@ Ku sabab kitu, keun baé maranéhna sina seuri saeutik (di dunya) jeung sina ceu
 
 Upami Allah mulangkeun hidep ka hiji golongan ti antara maranéhna (jalma-jalma munapék), tuluy maranéhna ménta idin ka hidep pikeun kaluar (indit milu perang), nya pok caritakeun ku hidep, “Maranéh teu meunang babarengan kaluar jeung kuring salilana, jeung teu meunang merangan musuh babarengan jeung kuring deui. Sabenerna maranéh leuwih suka cicing ti mimiti ogé. Ku lantaran kitu, dariuk baé (cicing) maranéh mah babarengan jeung anu teu marilu perang!” [^401]
 
-[^401]: Saréngséna perang Tabuk, Nabi Muhammad Saw. teras mulih deui ka Madinah. Di Madinah anjeunna pendak jeung jalma-jalma munapék nu teu milu perang Tabuk. Maranéhna ménta ijin ka anjeunna rék ngilu perang dina peperangan engkéna mah. Lajeng anjeunna nolak kana éta paménta sabab maranéhna di awalna ogé teu hayangeun ilu-biung perang.
-
 ## 9:84
 
 Omat hidep (Muhammad) salawasna ulah nyolatan (layon) salah saurang anu maot ti antara maranéhna (jalma-jalma munapék), jeung hidep ulah nangtung (ngadoakeun) di luhur kuburanana. Sabenerna maranéhna geus kupur ka Allah jeung Rasul-Na sarta maot dina kaayaan pasék.
@@ -6091,13 +5289,9 @@ Omat harta banda jeung anak-anak maranéhna ulah matak ngajadikeun hidep kabongr
 
 Lamun seug diturunkeun hiji surat (nu maréntahkeun ka jalma munapék), “Geura iman ka Allah jeung jihad babarengan jeung Rasul-Na”, tangtu jalma-jalma anu sanggup ogé ti antara maranéhna ménta idin ka hidep (pikeun teu milu jihad), jeung maranéhna ngomong, “Mugi abdi sadaya mah dikantunkeun baé ku anjeun nyarengan jalma-jalma nu cicing aya di imah.” [^402]
 
-[^402]: Jalma-jalma nu teu ngilu perang sasarengan Nabi Muhammad Saw.
-
 ## 9:87
 
 Maranéhna resep babarengan jeung nu henteu milu perang. [^403] Haténa geus dikonci nepi ka teu ngarti.
-
-[^403]: Jalma-jalma nu henteu milu perang téh nyaéta istri-istrina para sahabat, jalma-jalma anu teu damang, jalma-jalma anu héngkér, jeung sabangsana.
 
 ## 9:88
 
@@ -6119,8 +5313,6 @@ Henteu matak jadi dosa (lantaran teu indit jihad) ka jalma-jalma nu lemah, nu ge
 
 Henteu (ogé matak jadi dosa) pikeun jalma-jalma nu dina waktu aranjeunna datang ka hidep sangkan ku hidep dibéré tutumpakan, tuluy hidep nyarita, “Kuring henteu boga tutumpakan pikeun mawa aranjeun.” Tuluy aranjeunna indit bari nyurucud cipanonna lantaran nalangsa sabab aranjeunna henteu manggih harta anu bisa diinpakkeun (pikeun miluan perang). [^404]
 
-[^404]: Aranjeunna sedih ku lantaran teu aya nu tiasa dibalanjakeun, boh harta boh kandaraan, pikeun ngabiayaan perang.
-
 ## 9:93
 
 Sabenerna hiji-hijina jalan (keur nyalahkeun) mah ngan ka jalma-jalma anu ménta idin ka hidep (teu miluan perang) padahal maranéhna beunghar. Maranéhna leuwih suka babarengan jeung anu teu milu perang. Allah geus ngonci haténa nepi ka maranéhna henteu nyahoeun.
@@ -6133,8 +5325,6 @@ Maranéhna (jalma-jalma munapék nu teu ngilu perang) bakal nyieun-nyieun alesan
 
 Éngke maranéhna bakal susumpahan ka aranjeun kalayan (nami) Allah waktu aranjeun balik ka maranéhna supaya aranjeun henteu ngabalieur ti maranéhna. [^405] Atuh, prak baé aranjeun ngabalieur ti maranéhna lantaran sabenerna maranéhna téh (jiwana) kotor, jeung tempat pangbalikan maranéhna téh (naraka) Jahanam minangka wawales tina sagala anu geus diupayakeun ku maranéhna.
 
-[^405]: Supaya aranjeun teu nyawad maranéhna.
-
 ## 9:96
 
 Maranéhna bakal susumpahan ka aranjeun supaya aranjeun rido ka maranéhna. Tapi, saupama aranjeun rido (ogé) ka maranéhna, sabenerna Allah mah moal rido ka jalma-jalma nu pasék.
@@ -6142,10 +5332,6 @@ Maranéhna bakal susumpahan ka aranjeun supaya aranjeun rido ka maranéhna. Tapi
 ## 9:97
 
 Urang Arab Badewi [^406] téh pohara leuwih kuat kupurna jeung munapékna, sarta leuwih wajar henteu ngarti kana batas-batas (katangtuan) nu diturunkeun ku Allah ka Rasul-Na. [^407] Allah téh Mahauninga (tur) Mahawijaksana.
-
-[^406]: Nyaéta urang Arab nu netepna di padang pasir nu kaayaan kahirupanana salilana pipindahan, samisal kabilah Kaom Asad, kaom Bani Tamim, jeung Gatfan.
-
-[^407]: Ceuk sabagian ahli tapsir, hal éta téh disebabkeun sipat gumedé jeung teu ngabogaan tatakrama. Maranéhna jauh ti para ulama tur jauh tina pangarti Al-Qur’an jeung Hadis.
 
 ## 9:98
 
@@ -6155,23 +5341,13 @@ Ti antara urang Arab Badewi téh aya nu nganggap yén sagala rupa anu diinpakkeu
 
 Ti antara urang Arab Badewi aya nu iman ka Allah jeung kana Poé Ahir. [^408] Maranéhna nganggap yén sagala nu diinpakkeun (di jalan Allah) ku maranéhna téh minangka (cukang lantaran) pikeun ngadeukeutkeun diri ka Allah jeung (cukang lantaran pikeun meunang) doa-doa Rasul. Kanyahokeun yén sabenerna (inpak) téh (mangrupa hiji jalan) pikeun ngadeukeutkeun diri (ka Allah). Engké Allah bakal ngasupkeun maranéhna kana rahmat (sawarga)-Na. Saleresna Allah Mahajembar Panghampura (tur) Mahawelas.
 
-[^408]: Saperti kabilah Juhainah jeung kabilah Mujainah.
-
 ## 9:100
 
 Jalma-jalma nu ti heula tur nu awal (asup Islam) ti kaom Muhajirin tur kaom Ansor [^409] jeung jalma-jalma nu nuturkeun ka aranjeunna kalayan hadé, [^410] nya Allah bakal ngaridoan ka aranjeunna jeung aranjeunna ogé mikarido ka Allah. Allah nyayagikeun pikeun aranjeunna sawarga-sawarga nu di handapeunana cur-cor walungan-walungan. Aranjeunna bakal langgeng di jerona salawasna. Éta téh mangrupakeun kaunggulan nu agung.
 
-[^409]: Anu nyaksian Perang Badar.
-
-[^410]: Nyaéta sakabéh sahabat, tabi’in, jeung umat anu nuturkeunana kalayan ihlas.
-
 ## 9:101
 
 Ti antara urang Arab Badewi anu (cicing) di sakuriling aranjeun [^411] aya jalma-jalma munapék. (Nya kitu ogé) ti sawaréhna warga Madinah (aya jalma-jalma munapék). Maranéhna kabina-bina dina kamunapékanana téh. Hidep (Muhammad) mah moal nyaho, tapi Kami mah nyaho. Kami bakal nyiksa ka maranéhna dua kali, [^412] tuluy maranéhna bakal dibalikkeun kana siksaan nu gedé.
-
-[^411]: Urang Arab padusunan nu netep di sakuriling Madinah.
-
-[^412]: Ceuk sabagian ahli tapsir, ma’na “marratain” téh negeskeun kana harti nu loba. Upama dihartikeun “dua kali”, mangka maksudna téh nyaéta siksaan di dunya mangrupa dicap jalma munapék jeung siksaan di alam kubur.
 
 ## 9:102
 
@@ -6180,10 +5356,6 @@ Ti antara urang Arab Badewi anu (cicing) di sakuriling aranjeun [^411] aya jalma
 ## 9:103
 
 Prak cokot jakat ti sabagian harta maranéhna pikeun ngabersihkeun [^413] jeung nyucikeun [^414] maranéhna, sarta doakeun maranéhna sabab sabenerna doa hidep mangrupakeun katengtremen pikeun maranéhna. Allah téh Maha Ngadangu (tur) Mahauninga.
-
-[^413]: Jakat téh ngabersihan manéhna tina panyakit medit jeung panyakit mikacinta nu kaleuleuwihi kana harta banda.
-
-[^414]: Jakat téh nyuburkeun sipat-sipat kahadéan dina haté sarta mekarkeun harta banda.
 
 ## 9:104
 
@@ -6201,8 +5373,6 @@ Aya (ogé) jalma-jalma nu séjénna nu diengkékeun (walesanana) ngantosan kaput
 
 (Ti antara jalma-jalma munapék téh) aya nu ngadegkeun masjid pikeun nimbulkeun kamadaratan (ka jalma-jalma mu’min), (nyebabkeun) kakapiran, ngabengkahkeun antara kaom mu’minin, jeung nunggu datangna jalma-jalma nu ti baheulana geus merangan Allah jeung Rasul-Na. [^415] Maranéhna kalawan pasti bakal susumpahan kieu, “Kuring saréréa teu aya maksud naon-naon kajaba ngamaksud hadé.” Allah nyaksian yén sabenerna maranéhna téh jalma-jalma bohong (dina sumpahna).
 
-[^415]: Jalma nu geus nantang ka Allah jeung Rasul-Na ti barétona nyaéta hiji pandita Nasrani nu ngaranna Abu ‘Amir, anu didago-dago kadatanganana ku kaom muslimin. Tapi Abu ‘Amir teu jadi datang, kaburu maot di Syria. Éta masjid anu diadegkeun ku kaom munapék téh diruksak kalayan piwarangan ti Rasulullah Saw. lantaran wahyu nu ditampi sanggeusna anjeunna mulih tina Perang Tabuk.
-
 ## 9:108
 
 Omat hidep ulah ngadegkeun salat di jero (éta masjid nu diwangun ku jalma-jalma munapék téa) salilana. Sabenerna masjid anu diadegkeun kalayan dasar katakwaan ti poé awalna kénéh éta leuwih hak pikeun hidep ngadegkeun salat di jerona. Di jerona aya jalma-jalma anu resep ngabersihkeun diri. Allah mah cinta ka jalma-jalma anu ngabersihkeun diri.
@@ -6214,8 +5384,6 @@ Ku sabab kitu, naha jalma-jalma anu ngadegkeun wangunan (masjid) kalayan dasar k
 ## 9:110
 
 Wangunan anu diadegkeun ku maranéhna téh sok jadi sabab kamangmangan (kamunapékan) dina jero haténa nepi ka haténa ancur. [^416] Allah mah Mahauninga (tur) Mahawijaksana.
-
-[^416]: Nyaéta dina mangsa geus leungit rasa. Aya ogé nu napsirkeun: Di mana maranéhna teu bisa tobat deui.
 
 ## 9:111
 
@@ -6237,8 +5405,6 @@ Anapon paméntaan hampura ti Ibrahim (ka Allah) pikeun ramana, taya lian lantara
 
 Allah moal pisan-pisan nyasarkeun ka hiji kaom sanggeus Mantenna maparin pituduh ka maranéhna nepi ka Mantenna nerangkeun ka maranéhna kana sagala anu kudu dijauhan ku maranéhna. Saleresna Allah Mahauninga kana sagala perkara. [^417]
 
-[^417]: Ieu ayat diturunkeun patalian jeung kasieunan kaom muslim anu geus mangméntakeun panghampura pikeun karabat-karabatna anu musrik.
-
 ## 9:116
 
 Sabenerna mung kagungan Allah karajaan langit jeung bumi. Mantenna nu (kawasa) ngahirupkeun jeung ngamaotkeun. Moal pisan-pisan aya nu nangtayungan jeung maparin pitulung salian ti Allah.
@@ -6247,13 +5413,9 @@ Sabenerna mung kagungan Allah karajaan langit jeung bumi. Mantenna nu (kawasa) n
 
 Saleresna Allah geus nampi tobat Nabi, [^418] kaom Muhajirin, jeung kaom Ansor anu tumut ka Nabi dina mangsa susah, sanggeus haté sabagian jalma ampir-ampiran nyimpang, (nangin) Allah nampi tobat aranjeunna. Saleresna Allah Mahadeudeuh (tur) Mahaasih ka aranjeunna.
 
-[^418]: Sababna Nabi geus ngawidian kaom munapék teu miluan perang.
-
 ## 9:118
 
 Pikeun tilu jalma [^419] anu ditinggalkeun (jeung diengkékeun ditarima tobatna) nepi ka bumi téh karasa heurin pikeun maranéhna, padahal apan bumi téh lega, jeung jiwana (ogé karasa) heurin pikeun dirina, sarta maranéhna nyahoéun yén geus teu aya deui tempat lumpat tina (siksa) Allah iwal ka Mantenna wungkul. Tuluy (sanggeus éta kabéh) Allah nampi tobat maranéhna sangkan tetep aya dina tobatna. Saleresna Allah mah Maha Nampi-tobat (tur) Mahaasih.
-
-[^419]: Nyaéta Ka’ab bin Malik, Hilal bin Umayyah, jeung Murarah bin Rabi’. Maranéhna disalahkeun lantaran nolak miluan perang.
 
 ## 9:119
 
@@ -6267,8 +5429,6 @@ Henteu pantes keur jalma-jalma anu nyicingan Madinah jeung urang Arab Badewi nu 
 
 Aranjeunna henteu pati-pati ngainpakkeun (harta), boh leutik boh gedé, jeung teu pati-pati mapai hiji léngkob (pikeun jihad), [^420] anging dicatet pikeun aranjeunna (jadi amal soléh), supaya diwales ku Allah kalayan (ganjaran) anu leuwih hadé tinimbang sagala anu dipilampak ku aranjeunna.
 
-[^420]: Aranjeunna leumpang mapai léngkob ti inditkeun nepi ka balikkeun pikeun jihad di jalan Allah.
-
 ## 9:122
 
 Henteu sakuduna sakabéh jalma-jalma mu’min indit (ka tempat perang). Naha henteu aya anu indit sabagian ti unggal golongan pikeun neuleuman élmu agama, sangkan bisa méré pépéling ka kaomna dina waktu maranéhna mulang deui, sangkan maranéhna bisa ngaraksa diri.
@@ -6281,19 +5441,13 @@ Hé jalma-jalma anu iman, prak geura perangan jalma-jalma kapir anu aya di sabud
 
 Lamun hiji surah (dina Al-Qur’an) diturunkeun, ti antara maranéhna (jalma-jalma munapék) aya nu ngomong kieu, [^421] “Saha ti antara aranjeun anu tambah-tambah imanna ku sabab turunna éta surat?” Anapon pikeun jalma-jalma anu iman mah, (surat anu turun) téh pasti nambah imanna jeung aranjeunna ngarasa bungah.
 
-[^421]: Maksudna pikeun ngahinakeun.
-
 ## 9:125
 
 Anapon (pikeun) jalma-jalma anu dina haténa aya panyakit mah, [^422] (éta surah anu turun téh) bakal nambahan kakapiranana anu geus aya, jeung maranéhna bakal paéh dina kaayaan kapir.
 
-[^422]: Maksudna panyakit batiniah.
-
 ## 9:126
 
 Naha maranéhna (jalma-jalma munapék) henteu niténan yén sabenerna maranéhna téh ditibanan cocoba [^423] dina saban taun sakali atawa dua kali, tapi maranéhna henteu (ogé daék) tobat jeung henteu daék nyokot atikan?
-
-[^423]: Nu dimaksud cocoba téh nyaéta musibah-musibah nu tumiba ka maranéhna, saperti kabuka tipu muslihatna jeung sipatna nu sok jalir kana jangji.
 
 ## 9:127
 
@@ -6311,8 +5465,6 @@ Upama maranéhna ngabalieur (tina kaimanan), atuh pok ucapkeun baé ku hidep, �
 
 Alif Lām Rā. [^424] Éta téh ayat-ayat kitab (Al-Qur’an) anu ngandung hikmah.
 
-[^424]: Tingal catetan kaki surat al-Baqarah/2:1.
-
 ## 10:2
 
 Naha pantes jadi perkara nu ngahérankeun ka manusa yén Kami geus ngawahyukeun ka hiji lalaki (Muhammad) ti antara maranéhna (nyaéta), “Geura béré pépéling ka manusa jeung geura bubungah jalma nu iman (ku béja) yén aranjeunna ngabogaan kalungguhan nu luhur di mungguhing Pangéranana.” Jalma-jalma kapir nyarita kieu, “Sabenerna manéhna (Muhammad) mah tukang sihir anu nyata.”
@@ -6321,8 +5473,6 @@ Naha pantes jadi perkara nu ngahérankeun ka manusa yén Kami geus ngawahyukeun 
 
 Sabenerna Pangéran aranjeun téh Allah nu nyiptakeun langit jeung bumi dina genep mangsa, tuluy Mantenna istiwā’ di luhureun \`Arasy [^425] pikeun ngatur sadaya urusan. Moal aya saurang ogé nu bakal nyapa’atan kajaba sanggeus aya widi ti Mantenna. Éta téh Allah, Pangéran aranjeun. Ku kituna, prak geura ibadah ka Mantenna! Naha maranéh téh henteu nyokot atikan?
 
-[^425]: Tingal catetan kaki surat al-A\`raf/7:44
-
 ## 10:4
 
 Mung ka Mantenna aranjeun kabéh bakal mulang téh. Éta téh jangji Allah anu bener tur pasti. Sabenerna nya Mantenna nu nyiptakeun mahluk ti mimiti kénéh, tuluy Mantenna mulangkeun (ngahirupkeun) deui (sanggeus hudang ti kubur) supaya Mantenna maparin ganjaran ka jalma-jalma nu iman jeung ngadamel amal soléh kalayan adil. Sedengkeun pikeun anu kupur mah (disadiakeun) inuman nu ngagolak pisan jeung siksaan nu kacida peurihna ku sabab maranéhna terus-terusan kapir.
@@ -6330,8 +5480,6 @@ Mung ka Mantenna aranjeun kabéh bakal mulang téh. Éta téh jangji Allah anu b
 ## 10:5
 
 Mantenna nu ngajadikeun panonpoé moncorong jeung bulan cahayaan. Mantenna nu netepkeun tempat-tempat orbitna éta (bulan) supaya aranjeun nyaho wilangan taun jeung itungan (waktuna). Allah teu pati-pati ngajadikeun éta kabéh anging kalayan ḥaq. [^426] Mantenna ngajelaskeun tanda-tanda (kaagungana-Na) kalayan rinci pikeun kaom nu ngarti.
-
-[^426]: Allah ngajadikeun sakabéh nu disebutkeun téh teu percumah, tapi kalayan pinuh hikmah.
 
 ## 10:6
 
@@ -6353,10 +5501,6 @@ Sabenerna jalma-jalma nu iman jeung migawé amal soléh, tangtu Pangéran bakal 
 
 Doa [^427] aranjeunna di jero sawarga téh nyaéta subḥānakallāhuma (Mahasuci Gusti, nun Pangéran abdi sadaya). Panghormatan aranjeunna di sawarga téh nyaéta (ucapan) salām. [^428] Doa pamungkasna téh nyaéta alḥamdu lillāhi rabbil ‘ālamīn (sagala puji kagungan Allah, Pangéran sakumna alam).
 
-[^427]: Puja jeung puji aranjeunna téh wungkul disanggakeun ka Allah.
-
-[^428]: Salamet tina sagala bahaya.
-
 ## 10:11
 
 Upami Allah ngaénggalkeun dikabulkeunana kagoréngan manusa, sakumaha maranéhna ngaburu-buru dikabulkeunana kahadéan, tangtu ajal maranéhna dipungkasan. Tapi, Kami ngantep jalma-jalma nu teu miharep kana papanggih jeung Kami (di ahérat) sina mandeg-mayong dina kasasaranana.
@@ -6373,15 +5517,9 @@ Tétéla Kami geus ngabinasakeun generasi nu saméméh maranéh (hé kapir Mekah
 
 Tuluy Kami ngajadikeun maranéh jadi gaganti di bumi sanggeus maranéhna (dibinasakeun), supaya Kami bisa niténan [^429] kumaha maranéh milampah (naha milampah kahadéan atawa kagoréngan?)
 
-[^429]: Kecap “niténan” nu dinisbatkeun ka Allah téh mangrupakeun majāz.
-
 ## 10:15
 
 Nalika dibacakeun ayat Kami ka maranéhna kalayan jelas, jalma-jalma nu teu miharep patepung jeung Kami (di ahérat) mah nyarita kieu, “Sok atuh geura ngadatangkeun Al-Qur’an nu salian ti ieu [^430] atawa ganti (sakalian éta Al-Qur’an) téh!” [^431] Pék caritakeun ku hidep (Muhammad), “Henteu pantes pikeun kuring ngarobah éta (Al-Qur’an) sakahayang sorangan. Kuring henteu tumut kajaba kana sagala nu geus diwahyukeun ka kuring. Saenyana kuring sieun ku siksaan dina poé anu rongkah (Poé Kiamat) upama ngarempak ka Pangéran kuring.”
-
-[^430]: Coba geura datangkeun Kitab nu anyar pikeun dibaca ku urang saréréa nu eusina teu aya nyabit-nyabit dihudangkeun tina jero kubur.
-
-[^431]: Pék geura ganti ayat-ayat nu nerangkeun siksaan téh ku ayat-ayat nu nerangkeun rahmat, jeung nu nyempad sesembahan kuring saréréa diganti ku nu muji-muji sesembahan kuring saréréa.
 
 ## 10:16
 
@@ -6398,8 +5536,6 @@ Maranéhna nyembah ka salian ti Allah nu teu bisa ngadatangkeun kamadaratan jeun
 ## 10:19
 
 Saenyana manusa téh baheulana mah umat anu ngahiji (dina kataohidan), tuluy maranéhna pasalia paham. Saupama teu aya katangtuan nu ti heula ti Pangéran hidep, [^432] tangtu ti antara maranéhna geus dibéré kaputusan (siksa di dunya) ku sabab naon nu geus dipasalia-pahamkeun ku maranéhna.
-
-[^432]: Nyaéta katangtuan yén pasalia paham manusa di dunya téh bakal diputuskeun di ahérat.
 
 ## 10:20
 
@@ -6421,8 +5557,6 @@ Tapi sanggeus Mantenna nyalametkeun maranéhna, justru maranéhna kalah ka nyieu
 
 Sabenerna kahirupan dunya téh saperti cai (hujan) nu ku Kami diturunkeun ti langit, tuluy tuwuh pepelakan nu subur (ku sabab cai éta). Ti antarana aya nu sok didahar ku manusa jeung sasatoan, nepi ka upama bumi geus sampurna kaéndahanana jeung maké hiasan, [^433] sarta nu marelakna nyangka yén manéhna pasti bakal ngawasa kana éta bumi (metik hasilna), ujug-ujug tumiba siksa Kami ti peuting atawa ti beurang, tuluy ku Kami (éta pepelakan) téh dibinasakeun, nepi ka saperti can kungsi aya pepelakan saméméhna. Nya kitu Kami ngajelaskeun tanda-tanda kakawasaan (Kami) kalayan rinci pikeun kaom anu mikir.
 
-[^433]: Bumi nu éndah dihiasan ku gunung-gunung. Léngkob-léngkobna héjo ngéplok ku pepelakan.
-
 ## 10:25
 
 Allah ngajak (manusa) ka Dārussalām (sawarga), sareng maparin pituduh ka saha baé nu dikersakeun ku Mantenna kana jalan nu lempeng (agama Islam)
@@ -6442,8 +5576,6 @@ Jalma-jalma anu ngupayakeun kagoréngan (meunang) wawales sabanding jeung kagor�
 ## 10:29
 
 Cekap Allah nu janten saksi antara kuring saréréa jeung maranéh (kaom musrikin), yén sabenerna kuring saréréa mah teu tanggung jawab kana pagawéan maranéh nyembah (ka kuring).” [^434]
-
-[^434]: Sabab éta sesembahan téh mangrupakeun banda paéh nu euweuh rohan. Maranéhna teu bisa nempo, ngadéngé, tur mikir.
 
 ## 10:30
 
@@ -6713,8 +5845,6 @@ Omat hidep ulah pisan-pisan jadi golongan jalma-jalma anu ngabohongkeun kana aya
 
 Sabenerna jalma-jalma anu geus dipastikeun meunang katangtuan [^435] Pangéran hidep, maranéhna moal daékeun iman.
 
-[^435]: Jalma-jalma nu geus ditetepkeun ku Allah takdirna di Loh Mahpud, yén maranéhna bakal paéh dina kakapiran jeung salawasna ogé moal rék iman.
-
 ## 10:97
 
 Sok sanajan sagala tanda-tanda (kaagungan Allah) datang ka maranéhna, (maranéhna moal daék iman) nepi ka maranéhna nyaksian siksaan anu kacida nyerina.
@@ -6771,10 +5901,6 @@ Kudu tumut hidep kana sagala anu diwahyukeun ka hidep, jeung kudu sabar nepi ka 
 
 Alif Lām Mīm Rā. [^436] (Ieu téh) hiji Kitab anu ayat-ayatna disusun kalayan tartib, tuluy dijelaskeun kalayan diwincik [^437] (anu diturunkeun) ti mungguhing (Allah) Nu Mahawijaksana (tur) Mahauninga.
 
-[^436]: Tingal catetan kaki surat al-Baqarah/2:1.
-
-[^437]: Dibagi kana sababaraha rupa: Aya nu eusina ngeunaan kataohidan, hukum, kisah, ahlak, élmu-panemu, jangji, pépéling, jeung sajabana.
-
 ## 11:2
 
 Pék caritakeun ku hidep (Muhammad), “Omat aranjeun ulah rék nyembah (naon baé) salian ti Allah. Sabenerna kuring (Muhammad) nu méré pépéling jeung méré pangbubungah ti Mantenna ka aranjeun.
@@ -6795,13 +5921,9 @@ Sing inget yén sabenerna maranéhna nutupan (naon nu aya dina) dadana pikeun ny
 
 Teu aya hiji ogé mahluk anu kumelendang di luhureun bumi, anging Allah anu ngarejekianana. Mantenna uninga tempat padumukanana jeung tempat pamatuhanana. [^438] Sakabéhna (dicatet) dina Kitab anu nyata (Loh Mahpud).
 
-[^438]: Para ulama ahli tapsir kabagi kana dua kelompok. Aya nu nyarita yén “tempat cicing” di dieu dihartikeun alam dunya, sedengkeun “tempat pamatuhan” téh dihartikeun ahérat. Aya ogé anu nyarita yén “tempat cicing” téh maksudna tulang sulbi, sedengkeun “tempat pamatuhan” dihartikeun jero rahim.
-
 ## 11:7
 
 Mantenna anu nyiptakeun langit jeung bumi salila genep poé (mangsa), jeung (saméméhna) arsy-Na téh aya di luhureun cai. (Éta téh) sangkan Mantenna nguji aranjeun, saha ti antarana anu pangalus-alus amal. [^439] Saenyana upami hidep (Muhammad) nyarita (ka pangeusi Mekah), “Saenyana aranjeun bakal dihudangkeun deui sanggeus maot,” tangtu jalma-jalma kapir bakal nyarita kieu, “Ieu (Al-Qur’an) mah teu aya lian iwal ti sihir anu nyata.”
-
-[^439]: Allah nyiptakeun langit jeung bumi keur tempat padumukan jalma, tempat Allah nguji saha nu panghadé-hadé amalna.
 
 ## 11:8
 
@@ -6839,19 +5961,13 @@ Saha baé anu miharep kahirupan dunya jeung papaésna, tangtu Kami bakal méré 
 
 Éta téh jalma-jalma anu moal meunang naon-naon di ahérat salian naraka. Sia-sia sagala anu geus dipigawé ku maranéhna (di dunya) jeung mubadir sagala anu geus dipigawé ku maranéhna. [^440]
 
-[^440]: Naon baé nu geus dipigawé ku maranéhna moal aya ganjaranana engké di ahérat.
-
 ## 11:17
 
 Naha (jalma kapir nu miharep kahirupan dunya wungkul téh) sarua jeung jalma (mu’min) anu geus ngabogaan bukti anu nyata (Al-Qur’an) ti Pangéranana, anu dituturkeun deui ku hiji saksi [^441] ti Allah, tur nu ti saméméhna ogé geus aya Kitab Musa anu jadi padoman jeung rahmat, tur anu aranjeunna iman kana éta Kitab? Saha baé jalma ti antara maranéhna (urang Qurésy) jeung sarékat-sarékatna anu ingkar kana Al-Qur'an, nya naraka pisan tempat nu diancamkeun. Ku sabab kitu, ulah mangmang deui kana Al-Qur’an. Sabenerna Al-Qur’an téh bener-bener ti Pangéran hidep, tapi kalobaana mah jalma téh henteu iman.
 
-[^441]: Aya ulama tapsir anu ngahartikeun “saksi” dina ayat ieu ku malaikat Jibril a.s. Aya ogé anu nyebutkeun yén “saksi” di dieu maksudna Al-Qur’an, sabab Al-Qur’an téh Kitab anu teu bisa dibantah atawa dibatalkeun.
-
 ## 11:18
 
 Saha deui atuh nu leuwih dolim tibatan jalma anu nyieun-nyieun kabohongan ka Allah? Maranéhna bakal disinghareupkeun ka Pangéranana, tur para saksi [^442] bakal nyarita, “Tah jalma-jalma ieu nu geus ngabohong ka Pangéranana téh.” Sing inget yén la'nat Allah téh ditibankeun ka jalma-jalma anu dolim,
-
-[^442]: Maksud “saksi” dina ieu ayat téh nyaéta para malaikat, para nabi, tur anggahota awak-awakna sorangan.
 
 ## 11:19
 
@@ -6901,8 +6017,6 @@ Anjeunna (Nuh) nyarios. “Hé kaom kuring, kumaha pamadegan aranjeun upama kuri
 
 (Anjeunna nyarita) kieu, “Hé kaom kuring, saha anu bakal nulungan ka kuring tina siksa (Allah), lamun kuring ngusir aranjeunna (jalma-jalma anu iman)? Naha maranéh téh teu nyokot atikan? [^443]
 
-[^443]: Kalimah anu diucapkeun ku Nabi Nuh a.s. sawaktu anjeunna didesek ku kaom kapir pikeun ngusir jalma-jama iman nu héngkér tur miskin.
-
 ## 11:31
 
 Kuring henteu nyarita ka aranjeun yén kuring téh boga pependeman (rejeki) ti Allah. Kuring mah henteu nyaho ka nu gaib. Kuring henteu ogé nyarita yén saenyana kuring téh malaikat. Kuring henteu ogé nyarita ka jalma-jalma anu dianggap hina ku paningali aranjeun yén Allah moal sakali-kali ngadatangkeun kahadéan ka maranéhna. Allah langkung uninga kana sagala anu aya dina diri maranéhna. Upama kuring kitu, tangtu kuring téh kaasup jalma-jalma anu dolim.”
@@ -6943,8 +6057,6 @@ Mangka, engké aranjeun bakal nyaho saha (ti antara urang saréréa) nu bakal di
 
 Nepi ka waktu paréntah Kami (keur ngabinasakeun maranéhna) datang, jeung tanur (tungku) geus mancerkeun cai, [^444] Kami ngadawuh kieu ka anjeunna (Nuh), “Geura asupkeun kana parahu sakabéh sasatoan sajodo-sajodo jeung kulawarga anjeun, kajaba jalma-jalma anu geus kakeunaan katetapan ti heula (bakal cilaka). Taékeun ogé jalma-jalma anu iman.” Teu aya nu iman sasarengan anjeunna téh anging saeutik pisan.
 
-[^444]: Nu dimaksud “tanur” dina ieu ayat nyaéta bagian beungeut bumi nu mancerkeun atawa ngaluarkeun cai nu ngalantarankeun datangna angin topan.
-
 ## 11:41
 
 Anjeunna (Nuh) nyarios kieu, “Pék geura naraék kana ieu (parahu) kalayan (nyebat) jenengan Allah, dina waktu balayarna jeung waktu balabuhna. Saleresna Pangéran kuring téh leres-leres Maha Jembar-pangampura (tur) Mahaasih.”
@@ -6952,8 +6064,6 @@ Anjeunna (Nuh) nyarios kieu, “Pék geura naraék kana ieu (parahu) kalayan (ny
 ## 11:42
 
 Éta parahu téh lalayaran mawa aranjeunna dina gelombang ombak saperti gunung-gunung. Anjeunna (Nuh) nyauran putrana, [^445] sedengkeun putrana téh aya di tempat (jauh) anu mencil, “Hé anaking, geura tumpak kana ieu (parahu) jeung urang saréréa. Omat ulah babarengan jeung jalma-jalma kapir!”
-
-[^445]: Ngaranna nyaéta Qan’an. Putra-putrana Nabi Nuh nu iman anu asup kana parahu téh nyaéta Sam, Ham, jeung Japis.
 
 ## 11:43
 
@@ -6963,10 +6073,6 @@ Putrana ngajawab kieu, “Abdi mah rék néangan panyalindungan ka gunung anu ba
 
 Didawuhkeun (ku Allah), “Hé bumi, geura teureuy cai manéh! Hé langit, geura raat (nurunkeun cai hujan)!” Atuh éta hujan téh raat; Urusan (ngabinasakeun jalma-jalma nu doraka) ogé diréngsékeun; [^446] jeung éta (parahu) geus balabuh di luhur gunung Judiy. [^447] Didawuhkeun (ku Allah), “Kabinasaan pikeun kaom anu dolim.”
 
-[^446]: Allah parantos nedunan jangji-Na ka Nabi Nuh a.s. pikeun ngibinasakeun kaomna anu teu iman (kapir), tur nyalametkeun anu ariman
-
-[^447]: Gunung Judiy aya di wewengkon Arménia di beulah kulon, adek jeung nagri Mesopotamia.
-
 ## 11:45
 
 Lajeng anjeunna (Nuh) meredih ka Pangéranana, bari nyarios kieu, “Nun Gusti Pangéran abdi, saleresna pun anak téh kalebet kulawargi abdi, sareng saleresna jangji Gusti téh leres pisan. Gusti téh hakim anu pangadil-adilna.”
@@ -6974,8 +6080,6 @@ Lajeng anjeunna (Nuh) meredih ka Pangéranana, bari nyarios kieu, “Nun Gusti P
 ## 11:46
 
 Mantenna (Allah) ngadawuh, “Hé Nuh, saenyana manéhna téh lain kulawarga anjeun (nu geus dijangjikeun rék disalametkeun), sabab pagawéan manéhna téh bener-bener teu hadé. [^448] Ku sabab kitu, ulah meredih ka Kami tina sagala anu ku anjeun teu dipikanyaho (hakékatna). Sabenerna Kami geus nganaséhatan ka anjeun sangkan ulah kaasup jalma-jalma anu bodo.”
-
-[^448]: Sabagian ahli tapsir nyebutkeun yén nu dimaksad “milampah nu teu hadé” téh nyaéta panggero Nabi Nuh ka Allah supaya anakna dibébaskeun tina marabahaya.
 
 ## 11:47
 
@@ -7037,8 +6141,6 @@ Maranéhna salawasna dituturkeun ku la’nat di dunya jeung (kitu deui) dina Po�
 
 Ka Kaom Samud (Kami ngutus) dulur hidep, (nyaéta) Soléh. Anjeunna nyarios kieu, “Hé kaom kuring, pék geura nyembah ka Allah! Teu aya deui Pangéran salian ti Mantenna. Mantenna anu nyiptakeun aranjeun tina bumi (taneuh) jeung anu ngajadikeun aranjeun nu ngama’murkeunana. [^449] Ku sabab kitu, geura marénta panghampura ka Mantenna, tuluy tarobat deui ka Mantenna! Saleresna Pangéran kuring téh caket pisan (rahmat-Na) (tur) Maha Ngabulkeun (doa hamba-hamba-Na).”
 
-[^449]: Maksudna: Manusa diciptakeun ku Allah pikeun ngama’murkeun alam dunya.
-
 ## 11:62
 
 Maranéhna (Kaom Samud) ngomong kieu, “Hé Soléh, saméméh ieu anjeun téh bener-bener diharepkeun ku kuring saréréa. Naha (ayeuna) anjeun téh bet nyegah ka kuring sarérea pikeun nyembah naon nu salila ieu disembah ku karuhun kuring saréréa? Sabenerna kuring saréréa téh bener-bener aya dina kamangmangan anu ngaguligahkeun ngeunaan naon (agama) anu dibéwarakeun ku anjeun ka kuring saréréa.”
@@ -7055,8 +6157,6 @@ Hé kaom kuring, ieu onta bikang ti Allah mangrupakeun mujijat keur aranjeun. Ku
 
 Maranéhna tuluy meuncit éta onta. Ku kituna, anjeunna (Soléh) nyarita kieu, “Geura saruka-bungah di imah-imah aranjeun salila tilu poé. [^450] Éta téh jangji anu moal bisa dibohongkeun deui.”
 
-[^450]: Pagawéan maranéhna ngarogahala onta éta ngarempak cegahan ti Nabi Soléh. Ku sabab kitu, Allah nibankeun ka maranéhna hukuman jeung ngabates hirup maranéhna ngan tilu poé deui. Ieu téh mangrupakeun guguyon jeung hinaan ti Allah pikeun maranéhna. Maranéhna dititah suka-bungah dina mangsa tilu poé.
-
 ## 11:66
 
 Nalika kaputusan (siksa) Kami tumiba, Kami nyalametkeun Soléh jeung jalma-jalma nu iman sarta babarengan jeung anjeunna (tina kabinasaan) kalayan rahmat Kami, jeung (Kami nyalametkeun ogé) tina kahinaan dina éta poé. Saleresna Pangéran anjeun téh nya Mantenna pisan Nu Mahakuat (tur) Mahaperkasa.
@@ -7068,8 +6168,6 @@ Sora anu ngageleleger ogé nibanan ka éta jalma-jalma anu dolim, nepi ka maran�
 ## 11:68
 
 (Éta nagri teu aya tapakan sama sakali) saolah-olah maranéhna téh can kungsi matuh cicing di dinya. [^451] Sing inget yén sabenerna kaom Samud téh geus ingkar ka Pangéranana. Sing inget ogé yén kaom Samud téh geus binasa.
-
-[^451]: Nya jiga kitu téréhna maranéhna dibinasakeun ku éta sora nu ngageleger, nepi ka maranéhna ancur lebur taya tapakan. Saolah-olah maranéhna can kungsi cicing di dinya.
 
 ## 11:69
 
@@ -7107,19 +6205,13 @@ Hé Ibrahim, jauhan baé éta soal-jawab téh, sabab sabenerna geus datang kapas
 
 Nalika éta para utusan Kami (para Malaikat) datang ka Lut, anjeunna ngarasa guligah tur dadana ngara sumpek ku datangna éta (utusan-utusan). Tuluy anjeunna (Lut) nyarita, “Ieu téh poé anu pohara héséna.” [^452]
 
-[^452]: Nabi Lut ngaraos guligah ku kadatangan éta dua utusan Allah, sabab duanana téh pamuda anu kasép, sedengkeun kaomna hayangeun ka éta dua pamuda, pikeun diajak ngalakukeun homo-seksual. Lut ngaraos teu sanggup nangtayungan éta dua pamuda lamun aya gangguan ti kaomna.
-
 ## 11:78
 
 Kaomna gura-giru datang manggihan ka anjeunna (Lut). Ti baheula kénéh maranéhna geus biasa milampah pagawéan kotor. [^453] (Lut) nyarita, “Hé kaom kuring, ieu anak-anak awéwé (nagri) kuring. Maranéhna leuwih beresih pikeun aranjeun (pikeun ditikahan). Ku kituna, cing atuh kudu takwa ka Allah, jeung omat ulah ngotoran (ngaran) kuring di payuneun tamu kuring. Naha euweuh ti antara aranjeun saurang mah nu ngagunakeun akal?”
 
-[^453]: Ngalakukeun pagawéan ngadubur (homo-seksual).
-
 ## 11:79
 
 Maranéhna ngajawab, “Sabenerna anjeun pasti uninga yén kuring saréréa teu aya pisan kahayang (birahi) [^454] ka putri-putri (nagri) anjeun, jeung sabenerna anjeun ogé tangtu bener-bener uninga kana perkara anu dipikahayang ku kuring saréréa.”
-
-[^454]: Maranéhna teu boga napsu ka awéwé.
 
 ## 11:80
 
@@ -7137,8 +6229,6 @@ Mangka, waktu kaputusan (siksa) Kami tumiba, Kami ngajungkir-balikkeun (nagri ka
 
 (Éta batu-batu téh) dibéré tanda ti mungguhing Pangéran hidep. Éta siksa téh teu jauh ti jalma-jalma anu dolim. [^455]
 
-[^455]: Aya dua tapsir ngeunaan “teu jauh ti jalma-jalma dolim” dina ayat ieu. Tapsiran ka hiji, yén pasti sabab kadoliman nu dipilampah, maranéhna sakeudeung deui bakal meunang siksaan. Tapsiran nu kadua, yén teu jauh ti jalma-jalma dolim téh nyaéta teu jauh ti Mekah tempat ngancikna jalma-jalma nu dolim.
-
 ## 11:84
 
 Ka (pangeusi) nagri Madyan (Kami ngutus) dulur maranéhna, (nyaéta) Su’éb. Anjeunna nyarita, “Hé kaom kuring, geura ibadah ka Allah. Henteu aya deui Pangéran pikeun aranjeun iwal ti Mantenna! Omat ulah sok ngurangan takeran jeung timbangan! Sabenerna kuring nénjo aranjeun téh aya dina kaayaan anu alus (ma’mur). Sabenerna kuring ngarasa paur boh bisi aranjeun ditibanan siksa dina poé anu ngawengku (jeung matak ngbinasakeun, nyaéta Poé Kiamat).
@@ -7151,13 +6241,9 @@ Hé kaom kuring, sampurnakeun takeran jeung timbangan kalayan adil. Omat ulah r�
 
 Naon anu nyésa (tina kauntungan halal) nu dipasihkeun ku Allah [^456] éta leuwih hadé pikeun aranjeun lamun aranjeun mu’min mah. Kuring mah lain anu ngaraksa aranjeun.”
 
-[^456]: Nu dimaksud “sésa kauntungan ti Allah” téh nyaéta kauntungan anu halal tina hasil dagang sanggeus maranéhna nyampurnakeun timbangan jeung takeran.
-
 ## 11:87
 
 Maranéhna ngomong, “Hé Su’éb, naha salat (agama) anjeun nu nitah ka anjeun sangkan kuring saréréa ninggalkeun naon nu sok disembah ku karuhun kuring saréréa, atawa nyegah kuring saréréa ngurus harta nurutkeun cara nu dipikahayang ku kuring saréréa? (Naha bener kitu, padahal) sabenerna anjeun téh jalma anu kacida santun (tur) pinter.” [^457]
-
-[^457]: Ieu caritaan téh pikeun ngahina jeung ngageuhgeuykeun Nabi Su’éb.
 
 ## 11:88
 
@@ -7239,8 +6325,6 @@ Anapon jalma-jalma nu cilaka (pitempateunana) téh aya di jero naraka. Di dinya 
 
 Maranéhna langgeng di dinyana salila masih aya langit jeung bumi, [^458] kajaba upama Pangéran hidep ngersakeun (lian ti kitu). Sabenerna Pangéran hidep téh Maha Ngalaksanakeun anu dikersakeun ku Mantenna.
 
-[^458]: “Salila masih aya langit jeung bumi” téh mangrupa kalimat kiasan pikeun ngajelaskeun yén maranéhna langgeng di éta tempat. Urang Arab geus biasa negeskeun hiji perkara nu langgeng ku nyebut “sapanjang aya langit jeung bumi.”
-
 ## 11:108
 
 Anapon jalma-jalma anu bagja ayana téh di sawarga. Aranjeunna langgeng di dinyana salila masih aya kénéh langit jeung bumi, kajab upama Pangéran hidep ngersakeun (lian ti kitu). (Allah méré nugraha ka aranjeunna mangrupa) kurnia anu teu aya eureunna.
@@ -7249,15 +6333,9 @@ Anapon jalma-jalma anu bagja ayana téh di sawarga. Aranjeunna langgeng di dinya
 
 Ku kituna, hidep ulah mangmang ngeunaan naon anu disarembah ku maranéhna. [^459] Maranéhna téh teu nyembah anging saperti nyembahna karuhun-karuhunna baheula. Sabenerna Kami pasti bakal nyampurnakeun wawales ka maranéhna kalayan moal bakal dikurangan saeutik ogé.
 
-[^459]: Tong mangmang yén nyembah barhala téh pagawéan anu sasar tur goréng akibatna.
-
 ## 11:110
 
 Tétéla Kami geus maparinkeun kitab (Torét) ka Musa, tuluy eusina ku maranéhna dipacéngkadkeun. [^460] Lamun seug henteu aya papastén anu saméméhna ti Pangéran hidep, tangtu geus dilaksanakeun hukuman di antara maranéhna. [^461] Sabenerna maranéhna bener bener aya dina kamangmangan kana éta (Al-Qur’an).
-
-[^460]: Ieu ayat téh mangrupakeun panghibur Allah ka Nabi Muhammad dina raraga nyanghareupan tangtangan jalma-jalma kapir Mekah kana Al-Qur’an. Teu kudu anéh, baheula ogé Nabi Musa kitu. Waktu Kitab Torét turun, loba jalma anu aya dina pacéngkadan nyikepan éta Kitab.
-
-[^461]: Lamun seug taya katetepan yén siksaan pikeun maranéhna téh ditunda engké dina Poé Kiamat, pinasti manaranéhna disiksa harita kénéh ogé.
 
 ## 11:111
 
@@ -7270,8 +6348,6 @@ Ku kituna, hidep kudu tetep (dina jalan anu bener), sakumaha anu geus diparénta
 ## 11:113
 
 Aranjeun omat ulah rék condong ka jalma-jalma anu dolim [^462] nepi ka seuneu naraka ngaléntab ka aranjeun, sedengkeun aranjeun teu boga nu bisa nulungan ka aranjeun salian ti Allah. Tuluy aranjeun moal ditulungan pisan.
-
-[^462]: “Condong ka jalma-jalma dolim” maksudna ngahiji jeung maranéhna tur rido kana naon nu dipigawé ku maranéhna. Tapi lamun nyampur ngahiji jeung maranéhna teu dibarengan ku ngaridoan mah tur aya harepan supaya maranéhna balik kana bebeneran, éta mah teu dicegah.
 
 ## 11:114
 
@@ -7317,8 +6393,6 @@ Kagungan Allah wungkul rasiah di langit jeung bumi, jeung ka Mantenna wungkul de
 
 Alif Lām Rā. [^463] Éta téh ayat-ayat Kitab (Al-Qur’an) anu méré katerangan anu jelas.
 
-[^463]: Tingal catetan kaki surat al-Baqarah/2:1.
-
 ## 12:2
 
 Sabenerna Kami geus nurunkeun éta (Al-Qur’an) ku basa Arab, sangkan aranjeun ngagunakeun akal.
@@ -7331,8 +6405,6 @@ Kami nyaritakeun ka hidep (Muhammad) kisah nu panghadéna ku ngawahyukeun ieu Al
 
 (Sing inget) nalika Yusuf nyarita ka ramana, [^464] “Bapa, saleresna abdi parantos ngimpén ningal sawelas béntang, panonpoé, sareng bulan sadayana sujud ka abdi.”
 
-[^464]: Maksudna nyarios ka Nabi Yaqub, murangkalih Ishaq, murangkalih Ibrahim.
-
 ## 12:5
 
 Ramana ngajawab, “Anaking, kadé ulah nyaritakeun éta impian ka dulur-dulur hidep, sabab maranéhna bakal nyieun tipu muslihat anu saenyana ka hidep. Sabenerna sétan téh musuh anu nyata pikeun manusa.”
@@ -7340,8 +6412,6 @@ Ramana ngajawab, “Anaking, kadé ulah nyaritakeun éta impian ka dulur-dulur h
 ## 12:6
 
 Nya kitu pisan Pangéran hidep geus milih hidep (pikeun jadi nabi), ngajarkeun sabagian tina tabir impian ka hidep, sarta nyampurnakeun ni’mat-Na ka hidep jeung ka kulawarga Yaqub, saperti Mantenna geus nyampurnakeun ni’mat-Na ka dua aki hidep [^465] saméméhna, nyaéta Ibrahim jeung Ishaq. Saleresna Pangéran hidep téh Mahauninga (tur) Mahawijaksana.
-
-[^465]: Nu dimaksud aki dina ayat ieu téh nyaéta aki sareng uyut (bapana aki).
 
 ## 12:7
 
@@ -7354,8 +6424,6 @@ Nalika maranéhna nyarita, “Sabenerna Yusuf jeung dulur (sakandung) na (Bunyam
 ## 12:9
 
 Geura paéhan Yusuf téh atawa singkirkeun ka hiji tempat (anu teu jauh), sangkan kanyaah bapa aranjeun téh tamplok ka aranjeun wungkul, jeung sanggeusna kitu (aranjeun kudu tobat jeung) aranjeun kudu jadi jalma-jalma anu soléh!” [^466]
-
-[^466]: “Jadi jalma-jalma anu soléh” maksudna “maranéhna sanggeus “nelasan” Yusuf a.s. kudu tobat ka Allah tur migawé amal soléh!”
 
 ## 12:10
 
@@ -7377,8 +6445,6 @@ Anjeunna (Yaqub) nyarita, “Saenyana inditna maranéh jeung Yusuf téh matak ng
 
 Maranéhna nyarita, “Sabenerna upami manéhna dihakan ajag, padahal abdi sadaya téh golongan (anu kiat), abdi sadaya téh leres-leres rugel.” [^467]
 
-[^467]: Jadi jalma-jalma nu éléhan, nu hirupna taya gunana.
-
 ## 12:15
 
 Ku kituna, waktu maranéhna mawa Yusuf sarta mupakat rék ngunclungkeun manéhna ka jero sumur, jeung (sanggeusna maranéhna ngalaksanakeun éta kamupakatan), Kami maparin wahyu ka anjeunna, “Sabenerna hidep bakal nyaritakeun ka maranéhna laku lampahna, sedengkeun maranéhna mah moal sadar.”
@@ -7395,8 +6461,6 @@ Maranéhna nyarita, “Bapa, saleresna abdi sadaya téh nuju lomba sareng ngantu
 
 Maranéhna datang mawa baju Yusuf (nu lamokot ku) getih palsu. Ramana nyarios, “Justru diri maranéh sorangan nu nganggap alus kana éta urusan nu goréng téh. Nya ngan kasabaran wungkul nu panghadéna (pikeun bapa mah). [^468] Ngan Allah wungkul nu disuhunkeun pitulung ku bapa ngeunaan naon nu dicaritakeun ku maranéh.”
 
-[^468]: Dina perkara ieu mah Yaqub milih kasabaran nu hadé sanggeus anjeunna ngadangu béja nu pikasediheun.
-
 ## 12:19
 
 Terus datang rombongan musapir. Maranéhna nitah salah saurang ngala cai, tuluy baé manéhna téh nurunkeun timbana, bari pokna téh, “Duh bagja pisan, geuning aya budak lalaki (di jero sumur)!” Tuluy maranéhna nyumputkeun Yusuf jadi barang dagangan. Allah Mahauninga kana sagala nu dipilampah ku maranéhna.
@@ -7405,19 +6469,13 @@ Terus datang rombongan musapir. Maranéhna nitah salah saurang ngala cai, tuluy 
 
 Maranéhna ngajual Yusuf ku pangaji nu murah, (nyaéta) sababaraha dirham, sabab maranéhna teu katarik ka manéhna. [^469]
 
-[^469]: Haténa teu katarik (teu suka) téh maksudna: Ku sabab maranéhna manggihan Yusuf di jalan, sieun engké-engkéna aya nu nyusul ti kulawargana. Ku sabab kitu, maranéhna buru-buru ngajual anjeunna sanajan kalayan pangaji anu murah.
-
 ## 12:21
 
 Urang Mesir nu meulina nyarita ka istrina, [^470] “Geura béré tempat (jeung pangladén) nu hadé. Mudah-mudahan baé manéhna aya mangpaatna keur urang saréréa, atawa urang saréréa jadikeun baé anak.” Tah nya kitu (jaga sanggeus manéhna déwasa,) Kami masihan kalungguhan nu hadé ka Yusuf di nagri (Mesir), jeung sangkan Kami ngajarkeun ka anjeunna ta’wil impian. Allah Kawasa kana urusan Mantenna, tapi lolobana jalma téh henteu nyahoeun.
 
-[^470]: Urang Mesir nu meuli Yusuf téh nyaéta hiji raja anu ngaranna Kitpir, sedengkeun istrina ngaranna Juléha.
-
 ## 12:22
 
 Nalika anjeunna geus déwasa, [^471] Kami maparin kawijaksanaan jeung élmu ka anjeunna. Tah kitu pisan Kami maparin ganjaran ka jalma-jalma nu geus migawé kahadéan.
-
-[^471]: Nabi Yusuf tos dugi kana yuswa antara 30-40 taun.
 
 ## 12:23
 
@@ -7426,8 +6484,6 @@ Awéwé, nu imahna dicicingan ku Yusuf, ngagoda ka dirina (Yusuf) sangkan nurut 
 ## 12:24
 
 Tétéla éta awéwé téh bener-bener boga maksud (birahi) ka Yusuf. Anjeunna ogé boga maksud (birahi) ka éta awéwé lamun seug teu kaburu ningal tanda ti Pangéranana mah. [^472] Tah kitu pisan Kami ngabalieurkeun kagoréngan ti anjeunna. Saleresna anjeunna téh kaasup hamba Kami nu pinilih.
-
-[^472]: Maksud ieu ayat, Yusuf ogé boga kahayang sarua jeung Juléha pikeun milampah pagawéan “goréng”. Godaan Julaéha téh kacida rongkahna, lamun seug Yusuf teu dikuatkeun imanna ka Allah mah, pinasti anjeunna bakal anclub kana éta kama’siatan.
 
 ## 12:25
 
@@ -7449,13 +6505,9 @@ Nalika manéhna (salaki éta awéwé) ningal baju gamis Yusuf soéhna ti tukang,
 
 Hé Yusuf, geura pohokeun ieu kajadian, [^473] jeung (hé istri kuring) geura ménta pangampura pikeun dosa manéh, sabab sabenerna manéh téh kaasup jalma nu salah.”
 
-[^473]: Maksudna: Anjeun kudu ngarasiahkeun ieu urusan!
-
 ## 12:30
 
 Para wanoja di éta kota nyarita kieu, “Istrina al-\`Azīz [^474] geus ngagoda jeung ngarayu bujangna pikeun ditundukkeun. Éta (bujangna) téh bener-bener ngajadikeun manéhna (istrina al-\`Azīz) bogoh pisan. Ceuk urang mah manéhna téh bener-bener dina kasasaran anu nyata.”
-
-[^474]: Al-\`Azīz téh sebutan atawa gelar pikeun raja di Mesir.
 
 ## 12:31
 
@@ -7477,13 +6529,9 @@ Ti dinya, Pangéran Yusuf ngabulkeun doana (Yusuf) sarta nebihkeun tina tipu day
 
 Tuluy teg aya pikiran dina diri maranéhna sanggeus nénjo tanda-tanda (benerna Yusuf), yén maranéhna kudu menjarakeun Yusuf nepi ka waktu nu ditangtukeun. [^475]
 
-[^475]: Sanggeus ningali yén Yusuf téh bener, maranéhna tuluy menjarakeun anjeunna supaya aya anggapan yén nu salah téh anjeunna jeung supaya ulah aya deui omongan-omongan ngeunaan éta kajadian.
-
 ## 12:36
 
 Babarengan jeung Yusuf, asup ogé dua pamuda ka panjara. [^476] Salah saurangna téh pok nyarita kieu, “Sabenerna kuring ngimpi meres anggur.” Pok nu saurang deui nyarita kieu, “Sabenerna kuring ngimpi nyunyuhun roti nu sabagianana dipacokan ku manuk.” Cing pangnerangkeun ka kuring duaan tabirna (éta impian)! Sabenerna kuring duaan téh nganggap anjeun kaasup jalma-jalma nu pinter (na’birkeun impian).”
-
-[^476]: Numutkeun riwayat, dua pamuda téh nyaéta bujang-bujangna raja. Nu saurang tukang ngurus inuman raja. Saurang deui mah tukang nyieun roti.
 
 ## 12:37
 
@@ -7545,8 +6593,6 @@ Raja nyarita, “Geura bawa ka kami éta jalma téh!” Nalika éta utusan datan
 
 Raja nyarita (ka para wanoja), “Kumaha kaayaan aranjeun [^477] waktu ngagoda Yusuf pikeun ditundukkeun téh? Jawabna, “Maha Sampurna Allah. Abdi sadaya henteu terang ayana kaawonan di anjeunna.” Istri al-\`Azīz nyarita, “Ayeuna mah parantos tétéla benerna. Nya abdi pisan anu ngagoda jeung ngarayuna sareng saleresna manéhna mah ka asup jalmi nu leres.”
 
-[^477]: Nu dimaksud “kaayaan aranjeun” dina ayat ieu nyaéta yén raja ménta pandangan ngeunaan Yusuf, naha anjeunna téh kapangaruhan waktu digoda atawa henteu.
-
 ## 12:52
 
 (Saur Yusuf), “Éta téh sangkan anjeunna (al-\`Azīz) uningaeun yén sabenerna kuring henteu hiyanat ka anjeunna waktu anjeunna teu aya (di bumi) sareng saleresna Allah henteu mikarido kana tipu daya jalma-jalma nu hianat.
@@ -7575,8 +6621,6 @@ Tétéla ganjaran di ahérat téh (pasti) leuwih hadé pikeun jalma-jalma anu im
 
 Sadérék-sadérék Yusuf datang (ka Mesir), tuluy maranéhna asup ka (tempat) Yusuf. Anjeunna mah nyahoeun kénéh ka maranéhna, sedengkeun maranéhna mah bener-bener geus pohoeun ka anjeunna. [^478]
 
-[^478]: Numutkeun sejarah jeung katerangan tina surat Yūsuf/12:48, nagri Mesir waktu harita, tur nagri-nagri di sabudeureunana, katarajang usum nguyang salila tujuh tahun. Tah ku lantaran nagri Mesir mah geus siap-siap ti tujuh tahun saméméhna ku alpukahna Nabi Yusuf, atuh waktu tumiba usum nguyang téh nagri Mesir mah henteu ieuh kalaparan, nepi ka nagri Mesir téh ka kajojo nagri-nagri sabudeureunana. Atuh loba pisan jalma-jalma ti luar Mesir anu datang, nu maksudna rék nukeurkeun pakayana kana dahareun, ti antarana nyaéta dulur-dulurna Nabi Yusuf a.s.
-
 ## 12:59
 
 Nalika keur nyadiakeun bahan-bahan dahareun pikeun maranéhna, Yusuf nyarios, “Omat engké mah bawa ka kuring dulur aranjeun nu sabapa (Bunyamin)! Naha henteu katingali ku aranjeun yén kuring téh nyampurnakeun takeran, jeung kuring téh jalma anu pangsoméahna ka tamu?
@@ -7592,10 +6636,6 @@ Maranéhna ngajawab, “Abdi sadaya bakal ngolo ramana (pikeun nyandak Bunyamin)
 ## 12:62
 
 Yusuf nyarios ka badéga-badégana, “Asupkeun deui barang-barang (panukeuran ti) maranéhna [^479] kana karung-karungna, supaya maranéhna nyahoeun kana éta (barang) waktu geus mulang ka kulawargana (jeung) supaya maranéhna balik deui.” [^480]
-
-[^479]: Numutkeun kalolobaan ahli tapsir, pakaya anu jadi panukeuran ti dulur-dulurna Nabi Yusuf a.s. téh nyaéta mangrupa kulit ingon-ingon jeung tarompah.
-
-[^480]: Peta saperti kitu téh dipilampah ku Nabi Yusuf minangka pangolo-ngolo sangkan dulur-dulurna deudeuieun hayang datang deui ka Mesir bari mawa Bunyamin.
 
 ## 12:63
 
@@ -7628,8 +6668,6 @@ Nalika maranéhna asup ka (tempat) Yusuf, anjeunna nempatkeun adina (Bunyamin) d
 ## 12:70
 
 Mangka, waktu geus disiapkeun barang-barang bawaeun pikeun maranéhna, Yusuf ngasupkeun cawan [^481] kana jero karung adina (Bunyamin). Teu kungsi lila celengkeung téh tukang bewara ngagorowok, “Hé kapilah, sabenerna aranjeun téh nyata-nyata tukang maling!”
-
-[^481]: Éta cawan téh dijieun tina emas, siga piala, bisa dipaké nginum ogé dipaké naker.
 
 ## 12:71
 
@@ -7799,13 +6837,9 @@ Sabenerna dina kisah-kisah aranjeunna téh aya atikan pikeun jalma-jalma nu boga
 
 Alif Lām Mīm Rā. [^482] Éta téh ayat-ayat Kitab (Al-Qur’an). Anu diturunkeun ka hidep (Muhammad) ti Pangéran hidep téh bener, ngan kalolobaan manusa téh henteu (daék) iman.
 
-[^482]: Tingal catetan kaki surat al-Baqarah/2:1.
-
 ## 13:2
 
 Allah téh anu ngaluhurkeun langit tanpa tihang nu (bisa) katingali ku aranjeun, lajeng Mantenna istiwā di ‘Arsy [^483] sareng nundukkeun panonpoé jeung bulan. Masing-masing terus muter nepi ka waktu nu geus ditangtukeun. Mantenna ngatur sagala urusan (mahluk-Na) jeung ngawincik tanda-tanda (kaagungana-Na), sangkan aranjeun yakin kana bakal papanggihna (aranjeun) jeung Pangéran aranjeun.
-
-[^483]: Tingal catetan kaki surat al-A\`raf/7:44
 
 ## 13:3
 
@@ -7843,10 +6877,6 @@ Sami baé (mungguhing Allah mah), saha baé ti antara maranéh nu ngarasiahkeun 
 
 Pikeun manéhna (manusa) aya (malaikat-malaikat) nu (terus) giliran (ngajaga) di hareupeun jeung di satukangeunana kalayan paréntah Allah. [^484] Saleresna Allah moal ngarobah kaayaan hiji kaom nepi ka maranéhna ngarobah naon nu aya dina dirina sorangan. [^485] Saupama Allah ngersakeun nibankeun kagoréngan ka hiji kaom, tangtu moal aya nu bisa ngahalanganana jeung moal pisan-pisan aya nu bisa ngaraksa maranéhna iwal ti Mantenna.
 
-[^484]: Pikeun saban manusa aya sababaraha malaikat nu tetep ngajaga manéhna kalayan giliran. Aya ogé sababaraha malaikat nu nyatet amal-amalna, nyaéta Roqib jeung ‘Atid. Nu dimaksud ku éta ayat téh nyaéta malaikat nu ngajaga kalawan bagilir téa nu disebut Malaikat Ḥafaẓah.
-
-[^485]: Allah moal rék ngarobah nasib hiji kaom saméméh éta kaom ngarobah dirina sorangan tina kamunduran-kamunduranana.
-
 ## 13:12
 
 Mantenna nu némbongkeun ka maranéh gélédég (pikeun nimbulkeun) kasieun jeung pangharepan (turunna hujan), jeung Mantenna anu ngajadikeun méga nu beurat (ku pihujaneun).
@@ -7858,8 +6888,6 @@ Guludug tasbéh ku muji ka Mantenna. Nya kitu deui malaikat-malaikat lantaran si
 ## 13:14
 
 Ngan kanggo Allah pangajak anu bener. Anapon (sesembahan-sesembahan) anu salian ti Mantenna moal bisa ngaijabah kana doa-doa manusa saeutik ogé, anging kawas jalma-jalma nu namprakkeun dua dampal leungeunna kana cai supaya (éta cai) nepi kana sungutna, padahal éta cai téh moal pisan bisa nepi kana sungutna. [^486] Pangajak jalma-jalma kapir mah moal aya hasilna.
-
-[^486]: Jalma nu ngadoa ka salian ti Allah diupamakeun lir ibarat jalma nu namprakkeun dampal leungeunna kana cai supaya éta cai nepi kana sungutna. Tangtu hal éta moal kajadian salawasna ogé sabab dina dampal leungeunna nu namprak mah moal aya cai anu bisa nyalangkrung
 
 ## 13:15
 
@@ -7888,8 +6916,6 @@ Naha jalma anu nyaho yén naon nu diturunkeun ka hidep ti Pangéran hidep téh b
 ## 13:21
 
 jalma-jalma nu nyambungkeun sakabéh nu diparéntahkeun ku Allah supaya disambungkeun, [^487] jeung jalma-jalma nu kacida sieunna ka Pangéranana, sarta anu hariwang kana balitungan anu goréng.
-
-[^487]: Nyaéta silaturahim jeung tatali wargi.
 
 ## 13:22
 
@@ -7951,22 +6977,13 @@ Paupamaan sawarga nu dijangjikeun ka jalma-jalma nu takwa téh (lir ibarat patam
 
 Jalma-jalma nu geus dipaparinan Kitab ku Kami [^488] ngarasa bungah ku Kitab nu diturunkeun ka hidep (Muhammad). Ti antara golongan (Yahudi jeung Nasrani) aya ogé nu ingkar kana sabagianana (eusi Al-Qur’an). Pék caritakeun ku hidep (Muhammad), “Saenyana kuring mah ngan diparéntah pikeun ibadah ka Allah jeung teu musrik ka Mantenna. Mung ka Mantenna kuring ngajak (manusa) jeung mung ka Mantenna kuring mulang.”
 
-[^488]: Nyaéta urang Yahudi nu geus asup Islam saperti Abdullah bin Salam jeung urang Nasrani nu geus asup Islam.
-
 ## 13:37
 
 Tah kitu, Kami geus nurunkeun éta (Al-Qur’an) minangka anu nangtukeun hukum dina basa Arab. [^489] Saupama hidep nuturkeun kana kahayang maranéhna sanggeus datang élmu ka hidep, tangtu hidep moal pisan boga nu nangtayungan jeung nu ngajaga tina (siksa) Allah.
 
-[^489]: Kautamaan basa Arab téh ti antarana:
-    a. Ti baheula nepi ka ayeuna basa Arab tetep hirup, dina harti terus dipaké ku loba manusa.
-    b. Basa Arab cocok tur beunghar ku kecap-kecap anu bisa ngajelaskeun rupa-rupa perkara ngeunaan Pangeran jeung ahérat.
-    c. Hiji kecap dina basa Arab bisa diobah jadi sababaraha kecap nepi ka 3000 kecap. Nu saperti kitu téh teu aya dina basa séjén mah.
-
 ## 13:38
 
 Sabenerna Kami geus ngutus para rasul saméméh hidep (Muhammad), jeung Kami geus maparin jodo jeung katurunan ka aranjeunna. Teu mungkin pikeun saurang rasul ngadatangkeun hiji bukti (mujijat) anging kalayan widi ti Allah. Pikeun saban-saban mangsa aya katangtuanana. [^490]
-
-[^490]: Tujuan ieu ayat téh keur ngabantah anu sok ngahina ka Nabi Muhammad Saw. Ti antarana nyaéta pikeun ngabantah pamadegan maranéhna yén rasul téh bisa ngadatangkeun mujijat sakahayangna. Padahal mujijat mah mung dipasihkeun ku Allah ka rasul-Na dina waktu diperlukeun wungkul, lain keur kaulinan. Pikeun unggal-unggal rasul aya kitabna séwang-séwangan nu luyu jeung kaayaan waktu harita.
 
 ## 13:39
 
@@ -7988,13 +7005,9 @@ Tétéla jalma-jalma saméméh maranéhna (kapir-kapir Mekah) ogé kungsi nyieun
 
 Jalma-jalma kapir ngomong kieu, “Manéh (Muhammad) mah lain rasul.” Pék jawab ku hidep, “Cukup Allah jeung jalma-jalma nu boga élmu ngeunaan Kitab nu jadi saksi antara kuring jeung aranjeun. [^491]
 
-[^491]: Maksudna para ulama Ahli Kitab nu geus ngagem agama Islam.
-
 ## 14:1
 
 Alif Lām Rā. [^492] (Ieu téh) Kitab (Al-Qur’an) nu diturunkeun ku Kami ka hidep (Muhammad) sangkan hidep (bisa) ngaluarkeun manusa tina mangpirang-pirang poék kana cahaya kalayan widi Pangéran maranéhna, (nyaéta) kana jalan Pangéran Nu Mahakawasa (tur) Nu Mahapinuji.
-
-[^492]: Tingal catetan kaki surat al-Baqarah/2:1.
 
 ## 14:2
 
@@ -8008,13 +7021,9 @@ Alif Lām Rā. [^492] (Ieu téh) Kitab (Al-Qur’an) nu diturunkeun ku Kami ka h
 
 Kami teu ngutus saurang rasul ogé anging kalayan basa kaomna, [^493] sangkan anjeunna bisa méré katerangan anu jéntré ka kaomna. Mangka, Allah nyasarkeun saha baé anu dikersakeun ku Mantenna sareng masihan pituduh ka saha baé anu dikersakeun ku Mantenna. Mantenna mah Mahagagah (tur) Mahawijaksana.
 
-[^493]: Mémang Al-Qur'an téh diturunkeun dina basa Arab, tapi sok sanajan kitu Al-Qur'an téh lain keur urang Arab wungkul, tapi diturunkeun keur sakabéh umat manusa.
-
 ## 14:5
 
 Tétéla Kami geus ngutus Musa kalayan mawa tanda-tanda (kakawasaan) Kami (jeung ku Kami Musa diparéntah), “Sok geura kaluarkeun kaom hidep tina mangpirang-pirang poék kana cahaya, sarta pék élingan maranéhna ngeunaan poé-poéna Allah. [^494] Saenyana dina éta (perkara téh) aya tanda-tanda (kakawasaan Allah) pikeun saban jalma nu loba sabar (tur) loba sukuran.
-
-[^494]: Kajadian-kajadian nu geus tumiba ka kaom-kaom di jaman baheula boh nu mangrupa ni’mat atawa siksaan anu kungsi karandapan ku maranéhna.
 
 ## 14:6
 
@@ -8120,8 +7129,6 @@ Maranéhna (jalma-jalma kapir) téh geus nyieun tandingan-tandingan pikeun Allah
 
 Pék caritakeun ku hidep (Muhammad) ka hamba-hamba Kami anu iman, “Sok geura adegkeun salat jeung inpakkeun sabagian rejeki anu geus dipaparinkeun ku Kami ka aranjeunna, boh bari susumputan boh bari terang-terangan, saméméh datang hiji poé nalika moal aya deui jual-beuli jeung sosobatan.” [^495]
 
-[^495]: Maksudna dina Poé Kiamat mah dosa téh moal bisa ditebus, sobat moal bisa nulungan. Tingali ogé guaran surat al-Baqarah/2:254.
-
 ## 14:32
 
 Allah anu geus nyiptakeun langit jeung bumi, anu geus nurunkeun hujan ti langit, terus ku éta hujan téh Mantenna ngaluarkeun rupa-rupa bubuahan, minangka rejeki keur aranjeun, anu geus nundukkeun parahu keur aranjeun sangkan (bisa) lalayaran di laut kalayan paréntah-Na, jeung geus nundukkeun walungan-walungan keur aranjeun.
@@ -8182,8 +7189,6 @@ Apan maranéh téh baheula cicing di tempat-tempat urut jalma-jalma nu dolim kan
 
 Maranéhna tétéla geus nyieun tipu daya, padahal Allah uninga (jeung bakal males) kana tipu dayana. [^496] Saenyana tipu daya manéhna téh moal bisa ngaleungitkeun gunung-gunung.
 
-[^496]: Jalma-jalma kapir téh teu bosen-bosen nyieun rupa-rupa rencana pikeun ngancurkeun Islam jeung nanjeurkeun kabatilan. Maranéhna teu sadar yén rencana nu siga kumaha baé ogé sama sakali moal bisa ngéléhkeun rencana anu dirancang ku Allah.
-
 ## 14:47
 
 Ku sabab kitu, poma hidep ulah rék boga sangka yén Allah sok nyulayaan jangji-Na ka rasul-rasul-Na. Saleresna Allah téh Mahagagah (tur) kagungan wawales.
@@ -8212,8 +7217,6 @@ Ieu (Al-Qur’an téh) guaran (anu sampurna) pikeun manusa, sangkan maranéhna d
 
 Alif Lam Ra. [^497] Éta téh (sawaréh tina) ayat-ayat al-Kitab, nyaéta (ayat-ayat) Al-Qur’an anu méré katerangan anu jelas.
 
-[^497]: Tingal catetan kaki surat al-Baqarah/2:1.
-
 ## 15:2
 
 Jalma-jalma kapir (engké di ahérat) mindeng miharep lamun seug téa mah (baheula keur di alam dunya) maranéhna téh jadi jalma muslim.
@@ -8234,8 +7237,6 @@ Moal aya hiji umat ogé anu bisa ngaheulakeun ajalna, ogé moal aya anu bisa nga
 
 Maranéhna (jalma-jalma kapir) ngomong, “Hé jalma anu (ngaku) geus diturunkeun ka manéhna Al-Qur’an, saenyana manéh (Muhammad) téh bener-bener jalma gélo.” [^498]
 
-[^498]: Kecap kitu téh mangrupa pangjejeléh ti jalma-jalma kapir Mekah ka Nabi Muhammad Saw.
-
 ## 15:7
 
 Naha atuh manéh henteu ngadatangkeun malaikat ka kuring saréréa, lamun seug (enya mah) manéh téh kaasup jalma-jalma anu bener.”
@@ -8247,8 +7248,6 @@ Kami henteu nurunkeun malaikat, anging kalayan (alesan anu) bener (nyaéta pikeu
 ## 15:9
 
 Saenyana nya Kami anu nurunkeun Al-Qur’an jeung pasti Kami pisan anu bakal ngajagana. [^499]
-
-[^499]: Ieu Ayat téh hiji jaminan pikeun kasucian jeung kamurnian Al-Qur’an salalawasna.
 
 ## 15:10
 
@@ -8265,8 +7264,6 @@ Nya kitu pisan Kami ngasupkeun éta (guguyon téh) kana jero haté jalma-jalma a
 ## 15:13
 
 Maranéhna henteu daék iman kana éta (Al-Qur’an), padahal pan geus kungsi lumaku sunatullah [^500] ka jalma-jalma anu baheula.
-
-[^500]: Sunatullah dina ieu ayat téh nyaéta Allah ngamusnahkeun jalma-jalma nu ngabohongkeun ka rasul-rasul.
 
 ## 15:14
 
@@ -8331,8 +7328,6 @@ Sing inget waktu Pangéran hidep ngadawuh ka para malaikat, “Saenyana Kami ré
 ## 15:29
 
 Tah engké lamun Kami geus nyampurnakeun (wujud) manéhna sarta geus niupkeun roh Kami ka manéhna, mangka prak aranjeun geura tunduk bari sujud ka manéhna.” [^501]
-
-[^501]: Nu dimaksud sujud di dieu lain sujud nyembah, tapi minangka panghormatan ka Adam.
 
 ## 15:30
 
@@ -8478,8 +7473,6 @@ Abdi sadaya dongkap ka salira kalayan ngabantun bebeneran. Saleresna abdi sadaya
 
 Ku kituna, prak salira geura angkat sareng kulawargi salira engké wengi mangsa janari leutik, sareng omat salira kedah nuturkeun (leumpang) pengkereun maranéhna, sareng omat ulah rék ngalieuk (ka pengker) saurang ogé ti antawis aranjeun, [^502] sok teras baé mapah ka tempat anu diparéntahkeun ka aranjeun.”
 
-[^502]: Tingali ayat 81 surat Hūd.
-
 ## 15:66
 
 Geus Kami tetepkeun pikeun Lut éta kaputusan, yén ahirna maranéhna (umat Lut) téh bakal dibinasakeun dina wanci subuh.
@@ -8487,8 +7480,6 @@ Geus Kami tetepkeun pikeun Lut éta kaputusan, yén ahirna maranéhna (umat Lut)
 ## 15:67
 
 Brul pangeusi éta kota daratang (ka bumina Lut) kalayan gumbira (lantaran kadatangan tamu nu karasép). [^503]
-
-[^503]: Riwayat Nabi Lut dina ieu surat al-Ḥijr teu dicaritakeun kalayan lengkep kawas dina surat Hūd.
 
 ## 15:68
 
@@ -8502,8 +7493,6 @@ Kudu tarakwa aranjeun ka Allah, sarta poma aranjeun ulah rék ngahinakeun kuring
 
 Maranéhna (kaom Lut) némbal, “Apan Kami geus kungsi nyarék ka anjeun (poma ulah rék coba-coba nangtayungan) éta para tamu? [^504]
 
-[^504]: Maranéhna rék ngagadabah tamu Nabi Lut (ku cara ngadubur), jeung maranéhna mémang geus kungsi ngancam Nabi Lut sangkan ulah wani-wani ngahalangan laku lampah maranéhna anu siga kitu.
-
 ## 15:71
 
 Lut ngawaler, “Tuh (pan loba) anak-anak awéwé (di nagri) kuring téh, (pék geura kawin ku maranéh) lamun seug maranéh rék milampah (bener mah).”
@@ -8511,8 +7500,6 @@ Lut ngawaler, “Tuh (pan loba) anak-anak awéwé (di nagri) kuring téh, (pék 
 ## 15:72
 
 (Allah ngadawuh) “Demi umur hidep (Muhammad), [^505] saenyana maranéhna téh (harita) mandeg mayong dina kaayaan mabok (demi ngalajur hawa napsu).”
-
-[^505]: Geus jadi adat urang Arab sumpah ku umur baturna, tah dina ieu ayat Allah ogé geus sumpah ku umur Nabi Muhammad Saw. Ari maksudna saur sawaréh ahli tapsir nyaéta pikeun nunjukkeun yén Nabi Muhammad téh kalintang mulyana mungguhing Allah Swt.
 
 ## 15:73
 
@@ -8530,8 +7517,6 @@ Saenyana dina éta (kajadian) téh bener-bener aya tanda-tanda (kakawasaan Allah
 
 Saenyana éta (nagri) téh [^506] bener-bener (aya) di jajalaneun anu masih kénéh (kasaba ku manusa).
 
-[^506]: Nu dimaksud nyaéta Nagri Sodom nu lokasina deukeut basisir Laut Tengah.
-
 ## 15:77
 
 Saenyana dina éta (kajadian) téh bener-bener aya tanda (kakawasaan Allah) pikeun jalma-jalma anu iman.
@@ -8540,21 +7525,13 @@ Saenyana dina éta (kajadian) téh bener-bener aya tanda (kakawasaan Allah) pike
 
 Saenyana pangeusi (Nagri) Aikah téh [^507] bener-bener jalma-jalma anu dolim.
 
-[^507]: Aikah téh nagri di daerah Madyan anu dicicingan ku kaom Nabi Syu’éb. Di sabudeureunana aya leuweung geledegan.
-
 ## 15:79
 
 Nya Kami binasakeun maranéhna. Saenyana éta dua (nagri) [^508] téh aya dina jajalaneun anu gedé tur écés.
 
-[^508]: Nyaéta Nagri Sodom jeung Aikah.
-
 ## 15:80
 
 Saenyana urang (Nagri) Al-Hijr [^509] téh bener-bener geus ngabohongkeun ka (rasul-rasul) anu diutus. [^510]
-
-[^509]: Urang Al-Hijr téh nyaéta kaom Samud. Al-Hijr téh tempat anu pernahna di léngkob Qura antara Madinah jeung Syiria.
-
-[^510]: Nu di maksud rasul-rasul dina ayat ieu téh nyaéta Nabi Soléh. Ari alesan Nabi Soléh disebut rasul-rasul padahal ngan saurang, sabab ngabohongkeun saurang rasul sarua baé jeung ngabohongkeun sakabéh rasul.
 
 ## 15:81
 
@@ -8567,8 +7544,6 @@ Maranéhna mahat gunung-gunung batu jadi imah (nu bisa dicicingan) sangkan aman.
 ## 15:83
 
 Nya maranéhna dibinasakeun ku sora anu ngageleger dina wanci subuh. [^511]
-
-[^511]: Kajadian éta téh dina poé kaopat saba\`da datang ka maranéhna panggeuing ti Allah.
 
 ## 15:84
 
@@ -8586,8 +7561,6 @@ Saleresna Pangéran hidep téh Maha Nyiptakeun (tur) Mahauninga.
 
 Saenyana Kami geus maparin ka hidep (Muhammad) tujuh (ayat) anu (terus dibaca) bulak-balik, [^512] ogé Al-Qur’an anu agung.
 
-[^512]: Nu dimaksud tujuh ayat nu di baca bulak-balik téh nyaéta surat al-Fātiḥah. Aya ogé ahli tapsir anu boga pamadegan yén nu dimaksud nyaéta tujuh surat anu paranjang nyaéta surat al-Baqarah, Ali Imrān, al-Mā’idah, al-Nisā’, al-An’ām, jeung al-Anfāl atawa Al-Tawbah.
-
 ## 15:88
 
 Omat hidep (Muhammad) ulah rék ngantep paningali hidep anteng mencrong (kabongroy ku) kani\`matan hirup anu geus Kami bikeun ka sawaréh golongan ti maranéhna (anu kalapir), jeung omat hidep ulah rék sedih lantaran maranéhna, jeung omat kudu handap asor hidep ka jalma-jalma mu’min.
@@ -8600,13 +7573,9 @@ Pok ucapkeun ku hidep (Muhammad), “Saenyana kuring téh purah méré pépélin
 
 Sakumaha (Kami geus mépélingan), nya Kami ogé geus nurunkeun (siksa) ka jalma-jalma anu ngawilah-wilah (Kitab Allah), [^513]
 
-[^513]: Nyaéta jalma-jalma nu narima kana sawaréh eusi kitab, tapi nolak anu sawaréhna deui, nyaéta urang Yahudi jeung Nasrani nu ngabagi-bagi Al-Qur’an.
-
 ## 15:91
 
 nyaéta jalma-jalma anu geus ngajadikeun Al-Qur'an kabag-bagi. [^514]
-
-[^514]: Nyaéta urang Yahudi jeung Nasrani anu geus ngabagi-bagi Al-Qur’an. Sawaréh ayat-ayatna dipercaya ku maranéhna, anu sawaréhna deui ditarolak. Maksud ieu ayat 89, 90, 91 nyaéta Allah maréntahkeun ka Nabi Muhammad Saw. sangkan méré pépéling ka urang Yahudi jeung Nasrani, yén Mantenna rék nurunkeun siksa ka maranéhna, sakumaha nu geus ditibankeun ka kaom Samud.
 
 ## 15:92
 
@@ -8940,8 +7909,6 @@ Ku kituna, omat maranéh ulah rék nyieun babandingan keur Allah. Saleresna Alla
 
 Allah parantos ngadamel paupamaan hiji budak beulian nu teu walakaya, jeung hiji jalma nu direjekian ku Kami kalayan rejeki nu hadé, tuluy manéhna nyumbangkeun sabagian rejekina bari susulumputan ogé bari bruk-brak, naha maranéhna téh sarua? Sadaya puji kagungan Allah, ngan maranéhna lolobana mah teu nyahoeun. [^515]
 
-[^515]: Maksud ieu paupamaan téh nyaéta pikeun ngabantah pamadegan jalma-jalma musrik anu sok nyarua-nyaruakeun Allah Anu Maha Masihan-rejeki jeung patung-patung anu teu bisaeun nanaon.
-
 ## 16:76
 
 Allah ngadamel deui paupamaan dua urang lalaki, nu saurang pireu teu bisaeun nanaon nepi ka manéhna ngan ukur jadi beban keur nu ngurusna. Ka mana baé dijurungkeun (kunu nanggungna) weléh teu ngadatangkeun kahadéan. Cing naha sarua jalma nu kitu jeung jalma anu nitah kana kaadilan, bari anjeunna tetep panceg dina jalan nu lempeng?
@@ -8969,8 +7936,6 @@ Allah ogé ngajantenkeun tina sagala rupa anu geus didamel ku Mantenna kalangkan
 ## 16:82
 
 Ngan lamun maranéhna tetep ngabalieur, mangka saenyana kawajiban hidep (Muhammad) mah ngan ukur mangnepikeun (amanat Allah) kalayan écés. [^516]
-
-[^516]: Nabi Muhammad Saw. moal tiasa masihan topék jeung hidayah ka saha baé ogé anging kalayan widi Allah. Tugas anjeunna mah ngan ukur nepikeun risalah.
 
 ## 16:83
 
@@ -9092,8 +8057,6 @@ Saterusna, saenyana Pangéran hidep (nangtayungan) ka jalma-jalma nu hijrah sang
 
 Allah parantos ngadamel paupamaan, (nyaéta) hiji nagri nu tadina aman tengtrem tur rejekina ceuyah datang ti unggal tempat, tapi (pangeusi) éta nagri téh kupur kana ni’mat-ni’mat Allah. Atuh éta (pangeusi) nagri téh disiksa ku Allah sina ngarasa lapar [^517] jeung sieun, alatan naon nu geus dipigawé ku maranéhna.
 
-[^517]: Kalaparan jeung kasieun téh ngawengku maranéhna saperti pakéan nutupan awak.
-
 ## 16:113
 
 Saenyana geus datang ka maranéhna hiji rasul ti (golongan) maranéhna sorangan, tapi maranéhna ngabohongkeun ka éta rasul. Atuh maranéhna dibinasakeun ku siksa. Maranéhna téh jalma-jalma anu dolim.
@@ -9118,8 +8081,6 @@ Kadé maranéh ulah rék nyebutkeun ku lisan maranéh kecap anu bohong, “Anu i
 
 Ka urang Yahudi Kami geus ngaharamkeun naon nu saméméhna geus dicaritakeun ku Kami ka hidep (Muhammad). [^518] Kami henteu dolim ka maranéhna, tapi maranéhna nu dolim ka dirina sorangan.
 
-[^518]: Tingali surat al-An\`ām ayat 146.
-
 ## 16:119
 
 Sabenerna Pangéran hidep téh (ngahampura) ka jalma-jalma nu milampah kagoréngan lantaran bodo, tuluy tobat, tuluy ngoméan diri. Saenyana Pangéran hidep sanggeusna éta Maha Jembar-pangampura (tur) Mahadeudeuh.
@@ -9127,8 +8088,6 @@ Sabenerna Pangéran hidep téh (ngahampura) ka jalma-jalma nu milampah kagoréng
 ## 16:120
 
 Saenyana Ibrahim téh imam (tuturkeuneun) anu taat ka Allah, ḥanīf (lempeng), [^519] jeung teu ka asup jalma-jalma musrik.
-
-[^519]: Ḥanīf téh hartina jalma nu salalawasna nyepeng pageuh kana bebeneran.
 
 ## 16:121
 
@@ -9146,19 +8105,13 @@ Tuluy Kami maparin wahyu ka hidep (Muhammad), “Pék tuturkeun ku hidep agama I
 
 Saenyana (ngamumulé) [^520] poé Saptu téh ngan ukur diwajibkeun ka jalma-jalma (Yahudi) wungkul anu sok pasalia paham ngeunaan éta perkara. Saenyana Pangéran hidep (Muhammad) pasti bakal mutuskeun dina Poé Kiamat sagala rupa perkara nu kungsi dipasaliakeun ku maranéhna.
 
-[^520]: Urang Yahudi diwajibkeun ku Allah ngamumulé poé Saptu ku cara ngalobakeun ibadah jeung amal-amalan nu soléh sarta ninggalkeun pagawéan sapopoé.
-
 ## 16:125
 
 Prak geura ajak (sakumna manusa) kana jalan Pangéran hidep (Muhammad) kalayan hikmah [^521] jeung piwulang nu hadé, sarta pék ayonan ku hidep (omongan) manaréhna ku (omongan) anu leuwih hadé. Saleresna Pangéran hidep langkung uninga saha-saha baé jalma anu sasar tina jalan Mantenna, sareng langkung uninga saha-saha baé jalma-jalma nu narima pituduh.
 
-[^521]: Hikmah téh nyaéta caritaan nu jéntré tur bener nu bisa ngabédakeun anu haq jeung anu batil.
-
 ## 16:126
 
 Saupamana baé aranjeun rék males, prak bales ku nu sabobot jeung (siksaan) nu kungsi ditibankeun ka aranjeun. [^522] Lamun seug aranjeun sabar mah, tah nu kitu téh leuwih hadé pikeun jalma-jalma anu sabar mah.
-
-[^522]: Maksudna ulah kaleuleuwihi.
 
 ## 16:127
 
@@ -9171,8 +8124,6 @@ Saleresna Allah nyarengan jalma-jalma anu takwa jeung nu migawé kahadéan.
 ## 17:1
 
 Mahasuci (Allah) anu geus miangkeun hamba-Na (Muhammad) ti wengi ti Masjidil Harom ka Masjidil Aqsha anu geus diberkahan ku Kami sakurilingna [^523] sangkan Kami ningalikeun ka anjeunna sabagian tanda-tanda (kakawasaan) Kami. Saleresna Mantenna téh Maha Ngadangu (tur) Maha Ningali.
-
-[^523]: Masjidil Aqsa jeung wewengkon sabudeureunana téh sajaba taneuhna subur ogé remen dikintunan nabi ku Allah Swt.
 
 ## 17:2
 
@@ -9262,8 +8213,6 @@ Omat hidep ulah rék netepkeun pangéran séjén salian ti Allah, anu balukarna 
 
 Pangéran hidep geus maréntahkeun sangkan ulah rék nyembah iwal ka Mantenna, jeung kudu kumawula ka indung-bapa sahadé-hadéna. Saupama salah sahiji atawa duanana geus kolot pisan dina pangrawat anjeun, omat anjeun ulah rék ngucapkeun “his” jeung ulah rék nyentak, jeung kudu nyarita anjeun ka duanana ku caritaan anu sopan. [^524]
 
-[^524]: Ka ibu rama mah sok sanajan ngan ukur ngucapkeun “his” kacida pisan dipahingna ku Al-Qur’an, sabab éta téh matak nganyerikeun kana haté, sok komo deui lamun ngedalkeun kecap-kecap anu leuwih kasar tibatan éta, atawa hampang leungeun ka aranjeunna duaan. Éta kabéhanana téh kaasup lampah doraka anu kacida badag dosana.
-
 ## 17:24
 
 Anjeun kudu handap asor ka aranjeunna duaan kalayan pinuh ku kadeudeuh, sarta pék doakeun, “Nun Gusti Pangéran abdi, paparin kanyaah ka aranjeunna duaan, sapertos aranjeunna duaan parantos ngadidik abdi waktos abdi nuju alit kénéh.”
@@ -9283,8 +8232,6 @@ Saenyana jalma-jalma anu sok ngahambur-hamburkeun (harta) mah baladna sétan. Ap
 ## 17:28
 
 Lamun (teu mampu ngabantu nepi ka) anjeun (kapaksa) ngaléos ti maranéhna pikeun ngalap rahmat ti Pangéran anjeun anu kacida dipiharepna, sok atuh kedalkeun ka maranéhna kecap anu pantes. [^525]
-
-[^525]: Maksudna lamun anjeun can bisa nedunan hakna dulur anjeun anu deuheus, pakir miskin, jeung musapir, mangka ucapkeun baé kecap-kecap anu pantes, anu matak pikabungaheun jeung teu matak nyeri haté, anu dibarengan ku upaya satékah polah néangan rejeki anu halal sangkan hiji mangsa bisa nedunan hak-hak maranéhna.
 
 ## 17:29
 
@@ -9306,10 +8253,6 @@ Poma aranjeun ulah rék ngadeukeutan jinah. Saenyana éta (pagawéan) téh pohar
 
 Poma aranjeun ulah rék maéhan jalma anu geus diharamkeun ku Allah (maéhanana), kajaba kalayan alesan anu bener. [^526] Saha baé anu dipaéhan ku cara dolim, saenyana Kami geus méré kakawasaaan ka walina, [^527] tapi poma éta wali ulah rék kaleuleuwihi dina (males) maéhan, sabab saenyana manéhna téh (nyaéta wali anu teu kaleuleuwihi) bakal meunang pitulung.
 
-[^526]: Tingali catetan di surat al-An\`ām/6:151.
-
-[^527]: Nu dimaksud kakawasaan di dieu nyaéta wali jalma anu dipaéhan atawa pamaréntah nu dibéré wewenang pikeun nuntut qisos atawa ménta diyat. Tingali ogé surat al-Baqarah/2:178 jeung surat an-Nisā'/4:92.
-
 ## 17:34
 
 Poma aranjeun ulah rék ngadeukeutan harta budak yatim, kajaba (sakadar mangnguruskeun éta harta) ku cara anu leuwih hadé, nepi ka manéhna déwasa. Pék cumponan jangji aranjeun. Saenyana ari jangji mah pasti bakal dipénta tanggung jawabna.
@@ -9329,8 +8272,6 @@ Kadé hidep ulah lumampah di bumi bari gumedé, lantaran saenyana hidep téh moa
 ## 17:38
 
 Tah éta téh kabéhanana [^528] kagoréngan anu dipikangéwa ku Pangéran hidep.
-
-[^528]: Maksudna sakabéh pagawéan anu dicegah dina ayat 22, 23, 26, 29, 31, 32, 33, 34, 36, jeung 37 (dina ieu surat).
 
 ## 17:39
 
@@ -9404,8 +8345,6 @@ Pangéran hidep téh langkung uninga ka sadaya nu di langit jeung nu di bumi. T�
 
 Pok ucapkeun ku hidep (Muhammad), “Sok geura sambat ku aranjeun maranéhna nu dianggap pangéran ku aranjeun lian ti Mantenna. [^529] Maranéhna moal bisa ngaleungitkeun atawa mindahkeun bahaya ti aranjeun.”
 
-[^529]: Nu ku maranéhna sok disebut pangéran téh nyaéta berhala, malaikat, jin, jeung sajabana.
-
 ## 17:57
 
 Jalma-jalma nu sok disambat ku maranéhna téh (sabenerna mah maranéhna sorangan) pada néang jalan ka Pangéran maranéhna (jeung pada panasaran) saha ti antara maranéhna anu leuwih deukeut (ka Allah). Maranéhna ogé pada miharep rahmat-Na jeung ngarasa sieun ku siksa-Na. Saenyana siksa Pangéran hidep téh (kudu) dipikasieun.
@@ -9418,15 +8357,9 @@ Henteu aya hiji nagri ogé (anu pangeusina doraka) kajaba Kami binasakeun samém
 
 Teu aya anu ngahalangan Kami pikeun ngirimkeun tanda-tanda (kakawasaan Kami), iwal ku lantaran éta (tanda-tanda) téh geus kungsi dibohongkeun ku jalma-jalma anu baheula. [^530] Kami geus ngadatangkeun onta bikang ka kaom Samud (minangka mujijat) anu nyata, tapi maranéhna kalah ka ngadoliman éta onta (ku jalan dipeuncit). Teu pati-pati Kami ngirimkeun tanda-tanda (mujijat), iwal ti keur nyingsieunan.
 
-[^530]: Bisa baé Allah nyumpingkeun mujijat sakumaha paménta kaom Qurés keur ngabuktikeun benerna Nabi Muhammad Saw. Éta perkara téh gampil kanggo Allah mah. Ngan pan mujijat nu modél kitu téh geus dibohongkeun ku kaom-kaom anu baheula ogé, terus maranéhna dibinasakeun ku Allah. Ku sabab kitu, Mantenna moal rék nyumpingkeun mujijat anu sarupa kitu deui, sabab pasti bakal dibohongkeun ogé ku kaom Qurés, padahal Mantenna téh henteu ngersakeun badé ngabinasakeun kaom Qurés.
-
 ## 17:60
 
 (Sing inget) nalika Kami ngadawuh ka hidep (Muhammad), “Saenyana (élmu jeung kakawasaan) Pangéran hidep téh ngalimpudan (sakabéh) manusa. Kami teu ngajadikeun impian [^531] anu geus ditémbongkeun ku Kami ka hidep, kajaba minangka ujian pikeun manusa, ogé (nya kitu deui) tangkal kai anu dila’nat (zaqqūm) dina Al-Qur’an. [^532] Kami (ngahaja) nyingsieunan maranéhna, tapi nu kitu téh ngan nambahan pohara dorakana ka maranéhna mah.
-
-[^531]: Nu dimaksud impian di dieu nyaéta impian Rasulullah Saw. ngeunaan Perang Badar, saméméh prung éta perang. Loba ogé ahli tapsir nu nyebutkeun yén anu dimaksud téh nyaéta rupa-rupa pangalaman anu katingal ku anjeunna waktu Isra’ jeung Mi’raj.
-
-[^532]: Nyaéta tangkal Zaqqūm nu disebutkeun dina ayat 62 dugi ka ayat 65 surah al-Ṣaffāt.
 
 ## 17:61
 
@@ -9443,8 +8376,6 @@ Allah ngadawuh, “Jor manéh geura indit! Saha baé anu nurut ka manéh ti anta
 ## 17:64
 
 Prak geura tipu saha baé ti antara maranéhna (turunan Adam) anu manéh mampu (keur nipuna) ku sora manéh, jeung pék geura keprakkeun ka maranéhna pasukan kuda ogé pasukan darat manéh, pék geura ulubiung jeung maranéhna dina urusan harta banda ogé barudak, pék geura béré jangji pasini ka maranéhna. Teu aya anu dijangjikeun ku sétan ka maranéhna iwal ngan ukur réka perdaya wungkul. [^533]
-
-[^533]: Allah méré témpo ka Iblis pikeun nyasarkeun manusa ku sagala cara anu bisa dilakukeun ku manéhna, tapi sagala tipu dayana moal mempan ka jalma-jalma anu bener-bener iman tur ihlas mah.
 
 ## 17:65
 
@@ -9470,8 +8401,6 @@ Atawa naha maranéh ngarasa aman kitu yén Mantenna moal bakal malikkeun marané
 
 Tétéla Kami geus ngamulyakeun katurunan Adam, sarta geus Kami angkut maranéhna di darat jeung di laut. [^534] Kami ogé geus ngarejekian maranéhna tina (rejeki) anu hadé. Kami ogé geus ngaunggulkeun maranéhna saluhurun kalolobaan mahluk nu kungsi diciptakeun ku Kami kalayan kaunggulan anu sampurna.
 
-[^534]: Allah nyiapkeun pikeun anak turunan Adam rupa-rupa tutumpakan di daratan jeung di lautan, supaya maranéhna bisa motékar néangan rupa-rupa rejeki ti Allah.
-
 ## 17:71
 
 (Sing inget kana) poéan Kami ngageroan unggal (umat) manusa katut pamingpinna. Saha baé anu dibéré buku catetan amalna ti beulah katuhu, nya nu kitu mah bakal maca catetanana (kalayan bagja) bari moal dirugikeun saeutik ogé.
@@ -9496,19 +8425,13 @@ Tah lamun (kajadian) kitu, Kami tangtu bakal bener-bener nyiksa hidep dua tikel 
 
 Ampir baé maranéhna ngajadikeun hidep (Muhammad) hariwang di ieu nagri (Mekah), sangkan maranéhna bisa ngusir hidep ti dinya. Tah lamun geus (kajadian) kitu, tangtu maranéhna moal bisa tetep cicing (di éta nagri) sabada hidep (diusir), kajaba ngan ukur sakeudeung. [^535]
 
-[^535]: Upama Nabi Muhammad bener-bener diusir ku pangeusi kota Mekah, tangtu maranéhna moal lila hirup di dunya. Allah bakal nibankeunan siksaan ka maranéhna. Ku sabab kitu, hijrahna Nabi ka Madinah téh lain ku sabab diusir ku kaom Qurés, tapi ku sabab diparéntah ku Allah Swt.
-
 ## 17:77
 
 (Éta téh) katangtuan (anu lumaku ka) rasul-rasul anu geus Kami kirim saméméh hidep, [^536] jeung hidep moal manggihan parobahan nanaon dina katangtuan Kami.
 
-[^536]: Unggal-unggal kaom anu ngusir rosulna pasti bakal dibinasakeun. Éta téh geus jadi katangtuan ti Allah Swt.
-
 ## 17:78
 
 Pék adegkeun salat waktu geus lingsir panonpoé nepi ka poékna peuting jeung (adegkeun) salat subuh, [^537] saenyana salat subuh téh disaksikan (ku para malaikat).
-
-[^537]: Ieu ayat téh nerangkeun waktu-waktu salat, nyaéta lingsir panonpoé tanda geus datang waktu salat Lohor jeung Asar, poékna peuting tanda geus datang waktu salat Magrib jeung Isa, jeung meletékna pajar tanda datangna waktu salat subuh.
 
 ## 17:79
 
@@ -9517,8 +8440,6 @@ Tina sabagian peuting, prak geura salat tahajud minangka (ibadah) tambahan keur 
 ## 17:80
 
 Tuluy pok ucapkeun, “Nun Pangéran abdi, lebetkeun abdi kana lawang anu leres, sareng kaluarkeun abdi tina lawang anu leres, sareng paparin abdi ti mungguhing Gusti kakawasaan anu (bakal) jadi pitulung (ka abdi).” [^538]
-
-[^538]: Neda ka Allah supaya urang bisa ngamimitian ogé mungkas ibadah kalayan niat anu hadé, tur pinuh ku kaihlasan sarta bersih tina riya jeung sagala perkara nu matak ngaruksak ganjaran. Ieu ayat ogé méré isarat ka Nabi Muhammad Saw. sangkan hijrah ti Mekah ka Madinah. Aya ogé nu napsirkeun ayat ieu mangrupa doa sangkan urang asup ka kubur dina kaayaan hadé tur kaluar ti dinya ogé (dina poéan hisab) kalayan hadé.
 
 ## 17:81
 
@@ -9596,8 +8517,6 @@ Tah éta wawales keur maranéhna lantaran geus kupur kana ayat-ayat Kami jeung (
 
 Naha maranéhna henteu niténan kitu yén saenyana Allah anu geus nyiptakeun langit jeung bumi (tangtu) kawasa nyiptakeun anu sarupa jeung maranéhna? Mantenna geus netepkeun keur maranéhna waktu anu geus tangtu [^539] henteu aya kamangmangan deui ngeunaanana. Tapi jalma-jalma dolim mah tetep baé ingkar bari kupur.
 
-[^539]: Waktu maranéhna maot ogé waktu maranéhna dihudangkeun deui tina maot.
-
 ## 17:100
 
 Pok ucapkeun ku hidep (Muhammad), “Lamun seug maranéh mibanda gudang-gudang rahmat Pangéran kuring, tangtu maranéh ngeukeuweuk (éta rahmat) lantaran lebar ngabalanjakeunana.” Apan manusa mah pohara meditna.
@@ -9605,8 +8524,6 @@ Pok ucapkeun ku hidep (Muhammad), “Lamun seug maranéh mibanda gudang-gudang r
 ## 17:101
 
 Saenyana Kami geus maparin ka Musa salapan mujijat anu nyata, [^540] pék tanyakeun ka Bani Israél waktu Musa datang ka maranéhna, tuluy Fir’aun nyarita ka Musa, “Hé Musa, ceuk sangkaan kuring mah anjeun téh sabenerna mah jalma anu keuna ku sihir!”
-
-[^540]: Mujijat nu salapan téh nyaéta iteuk, panangan, simeut, kutu, bangkong, getih, topan, laut, jeung (Gunung) Tur Sina’.
 
 ## 17:102
 
@@ -9644,8 +8561,6 @@ Aranjeunna (nyuuh) ngantelkeun tarangna bari jeung ceurik sarta beuki tambah deu
 
 Ucapkeun ku hidep (Muhammad), “Pék geura gero ku aranjeun Ya Allah atawa Ya Rahman, da ku jenengan nu mana baé aranjeun ngadoa (éta hadé), apan Mantenna téh kagungan jenengan-jenengan anu saé pisan (Asmaul Husna). Kadé hidep ulah tarik teuing dina (babacaan) salat, ogé ulah lalaunan teuing, [^541] pék téangan jalan di antarana (anu sineger tengah).
 
-[^541]: Maksudna ulah bedas teuing nalika maca ayat Al-Qura’an keur waktu salat, atawa ulah lalaunan teuing, tapi cukup sakadar kadangu ku ma’mum.
-
 ## 17:111
 
 Pok ucapkeun ku hidep (Muhammad), “Sadaya puji kaagungan Allah anu teu kagungan putra, sareng teu aya sarékat kanggo Mantenna dina karajaana-Na. Ogé Mantenna teu peryogieun nu nulungan tina kahinaan, sarta pék geura agungkeun Mantenna ku aranjeun kalayan saagung-agungna.”
@@ -9653,8 +8568,6 @@ Pok ucapkeun ku hidep (Muhammad), “Sadaya puji kaagungan Allah anu teu kagunga
 ## 18:1
 
 Sadaya puji kagungan Allah anu geus nurunkeun Kitab (Al-Qur’an) ka hamba-Na, sareng Mantenna teu ngajadikeun éta (Kitab téh) béngkok. [^542]
-
-[^542]: Teu aya dina jero Al-Qur'an mah ma’na anu patojaiah ogé anu méngkol tina bebeneran.
 
 ## 18:2
 
@@ -9688,8 +8601,6 @@ Saenyana Kami bener-bener bakal ngajadikeun ogé naon nu aya di luhureun bumi t�
 
 Naha hidep nyangka yén saenyana Ashabul Kahfi (jalma-jalma pangeusi guha) jeung al-Raqīm [^543] téh kaasup tanda-tanda (kakawasaan) Kami anu ahéng?
 
-[^543]: Ceuk sawatara ahli tapsir al-Raqīm téh ngaran anjingna Ashabul Kahfi, sedengkeun ceuk sawaréhna deui mah batu anu aya tutulisanana.
-
 ## 18:10
 
 Nalika sawatara pamuda nyalindung di jero guha tuluy maranéhna ngadoa, “Nun Gusti Pangéran abdi sadaya, paparin abdi sadaya rahmat ti mungguhing Gusti, sareng pasihan abdi sadaya pituduh (jalan kaluar) tina ieu urusan abdi sadaya.”
@@ -9698,13 +8609,9 @@ Nalika sawatara pamuda nyalindung di jero guha tuluy maranéhna ngadoa, “Nun G
 
 Tuluy Kami nutupan ceuli (nibrakeun saré) aranjeunna dina jero éta guha sababaraha taun (lilana). [^544]
 
-[^544]: Nu dimaksud dua golongan téh nyaéta Ashabul Kahfi (pamuda-pamuda pangeusi guha) anu pada-pada béda pamadegan ngeunaan sabaraha lilana maranéhna cicing dina jero guha.
-
 ## 18:12
 
 Tuluy Kami ngahudangkeun deui aranjeunna sangkan Kami nyaho mana ti antara dua golongan [^545] anu paling pas ngitung sabaraha lila aranjeunna cicing (dina jero guha) téh.
-
-[^545]: Nu dimaksud dua golongan téh nyaéta Ashabul Kahfi (pamuda-pamuda pangeusi guha) anu pada-pada béda pamadegan ngeunaan sabaraha lilana maranéhna cicing dina jero guha.
 
 ## 18:13
 
@@ -9713,8 +8620,6 @@ Kami nyaritakeun ka hidep (Muhammad) carita aranjeunna téh kalayan sabenerna. S
 ## 18:14
 
 Kami geus mengkuhkeun haté aranjeunna waktu nangtung [^546] tuluy nyarita, “Pangéran kuring saréréa téh (nyaéta) Pangéran langit jeung bumi. Kuring saréréa moal rék ngadoa ka pangéran salian ti ka Mantenna, (sabab upami kitu) saenyana
-
-[^546]: Nangtung hareupeun Raja Dikyanus anu dolim tur adigung adiguna.
 
 ## 18:15
 
@@ -9799,8 +8704,6 @@ Tah (ku lantaran kitu) manéhna téh boga panghasilan anu mucekil. Tuluy manéhn
 ## 18:35
 
 Tuluy manéhna asup ka kebonna sedengkeun manéhna téh dolim ka dirina sorangan. [^547] Pok manéhna ngomong, “Ceuk kuring mah ieu kebon téh moal ruksak salawasna.
-
-[^547]: Ngadolim kana diri sorangana nyaéta ku cara adigung jeung kupur.
 
 ## 18:36
 
@@ -9922,8 +8825,6 @@ Musa nyarios, “Tah éta pisan (tempat) nu ditéangan ku urang téh.” Nya dua
 
 Nya aranjeunna patepang sareng hiji abdi ti antara hamba-hamba Kami. Kami geus maparin ka anjeunna rahmat ti mungguhing Kami, jeung Kami geus ngajarkeun ka anjeunna élmu ti mungguhing Kami. [^548]
 
-[^548]: Numutkeun ahli tapsir, jalmi anu dipilarian ku Nabi Musa téh nyaéta Nabi Khidir. Anjeunna kénging rahmat ti Gusti mangrupa wahyu sareng kanabian. Anjeunna ogé kénging nugraha élmu ngeunaan perkara-perkara anu gaib sakumaha anu dijelaskeun dina ayat-ayat saterusna.
-
 ## 18:66
 
 Musa nyarios ka anjeunna, “Naha kénging abdi nyarengan salira supados salira tiasa ngajarkeun ka abdi élmu anu bener tina sabagian (élmu) anu parantos diajarkeun (ku Pangéran) ka salira?”
@@ -10008,8 +8909,6 @@ Nya anjeunna nyorang (hiji) jalan.
 
 Waktu geus nepi ka tempat surupna panonpoé, anjeunna ningali éta panonpoé téh surup ka laut anu leutakna hideung. [^549] Tah di dinya anjeunna manggihan hiji kaom (anu teu ngagem agama nanaon). Kami ngadawuh, “Hé Zulkarnaén, hidep wenang ngahukum ka éta kaom atawa nyieun kahadéan ka maranéhna.”
 
-[^549]: Hiji basisir laut di beulah kulon, tempat Zulkarnaén ningali panonpoé surup.
-
 ## 18:87
 
 Zulkarnaén nyarios, “Saha baé jalma anu dolim, mangka kuring bakal ngahukum ka manéhna, terus éta (jalma téh) bakal dipulangkeun ka Pangéranana, teras Mantenna tangtos bakal nyiksa éta (jalma) ku siksaan anu kacida beuratna.
@@ -10026,8 +8925,6 @@ Tuluy anjeunna nyorang jalan (nu lain).
 
 Waktu nepi ka tempat meletékna panonpoé (beulah wétan), anjeunna ningali éta panonpoé téh meleték luhureun hiji kaom anu teu dibéré tédéng aling-aling ku Kami (keur ngiuhan) tina (panasna) éta panonpoé. [^550]
 
-[^550]: Saur sabagian ahli tapsir éta kaom téh kaom anu miskin.
-
 ## 18:91
 
 Tah kitu (carita Zulkarnaén téh), jeung tétéla Kami nyaho pisan kana sagala rupa hal ngeunaan (Zulkarnaén).
@@ -10043,8 +8940,6 @@ Waktu geus nepi ka (hiji tempat) antara dua gunung, anjeunna manggihan di satuka
 ## 18:94
 
 Maranéhna nyarita, “Nun Zulkarnaén, saleresna Ya’juj sareng Ma’juj téh tukang ngaruksak di ieu bumi, [^551] na kumaha (kira-kirana) upami abdi sadaya mayar salira supados mangdamelkeun bénténg panghalang antawis abdi sadaya sareng maranéhna.”
-
-[^551]: Ya’juj jeung Ma’juj téh dua kaom anu sok ngaruksak di bumi.
 
 ## 18:95
 
@@ -10114,8 +9009,6 @@ Pok ucapkeun ku hidep (Muhammad), “Saenyana kuring téh manusa saperti aranjeu
 
 Kāf Hā Yā \`Aīn Ṣāḍ. [^552]
 
-[^552]: Tingal catetan kaki surat al-Baqarah/2:1.
-
 ## 19:2
 
 (Ieu téh) carita (ngeunaan) rahmat Pangéran hidep ka hamba-Na, (nyaéta) Zakariya.
@@ -10159,10 +9052,6 @@ Teras Zakariya kaluar ti (jero) mihrab (nyanghareup) ka kaomna, teras anjeunna m
 ## 19:12
 
 (Dawuhan Allah), “Hé Yahya, cekel ku hidep ieu Kitab (Torét) kalayan pageuh!” [^553] Kami geus masihan ka Yahya hikmah [^554] ti (mimiti keur) budak kénéh.
-
-[^553]: Pék geura talungtik, geura amalkeun, jeung geura ajarkeun eusina éta Kitab ka balaréa.
-
-[^554]: Pangarti anu kacida luhungna ngeunaan kitab Torét.
 
 ## 19:13
 
@@ -10336,8 +9225,6 @@ Pék caritakeun ku hidep (Muhammad) ngeunaan (kisah) Isma’il dina Kitab (Al-Qu
 
 Anjeunna meréntahkeun ka kulawargana [^555] sangkan (ngadegkeun) salat jeung (ngaluarkeun) jakat. Anjeunna téh jalma anu dipikarido ku Pangéranana.
 
-[^555]: Ceuk sabagian ahli tapsir, nu dimaksud kulawarga di dieu téh nyaéta umatna.
-
 ## 19:56
 
 Pék caritakeun ku hidep (Muhammad) ngeunaan (kisah) Idris dina Kitab (Al-Qur’an). Saenyana anjeunna téh jalma nu pohara benerna (tur saurang) nabi.
@@ -10438,8 +9325,6 @@ Naha manéhna téh bisa ningali perkara nu gaib kitu, atawa manéhna téh geus n
 
 Tuluy Kami bakal ngawaris sagala anu kungsi diomongkeun ku manéhna, jeung manéhna bakal datang nyorangan ka Kami. [^556]
 
-[^556]: Maksudna: Allah bakal nyandak sakabéh harta tur anak nu kungsi kapibanda ku manéhna, nya manéhna téh mulang ka Allah sosoranganan teu dibaturan ku sasaha baé ogé.
-
 ## 19:81
 
 Maranéhna téh geus ngajadikeun pangéran-pangéran salian ti Allah, (anu maksudna) sangkan éta (pangéran-pangéran) téh jadi panyalindungan keur maranéhna.
@@ -10467,8 +9352,6 @@ Kami ngagiring jalma-jalma anu doraka ka naraka Jahanam dina kaayaan hanaang.
 ## 19:87
 
 Maranéhna moal meunang sapa’at (pitulung) kajaba jalma anu geus nyieun jangji pasini sareng (Pangéran) Nu Mahawelas [^557]
-
-[^557]: Maksudna nyieun jangji pasini sareng Allah téh nyaéta ngalaksanakeun sadaya paréntah-Na kalayan iman jeung takwa.
 
 ## 19:88
 
@@ -10518,8 +9401,6 @@ Geus kacida lobana umat manusa saméméh maranéhna anu geus dibinasakeun ku Kam
 
 Ṭā Hā. [^558]
 
-[^558]: Tingal catetan kaki surat al-Baqarah/2:1.
-
 ## 20:2
 
 Kami teu nurunkeun Al-Qur’an ka hidep (Muhammad) supaya (hirup) hidep jadi susah,
@@ -10535,8 +9416,6 @@ Lungsur ti (Allah) anu ngadamel bumi sareng langit anu luhur,
 ## 20:5
 
 Nu Mahawelas anu istiwā di ‘Arsy. [^559]
-
-[^559]: Tingal catetan kaki surat al-A\`raf/7:44
 
 ## 20:6
 
@@ -10974,8 +9853,6 @@ Tah kitu, Kami geus nurunkeun éta (Al-Qur’an) téh dina basa Arab, jeung Kami
 
 Mahaluhung Allah, Raja anu saleresna. Poma hidep (Muhammad) ulah rék gurunggusuh maca Al-Qur’an saméméh jangkep turunna wahyu ka hidep, [^560] sarta pék ngadoa, “Nun Gusti Pangéran abdi, tambihan (deui) élmu abdi!”
 
-[^560]: Allah nyegah Nabi Muhammad rurusuhan nuturkeun bacan Jibril a.s. sakalimat-sakalimat. Ieu ayat maréntahkeun anjeunna sangkan ngaregepkeun heula bacaan Jibril dugi ka rengsé, kakara ngapalkeun jeung ngaregepkeun eusina.
-
 ## 20:115
 
 Sabenerna Kami baheula geus ngawanti-wanti ka Adam, ngan manéhna pohoeun, tapi Kami henteu manggihan yén manéhna ngahaja (migawé éta dosa).
@@ -11004,13 +9881,9 @@ Tuluy sétan ngaharéwos ka Adam. Pokna, “Hé Adam, naha anjeun daék teu ku k
 
 Nya duanana (Adam jeung Hawa) ngadahar (buah) tina éta (tangkal Huldi). Atuh bréh baé katémbong orat duanana. Maranéhna duaan buru-buru nutupan oratna ku dangdaunan sawarga. Tah Adam (harita) geus ma’siat ka Pangéranana jeung sasar. [^561]
 
-[^561]: Maksud Adam ma\`siat: Nyaéta ngarempak kana panyaram Allah Swt. ku sabab poho, lain ngahajakeun. Ari maksudna Adam sasar nyaéta nurut kana pangajak sétan. Tah ieu kasalahan téh kaasup doraka gedé keur pangkat nabi samodél Nabi Adam mah.
-
 ## 20:122
 
 (Allah) milih anjeunna, [^562] nya Mantenna nampi tobatna sareng maparin pituduh.
-
-[^562]: Allah milih Adam a.s. pikeun jadi jalma anu deukut ka Mantenna.
 
 ## 20:123
 
@@ -11076,8 +9949,6 @@ Teu pati-pati diturunkeun ka maranéhna pépéling nu anyar ti Pangéranana, kaj
 
 Haté maranéhna teu maliré. Jalma-jalma nu dolim téh ngarasiahkeun caritaanana (ngaharéwoskeun), “Apan ieu (jalma/Muhammad) téh ukur manusa biasa (ogé) saperti aranjeun. Naha aranjeun narima éta sihir, [^563] padahal aranjeun nyaksian sorangan?”
 
-[^563]: Nu dimaksud ku maranéhna sihir di dieu téh nyaéta ayat-ayat Al-Qur'an.
-
 ## 21:4
 
 Anjeunna (Muhammad) nyarios, “Pangéran kuring uningaeun kana (sagala rupa) omongan di langit jeung di bumi. Da Mantenna Maha Ngadangu (tur) Mahauninga.”
@@ -11134,13 +10005,9 @@ Kami henteu nyiptakeun langit jeung bumi jeung nu aya di antarana téh heuheureu
 
 Saupama Kami rék ngajadikeun hiji perkara pikeun heuheureuyan mah, tangtu Kami bakal ngajadikeunana ti mungguhing Kami, [^564] upama Kami ngersakeun kitu mah.
 
-[^564]: Ti mungguh Kami” nyaéta nu luyu jeung sipat-sipat Allah.
-
 ## 21:18
 
 Sabalikna, Kami ngalungkeun nu hak (bebeneran) kana batil (nu teu bener), tuluy éta nu hak téh ngancurkeunana. Nya sapada harita (nu batil) musnah. Cilaka maranéh alatan geus nyipatan (Allah ku sipat-sipat nu teu samistina pikeun Mantenna). [^565]
-
-[^565]: Panyangka yén Allah téh ngagaduhan istri sareng putra.
 
 ## 21:19
 
@@ -11298,8 +10165,6 @@ Anjeunna (Ibrahim) ngajawab, “Sabenerna Pangéran aranjeun téh nyaéta Pangé
 
 (Anjeunna nyarita dina jero haténa,) “Demi Allah, kuring rék nyieun tipu daya kana berhala-berhala maranéh sanggeus maranéh indit ninggalkeunana.” [^566]
 
-[^566]: Éta cariosan digerenteskeun ku Nabi Ibrahim a.s. dina manahna. Maksudna mah, Nabi Ibrahim a.s. bakal milampah tipu dayana pikeun ngabinasakeun berhala-berhala maranéhna, sanggeus maranéhna nyingkah ninggalkeun éta tempat berhala.
-
 ## 21:58
 
 Nya anjeunna (Ibrahim) tuluy ngancurkeun éta (berhala-berhala) nepi ka ancur saremplak, kajaba nu panggedéna sangkan maranéhna malik (nanya) ka nu panggedéna téa.
@@ -11356,8 +10221,6 @@ Maranéhna rék migawé kagoréngan ka Ibrahim, nya Kami ngajadikeun maranéhna 
 
 Kami nyalametkeun anjeunna (Ibrahim) jeung Lut ka hiji nagri (Syam) anu geus diberkahan ku Kami keur sakumna alam. [^567]
 
-[^567]: Nagri Syam téh ngawengku ogé Palestina. Allah maparin kabarokahan ka éta nagri. Maksudna, kalolobaan nabi téh asalna ti ieu nagri anu lahanna subur.
-
 ## 21:72
 
 Kami maparin nugraha ka anjeunna (Ibrahim) Ishaq (anak), jeung minangka tambahan (Kami maparin) Ya’qub (incu). Masing-masing dijadikeun ku Kami jalma-jalma soléh.
@@ -11369,8 +10232,6 @@ Kami ngajadikeun aranjeunna pamingpin-pamingpin anu méré pituduh ku timbalan K
 ## 21:74
 
 Ka Lut, Kami maparin hikmah tur élmu, sarta Kami nyalametkeun anjeunna tina (siksa nu tumiba ka pangeusi) nagri (Sodom) nu milampah pagawéan kotor. [^568] Saenyana maranéhna téh kaom nu jahat tur pasék.
-
-[^568]: Homoseksual jeung ngabégal, sarta maranéhna milampah éta pagawéan kalayan nembrak.
 
 ## 21:75
 
@@ -11387,8 +10248,6 @@ Kami nulungan anjeunna ti jalma-jalma nu geus ngabohongkeun kana ayat-ayat Kami.
 ## 21:78
 
 (Sing inget kana kisah) Dawud jeung Sulaéman waktu duanana netepkeun kaputusan perkara kebon anu diruksak dina waktu peuting ku domba-domba milik kaomna. Kami nyakséni kana putusan (nu ditetepkeun) ku aranjeunna. [^569]
-
-[^569]: Dina riwayat Ibnu Abbas, aya sababaraha embé nu ngacak-ngacak kebon peuting-peuting. Nu boga kebon nepikeun éta perkara ka Nabi Dawud a.s. Anjeunna netepkeun yén éta embé téh kudu dipasrahkeun ka nu boga kebon pikeun ngagantian tutuwuhan nu raruksak. Ngan Nabi Sulaéman a.s. mah netepkeun pamadegan yén éta embé téh saheulaanan dipasrahkeun ka nu boga kebon pikeun diala hasilna. Tuluy nu boga kebon kudu ngaganti éta tutuwuhan ku tutuwuhan nu anyar. Lamun tutuwuhan nu anyar éta geus diala hasilna, nya karék éta nu boga embé bisa nyokot deui embéna. Tah lebah dieu mah kaputusan Nabi Sulaéman téh éta nu leuwih bener.
 
 ## 21:79
 
@@ -11427,8 +10286,6 @@ Kami geus ngasupkeun aranjeunna kana rahmat Kami. Saenyana aranjeunna téh kaasu
 
 (Sing inget kisah) Zun Nun (Yunus) waktu indit bari ambek, tuluy anjeunna nyangka yén Kami moal bakal ngarupekkeun anjeunna. Ti dinya anjeunna ngadoa dina mangpirang-pirang poék, [^570] “Teu aya deui Pangéran anging Gusti (tur) Mahasuci Gusti. Saleresna abdi téh rumaos kalebet jalma-jalma nu dolim.”
 
-[^570]: Dina jero beuteung lauk, di jero laut, sarta dina waktu peuting.
-
 ## 21:88
 
 Saterusna Kami ngaijabah (doana) jeung nyalametkeun anjeunna tina kasusah. Nya kitu deui Kami bakal nyalametkeun jalma-jalma mu’min.
@@ -11436,8 +10293,6 @@ Saterusna Kami ngaijabah (doana) jeung nyalametkeun anjeunna tina kasusah. Nya k
 ## 21:89
 
 (Sing inget kisah) Zakaria waktu ngadoa ka Pangéranana, “Nun Gusti Pangéran abdi, Mugi Gusti ulah ngantep abdi hirup nunggelis (tanpa turunan) sareng Gusti téh nu pangsaé-saéna waris.” [^571]
-
-[^571]: Mun seug mah Allah teu ngaijabah doana, nyaéta ku maparin katurunan, Zakariya mah bakal masrahkeun dirina baé ka Allah, sabab Allah téh panghadé-hadéna nu ngawaris.
 
 ## 21:90
 
@@ -11502,8 +10357,6 @@ Kareuwas nu rongkah (Poé Kiamat) moal matak ngajadikeun aranjeunna nalangsa, sa
 ## 21:105
 
 Kami geus nulis dina Kitab Jabur, [^572] sanggeus (katulis) dina Az-Zikr (Loh Mahpud), yén ieu bumi téh bakal diwariskeun ka hamba-hamba Kami nu soléh.
-
-[^572]: Sakabéh kitab nu dilungsurkeun ku Allah ka nabi-nabi-Na. Sawaréh ahli tapsir nyebutkeun yén “Jabur” téh nyaéta Kitab nu diturunkeun ka Nabi Dawud a.s., sedengkeun Aż-Żikr mah nyaéta kitab Torét.
 
 ## 21:106
 
@@ -11577,10 +10430,6 @@ bari maléngoskeun beuheungna (tur adigung) pikeun nyasarkeun manusa tina jalan 
 
 Ti antara manusa aya nu ibadah ka Allah ngan di tepi (teu dibarengan kayakinan anu pinuh). [^573] Upama pinanggih jeung kahadéan, manéhna sugema, tapi upama ditibanan hiji cocoba, manéhna ngabalieur ka tukang. [^574] Manéhna rugi di dunya jeung di ahérat. Tah éta pisan karugian nu nyata.
 
-[^573]: Henteu didadasaran ku kayakinan nu buleud.
-
-[^574]: Balik deui kana kakapiran.
-
 ## 22:12
 
 Manéhna sasambat ka salian ti Allah anu teu bisa ngadatangkeun madarat jeung teu (ogé) mawa mangpaat ka manéhna. Éta téh kasasaran nu jauh.
@@ -11596,8 +10445,6 @@ Saleresna Allah bakal ngalebetkeun jalma-jalma nu iman jeung milampah amal solé
 ## 22:15
 
 Saha baé nu nyangka yén Allah moal nulungan anjeunna (Muhammad) di dunya jeung di ahérat, nya antep baé manéhna sina ngantengkeun tali ka lalangit (imahna pikeun nyekék beuheungna), [^575] tuluy sina megatkeun éta (tali). Saterusna pék pikiran ku manéhna naha tipu dayana téh bisa ngaleungitkeun kanyeri (haté)na?
-
-[^575]: Kecap sama' di dieu dihartikeun lalangit (bagian tina suhunan imah). Mun sama' dihartikeun langit (dina harti nu biasa), nya tarjamahna jadi "mun seug musuhna Muhammad Saw. ambek lantaran anjeunna kénging pitulung ti langit, nya keun baé manéhna sina ngantengkeun tali ka langit, jeung tuh tingali naha maranéhna bisa megatkeun éta pitulung ku cara kitu? Hartina, kacida bodona maranéhna mun seug nyangka bisa megatkeun pitulung ti Allah ku éta cara nu heureut.
 
 ## 22:16
 
@@ -11651,19 +10498,13 @@ Saenyana jalma-jalma anu kupur jeung ngahalang-halang (batur) tina jalan Allah j
 
 (Maranéhna jul-jol datang téh) sangkan nyaksian pirang-pirang mangpaat keur maranéhna jeung sangkan nyarebut jenengan Allah dina sababaraha poé nu geus ditangtukeun [^576] alatan rejeki nu geus dipaparinkeun ku Mantenna ka maranéhna mangrupa ingon-ingon. Pék geura dalahar sawaréh tina éta rejeki jeung (sawaréh deui mah) bikeun baé keur barang dahar jalma-jalma nu katalangsara (tur) pakir.
 
-[^576]: Lebaran haji jeung Tasyrīq téh nyaéta kaping 10, 11, 12, jeung 13 Julhijah.
-
 ## 22:29
 
 Tuluy maranéhna kudu ngaberesihan kokotor-kokotor [^577] (nu aya dina awak maranéhna), nyumponan nadar-nadarna, jeung ngalakonan towaf di sakurilingeun Baitul ‘Atiq (Baitullah) téa.
 
-[^577]: Nu dimaksud “ngaberesihan kokotor-kokotor” di dieu téh nyaéta nyukur rambut, neukteuk kuku, jeung sajabana.
-
 ## 22:30
 
 Éta téh (pituduh jeung timbalan Allah). Saha baé nu ngagungkeun sakabéh nu dihormat mungguhing Allah (ḥurumāt), [^578] nya pasti éta leuwih hadé keur manéhna mungguh Pangéranana. Sakabéh ingon-ingon dihalalkeun keur maranéh, kajaba nu geus diterangkeun (kaharamanana) ka maranéh. Ku kituna, geura singkahan (ngaibadahan) berhala-berhala nu najis jeung singkahan omongan-omongan bohong.
-
-[^578]: Nu dipihormat (ḥurumāt) dina ieu ayat téh hartina nyaéta bulan haram (Muharam, Julkaidah, Julhijah, Rajab), daérah haram, jeung makom Ibrahim.
 
 ## 22:31
 
@@ -11673,15 +10514,9 @@ Tuluy maranéhna kudu ngaberesihan kokotor-kokotor [^577] (nu aya dina awak mara
 
 Éta téh (timbalan Allah). Saha baé nu ngagungkeun si’ar-si’ar Allah, [^579] sabenerna éta téh (kaasup) kana katakwaan haté.
 
-[^579]: Si’ar Allah téh nyaéta sadaya amalan nu dipigawé dina raraga ibadah haji jeung tempat-tempat pikeun migawéna.
-
 ## 22:33
 
 Pikeun aranjeun dina éta (ingon-ingon hadyu) [^580] téh aya pirang-pirang mangpaat, [^581] nepi ka waktu nu geus ditangtukeun. Tuluy tempat meuncitna téh nyaéta sabudeureun Baitul ‘Atiq (Tanah Harom sakabéhna).
-
-[^580]: Tingali Al-Baqarah/2:196.
-
-[^581]: Nu dimaksud ingon-ingon hadyu téh bisa ku aranjeun diala mangpaatna, saperti keur tutumpakan, diala susunan, jeung sajabana nepi ka poé naḥar.
 
 ## 22:34
 
@@ -11694,8 +10529,6 @@ Pikeun saban-saban umat, Kami geus netepkeun saréat meuncit (ingon-ingon hadyu)
 ## 22:36
 
 Kami ngajadikeun éta onta-onta pikeun aranjeun minangka bagian tina si’ar-si’ar agama Allah. Pikeun aranjeun aya kahadéan ti dinya. Ku kituna, geura sebut jenengan Allah (waktu aranjeun rék meuncitna, sedengkeun éta onta téh) dina kaayaan nangtung [^582] (jeung geus ditalian sukuna). Tuluy upama geus rubuh (paéh), pék geura dalahar sawaréh tina éta (peupeuncitan) téh jeung béré dahar boh jalma-jalma nu tumarima kana saayana (nu teu ménta) boh nu marénta. Tah nya kitu pisan Kami geus nundukkeun éta (onta-onta) ka aranjeun sangkan sukuran.
-
-[^582]: Biasana onta dipeucit dina kaayaan bari nangtung.
 
 ## 22:37
 
@@ -11760,8 +10593,6 @@ Anapon jalma-jalma anu mungkir kana ayat-ayat Kami kalayan boga maksud ngahéngk
 ## 22:52
 
 Kami teu ngutus hiji rasul jeung teu (ogé) saurang nabi saméméh hidep (Muhammad), anging upama éta rasul téh jorojoy boga kahayang, [^583] der baé sétan-sétan ngasupkeun (godaan-godaan) kana kahayangna. Tuluy Allah ngaleungitkeun naon nu diasupkeun ku éta (sétan) sarta mengkuhkeun ayat-ayat-Na (dina jero haté jalma-jalma mu’min). Saleresna Allah mah Mahauninga (tur) Mahawijaksana.
-
-[^583]: Sawaréh ahli tapsir ngahartikeun kecap tamannā ku “maca” jeung umniyyatihi ku “bacaanana.” Nyaéta waktu Nabi Saw. maos hiji ayat nu eusina méré naséhat ka jalma-jalma kapir, aranjeunna gancang nuturkeun bacaan Nabi Saw. bari ditambahan ku kecap-kecap nu nguatan kayakinana.
 
 ## 22:53
 
@@ -11891,8 +10722,6 @@ jeung jalma-jalma anu ngajaga bobogaanana,
 
 kajaba ka istri-istrina atawa ka budak beulian anu dipimilikna. [^584] Sabenerna aranjeunna henteu hina (ku sabab campur jeung maranéhna).
 
-[^584]: Budak beulian (abid) hasil tina pangperangan ngalawan jalma kapir, lain nu dihasilkeun di luar perang agama. Ayeuna mah budak beulian téh geus teu aya.
-
 ## 23:7
 
 Mangka, saha-saha anu néangan (pikeun nedunan syahwatna) sajaba ti éta, nya maranéhna téh jalma-jalma anu ngaliwatan wates.
@@ -12017,8 +10846,6 @@ Jauh, jauh pisan naon anu diancamkeun ka maranéh téh (tina bebeneran).
 
 Éta (kahirupan) téh taya lian kajaba ngan ukur di alam dunya ieu. (Di dinya) urang maot, hirup, [^585] jeung moal pisan ngalaman dihudangkeun (deui).
 
-[^585]: Sawaréh manusa maot jeung sawaréh deui mah dilahirkeun.
-
 ## 23:38
 
 Manéhna (Hud) mah taya lian ngan ukur hiji lalaki anu jijieunan kabohongan ka Allah jeung urang saréréa moal rék percaya ka manéhna.”
@@ -12035,8 +10862,6 @@ Mantenna (Allah) ngadawuh, “Sakeudeung deui ogé maranéhna téh bener-bener b
 
 Tuluy maranéhna dimusnahkeun ku sora anu ngageleger kalayan sabener-benerna jeung Kami ngajadikeun maranéhna (lir) runtah nu kabawa caah. [^586] Mangka, kabinasaan pikeun kaom anu dolim.
 
-[^586]: Tah éta ku sakitu goréngna panganggeusan maranéhna téh, tug nepikeun maranéhna teu walakaya saeutik ogé, teu béda lir runtah nu kabawa caah, sanajan maranéhna téh dedeg pangadegna sakitu jangkung badagna.
-
 ## 23:42
 
 Tuluy Kami nyiptakeun sanggeus maranéhna umat-umat anu séjén.
@@ -12052,8 +10877,6 @@ Tuluy Kami ngutus rasul-rasul Kami kalayan noron. Saban-saban saurang rasul sump
 ## 23:45
 
 Tuluy Kami ngutus Musa jeung dulurna, Harun, bari mawa tanda-tanda (kaagungan) Kami jeung bukti anu nyata [^587]
-
-[^587]: Mujijat Nabi Musa a.s. nu salapan rupa.
 
 ## 23:46
 
@@ -12175,13 +10998,9 @@ Sabenerna jalma-jalma anu teu iman kana ahérat bener-bener geus méngpar jauh t
 
 Lamun téa mah Kami maparin rahmat ka maranéhna jeung Kami ngaleungitkeun kamadorotan [^588] anu tumiba ku maranéhna, tangtu maranéhna téh bakal tuluy-tuluyan bingung dina kasasaranana.
 
-[^588]: Kamadorotan mangrupa kalaparan. Kaom musrikin kungsi ngalaman kalaparan, sabab dahareun ti Yaman teu asup ka Mekah, sedengkeun Mekah jeung sabudeureunana aya dina kaayaan paceklik, nepi ka dina mangsa harita maranéhna téh kacida malaratna.
-
 ## 23:76
 
 Sabenerna Kami bener-bener nibankeun siksaan ka maranéhna, [^589] tapi maranéhna teu daékeun tunduk ka Pangéranana, jeung (ogé) henteu handap asor.
-
-[^589]: Di antarana maranéhna éléh dina waktu Perang Badar, nu harita dina éta perang gegedén-gegedénna téh loba nu paéh atawa ditawan, bari maranéhna téh ditibanan usum halodo tarik. Ahirna maranéhna téh kasiksa ku kalaparan.
 
 ## 23:77
 
@@ -12210,8 +11029,6 @@ Maranéhna nyarita, “Naha lamun urang geus maot sarta jadi taneuh jeung tulang
 ## 23:83
 
 Sabenerna nu kieu téh geus dijangjikeun ka urang jeung karuhun-karuhun urang ti saméméhna. [^590] Ieu mah taya lian ngan dongéng jalma-jalma baheula!”
-
-[^590]: Nyaéta naséhat ku poé dihudangkeun deui.
 
 ## 23:84
 
@@ -12280,8 +11097,6 @@ Sareng abdi nyalindung (ogé) ka Gusti, nun Gusti Pangéran abdi, tina datangna 
 ## 23:100
 
 sangkan abdi tiasa milampah kahadéan nu ku abdi dikantunkeun.” Moal bisa! Sabenerna éta mah ngan alesan anu dicaritakeun wungkul. Di hareupeun maranéhna aya (alam) barjah [^591] nepi ka poé maranéhna dihudangkeunana deui.
-
-[^591]: Barjah téh nyaéta hiji tempat atawa kaayaan jalma sanggeus maot nepi ka manéhna dihudangkeun deui dina Poé Kiamat.
 
 ## 23:101
 
@@ -12367,8 +11182,6 @@ Awéwé nu jinah jeung lalaki nu jinah, pék rangkét masing-masing ti duanana s
 
 Lalaki anu jinah henteu pantes kawin anging ka awéwé anu jinah atawa ka awéwé anu musrik, jeung awéwé anu jinah teu pantes kawin anging jeung lalaki anu jinah atawa jeung lalaki musrik. Éta téh diharamkeun pikeun jalma-jalma mu’min. [^592]
 
-[^592]: Jalma mu’min teu pantes kawin jeung tukang jinah, nya kitu ogé sabalikna.
-
 ## 24:4
 
 Jalma-jalma anu nuduh (jinah ka) istri anu ngajaga diri jeung henteu ngadatangkeun opat saksi, mangka rangkét maranéhna (éta anu nuduh) dalapan puluh kali jeung aranjeun salilana ulah narima kasaksian maranéhna. Maranéhna téh jalma-jalma pasék,
@@ -12385,8 +11198,6 @@ Jalma-jalma anu nuduh jinah ka pamajikanana, padahal maranéhna teu boga saksi-s
 
 jeung (sumpah) nu kalima kalina, nyaéta la’nat Allah ka dirina lamun manéhna kaasup jalma-jalma anu ngabohong. [^593]
 
-[^593]: Nu dimaksad ku ayat 6-7 téh nyaéta jalma anu nuduh jinah bari teu bisa ngadatangkeun opat urang saksi, nya manéhna kudu daék sumpah nyebat jenengan Allah opat kali, yén tuduhanana téh bener. Tuluy manéhna kudu daék sumpah sakali deui yén manéhna bakal keuna ku la’nat Allah lamun seug manéhna bohong. Perkara ieu dina fiqih mah disebutna téh bab li’ān.
-
 ## 24:8
 
 Éta pamajikanana bisa leupas tina hukuman waktu manéhna sumpah opat kali kalayan (jenengan) Allah, yén anjeunna (salakina) téh bener-bener kaasup jalma-jalma anu ngabohong,
@@ -12402,8 +11213,6 @@ Lamun téa mah lain lantaran kurnia Allah jeung rahmat-Na ka aranjeun jeung (lai
 ## 24:11
 
 Sabenerna jalma-jalma anu mawa béja bohong [^594] téh golongan ti antara aranjeun (kénéh). Aranjeun ulah nyangka yén éta kajadian téh goréng pikeun aranjeun, sabalikna éta téh alus pikeun aranjeun. Saban jalma ti maranéhna bakal meunang wawales tina dosa anu dipilampahna. Sedengkeun jalma anu jadi lulugu ti antara maranéhna bakal meunang siksaan anu pohara beuratna.
-
-[^594]: Béja bohong ieu ngeunaan garwana Rasulullah Saw., nyaéta ‘Aisyah r.a., Ummul Mu’minin, sanggeusna perang ngalawan Bani Mustaliq dina sasih Sya’ban 5 H. Dina éta pangperangan téh, kaom munapék ngarilu, sareng ‘Aisyah r.a. ogé ngiring sareng Nabi Saw. dumasar kana undian nu diayakeun di antara garwa-garwana. Waktu badé mulih ti pangperangan, aranjeunna lirén heula di hiji tempat. ‘Aisyah r.a. kaluar tina sakeduqna ku margi aya kaperyogian, lajeng anjeunna mulih deui. Ngan ujug-ujug anjeunna rumaos kaleungitan kongkorong, teras anjeunna kaluar deui milari éta kongkorong. Sedeng, rombonganna arangkat pédah sangkaanana yén ‘Aisyah aya kénéh dina lebet sakeduqna. Saparantosna ‘Aisyah terang yén sakeduqna tos angkat, anjeunna teras calik di dinya sareng miharep yén éta sakeduq téh bakal mulang deui mapagkeun anjeunna. Kaleresan ngalangkung ka tempat éta saurang sahabat Nabi, Sofwan ibnu Mu’atal, nu mendakan hiji jalmi nu nuju kulem nyalira sareng anjeunna reuwas kacida bari ngucapkeun, “Innā lillāhi wa innā ilaihi rāji’ūn, geuning garwana Rasul!” Aisyah teras gugah. Lajeng anjeunna disuhunkeun naék kana ontana ku Sofwan. Sofwan nungtun éta onta dugi duanana sumping di Madinah. Jalma-jalma nu ningali anjeunna duaan teras ngadurényomkeunana nurutkeun kamandangna masing-masing. Ti dinya mimiti bijilna béja bohong téh. Tuluy kaom munapék ngagedékeunna, nya pitnah ka ‘Aisyah teras beuki ngalegaan, dugi ka nimbulkeun kaharénghéng di antara kaom muslimin.
 
 ## 24:12
 
@@ -12453,8 +11262,6 @@ Jalma nu ngabogaan kaleuwihan jeung kajembaran (rejeki) ti antara aranjeun poma 
 
 Sabenerna jalma-jalma anu nuduh ka istri-istri nu ngajaga diri, polos, [^595] jeung iman (ku tuduhan jinah), maranéhna dila’nat boh di dunya boh di ahérat jeung maranéhna bakal meunang siksaan nu gedé,
 
-[^595]: Nu dimaksad ku istri-istri nu polos téh nyaéta istri-istri anu tacan kantos niat pikeun milampah padamelan kotor sakali ogé.
-
 ## 24:24
 
 dina poéan (waktu) létah, leungeun, jeung suku maranéhna jadi saksi ka maranéhna kana naon anu dipilampah ku maranéhna baheula.
@@ -12466,8 +11273,6 @@ Dina éta poé, Allah nyampurnakeun wawales nu sabenerna ka maranéhna jeung mar
 ## 24:26
 
 Awéwé-awéwé anu jahat pikeun lalaki-lalaki anu jahat, jeung lalaki-lalaki anu jahat (disadiakeun) pikeun awéwé-awéwé anu jahat (deui). Ari istri-istri anu hadé pikeun lalaki-lalaki anu hadé, jeung lalaki-lalaki nu hadé pikeun awéwé-awéwé anu hadé (deui). Aranjeunna (nu hadé) éta beresih tina naon anu dituduhkeun ku maranéhna. Pikeun aranjeunna pangampura sareng rejeki anu mulya. [^596]
-
-[^596]: Ieu ayat nuduhkeun kasucian ‘Aisyah r.a. jeung Sofwan tina sagala tuduhan nu dituduhkeun ka aranjeunna. Rasulullah téh jalmi anu pangsaéna, nya tangtu nu janten garwana téh istri anu saé ogé.
 
 ## 24:27
 
@@ -12505,15 +11310,9 @@ Sabenerna Kami bener-bener geus nurunkeun ka aranjeun ayat-ayat anu méré kater
 
 Allah téh (anu méré) cahaya (ka) langit jeung bumi. Babandingan cahaya-Na téh saperti hiji liang (dina témbok) anu teu tembus, [^597] anu di jerona aya lampu gedé. Éta lampu aya di jero ruas kaca (jeung) éta ruas kaca téh ibarat béntang (anu kumelip saperti) mutiara, anu dihurungkeun maké minyak tina tangkal anu diberkahan, (nyaéta) tangkal Jaitun anu jadina lain di wétan jeung lain ogé di kulon, [^598] anu minyakna (baé) ampir-ampiran nyaangan, sanajan henteu diantelan ku seuneu. Cahaya di luhureun cahaya (manglapis-lapis). Allah maparin pituduh kana cahaya-Na ka jalma anu dikersakeun ku Mantenna. Allah ngadamel babandingan pikeun manusa. Allah Mahauninga kana sagala perkara.
 
-[^597]: Liang nu teu tembus” (misykāt) nyaéta hiji liang dina lebah témbok imah nu teu tembus nepi ka sabeulahna deui, biasana dipaké pikeun tempat nunda lampu atawa barang-barang séjénna.
-
-[^598]: Tangkal Jaitun téh tumuwuhna dina puncak pasir. Éta tangkal téh kasorot ku cahya panonpoé dina waktu meleték panonpoé atawa dina waktu surup panonpoé , nepi ka tangkalna téh subur jeung buahanana ngahasilkeun minyak nu hadé.
-
 ## 24:36
 
 (Éta cahaya aya) di imah-imah anu ku Allah diparéntahkeun pikeun dimulyakeun jeung disebut jenengan-Na di jerona. Di dinya ngagungkeun [^599] ka Mantenna dina mangsa isuk-isuk jeung pasosoré
-
-[^599]: Nu ngagungkeun téh nyaéta jalma nu disebut dina ayat 37.
 
 ## 24:37
 
@@ -12526,8 +11325,6 @@ jalma-jalma anu henteu katungkulkeun ku dagang atawa jual beuli tina éling ka A
 ## 24:39
 
 Jalma-jalma kapir mah amal pagawéanana téh lir patamorgana di taneuh anu datar. Jalma-jalma anu hanaang nyangka éta téh cai, nepi ka waktu didatangan mah, maranéhna téh teu manggihan nanaon. (Sabalikna) maranéhna manggih (katetepan) Allah (keur maranéhna) di dinya, teras Mantenna ngayakeun balitungan (amal-amal) kalayan sampurna. Allah mah gancang pisan balitungan-Na. [^600]
-
-[^600]: alma-jalma kapir, ku sabab amal-amalna teu didadasaran ku iman, moal meunang wawales ti Allah di ahérat, sanajan di dunyana nyangka bakal meunang wawales amalna.
 
 ## 24:40
 
@@ -12577,8 +11374,6 @@ Naha (sikep maranéhna anu kitu téh ku lantaran) dina haténa aya panyakit, ata
 
 Sabenerna nu jadi jawaban jalma-jalma mu’min, waktu aranjeunna diajak ka Allah miwah Rasul-Na sangkan mutuskeun (perkara) di antara aranjeunna, [^601] ngan wungkul “Abdi sadaya nguping sareng ta’at.” Aranjeunna téh jalma-jalma anu untung.
 
-[^601]: Di antara sasama kaom muslimin, jeung antara kaom muslimin jeung nu lain muslimin.
-
 ## 24:52
 
 Saha baé nu ta’at ka Allah miwah Rasul-Na, sarta sieun ku Allah jeung takwa ka Mantenna, aranjeunna jalma-jalma anu meunang kaunggulan.
@@ -12607,25 +11402,17 @@ Hidep poma ulah boga sangkaan yén jalma-jalma kapir téh bisa ngahéngkérkeun 
 
 Hé jalma-jalma anu iman, abid (boh lalaki boh awéwé) anu dipimilik ku aranjeun jeung jalma-jalma anu tacan balég (déwasa) ti antara aranjeun, kudu marénta idin heula ka aranjeun tilu kali, nyaéta saméméh salat Subuh, waktu aranjeun ngalaan pakéan (luar) dina tengah poé, jeung sanggeus salat isya. (Éta téh) tilu (waktu anu biasana) orat (muka) pikeun aranjeun. [^602] Teu jadi dosa pikeun aranjeun jeung ka maranéhna (ogé) salian ti (tilu waktu) éta. (Maranéhna) sering larsup ngawulaan aranjeun. Sabagian aranjeun (mémang sering larsup) ka sabagianana deui. Kitu tah Allah ngajelaskeun ayat-ayat ka aranjeun. Allah Mahauninga (tur) Mahawijaksana.
 
-[^602]: Tilu rupa waktu nu biasana dina waktu-waktu éta awak sering témbong. Ku sabab kitu, Allah nyegah ka budak beulian jeung barudak nu can sawawa ulah nepi ka asup ka kamar saré nu geus sawawa tanpa idin.
-
 ## 24:59
 
 Upama putra-putra ti antara aranjeun geus nepi kana umur déwasa (balég), maranéhna kudu ménta idin saperti jalma-jalma anu (geus déwasa) saméméh maranéhna anu (ogé) ménta idin. [^603] Kitu tah Allah ngajelaskeun ayat-ayat ka aranjeun. Allah Mahauninga (tur) Mahawijaksana.
-
-[^603]: Barudak ti jalma merdéka anu lain mahrom nu geus balég, kudu ménta idin heula mun rék asup ka kamar saré kolotna, siga jalma-jalma nu kasebut dina ayat 27 jeung 28 dina ieu surat.
 
 ## 24:60
 
 Awéwé-awéwé kolot anu geus eureun (tina héd atawa kakandungan) anu henteu boga kahayang pikeun nikah, taya dosa pikeun maranéhna ngalaan pakéan (luarna) [^604] bari taya (maksud) némbongkeun perhiasan. Tapi, ngajaga kahormatan (tetep maké pakéan luar) éta leuwih hadé pikeun maranéhna. Allah Maha Ngadangu (tur) Mahauninga.
 
-[^604]: Pakéan luar anu moal némbongkeun orat upama dibuka.
-
 ## 24:61
 
 Taya halangan pikeun jalma lolong, jalma réngkod, jalma gering, jeung pikeun diri aranjeun dalahar di imah dulur-dulur aranjeun nu lalaki, di imah dulur-dulur aranjeun nu awéwé, di imah dulur-dulur bapa aranjeun nu lalaki, di imah dulur-dulur bapa aranjeun nu awéwé, di imah dulur-dulur indung aranjeun nu lalaki, di imah-imah dulur indung aranjeun nu awéwé, (di imah) anu aranjeun boga koncina, [^605] atawa (di imah) sobat-sobat aranjeun. Taya halangan pikeun aranjeun rék dahar babarengan atawa séwang-séwangan. Di mana aranjeun rék asup ka éta imah, pék uluk salam (ka nu nyicinganana, anu ngandung harti uluk salam) ka diri aranjeun sorangan kalayan salam nu pinuh ku kaberkahan jeung hadé mungguhing Allah. Tah kitu Allah ngajelaskeun ka aranjeun ayat-ayat(-Na) sangkan aranjeun ngagunakeun akal.
-
-[^605]: Imah nu dipasrahkeun ka anjeun pikeun ngurusna.
 
 ## 24:62
 
@@ -12691,8 +11478,6 @@ Upama éta (naraka) nénjo maranéhna ti tempat nu jauh, maranéhna ngadéngé t
 
 Upama dialungkeun kana tempat anu heurin di naraka bari diborogod, maranéhna di dinya ngagorowok ngarepkeun kabinasaan. [^606]
 
-[^606]: Maranéhna miharep kacilakaan sangkan bisa leupas tina siksaan nu pohara gedéna, nyaéta sisa naraka nu kacida panasna bari diborogod di tempat nu heurin pisan, sakumaha nu didadarkeun dina éta ayat.
-
 ## 25:14
 
 (Bakal dicaritakeun ka maranéhna), “Maranéh dina ieu poé ulah ngarepkeun hiji kabinasaan wungkul, tapi harepkeun kabinasaan anu terus-terusan.”
@@ -12712,8 +11497,6 @@ Pikeun aranjeunna sagala perkara nu dikersakeun aya di lebetna (sawarga). Aranje
 ## 25:18
 
 Maranéhna (nu disarembah) ngajawab, “Mahasuci Gusti. Teu pantes kanggo abdi sadaya nyandak panyalindungan salian ti Gusti, [^607] tapi Gusti parantos maparin ka maranéhna sareng karuhunna kani’matan hirup dugi ka maranéhna mopohokeun kana pépéling sareng maranéhna kaom nu binasa.”
-
-[^607]: Sanggeus maranéhna diriungkeun babarengan jeung saniskara nu disembah ku maranéhna, nyaéta malaikat, Ujair, Nabi Isa a.s., katut berhala-berhalana, sarta saparantos Allah nalék ka nu disarembahna, “Naha maranéh anu nyasarkeun éta jalma-jalma téh atawa éta jalma-jalma anu nyasarkeun dirina sorangan?” Nya nu disarembah téh ngajawab yén teu pantes pikeun maranéhna ibadah ka salian ti Allah, komo ieu mah nitah ka nu séjénna pikeun ibadah ka salian ti Mantenna.
 
 ## 25:19
 
@@ -12735,8 +11518,6 @@ Jalma-jalma anu henteu miharep patepung jeung Kami (di ahérat) nyarita, “Ku n
 
 Kami némbongkeun sagala amal anu dipilampah ku maranéhna, [^608] tuluy ngajadikeun éta amal (saperti) lebu anu (diawur) ngarambang.
 
-[^608]: Amal-amal hadé nu dipilampah ku maranéhna di dunya. Éta amal téh mubah sabab maranéhna téh teu iman.
-
 ## 25:24
 
 Anu nyicingan sawarga dina éta poé téh leuwih hadé padumukanana jeung leuwih éndah tempat pangreureuhanana.
@@ -12749,8 +11530,6 @@ Anu nyicingan sawarga dina éta poé téh leuwih hadé padumukanana jeung leuwih
 
 Karajaan anu hak [^609] téh dina éta poé mah nyaéta kagungan Allah Nu Mahawelas. Éta téh poé anu loba kasusah pikeun jalma-jalma kapir.
 
-[^609]: “Karajaan nu hak” téh nyaéta kakawasaan nu pasti.
-
 ## 25:27
 
 (Sing inget) poé (nalika) jalma dolim ngégél dua leungeunna bari nyarita, “Aduh, mun sakirana (baheula) kuring téh nyorang jalan bareng sareng Rasul!
@@ -12758,8 +11537,6 @@ Karajaan anu hak [^609] téh dina éta poé mah nyaéta kagungan Allah Nu Mahawe
 ## 25:28
 
 Aduh, cilaka ieu kuring! Sakirana (baheula) téh kuring henteu ngajadikeun si anu [^610] minangka sobat dalit.
-
-[^610]: Sétan atawa jalma nu geus nyasarkeunana di dunya.
 
 ## 25:29
 
@@ -12776,10 +11553,6 @@ Kitu tah, pikeun saban nabi, Kami geus ngayakeun musuh ti nu daroraka. Cukup Pan
 ## 25:32
 
 Jalma-jalma kapir nyarita, “Ku naon atuh éta Al-Qur’an téh henteu diturunkeun ka manéhna sakali jadi?” Kituna téh [^611] sangkan Kami mengkuhkeun haté hidep (Muhammad) ku éta (Al-Qur’an) jeung mangmacakeunana kalayan tartil. [^612]
-
-[^611]: Éta Al-Qur'an téh henteu diturunkeun sakaligus, tapi ditungtut sabagian-sabagian sangkan manah Nabi Muhammad Saw. jadi weweg tur panceg.
-
-[^612]: Saréntétan-saréntétan, lalaunan, jeung bener.
 
 ## 25:33
 
@@ -12804,8 +11577,6 @@ Tuluy Kami ngadawuh (ka duaanana), “Jung geura aranjeun duaan indit ka kaom an
 ## 25:38
 
 (Kami geus ngabinasakeun) kaom ‘Ad, Samud, pangeusi Rass, [^613] jeung loba (deui) generasi ti antara kaom-kaom.
-
-[^613]: Rass téh nyaéta talaga nu geus garing taya caian deui. Tuluy dijieun ngaran hiji kaom, nyaéta Rass. Maranéhna nyembah ka berhala, nya lajeng Allah ngutus Nabi Syuéb a.s. ka maranéhna.
 
 ## 25:39
 
@@ -12839,8 +11610,6 @@ Naha hidep henteu niténan kana (ciptaan) Pangéran hidep? Kumaha Mantenna manja
 
 Tuluy Kami narik (éta kalangkang) [^614] ka (arah anu) ku Kami (dipikersa) saeutik-saeutik.
 
-[^614]: Éta kalangkang téh ku Kami dileungitkeun lalaunan nuturkeun surupna panonpoé saeutik-saeutik.
-
 ## 25:47
 
 Mantenna nu ngajadikeun peuting pikeun aranjeun (minangka) pakéan jeung saré pikeun reureuh. Mantenna ngajadikeun beurang pikeun nyaring nyiar pakasaban.
@@ -12873,8 +11642,6 @@ Mantenna nu ngalirkeun dua laut (pagigir-gigir); nu hiji tawar tur seger sedengk
 
 Mantenna (ogé) nu nyiptakeun manusa tina cai (mani). Lajeng, Mantenna ngajadikeunana (éta manusa ngabogaan) turunan jeung muṣāḥarah (hubungan kulawarga). [^615] Pangéran hidep téh Mahakawasa.
 
-[^615]: Muṣāharah téh hartina hiji iketan duduluran nu asalna tina iketan pernikahan, saperti minantu, adi beuteung, dahuan, mitoha, jeung sajabana.
-
 ## 25:55
 
 Maranéhna nyembah ka salian ti Allah naon anu henteu méré mangpa’at jeung henteu (ogé) ngadatangkeun madarat ka maranéhna. Jalma kapir téh nyaéta anu nulungan (ka sétan dina milampah kadorakaan) ka Pangéranana.
@@ -12894,8 +11661,6 @@ Sing tawekal ka (Allah) Nu Mahahirup nu henteu maot, jeung pék tasbéh ku muji 
 ## 25:59
 
 (Allah) anu nyiptakeun langit jeung bumi sarta nu aya di antarana dina genep mangsa. Lajeng, Mantenna istiwā’ di luhur Arasy. [^616] (Mantenna téh) Nu Mahamurah. Taroskeun baé (hé Muhammad) ngeunaan Mantenna (Allah) ka Nu Mahauninga (Allah).
-
-[^616]: Tingal catetan kaki surat al-A\`raf/7:44
 
 ## 25:60
 
@@ -12973,8 +11738,6 @@ Pék caritakeun ku hidep (Muhammad ka jalma-jalma musrik), “Pangéran kami moa
 
 Ṭā Sīn Mīm. [^617]
 
-[^617]: Tingal catetan kaki surat al-Baqarah/2:1.
-
 ## 26:2
 
 Éta téh ayat-ayat Kitab (Al-Qur’an) anu jelas.
@@ -13023,13 +11786,9 @@ Anjeunna (Musa) nyarios, “Nun Gusti Pangéran abdi, saleresna abdi téh rémpa
 
 Dada abdi karaos sumpeg, sareng létah abdi henteu béntés. Ku margi kitu, mugi Gusti ngutus Harun (nyarengan abdi). [^618]
 
-[^618]: Supaya Harun ogé diangkat jadi rasul pikeun mantuan anjeunna.
-
 ## 26:14
 
 Abdi gaduh dosa ka maranéhna. [^619] Mangka, abdi sieun maranéhna maéhan abdi.”
-
-[^619]: Musa a.s. nyanggem yén anjeunna téh ngaraos doraka ka urang Mesir. Éta téh ngan ukur anggapan urang Mesir wungkul, sabab sabenerna Musa téh henteu doraka. Anjeunna maéhan urang Mesir téh kalayan henteu dihaja. Satuluyna tingali Al-Qaṣaṣ/28:15.
 
 ## 26:15
 
@@ -13046,8 +11805,6 @@ Geura bébaskeun Bani Israél (sina indit) bareng jeung kuring duaan (ka Baitulm
 ## 26:18
 
 Manéhna (Fir’aun) nyarita, “Apan kami geus ngasuh manéh di lingkungan (kulawarga) kami, waktu manéh orok kénéh jeung manéh cicing bareng jeung kami sababaraha taun lilana tina umur anjeun? [^620]
-
-[^620]: Musa cicing babarengan jeung Fir’aun ti orok kénéh, leuwih kurang 18 taun.
 
 ## 26:19
 
@@ -13157,8 +11914,6 @@ Tuluy maranéhna ngalungkeun tali-tali jeung iteuk-iteukna, bari nyarita, “Dem
 
 Tuluy Musa ngalungkeun iteukna, dadak sakala éta (iteuk nu geus jadi oray) ngaleglegan sagala anu diaya-ayakeun ku maranéhna. [^621]
 
-[^621]: Tali jeung iteuk nu dialungkeunku tukang sihir téh nu kabayang siga oray ku maranéhna, sakabéhna dileglegan ku iteuk Nabi Musa a.s. anu jadi oray enyaan.
-
 ## 26:46
 
 Nya, bruk baé éta para ahli sihir téh nyuuh (bari) sujud.
@@ -13211,13 +11966,9 @@ Kami ngaluarkeun maranéhna (Fir’aun jeung kaomna) tina (nagri maranéhna anu 
 
 jeung harta banda sarta tempat cicing nu hadé. [^622]
 
-[^622]: Fir’aun jeung kaomna waktu ngudag Nabi Musa a.s. jeung Bani Israél, nya harita maranéhna téh geus kaluar ti nagrina kalayan ninggalkeun karajaan, kaagungan, kaméwahan, jeung sajabana.
-
 ## 26:59
 
 Kitu tah, Kami ngawariskeun éta kabéh ka Bani Israél. [^623]
-
-[^623]: Allah bakal maparin ka Bani Israél hiji karajaan nu weweg, karasulan, jeung sajabana.
 
 ## 26:60
 
@@ -13238,8 +11989,6 @@ Tuluy Kami ngawahyukeun ka Musa, “Pék geura teunggeul éta laut ku iteuk hide
 ## 26:64
 
 Di dinya, Kami ngadeukeutkeun golongan séjén. [^624]
-
-[^624]: Nu dimaksad “golongan séjénna” téh nyaéta Fir’aun jeung kaomna. Nu dimaksud dina ieu ayat nyaéta di lebah beulahan laut téa, teras Allah ngadeukeutkeun Fir’aun jeung kaomna ka Nabi Musa a.s. jeung Bani Israél.
 
 ## 26:65
 
@@ -13689,8 +12438,6 @@ Sabenerna Pangéran hidep téh Mahagagah (tur) Mahaasih.
 
 Pangeusi Nagri Aikah (Madyan) [^625] geus ngabohongkeun rasul-rasul.
 
-[^625]: Pangeusi nagri Madyan téh nyaéta kaom Nabi Syuéb a.s.
-
 ## 26:177
 
 Waktu Su’éb nyarios ka maranéhna, “Ku naon maranéh henteu takwa?
@@ -13887,8 +12634,6 @@ Para panya’ir téh dituturkeun ku jalma-jalma anu sasar.
 
 Naha hidep henteu ningali yén maranéhna ngumbara di unggal-unggal léngkob, [^626]
 
-[^626]: Nu dimaksad ku ieu ayat téh nyaéta yén sabagian panya’ir mah osok ngulinkeun kecap, henteu ngabogaan tujuan nu hadé, jeung henteu ngagaduhan pamadegan nu panceg.
-
 ## 26:226
 
 jeung yén maranéhna ngucapkeun naon anu ku maranéhna sorangan henteu dipilampah?
@@ -13900,8 +12645,6 @@ Kajaba (para panya’ir) anu iman, milampah amal soléh, loba inget ka Allah, sa
 ## 27:1
 
 Ṭā Sīn. [^627] Ieu téh ayat-ayat Al-Qur’an jeung Kitab Suci nu jelas (eusina),
-
-[^627]: Tingal catetan kaki surat al-Baqarah/2:1.
 
 ## 27:2
 
@@ -13947,8 +12690,6 @@ kajaba jalma nu geus milampah kadoliman anu tuluy ngaganti kagorénganana ku kah
 
 Pék asupkeun leungeun hidep ka jero baju hidep. [^628] Éta leungeun téh bakal kaluar (bari cahayaan) bodas lain lantaran cacad. (Dua mujijat ieu) kaasup kana salapan mujijat (anu bakal ditémbongkeun) ka Fir’aun jeung kaomna. Sabenerna maranéhna téh bener-bener kaom nu pasék.”
 
-[^628]: Ngasupkeun leungeunna tina kerah baju kana dada.
-
 ## 27:13
 
 Waktu éta mujijat-mujijat Kami nu jelas tepi ka maranéhna, maranéhna nyarita, “Ieu mah sihir nu nyata.”
@@ -13964,8 +12705,6 @@ Sabenerna Kami geus maparin élmu ka Dawud jeung Sulaéman. Duanana nyarios, “
 ## 27:16
 
 Sulaéman geus ngawaris Dawud. [^629] Anjeunna (Sulaéman) nyarios, “He Manusa, kuring dipaparinan atikan (pikeun bisa paham) kana waktu manuk jeung kuring dipaparinan sagala perkara.” Sabenerna ieu (kabéhanana) téh bener-bener kurnia nu nyata.
-
-[^629]: Nabi Sulaéman a.s. ngaganti kanabian jeung karajaan Nabi Dawud a.s. sarta ngawarisan élmu pangaweruh jeung Kitab Jabur nu dilungsurkeun ka anjeunna.
 
 ## 27:17
 
@@ -13983,8 +12722,6 @@ Sulaéman imut bari mésem lantaran (ngadangu) caritaan éta sireum. Anjeunna ng
 
 Sulaéman marios (pasukan) manuk, teras naros, “Naha kuring téh bet henteu ningal Hudhud? [^630] Boa manéhna kaasup nu teu hadir?
 
-[^630]: Hud-hud téh kaasup manuk caladi.
-
 ## 27:21
 
 Tangtu bakal dihukum ku kuring ku hukuman nu beurat atawa rék dipeuncit, kajaba lamun manéhna datang ka kuring bari mawa alesan anu jelas.”
@@ -13993,13 +12730,9 @@ Tangtu bakal dihukum ku kuring ku hukuman nu beurat atawa rék dipeuncit, kajaba
 
 Henteu lila (jol manuk Hudhud téh datang), tuluy manéhna nyarita, “Abdi parantos terang kana perkawis anu tacan kauninga ku anjeun. Abdi téh nembé dongkap ti Nagri Saba’ [^631] bari ngabantun wartos penting tur yakin (leresna) kanggo anjeun.
 
-[^631]: Saba' téh nyaéta ngaran karajaan jaman baheula, puseur dayeuhna téh Ma’rib, ayana deukeut kota San’a, puseur dayeuh Yaman ayeuna.
-
 ## 27:23
 
 Sabenerna abdi téh mendakan aya hiji istri [^632] nu ngawasa maranéhna (pangeusi Nagri Saba’). Anjeunna téh dipaparinan sagala rupi kurnia, sarta kagungan singgasana anu agréng.
-
-[^632]: Ratu Balqis nu ngawasa Karajaan Saba’ dina jaman Nabi Sulaéman a.s.
 
 ## 27:24
 
@@ -14008,8 +12741,6 @@ Abdi (manuk Hud-hud) mendakan anjeunna sareng kaomna téh nyembah panonpoé, san
 ## 27:25
 
 Maranéhna (ogé) henteu nyembah Allah nu ngaluarkeun sagala nu buni di langit jeung bumi [^633] sareng nu uninga kana naon anu disumputkeun sareng ditémbongkeun ku aranjeun.
-
-[^633]: Saperti nurunkeun hujan ti langit, numuwuhken pepelakan, ngaluarkeun logam ti bumi, jeung sajabana.
 
 ## 27:26
 
@@ -14071,8 +12802,6 @@ Sulaéman nyarios, “Hé para gegedén, cik saha ti antara aranjeun nu sanggup 
 
 Saurang anu ngabogaan élmu tina Kitab Suci [^634] nyarios, “Abdi badé ngabantun ka gusti bari nyandak (éta singgasana) sateuacan soca gusti ngiceup.” Waktu Sulaéman ningali (éta singgasana) aya di payuneunana, pok anjeunna nyarios, “leu téh kaasup kurnia Pangéran kuring pikeun nguji kuring, naha kuring téh sukuran atawa kupur. Saha baé anu sukuran, sabenerna anjeunna sukuran pikeun (kahadéan) dirina sorangan. Saha baé anu kupur, nya sabenerna Pangéran kuring mah Mahasugih (tur) Mahamulya.”
 
-[^634]: Kitab di dieu maksudna téh nyaéta kitab nu dilungsurkeun saméméh Nabi Sulaéman a.s. nyaéta Torét jeung Jabur.
-
 ## 27:41
 
 Sulaéman nyarios, “Pék robah éta (singgasana), tuluy engké urang tingali, naha manéhna (Balqis) ingeteun kénéh atawa henteu.”
@@ -14080,8 +12809,6 @@ Sulaéman nyarios, “Pék robah éta (singgasana), tuluy engké urang tingali, 
 ## 27:42
 
 Waktu Balqis dongkap, ditaroskeun (ka anjeunna), “Naha singgasana anjeun téh sapertos kieu?” Balqis ngawaler, “Jigana mah leres ieu. Abdi sadaya mah parantos dipaparinan terang ti sateuacanna ogé, [^635] sareng abdi sadaya téh jalmi-jalmi anu sumerah diri (ka Allah).”
-
-[^635]: Balqis tos terang kana kanabian Sulaéman a.s. saméméh tahtana dipindahkeun ti nagri Saba’ ka Palestina kalayan sakedét nétra.
 
 ## 27:43
 
@@ -14107,8 +12834,6 @@ Maranéhna ngajawab, “Kuring saréréa meunang nasib anu apes ku sabab anjeun 
 
 Di éta kota [^636] téh aya salapan urang lalaki anu migawé karuksakan di bumi. Maranéhna teu milampah kahadéan.
 
-[^636]: Numutkeun para ahli tapsir, nu dimaksad kota di dieu téh nyaéta kota kaom Samud, nyaéta kota Al-Hijr.
-
 ## 27:49
 
 Maranéhna nyarita, “Aranjeun masing-masing kudu sumpah ku (jenengan) Allah, yén pasti urang bakal nyerang manéhna (Soléh) katut kulawargana dina waktu peuting. Tuluy urang bakal nyarita ka ahli warisna (yén) urang henteu nyaksian kabinasaan éta kulawargana. Sabenerna urang saréréa mah jalma-jalma anu bener.”
@@ -14129,13 +12854,9 @@ Tuh imah maranéhna nu kosong (minangka bukti yén maranéhna binasa) ku sabab k
 
 Kami nyalametkeun jalma-jalma anu iman bari salawasna takwa. [^637]
 
-[^637]: Nabi Soléh a.s. sareng anu nuturkeunana.
-
 ## 27:54
 
 (Sing inget carita) Lut, waktu anjeunna nyarios ka kaomna, “Naha maranéh téh bet milampah pagawéan jahat [^638] padahal maranéh nyaho?
-
-[^638]: Maksud fāḥisyah di dieu nyaéta seks nu nyimpang, kaasup homoseksual.
 
 ## 27:55
 
@@ -14164,8 +12885,6 @@ Naha (anu ku maranéh disarékatkeun téh leuwih hadé atawa) Dat anu nyiptakeun
 ## 27:61
 
 Naha (anu ku maranéh disarékatkeun téh leuwih hadé atawa) Dat anu geus ngajadikeun bumi pikeun tempat cicing, ngajadikeun walungan-walungan dina sela-selana, ngajadikeun gunung-gunung pikeun mageuhanana, jeung ngajadikeun hiji pamisah antara dua laut? [^639] Naha aya Pangéran (séjén) nu marengan Allah? Sabenerna kalolobaan maranéhna mah teu nyahoeun.
-
-[^639]: Dua laut di dieu nyaéta laut nu asin jeung walungan badag nu muharana nepi ka laut. Walungan nu hambar waktu nepi ka muhara teu langsung jadi asin.
 
 ## 27:62
 
@@ -14259,8 +12978,6 @@ Upama éta dawuhan (katangtuan mangsa ancurna alam) geus tumiba ka maranéhna, K
 
 Nepi ka upama maranéhna datang, Mantenna (Allah) ngadawuh, “Naha maranéh bet ngabohongkeun ayat-ayat Kami, padahal maranéh téh henteu boga élmu nu nyukupan ngeunaan éta perkara [^640] atawa (lamun henteu ngabohongkeunna), naon baé atuh anu geus dipigawé ku maranéh téh?”
 
-[^640]: Jalma-jalma musrik Arab téh ngabohongkeun kana ayat-ayat Allah bari teu dipikir heula.
-
 ## 27:85
 
 Éta dawuhan (kaputusan siksa) téh tumiba ka maranéhna alatan kadolimanana, nepi ka maranéhna téh henteu bisa nyarita (keur mélaan diri).
@@ -14301,8 +13018,6 @@ Pék geura caritakeun ku hidep (Muhammad), “Sagala puji kagungan Allah. Manten
 
 Ṭā Sīn Mīm. [^641]
 
-[^641]: Tingal catetan kaki surat al-Baqarah/2:1.
-
 ## 28:2
 
 Éta téh ayat-ayat Kitab (Al-Qur’an) nu jelas (ti Allah).
@@ -14323,8 +13038,6 @@ Kami ngersakeun pikeun maparin kurnia ka jalma-jalma nu ditandasa di éta bumi (
 
 Kami ogé (ngersakeun pikeun) mengkuhkeun kalungguhan maranéhna (Bani Israél) di bumi jeung némbongkeun ka Fir’aun, Haman, katut wadyabaladna naon nu sok dipikasieun ku maranéhna ti maranéhna (Bani Israél). [^642]
 
-[^642]: Fir’aun ngarasa hariwang karajaanana bakal dibinasakeun ku Bani Israél. Ku kituna, manéhna maéhan orok lalaki nu kakara borojol ti urang Bani Israél. Ieu ayat nerangkeun yén naon un dipikahariwang ku manéhna téh bakal kajadian.
-
 ## 28:7
 
 Kami ngailhaman ka ibuna Musa, “Pék geura susuan anjeunna (Musa). Mun anjeun sieun kana (kasalametana)-na, palidkeun baé anjeunna ka walungan (Nil dina jero peti nu ngangkleung). Anjeun ulah rék sieun jeung ulah (ogé) ngarasa nalangsa. Saenyana Kami pasti bakal mulangkeun Musa ka anjeun jeung bakal ngajadikeun anjeunna minangka salah saurang rasul.”
@@ -14340,8 +13053,6 @@ Istri Fir’aun pok nyarios (ka Fir’aun), “(Ieu budak) jadi panglipur kalbu 
 ## 28:10
 
 Haté ibuna Musa jadi ringrang. [^643] Saenyana ampir baé anjeunna téh ngabalakakeun (yén éta budak téh putrana), lamun seug Kami teu nguatan haténa sangkan anjeunna kaasup jalma-jalma anu iman (kana jangji Allah).
-
-[^643]: Saenggeus indungna Musa malidkeun Musa di walungan Nil, nya anjeunna ngaraos hanjakal sareng mangmang dina haténa lantaran ngahariwangkeun kana kasalametan Musa, dugikeun anjeunna ampir-ampiran ngagorowok nyuhunkeun tulung ka jalma séjén pikeun nyandak deui putrana, nu bisa ngabalukarkeun kabukana rasiah yén Musa téh putrana nyalira.
 
 ## 28:11
 
@@ -14362,8 +13073,6 @@ Sabada Musa balég sareng sampurna akalna, Kami ngurniakeun ka anjeunna hikmah j
 ## 28:15
 
 Musa lebet ka kota waktu pangeusina keur bongoh. Anjeunna mendakan di lebet éta kota aya dua lalaki keur gelut. Anu saurang ti golonganana (Bani Israél) jeung anu saurang (deui) ti golongan musuhna (kaom Fir’aun). Jalma nu ti golongan anjeunna téh ménta tulung ka anjeunna pikeun (ngéléhkeun) jalma nu ti golongan musuhna. Musa tuluy neunggeul manéhna jeung (teu kahaja) maéhanana. Pok Musa nyarios, “Ieu téh kaasup pagawéan sétan. [^644] Saenyana manéhna téh musuh nu nyata-nyata nyasarkeun.”
-
-[^644]: Musa ngaraos hanjakal yén éta jalma téh maot ku lantaran diteunggeul ku anjeunna, padahal anjeunna taya maksud pikeun maéhanana, tapi ngan ukur mélaan kaomna wungkul.
 
 ## 28:16
 
@@ -14421,13 +13130,9 @@ Musa nyarios, “Éta (jangji) téh antawis abdi sareng salira. Mana baé ti ant
 
 Nya, waktu Musa tos ngaréngsékeun waktu nu ditangtukeun téa, teras angkat sareng garwana. Anjeunna ningal seuneu di lamping gunung. [^645] Anjeunna nyarios ka kulawargana, “Tungguan (di dieu). Saenyana kami ningali seuneu. Muga-muga baé kami bakal mawa hiji béja keur aranjeun ti (tempat) éta seuneu atawa (mawa) silalatuna tina seuneu sangkan aranjeun bisa siduru.”
 
-[^645]: Sanggeusna Musa a.s. nohonan jangji ka mitohana, Séh Madyan, nya anjeunna jeung kulawargana téh terus babarengan angkat bari nyandak sababaraha embé nu dipaparin ti mitohana, nya dina hiji peuting nu poék jeung tiris, Musa dugi ka hiji tempat, tapi unggal anjeunna rék ngahurungkeun seuneu, korékna teu daék hurung. Musa ngarasa héran ku éta perkara, nya anjeunna teras nyarios ka garwana sakumaha nu disebutkeun dina ayat 29.
-
 ## 28:30
 
 Mangka, waktu ngadatangan éta (seuneu), Musa digero ti sisi léngkob beulah katuhueun (Musa) ti palebah tangkal nu tumuwuh di hiji lahan nu diberkahan. “Hé Musa, saenyana Kami téh Allah, Pangéran sakumna alam. [^646]
-
-[^646]: Di éta tempat jeung harita pisan, Nabi Musa a.s. ngawitan diangkat jadi rasul.
 
 ## 28:31
 
@@ -14444,8 +13149,6 @@ Musa nyarios, “Nun Gusti Pangéran abdi, saleresna abdi téh parantos maéhan 
 ## 28:34
 
 Sedengkeun dulur abdi, Harun, anjeunna langkung paséh létahna tibatan abdi. [^647] Mangka, mugi tiasa diutus baé anjeunna nyarengan abdi minangka nu mantuan abdi pikeun ngalereskeun (cariosan) abdi. Saenyana abdi téh sieun maranéhna ngabohongkeun abdi.”
-
-[^647]: Nabi Musa a.s. di sagigireun ngarasa sieun ku Fir’aun, ogé rumaos kirang lancar dina nyarios mayunan Fir’aun. Nya anjeunna nyuhunkeun ka Allah pikeun ogé ngutus Nabi Harun a.s. anu langkung lancar nyariosna keur maturan anjeunna.
 
 ## 28:35
 
@@ -14543,8 +13246,6 @@ Maranéhna nyarita, “Lamun kuring saréréa nuturkeun kana pituduh anjeun, tan
 
 Sakitu geus loba pisan (pangeusi) nagri nu ku Kami geus dibinasakeun (lantaran kadorakaan maranéhna) nu geus nyalahgunakeun (katengtreman) hirupna. Mangka, tah éta téh tempat cicing maranéhna anu teu dicicingan (deui) sanggeusna maranéhna, kajaba sabagian leutik jeung Kami nu ngawarisna. [^648]
 
-[^648]: Sanggeus maranéhna dibinasakeun, nya éta tempat téh jadi kosong jeung teu dima’murkeun deui, nepi ka mulang deui ka nu ngamilikna, nyaéta Allah.
-
 ## 28:59
 
 Pangéran hidep moal rék ngabinasakeun nagri-nagri, saméméh Mantenna ngutus saurang rasul di puseur dayeuhna nu mangmacakeun ayat-ayat Kami ka maranéhna. Kami moal rék (ogé) ngabinasakeun (pangeusi) nagri-nagri, kajaba pangeusina dina kaayaan dolim.
@@ -14556,8 +13257,6 @@ Naon baé nu dinugrahakeun (Allah) ka maranéh, éta téh kasenangan hirup dunya
 ## 28:61
 
 Nya, naha jalma nu ku Kami dijangjian ku jangji nu hadé (sawarga), tuluy manéhna bisa meunangkeunana téh sarua jeung jalma nu ku Kami dibéré kasenangan kahirupan dunya [^649] bari dina Poé Kiamat manéhna kaasup jalma-jalma nu diséréd (kana jero naraka)?
-
-[^649]: Jalma anu dipaparin ni’mat hirup dunya, ngan teu dipaké pikeun néangan kabagjaan hirup di ahérat. Ku lantaran kitu, manéhna di ahérat bakal digusur kana jero naraka.
 
 ## 28:62
 
@@ -14615,13 +13314,9 @@ Pék caritakeun ku hidep (Muhammad), “Kumaha sikep aranjeun mun Allah ngajadik
 
 Kami ngadatangkeun saksi ti saban umat, [^650] tuluy Kami ngadawuh, “Sok ngadatangkeun bukti bebeneran maranéh!” Mangka, maranéhna téh jadi nyaho, yén nu hak éta kagungan Allah sarta laleungit wéh ti maranéhna naon nu baréto diaya-ayakeun ku maranéhna téh.”
 
-[^650]: Saksi di dieu nyaéta rasul nu geus diutus ka maranéhna waktu di dunya.
-
 ## 28:76
 
 Saenyana Karun téh kaasup kaom Musa, [^651] ngan manéhna nganiaya ka aranjeunna; jeung Kami geus maparin ka manéhna harta sisimpenan nu konci-koncina ogé kacida beuratna najan dibawa ku jalma-jalma nu kuat tanagana. (Sing inget) nalika kaomna nyarios ka manéhna, “Ulah agul manéh téh. Saenyana Allah mah henteu mikaresep ka jalma-jalma nu agul.
-
-[^651]: Karun téh nyaéta salah sahiji murangkalih paman Nabi Musa a.s.
 
 ## 28:77
 
@@ -14659,8 +13354,6 @@ Saha baé nu datang (mawa) kahadéan, mangka keur manéhna (pahala) nu leuwih ha
 
 Saenyana (Allah) nu ngawajibkeun hidep (Muhammad pikeun nepikeun jeung nyekel pageuh kana Al-Qur’an bener-bener bakal mulangkeun hidep ka tempat pangbalikan. [^652] Pék caritakeun ku hidep (Muhammad), “Pangéran kuring mah nu panguningana ka jalma nu mawa pituduh jeung ka jalma nu aya dina kasasaran anu nyata.”
 
-[^652]: Kota Mekah. Tah ieu téh hiji jangji ti Pangéran yén Nabi Muhammad Saw. bakal mulang deui ka Mekah jadi jalma nu unggul. Ieu perkara téh geus kajadian dina taun ka dalapan Hijri, waktu harita Nabi naklukkeun Mekah. Ieu téh jadi hiji mujijat anjeunna.
-
 ## 28:86
 
 Hidep teu kungsi ngarep-ngarep sangkan éta Kitab (Al-Qur‘an) téh diturunkeun ka hidep, tapi éta Kitab (diturunkeun) minangka rahmat ti Pangéran hidep. Ku sabab kitu, hidep ulah pisan jadi tukang tulung ka jalma-jalma kapir.
@@ -14676,8 +13369,6 @@ Hidep (ogé) ulah nyembah ka Pangéran nu séjén (salian Allah). Taya Pangéran
 ## 29:1
 
 Alif Lām Mīm.  [^653]
-
-[^653]: Tingal catetan kaki surat al-Baqarah/2:1.
 
 ## 29:2
 
@@ -14715,8 +13406,6 @@ Jalma-jalma nu iman jeung milampah amal soléh pasti bakal diasupkeun ku Kami ka
 
 Ti antara manusa aya nu nyarita, “Kuring saréréa iman ka Allah,” tapi waktu dinyenyeri (lantaran iman ka) Allah, manéhna nganggap cocoba manusa téh minangka siksaan Allah. [^654]  Tapi, lamun datang pitulung ti Pangéran hidep, pasti maranéhna bakal nyarita, “Saenyana kuring saréréa téh babarengan jeung aranjeun?” Apan Allah téh panguningana kana naon anu aya di jero haté sakabéh manusa?
 
-[^654]: Éta jalma téh sieun didoliman ku manusa, saperti kasieunana kana siksaan Allah, ku lantaran kitu manéhna tuluy ninggalkeun kaimanana.
-
 ## 29:11
 
 Allah pasti uninga ka jalma-jalma nu iman sareng pasti uninga ka jalma-jalma munapék.
@@ -14745,8 +13434,6 @@ Mangka, Kami nyalametkeun Nuh jeung nu tarumpak parahu sarta ngajadikeunana atik
 
 Saenyana naon anu ku aranjeun disembah salian ti Allah téh ngan wungkul berhala-berhala jeung maranéh téh geus nyieun kabohongan. [^655] Saenyana naon nu disembah ku aranjeun salian ti Allah téh moal sanggup méré rejeki ka aranjeun. Mangka, geura pénta rejeki ti mungguhing Allah, pék sembah Mantenna, jeung sukuran ka Mantenna. Ngan wungkul ka Mantenna aranjeun bakal dipulangkeun.
 
-[^655]: Maranéhna nyarita yén éta berhala-berhala téh bisa maparin syapaat ka maranéhna di mungguhing Allah, padahal ieu téh mangrupa kabohongan.
-
 ## 29:18
 
 Lamun aranjeun ngabohongkeun (ajaran Allah), sabenerna umat-umat nu saméméh aranjeun ogé geus ngabohongkeun (para rasul). Kawajiban rasul mah taya ngan wungkul nepikeun (agama Allah) nu jelas.
@@ -14758,8 +13445,6 @@ Naha maranéhna téh teu niténan kumaha Allah ngawitan nyiptakeun (mahluk), tul
 ## 29:20
 
 Pék caritakeun, “Jung aranjeun geura lumampah di bumi, tuluy pék tengetan kumaha Allah ngawitan nyiptakeun (sakabéh mahluk). Tuluy, Mantenna ngadamel kajadian nu ahir (sanggeus maot di ahérat jaga). [^656] Saleresna Allah Mahakawasa kana sagala perkara.
-
-[^656]: Allah ngahudangkeun deui manusa sanggeusna maot jaga di ahérat.
 
 ## 29:21
 
@@ -14789,8 +13474,6 @@ Mangka, Lut ngaenyakeun (kana kanabian Ibrahim). Anjeunna (Ibrahim) ogé nyarios
 
 Kami ngurniakeun ka anjeunna (Ibrahim) Ishaq sareng Ya’qub. Kami ngajadikeun ka turunanana kanabian jeung kitab sarta maparin wawales di dunya ka anjeunna. [^657] Saenyana di ahératna téh anjeunna bener-bener kaasup jalma-jalma anu soléh.
 
-[^657]: Ku dipaparinana anak incu nu hadé, kanabian anu teu lirén-lirén, jeung puji-pujian nu hadé.
-
 ## 29:28
 
 (Sing inget) nalika Lut nyarios ka kaomna, “Saenyana aranjeun téh bener-bener milampah pagawéan nu jahat (homoseksual) anu tacan kungsi dipilampah ku saurang ogé saméméh aranjeun di sakumna alam.
@@ -14798,8 +13481,6 @@ Kami ngurniakeun ka anjeunna (Ibrahim) Ishaq sareng Ya’qub. Kami ngajadikeun k
 ## 29:29
 
 Naha aranjeun bener-bener ngadatangan lalaki (keur ngalajur syahwat), ngabégal, [^658] jeung milampah kamungkaran di tempat-tempat pasamoan aranjeun?” Mangka, jawaban kaomna taya lian iwal ti nyarita, “Cing datangkeun ka kuring saréréa siksaan Allah téh lamun mah anjeun téh kaasup jalma-jalma nu bener mah.”
-
-[^658]: Sawaréh ahli tapsir ngahartikeun “milampah pagawéan jahat ka jalma-jalma di tengah lalampahan,” lantaran lolobana maranéhna milampah éta pagawéan homoseksual téh jeung sémah-sémah nu daratang ka lembur maranéhna. Mung aya deui nu ngahartikeun éta kecap téh ku “ngaruksak jalan turunan,” lantaran maranéhna milampah homoseksual.
 
 ## 29:30
 
@@ -14809,8 +13490,6 @@ Lut ngadoa, “Nun Gusti Pangéran abdi, mugi bantosan abdi (ku nibankeun siksaa
 
 Waktu utusan-utusan Kami (para malaikat) sumping ka Ibrahim nyandak wartos pikabingaheun, [^659] aranjeunna pok nyarios, “Saleresna kuring saréréa téh badé ngabinasakeun pangeusi nagri ieu lantaran saenyana maranéhna téh jalma-jalma dolim.”
 
-[^659]: Béja yén Nabi Ibrahim a.s. bakal ngagaduhan putra.
-
 ## 29:32
 
 Ibrahim nyarios, “Saenyana di éta kota téh aya Lut.” Aranjeunna nyarios, “Kuring sadaya langkung terang saha nu aya di éta kota. Kuring sadaya pasti bakal nyalametkeun anjeunna sareng nu naluturkeunana, iwal ti istrina. Da manéhna mah kaasup (jalma-jalma kapir) nu tinggaleun.”
@@ -14819,8 +13498,6 @@ Ibrahim nyarios, “Saenyana di éta kota téh aya Lut.” Aranjeunna nyarios, �
 
 Waktu para utusan Kami datang ka Lut, anjeunna ngarasa hariwang [^660] lantaran (sumpingna) aranjeunna jeung ngarasa teu boga kakuatan pikeun nangtayunganana. Aranjeunna nyarios, “Teu kedah sieun sareng sedih. Saenyana kami bakal nyalametkeun anjeun jeung nu naluturkeun anjeun, iwal ti istri anjeun. Manéhna kaasup (jalma-jalma kapir) nu tinggaleun.”
 
-[^660]: Nabi Lut a.s. ngaraos hariwang ku sumpingna éta utusan-utusan Allah ku margi aranjeunna téh pamuda nu kararasép pisan, sedengkeun kaom Lut resepeun pisan ka pamuda nu kararasép pikeun ngalakukeun pagawéan homoseksual. Sareng anjeunna ngaraos teu sanggem nulungan aranjeunna téh waktu diganggu ku kaomna.
-
 ## 29:34
 
 Saenyana Kami téh bakal nurunkeun hiji siksa ti langit ka pangeusi ieu nagri lantaran maranéhna sok migawé kapasékan.
@@ -14828,8 +13505,6 @@ Saenyana Kami téh bakal nurunkeun hiji siksa ti langit ka pangeusi ieu nagri la
 ## 29:35
 
 Saenyana Kami geus ninggalkeun ti éta nagri hiji tanda nu nyata [^661] pikeun kaom nu mikir.
-
-[^661]: Ruruntuk kota Sodom, nagri kaom Lut.
 
 ## 29:36
 
@@ -14875,8 +13550,6 @@ Pék baca ku hidep (Muhammad) Kitab (Al-Qur’an) anu geus diturunkeun ka hidep 
 
 Omat aranjeun ulah ngadebat Ahli Kitab kajaba ku cara nu leuwih hadé, anging ka jalma-jalma nu dolim ti antara maranéhna. [^662] Caritakeun, “Kuring saréréa iman kana (kitab) anu diturunkeun ka kuring saréréa jeung anu diturunkeun ka aranjeun. Pangéran kuring saréréa jeung Pangéran aranjeun téh éta hiji, tur ngan ka Mantenna kuring saréréa sumerah diri.”
 
-[^662]: Jalma-jalma nu geus dibéré katerangan jeung wawaran nu jelas ku cara nu panghadé-hadéna, tapi maranéhna tetep nengtéréwéléng jeung ngabahula (ngabangkang). Maranéhna téh tétéla ngomong rék tetep ngamusuhan.
-
 ## 29:47
 
 Tah kitu Kami nurunkeun Kitab (Al-Qur’an) ka hidep. Sedeng ari jalma-jalma anu ku Kami geus dibéré Kitab (Torét jeung Injil) mah, maranéhna iman kana éta (Al-Qur’an). Ti antara maranéhna (jalma-jalma kapir Mekah) aya (ogé) nu iman kana éta (Al-Qur’an). Moal ingkar kana ayat-ayat Kami, kajaba jalma-jalma kapir.
@@ -14888,8 +13561,6 @@ Hidep (Muhammad) teu kungsi maca hiji kitab naon baé ogé saméméhna (Al-Qur�
 ## 29:49
 
 Saenyana éta (Al-Qur’an) téh ayat-ayat anu jelas di jero dada jalma-jalma nu boga élmu pangaweruh. [^663] Moal bakal ingkar kana ayat-ayat Kami, kajaba jalma-jalma dolim.
-
-[^663]: Ayat-ayat Al-Qur’an téh dipulasara dina dada ku cara diapalkeun ku lolobana kaom Muslim kalayan turun-tumurun jeung dipahamkeun, dilenyepan bari diteuleuman dina jero haté, nepi ka euweuh sanajan hiji ogé anu bisa ngarobahna.
 
 ## 29:50
 
@@ -14906,8 +13577,6 @@ Pék caritakeun ku hidep (Muhammad), “Cukup Allah baé nu jadi saksi antara ku
 ## 29:53
 
 Maranéhna ménta sangkan hidep ngagancangkeun (datangna) siksaan. Da lamun lain ku sabab waktuna nu geus ditetepkeun mah, [^664] pasti éta siksaan téh geus ninggang ka maranéhna. (Éta siksaan) téh bener-bener bakal datang ka maranéhna kalayan ngadadak, bari maranéhna teu nyadar.
-
-[^664]: Geus ditetepkeun siksaan dina poé pangwalesan di ahérat.
 
 ## 29:54
 
@@ -14957,8 +13626,6 @@ Ieu kahirupan dunya téh taya lian ngan wungkul heuheureuyan jeung kaulinan. Sab
 
 Upama naék kana parahu, maranéhna ngadoa ka Allah kalayan pinuh ku rasa ihlas ka Mantenna. [^665] Ngan, waktu Mantenna (Allah) nyalametkeun maranéhna nepi ka darat, ujug-ujug maranéhna (balik deui) ngamusrikkeun (Allah).
 
-[^665]: Kalayan ngamurnikeun kataatan mung ka Allah wungkul.
-
 ## 29:66
 
 Keun baé maranéhna ngaleuleungit ni’mat nu ku Kami geus dibikeun ka maranéhna jeung keun baé maranéhna (hirup) suka bungah (dina kakapiran). Da engké ogé maranéhna bakal nyaho (akibat kalakuanana).
@@ -14971,8 +13638,6 @@ Naha maranéhna téh teu niténan yén Kami geus ngajadikeun (nagri maranéhna) 
 
 Saha nu leuwih dolim tibatan jalma nu ngaya-ngayakeun bohong ka Allah atawa jalma nu ngabohongkeun nu hak waktu éta (nu hak) téh datang ka maranéhna? [^666] Apan dina jero (naraka) Jahanam téh aya tempat keur jalma-jalma kapir?
 
-[^666]: Ngabohongkeun risalah kanabian Nabi Muhammad Saw.
-
 ## 29:69
 
 Jalma-jalma nu ngupayakeun kalayan suhud pikeun (néangan karidoan) Kami, pasti Kami bakal bener-bener nuduhkeun ka aranjeunna kana jalan-jalan Kami. Saleresna Allah nyarengan jalmi-jalmi nu midamel kasaéan.
@@ -14981,27 +13646,17 @@ Jalma-jalma nu ngupayakeun kalayan suhud pikeun (néangan karidoan) Kami, pasti 
 
 Alif Lām Mīm.  [^667]
 
-[^667]: Tingal catetan kaki surat al-Baqarah/2:1.
-
 ## 30:2
 
 Bangsa Romawi geus diéléhkeun (kalayan hina), [^668]
-
-[^668]: Romawi anu pusatna di Konstantinopel.
 
 ## 30:3
 
 di nagri anu pangdeukeutna [^669] jeung maranéhna téh sanggeus éléhna éta bakal meunang, [^670]
 
-[^669]: Nu pangdeukeutna jeung nagri Arab téh nyaéta Suriah jeung Palestina, waktu éta jadi jajahan karajaan Romawi.
-
-[^670]: Bangsa Romawi téh (waktu ayat ieu turun), nyaéta bangsa Nasrani nu miboga Kitab Suci, sedengkeun bangsa Persia ngagem agama Majusi, maranéhna nyembah seuneu jeung patung (musyrik). Éta dua bangsa téh perang. Waktu béja éléhna bangsa Romawi ku bangsa Persia nepi ka kaom Musrik Mekah, maranéhna kacida bungaheunana, ku lantaran maranéhna mah mihak ka bangsa Persia. Sedengkeun kaom muslimin sabalikna, ngarasa kuciwa jeung sedih. Tuluy turun ayat ieu jeung ayat saterusna nu ngajelaskeun yén sanggeus tumiba éléh perang, bangsa Romawi bakal unggul dina sawatara taun kahareup. Kajadian ieu téh éstuning bener-bener jadi nyata. Sawatara taun hareupn bangsa Romawi ngéléhkeun bangsa Persia. kajadian ieuméré bukti yén Nabi Muhammad Saw. bener-bener mangrupakeun nabi jeung rasul, jeung Al-Qur’an téh bener-bener mangrupakeun dawuhan Allah Swt.
-
 ## 30:4
 
 dina sababaraha taun (deui). [^671] Mung kagungan Allah urusan saméméh jeung sanggeusna (maranéhna meunang). Dina éta poé (kaunggulan bangsa Rumawi) nya gumbira jalma-jalma mu’min,
-
-[^671]: Antara tilu nepi ka salapan taun. Wanci éléhna bangsa Romawi téh taun 614 H-615 H., waktu unggul perang taun 622 M., kira-kira selang tujuh taun.
 
 ## 30:5
 
@@ -15039,8 +13694,6 @@ Dina poé (nalika) kajadian Kiamat, nu daroraka ngabetem peunggas pangharepan.
 
 Moal mungkin aya nu méré sapa’at (pitulung) pikeun maranéhna ti berhala-berhalana, sedengkeun maranéhna ingkar ka éta berhala-berhalana. [^672]
 
-[^672]: Numutkeun sawaréhna ahli tapsir, ayat ieu téh diartikeun, “... malahan maranéhna téh jadi kapir, ku sabab berhala-berhala éta.”
-
 ## 30:14
 
 Dina poé (nalika) kajadian Kiamat, dina éta poé, manusa paburencay (dina golongan-golongan).
@@ -15060,8 +13713,6 @@ Prak geura muji ka Allah dina aranjeun aya dina wanci burit jeung isuk-isuk (wan
 ## 30:18
 
 Sadaya puji ngan wungkul kanggé Mantenna di langit jeung di bumi, boh dina wanci burit jeung waktu aranjeun aya dina wanci lohor (tengah poé). [^673]
-
-[^673]: Maksud muji dina ayat 17 téh nyaéta salat. Ayat 17 jeung 18 ngajelaskeun wanci salat lima waktu.
 
 ## 30:19
 
@@ -15103,8 +13754,6 @@ Mung Mantenna wungkul anu ngawitan nyiptakeun, lajeng malikanana deui (sanggeus 
 
 Mantenna ngadamel misil pikeun aranjeun ti diri aranjeun sorangan. Naha (aranjeun rido lamun) ti antara abid nu dipiboga ku aranjeun marengan aranjeun (miboga hak) rejeki nu ku Kami dipaparinkeun ka aranjeun, nepi ka aranjeun jadi satara jeung maranéhna dina hal ieu? Aranjeun tangtu bakal sieun ka maranéhna saperti aranjeun sieun ku sasama aranjeun. [^674] Nya saperti kitu pisan Kami ngajelaskeun éta tanda-tanda pikeun kaom anu ngarti.
 
-[^674]: Eta misil téh ngécéskeun yén teu pantes miboga hak ti antara golongan anu teu satata, saperti antara budak jeung majikan (maula). Komo deui antara mahluk jeung Allah, tangtu leuwih teu pantes.
-
 ## 30:29
 
 Tapi, jalma-jalma nu dolim mah nurutkeun hawa napsuna baé kalayaan teu (dumasar) kana élmu. Nya, saha anu bisa méré pituduh ka jalma nu geus disasarkeun ku Allah? Taya saurang ogé nu bakal nulungan ka maranéhna.
@@ -15112,8 +13761,6 @@ Tapi, jalma-jalma nu dolim mah nurutkeun hawa napsuna baé kalayaan teu (dumasar
 ## 30:30
 
 Mangka, prak geura sanghareupkeun beungeut hidep kalayan lempeng kana agama (Islam luyu) jeung pitrah (ti) Allah nu geus nyiptakeun manusa luyu jeung éta (fitrah). [^675] Taya anu robah dina (éta) ciptaan Allah. Éta téh agama anu lempeng, ngan kalolobaan manusa teu nyaho.
-
-[^675]: Fitrah Allah maksudna ciptaan Allah. Manusa diciptakeun ku Allah ngabogaan fitrah ngagem agama taohid. Lamun aya manusa teu miboga agama, tinangtu teu luyu jeung fitrahna.
 
 ## 30:31
 
@@ -15123,13 +13770,9 @@ Mangka, prak geura sanghareupkeun beungeut hidep kalayan lempeng kana agama (Isl
 
 (nyaéta) jalma-jalma anu ngaburencaykeun agama maranéhna [^676] nepi ka jadi sababaraha golongan. Unggal golongan ngarasa reueus ku naon nu aya di maranéhna.
 
-[^676]: Ninggalkeun agama taohid jeung ngagem mangpirang-pirang kayakinan nurutkeun kahayang maranéhna.
-
 ## 30:33
 
 Waktu manusa ditibanan ku hiji pibahayaeun, maranéhna sasambat ka Pangéranana kalayan balik (tobat) ka Mantenna. Tuluy, waktu Mantenna maparin rahmat-Na [^677] ka maranéhna, ngadadak sawaréh ti maranéhna musrik ka Pangéranana.
-
-[^677]: Nu dimaksud “rahmat” nyaéta leupas tina bahaya.
 
 ## 30:34
 
@@ -15171,8 +13814,6 @@ Pék caritakeun ku hidep (Muhammad), “Prak geura lumampah di bumi, tuluy pék 
 
 Ku sabab kitu, prak sanghareupkeun beungeut aranjeun kana agama anu lempeng (Islam) saméméh datang ti Allah hiji poé (Kiamat) nu moal bisa dihalangan. Dina éta poé maranéhna bakal paburencay. [^678]
 
-[^678]: Nyaéta sawaréh ti maranéhna aya di jero sawarga, jeung sawaréh deui aya di jero naraka.
-
 ## 30:44
 
 Saha baé anu kupur, nya manéhna sorangan nu nanggung (akibat) kakapiranana. Saha baé anu migawé amal soléh, nya aranjeunna anu nyadiakeun pikeun diri aranjeunna nyalira (tempat nu pikabungaheun),
@@ -15185,13 +13826,9 @@ sangkan Allah maparin wawales (pahala) tina kurnia-Na ka jalma-jalma nu iman jeu
 
 Ti antara tanda tanda (kaagungan) Mantenna téh nyaéta ngirimkeun angin anu mawa béja pikabungaheun [^679] sangkan aranjeun ngarasakeun sawaréh rahmat Mantenna, sangkan parahu bisa lalayaran kalayan paréntah Mantenna, sangkan aranjeun bisa néangan sawaréh tina kurnia Mantenna, jeung sangkan aranjeun sukuran.
 
-[^679]: Anu mawa béja pikabungaheun maksudna méga anu pohara kandelna ditiup ku angin tuluy nurunkeun hujan. Ku sabab éta hujan jadi rahmat Allah, lantaran tumuwuhna sisikian anu geus dipelak jeung héjo ngémploh, bari barijil baruahan.
-
 ## 30:47
 
 Sabenerna Kami geus ngutus saméméh hidep (Muhammad) sababaraha urang rasul ka kaomna. Aranjeunna datang ka maranéhna téh bari mawa katerangan-katerangan (anu cukup), tuluy Kami ngawales ka jalma-jalma nu doraka, [^680] minangka tanggung jawab Kami pikeun nulungan jalma-jalma mu’min.
-
-[^680]: Ku sabab datang para rasul mawa risalah keur kaomna, mangka sawaréh ti maranéhna aya nu percaya, jeung sawaréhna deui ngabohongkeun, malah aya ogé anu nyilakakeun rasul. Mangka, keur jalma-jalma anu doraka jiga kitu, Allah nyiksa maranéhna.
 
 ## 30:48
 
@@ -15213,8 +13850,6 @@ Sabenerna, upama Kami ngirimkeun angin, tuluy maranéhna nénjo (tutuwuhan-tutuw
 
 Sabenerna hidep (Muhammad) moal bakal sanggup ngajadikeun jalma-jalma nu maot jeung jalma-jalma nu torék bisa ngadéngé panggero waktu maranéhna ngabalieur malik nonggongan. [^681]
 
-[^681]: Jalma kapir disaruakeun ku Allah jeung jalma nu geus maot, anu moal bisa ngadéngé atikan-atikan. Manéhna jalma-jalma kapir disaruakeun ogé jeung jalma torék anu teu bisa ngadéngé panggerona, ku lantaran maranéhna nukang nonggong.
-
 ## 30:53
 
 Hidep lain nu maparin pituduh ka jalma-jalma nu lolong (ati sanubarina) tina kasasaranana. Hidep moal bisa méré béja (pituduh Pangéran), kajaba ka jalma-jalma nu iman kana ayat-ayat Kami. Nya aranjeunna téh jalma-jalma nu sumerah diri (ka Kami).
@@ -15226,8 +13861,6 @@ Allah téh nyaéta Dat nu nyiptakeun aranjeun tina kaayaan lemah, tuluy Mantenna
 ## 30:55
 
 Dina poé (nalika) kajadian Kiamat, jalma-jalma nu doraka (kapir) susumpahan yén maranéhna cicing (dina jero kubur) téh ngan sakeudeung (pisan). Tah kitu pisan baheula maranéhna dibalieurkeun (tina bebeneran). [^682]
-
-[^682]: Saperti manéhna geus ngabohong dina tiap omonganana, saperti kitu ogé manéhna ngabohong di dunya.
 
 ## 30:56
 
@@ -15253,8 +13886,6 @@ Mangka, hidep sing sabar! Sabenerna jangji Allah téh bener. Ulah nepi ka jalma-
 
 Alif Lām Mīm. [^683]
 
-[^683]: Tingal catetan kaki surat al-Baqarah/2:1.
-
 ## 31:2
 
 Éta téh ayat-ayat Al-Kitab (Al-Qur’an) anu pinuh ku hikmah,
@@ -15278,8 +13909,6 @@ Ti antara manusa aya jalma anu meuli omongan anu taya gunana pikeun nyasarkeun (
 ## 31:7
 
 Upama dibacakeun ka manéhna [^684] ayat-ayat Kami, manéhna ngabalieur bari nyombongkeun diri api-api manéhna teu ngadéngé, lir ibarat dina dua ceulina aya anu nyocokan. Mangka, pék geura béré béja pikabungaheun ka manéhna ku siksaan nu peurih.
-
-[^684]: Pikeun jalma-jalma anu nyarita omong kosong keur nyasarkeun manusa.
 
 ## 31:8
 
@@ -15309,8 +13938,6 @@ Tétéla Kami bener-bener geus maparin hikmah ka Luqman, nyaéta “Prak geura s
 
 Kami ngawasiatan ka manusa (sangkan milampah kahadéan) ka indung-bapana. Indungna téh geus ngakandung manéhna dina kaayaan héngkér nu manglipet-lipet jeung nyapih manéhna salila dua taun. [^685] (Wasiat Kami), “Prak sukuran ka Kami jeung ka indung-bapa anjeun. Ngan ka Kami wungkul (anjeun) mulang.
 
-[^685]: Salambat-lambatna nyapih budak téh nyaéta nepi ka umur dua taun.
-
 ## 31:15
 
 Upama maranéhna (indung-bapa) maksa ka anjeun sangkan ngamusrikkeun Kami jeung perkara anu anjeun teu miboga élmu ngeunaan éta, kadé anjeun ulah ta’at ka maranéhna, (tapi) prak campur gaul jeung maranéhna di dunya kalayan hadé jeung tuturkeun jalan jalma anu mulang ka Kami. Tuluy, ngan ka Kami wungkul anjeun mulang, tuluy Kami mére nyaho ka aranjeun naon anu biasa ku aranjeun dilakukeun.”
@@ -15318,8 +13945,6 @@ Upama maranéhna (indung-bapa) maksa ka anjeun sangkan ngamusrikkeun Kami jeung 
 ## 31:16
 
 (Luqman nyarios), “Hé anaking, saenyana upama aya (hiji pagawéan) nu sabeurat ¿arrah (barang nu pangleutikna) jeung aya aya dina jero batu, di langit atawa di bumi, tangtu Allah bakal ngadatangkeunana (pikeun diwales). Saleresna Allah Maha Lemah-lembut [^686] (tur) Mahataliti.
-
-[^686]: Allah Maha Lemah-lembut” nyaéta élmu Allah téh ngalimpudan sagala rupa nepi ka nu pangleutikna.
 
 ## 31:17
 
@@ -15332,8 +13957,6 @@ Omat anjeun ulah miceun beungeut anjeun ti papada manusa (lantaran sombong) jeun
 ## 31:19
 
 Sing boga sikep siger tengah dina waktu leumpang [^687] sarta launkeun sora anjeun. Sabenerna panggoréng-goréngna sora téh nyaéta sora kaldé.”
-
-[^687]: Waktu leumpang, nya ulah gancang teuing atawa laon pisan, kudu nengah atawa siger tengah, teu gancang teuing ogé teu laon pisan.
 
 ## 31:20
 
@@ -15367,8 +13990,6 @@ Mung kagungan Allah naon nu aya di langit jeung nu aya di bumi. Saleresna Manten
 
 Saupama tatangkalan di bumi dijieun mangpirang-pirang kalam jeung lautan (dijieun mangsina) ditambah tujuh lautan deui sanggeus (garing)na, pasti moal béak-béak (dituliskeun) éta kalimah-kalimah Allah téh [^688] (ditulis ku éta mangsi). Saleresna Allah Mahaperkasa (tur) Mahawijaksana.
 
-[^688]: Èlmu pangaweruh-Na tur kawijaksanaana-Na (hikmah-Na), nyaéta sakabéh nu aya moal cukup lamun dipaké keur nuliskeun kaagungan dawuhan-dawuhan Allah
-
 ## 31:28
 
 Nyiptakeun jeung ngahudangkeun aranjeun (kanggo Allah) mah ngan wungkul siga (gampangna nyiptakeun jeung ngahudangkeun) hiji nyawa baé. Saleresna Allah Maha Ngadangu (tur) Maha Ningali.
@@ -15389,8 +14010,6 @@ Naha anjeun henteu niténan yén sabenerna parahu nu lalayaran di laut téh kala
 
 Upama maranéhna digulung ku ombak gédé lir méga nu kandel, maranéhna ngadoa ka Allah kalayan ngamurnikeun ageman mung pikeun Mantenna. Tuluy, waktu Allah nyalametkeun maranéhna nepi ka darat, ngan sawaréh ti antara maranéhna anu tetep aya dina jalan nu lempeng. [^689] Taya nu ingkar kana ayat-ayat Kami iwal ti tukang ngahianat nu teu mulang tarima.
 
-[^689]: alan nu lempeng téh nyaéta ngaku yén Allah Swt. téh tunggal.
-
 ## 31:33
 
 Hé manusa, kudu takwa ka Pangéran aranjeun jeung kudu sieun kana poé anu (waktu) hiji bapa moal bisa mélaan anakna jeung hiji anak moal bisa (ogé) mélaan bapana saeutik ogé! Sabenerna jangji Allah éta bener, mangka omat pisan aranjeun sakali ogé ulah kaperdaya ku kahirupan dunya jeung ulah nepi ka ku sabab (kahadéan-kahadéan) ti Allah, aranjeun diperdaya ku tukang tipu.
@@ -15399,13 +14018,9 @@ Hé manusa, kudu takwa ka Pangéran aranjeun jeung kudu sieun kana poé anu (wak
 
 Saleresna Allah kagungan élmu ngeunaan Poé Kiamat, nurunkeun hujan, sareng uninga kana naon anu aya dina jero rahim. Taya saurang ogé anu nyaho (kalayan pasti) kana naon anu rék dipigawéna isukan. [^690] (Kitu ogé) taya saurang ogé nu nyaho di bumi mana manéhna bakal maot. Saleresna Allah Mahauninga (tur) Mahawaspada.
 
-[^690]: Manusa téh teu bisa mikanyaho kalayan pasti naon anu rék dilakukeunana isuk atawa naon nu rék tumiba, tapi manusa tetep diwajibkeun usaha.
-
 ## 32:1
 
 Alif Lām Mῑm. [^691]
-
-[^691]: Tingal catetan kaki surat al-Baqarah/2:1.
 
 ## 32:2
 
@@ -15419,15 +14034,9 @@ Tapi, kunanon maranéhna (jalma-jalma kapir) bet nyarita, “Manéhna (Muhammad)
 
 Allah téh nyaéta Dat nu nyiptakeun langit jeung bumi tur naon nu aya ti antara duanana dina genep poé, lajeng Mantenna istiwā di luhur Arasy. [^692] Pikeun aranjeun taya saurang ogé nu maparin panyalindungan jeung nu maparin sapa’at anging Mantenna. [^693] Naha aranjeun henteu niténan?
 
-[^692]: Calik di luhur ‘Arasy téh nyaéta sipat Allah anu wajib ku urang diimanan, nya sarua jeung sipat kaagungan Allah jeung kasuciana-Na.
-
-[^693]: Sapa’at nyaéta pitulung anu dibikeun ku rasul atawa jalma-jalma anu geus ditangtukeun pikeun ngurangan siksaan atawa tanggungan salah sahiji jalma di ahérat.
-
 ## 32:5
 
 Mantenna anu ngatur sagala urusan ti langit nepi ka bumi, tuluy (éta urusan téh) unggah ka Mantenna [^694] dina poé anu kadarna (lilana) nyaéta sarébu taun numutkeun itungan aranjeun.
-
-[^694]: Béja nu dibawa ku malaikat. Ayat ieu mangrupa misil pikeun ngébréhkeun kagungan Mantenna.
 
 ## 32:6
 
@@ -15449,8 +14058,6 @@ Lajeng, Mantenna nyampurnakeunana sarta niupkeun roh (ciptaana)-Na) ka jero (awa
 
 Maranéhna nyarita, “Naha upama kuring saréréa geus leungit (ancur) di jero taneuh, kuring saréréa bakal (balik deui) dina ciptaan nu anyar?” [^695] Malah (lain ngan ukur kitu), maranéhna téh ingkar ogé kana bakal patepang jeung Pangéran maranéhna.
 
-[^695]: Sakabéh manusa dihirupkeun deui pikeun narima wawales ti Allah dina Poé Kiamat.
-
 ## 32:11
 
 Pok ucapkeun, “Malaikat Maot anu dipapancénan pikeun (nyabut nyawa) maranéh bakal maéhan maranéh, tuluy mung ka Pangéran maranéh wungkul bakal dipulangkeun.”
@@ -15471,13 +14078,9 @@ Pék rasakeun ku maranéh (ieu siksaan) ku sabab maranéh téh ngalalaworakeun b
 
 Sabenerna jalma-jalma anu iman kana ayat-ayat Kami mah, ngan wungkul jalma-jalma anu upama diélingan ku éta (ayat-ayat Kami). Aranjeunna nyuuh (dina kaayaan) sujud [^696] jeung tasbéh sarta muji ka Pangéranana jeung aranjeunna henteu sombong.
 
-[^696]: Aranjeunna nyuuh sujud tur tumut ka Allah bari pinuh ku kahusuan. Disunahkeun ngalakukeun sujud tilawah upama ngadéngé ayat-ayat sajdah nu sarupa kieu.
-
 ## 32:16
 
 adaharan (awak) aranjeunna jauh tina pangsaréan [^697] (pikeun salat ti peuting) bari ngadoa ka Pangéranana kalayan kebek ku kasieun (tina siksaan-Na) jeung pinuh ku pangharepan (kana rahmat-Na), sarta aranjeunna ngainpakkeun sawaréh tina rejeki nu ku Kami geus dipaparinkeun ka aranjeunna.
-
-[^697]: Aranjeunna teu saré waktu nu séjén keur sararé, pikeun munajat ka Pangéran ngalakonan salat peuting.
 
 ## 32:17
 
@@ -15507,13 +14110,9 @@ Saha anu leuwih dolim tibatan jalma anu geus dipépélingan ku ayat-ayat Pangér
 
 Sabenerna Kami bener-bener geus maparin Kitab (Torét) ka Musa. Mangka, poma hidep (Muhammad) ulah mangmang ngeunaan éta. Kami ogé ngajadikeun éta Kitab (Torét) minangka pituduh pikeun Bani Israél. [^698]
 
-[^698]: Torét téh dipaparinkeun ka Nabi Musa a.s. dina mangsa harita dijadikeun pituduh pikeun Bani Israél. Nya kitu pisan, Al-Qur’an dipaparinkeun ka Nabi Muhammad Saw. pikeun dijadikeun pituduh pikeun umat Islam.
-
 ## 32:24
 
 Kami ngajadikeun ti antara maranéhna pamingpin-pamingpin anu méré pituduh kalayan paréntah Kami salila maranéhna sabar. [^699] Maranéhna salawasna yakin kana ayat-ayat Kami.
-
-[^699]: Sabar téh nyaéta sabar dina ngadegkeun bebeneran.
 
 ## 32:25
 
@@ -15535,13 +14134,9 @@ Maranéhna nanyakeun, “Iraha atuh éta kaunggulan téh (datang) lamun mah aran
 
 Pék caritakeun, “Dina ieu poé kaunggulan. [^700] Taya gunana deui pikeun jalma-jalma kapir kaimanan jeung maranéhna mah moal diengkékeun deui.”
 
-[^700]: Poé kaunggulan nyaéta Poé Kiamat.
-
 ## 32:30
 
 Mangka, sok geura ngabalieur hidep ti maranéhna jeung dagoan! Saenyana maranéhna (ogé) ngadago-dago. [^701]
-
-[^701]: Nabi Muhammad Saw. jeung jalma-jalma nu iman dititah nungguan poé kaunggulan, pikeun ngébréhkeun kaunggulan umat Islam ti jalma-jalma kapir dina poéan ancurna maranéhna.
 
 ## 33:1
 
@@ -15559,45 +14154,29 @@ Kudu tawekal ka Allah. Cukup Allah wungkul nu miara mah.
 
 Allah henteu ngajadikeun pikeun hiji jalma dua haté dina jero dadana, Mantenna henteu ngajadikeun pamajikan-pamajikan maranéh anu di-ẓihār [^702] ku maranéh jadi indung maranéh, jeung Mantenna henteu ngajadikeun anak kukut maranéh jadi anak maranéh sorangan (pituin). Tah éta hal téh ngan omongan di sungut-sungut maranéh wungkul. Allah mah ngadawuh perkara nu hak sarta Mantenna nuduhkeun kana jalan (anu bener).
 
-[^702]: Ẓihגr nyaéta omongan salaki ka pamajikanana, “Tonggong manéh haram pikeun kaula sarua jeung tonggong indung kaula” atawa omongan séjén nu sarua maksudna. Geus jadi adat kabiasaan urang Arab Jahiliyah, upama ngomong jiga kitu ka pamajikanana téh, mangka pamajikanana téh haram salilana pikeun manéhna. Tapi sanggeus Islam datang, mangka “haram salilana” éta di-nasakh (dipupus) jeung pamajikan-pamajikanna bisa halal deui pikeun manéhna ku mayar kiparat (denda).
-
 ## 33:5
 
 Pék gero maranéhna (éta anak-anak kukut) kalayan (maké) ngaran bapana. Éta téh adil di mungguhing Allah mah. Upama aranjeun teu nyaho ka bapa maranéhna, (pék gero maranéhna téh minangka) jadi dulur-dulur saagama jeung mawla [^703]  aranjeun. Taya dosa keur aranjeun lamun aranjeun salah ngeunaan éta, tapi (nu aya dosaan) téh naon anu dihaja ku haté aranjeun. Allah Maha Jembar-pangampura (tur) Mahaasih.
-
-[^703]: Maula-maula nyaéta abid nu geus dimerdékakeun atawa salah sahiji abdi anu geus diangkat jadi anak, saperti Salim anak angkat Huzaifah, katelah Maula Huzaifah.
 
 ## 33:6
 
 Nabi téh leuwih utama pikeun jalma-jalma mu’min tibatan diri maranéhna sorangan [^704] jeung istri-istri Nabi téh nyaéta saperti indung-indung maranéhna. Jalma-jalma anu boga rundayan sagetih éta leuwih boga hak (pikeun silih ngawarisan) dina kitab Allah tibatan jalma-jalma mu’min jeung jalma-jalma Muhajirin, kajaba upama aranjeun rék nyarieun kahadéan [^705] ka dulur-dulur aranjeun (nu saagama). Éta hal téh geus katulis dina Kitab (Allah).
 
-[^704]: Jalma-jalma mu’min leuwih mikacinta ka nabina tibatan mikacinta ka dirina sorangan dina sagala perkara.
-
-[^705]: Ngalakukeun kahadéan di dieu téh nyaéta méré harta banda wasiat teu leuwih ti sapertilu harta.
-
 ## 33:7
 
 (Sing inget) nalika Kami ngayakeun perjangjian ti para nabi, ti hidep (Muhammad), ti Nuh, ti Ibrahim, ti Musa, jeun ti Isa, putrana Maryam. Kami geus ngayakeun ti aranjeunna perjangjian anu pageuh, [^706]
-
-[^706]: Kasanggupan nepikeun pépéling agama ka tiap umatna.
 
 ## 33:8
 
 sangkan Mantenna nanya ka jalma-jalma anu bener ngeunaan bebeneran aranjeunna. [^707] Mantenna nyadiakeun siksa anu peurih pikeun jalma-jalma kapir.
 
-[^707]: Dina Poé Kiamat Allah bakal nanya ka para rasul nepi ka mana usaha aranjeunna nepikeun pépéling ka umatna jeung nepi ka mana umatna ngalaksanakeun pépéling éta.
-
 ## 33:9
 
 Hé jalma-jalma anu iman, sing inget kana ni’mat Allah (nu geus dipaparinkeun) ka aranjeun waktu bala tentara musuh datang ka aranjeun, tuluy Kami ngirimkeun ka maranéhna angin topan jeung bala tentara (malaikat) anu henteu katingali ku aranjeun. [^708] Allah Maha Ningali kana naon anu dipilampah ku aranjeun.
 
-[^708]: Ayat ieu ngajelaskeun kisah Aḥzāb, nyaéta golongan-golongan anu diancurkeun dina perang Khandaq ku lantaran mungpang paréntah Allah jeung Rasul-Na. Nu dimaksud wadyabalad nu teu bisa ditempo ku maranéh nyaéta para malaikat nu ngahaja didatangkeun ku Allah pikeun ngancurkeun musuh-musuh Allah.
-
 ## 33:10
 
 Waktu maranéhna datang ka aranjeun ti lebah luhur jeung handapeun aranjeun, waktu titingalian (aranjeun) ngarasa hélok, haté aranjeun nyelek nepi kana genggerong, [^709] jeung aranjeun boga sangkaan nu lain-lain ka Allah,
-
-[^709]: Ngajéntrékeun kumaha rongkahna rasa sieun nu kacida jeung rasa watir nu kacida dina wanci éta.
 
 ## 33:11
 
@@ -15647,13 +14226,9 @@ Sabenerna dina (diri) Rasulullah téh bener-bener aya picontoeun anu hadé pikeu
 
 Waktu jalma-jalma mu’min ningali golongan-golongan (nu sakongkol), aranjeunna nyarios, “Nya ieu anu dijangjikeun Allah jeung Rasul-Na ka urang saréréa téh, [^710]  Éstu bener Allah jeung Rasul-Na téh. (Éta hal téh) justru beuki nambahan iman jeung Islam aranjeunna.
 
-[^710]: Nu dijangjikeun Allah sinareng Rasul-Na nyaéta meunang pangalaman anu hésé.
-
 ## 33:23
 
 Ti antara jalma-jalma mu’min aya jalma-jalma nu nyumponan kana naon anu geus dijangjikeun aranjeunna ka Allah. Ti antara aranjeunna aya anu ngantunkeun (maot) jeung ti antara aranjeunna aya (ogé) nu ngantos-ngantos. [^711] Aranjeunna sakedik ogé teu ngarobah (jangjina),
-
-[^711]: Ngadagoan naon baé nu ku Pangéran dijangjikeun ka anjeunna.
 
 ## 33:24
 
@@ -15663,25 +14238,17 @@ sangkan Allah maparin pangwales ka jalma-jalma anu bener ku sabab bebeneranana j
 
 Allah ngusir jalma-jalma kapir dina kaayaan haté maranéhna pinuh ku rasa jéngkel. Maranéhna henteu pisan-pisan meunang kauntungan. Cukup Allah (nu ngahindarkeun) jalma-jalma mu’min ti pangperangan. [^712] Allah Mahakuat tur Mahagagah.
 
-[^712]: Dina poé perang Khandaq, jalma-jalma mu’min teu perang, ku sabab Allah ngagebah maranéhna ku ngintun angin jeung malaikat.
-
 ## 33:26
 
 Mantenna nurunkeun jalma-jalma Ahli Kitab (Bani Quraizah) anu mantuan maranéhna (golongan-golongan anu sakongkol) tina bénténg-bénténg maranéhna. Mantenna ngalungkeun rasa sieun kana haté maranéhna. Sawaréh ti maranéhna dipaéhan ku aranjeun jeung sawaréh deui ditawan ku aranjeun. [^713]
-
-[^713]: Sanggeus golongan-golongan nu sakongkol kalabur, Allah miwarang Nabi Muhammad Saw. ngancurkeun Bani Quraizah (Ahli Kitab) jeung ngusir maranéhna ti bénténg-bénténgna, tuluy sakabéh lalaki anu milu perang jeung maranéhna dipaéhan, sedengkeun awéwé-awéwé jeung barudak ditahan.
 
 ## 33:27
 
 Mantenna ngawariskeun ka aranjeun lahan-lahan, imah-imah, harta banda maranéhna, jeung lahan nu tacan kungsi katincak ku aranjeun. [^714] Allah Mahakawasa kana sagala pekara.
 
-[^714]: Wewengkon-wewengkon anu rék diasupan bala tentara Islam.
-
 ## 33:28
 
 Hé Nabi, pok caritakeun ka garwa-garwa hidep, “Upama aranjeun miharep kahirupan dunya jeung perhiasanana, nya heug ka dieu ku kuring dipaparinan mut’ah [^715] keur aranjeun jeung kuring rék mirak aranjeun ku cara anu hadé.
-
-[^715]: Wewengkon-wewengkon anu rék diasupan bala tentara Islam.
 
 ## 33:29
 
@@ -15699,19 +14266,9 @@ Saha baé ti antara aranjeun (garwa-garwa Nabi) nu tetep ta'at ka Allah jeung ka
 
 Hé garwa-garwa Nabi, aranjeun téh teu sarua jeung para wanoja nu séjén upama aranjeun takwa. Ku kituna, kadé ulah sok ngalalaunkeun sora (kalayan luway-liwey [^716] nu dijieun-jieun) nepi ka (lalaki) anu dina haténa boga panyakit [^717] bakal hudang birahina, tapi pék nyarita ku caritaan anu sopan.
 
-[^716]: yarita bari ngalakukeun laku lampah nu nimbulkeun batur ngalakukeun polah nu teu merenah ka aranjeun.
-
-[^717]: Jalma nu ngabogaan niat rék milampah sérong jeung awéwé séjén saperti ‘ngalakukeun jinah.
-
 ## 33:33
 
 Aranjeun kudu cicing di jero imah [^718] sarta kadé ulah dangdan (jeung boga paripolah) jiga kaom jahiliah baheula. [^719] Geura adegkeun salat, kaluarkeun jakat, jeung ta'at ka Allah tur ka Rasul-Na. Saleresna Allah mung badé ngalebur dosa-dosa aranjeun, hé ahlulbait, [^720] tur ngabersihan aranjeun sabersih-bersihna
-
-[^718]: Garwa-garwa Rasul kudu tetap calik di bumi. Kaluar imah upama aya kaperluan anu dibenerkeun ku sara’.
-
-[^719]: “Jahiliah baheula” nyaéta jahiliah kapir saméméh jaman Nabi Muhammad Saw. Nu dimaksud “jahiliah jaman ayeuna” nyaéta jahiliah ku lantaran milampah kama’siatan sanggeus datangna Islam.
-
-[^720]: Ahlulbait nyaéta kulawarga Rasulullah Saw.
 
 ## 33:34
 
@@ -15729,8 +14286,6 @@ Henteu pantes pikeun lalaki jeung awéwé mu’min, upama Allah jeung Rasul-Na g
 
 (Sing inget) nalika hidep (Muhammad) nyarita ka jalma anu geus dibéré kani'matan ku Allah, kitu deui hidep (ogé) geus méré ni'mat ka manéhna, “Ulah diserahkeun ku pamajikan téh jeung kudu takwa ka Allah,” sedengkeun hidep nyumputkeun dina jero haté naon anu rék diébréhkeun ku Allah, sarta hidep ngarasa rémpan ku manusa, padahal Allah anu leuwih hak kudu dipikasieun. Nya sanggeus Zaéd mutuskeun moal méré kaperluan istrina (nyerahkeun), Kami ngawinkeun hidep ka anjeunna (Zaénab), [^721] sangkan henteu aya kabeungbeurat keur jalma-jalma mu'min ngawin ka urut pamajikan anak-anak kukutna, lamun anak-anak kukutna geus mérésan kaperluan pamajikanana. Éta katetepan Allah téh pasti jadina.
 
-[^721]: Nabi Muhammad Saw. lain bapa ti salah sahiji sobatna, ku kituna patilasan Zaéd nyaéta Zaénab bisa ditikah ku Rasulullah.
-
 ## 33:38
 
 Henteu aya kabeungbeurat naon ogé pikeun Nabi ngeunaan katetapan nu geus ditangtoskeun ku Allah pikeun anjeunna. (Allah geus netepkeun nu kitu téh) minangka sunnah Allah keur nabi-nabi nu ti heula. Katangtuan Allah téh mangrupa katangtuan anu pasti lumakuna,
@@ -15739,13 +14294,9 @@ Henteu aya kabeungbeurat naon ogé pikeun Nabi ngeunaan katetapan nu geus ditang
 
 nyaéta) jalma-jalma anu nepikeun risalah-risalah Allah [^722] ngarasa ajrih ku Mantenna jeung henteu pisan-pisan ngarasa sieun ku saha baé ogé salian ti ku Allah. Cukup baé Allah anu nyieun balitungan.
 
-[^722]: Para rasul anu nepikeun saréat-saréat Allah ka manusa.
-
 ## 33:40
 
 uhammad téh lain bapana salah saurang ti antara maranéh, [^723] tapi utusan Allah jeung pamungkas sakabéh nabi. Allah Mahauninga kana sagala perkara.
-
-[^723]: Nabi Muhammad Saw. lain bapa ti salah sahiji sobatna, ku kituna patilasan Zaéd nyaéta Zaénab bisa ditikah ku Rasulullah.
 
 ## 33:41
 
@@ -15762,8 +14313,6 @@ Mantenna anu maparin rahmat ka aranjeun jeung para malaikat-Na (ménta pangampur
 ## 33:44
 
 Kecap panghormatan (Allah pikeun) aranjeunna (jalma-jalma mu’min) téh, dina poéan patepung sareng Mantenna, nyaéta “salām.” [^724] Mantenna nyadiakeun ganjaran anu mulya pikeun aranjeunna.
-
-[^724]: Aman tina sagala rupa musibah.
 
 ## 33:45
 
@@ -15793,8 +14342,6 @@ Hé Nabi (Muhammad), sabenerna Kami geus ngahalalkeun pikeun hidep garwa-garwa h
 
 Hidep (Muhammad) diwidian nangguhkeun (pasatemon jeung) anu dipikarep ku hidep ti antara aranjeunna (garwa-garwa hidep). (Diwidian ogé) hidep pasatemon jeung anu dipikarep ku hidep ti antara aranjeunna. Upama hidep mikarep (campur deui) jeung garwa anu geus disisihkeun ku hidep, henteu jadi dosa nanaon ka hidep. Éta téh leuwih deukeut pikeun katengtreman haténa. Aranjeunna bener-bener moal ngarasaeun sedih sarta bakal ridoeun kana naon anu dibikeun ku hidep ka aranjeunna. Da Allah mah Uninga kana naon anu (disidem) dina haté aranjeun. Allah Mahauninga (tur) Mahasantun. [^725]
 
-[^725]: Numutkun riwayat, dina hiji mangsa waktu garwa-garwa Nabi Muhammad Saw. aya nu timburuan jeung aya nu ménta tambahan balanja, mangka Nabi mutuskeun kakaitan sareng aranjeunna nepi ka sabulan lilana. Ku kituna, lantaran sieun dipirak, mangka aranjeunna nyumpingan Nabi pikeun nétélakeun yén aranjeunna rido moal rengat manah kana naon baé anu badé diputuskeun ku Nabi ka aranjeunna. Turunna ieu ayat nétélakeun yén Allah maparin widi ka Nabi pikeun pasatemon sareng saha baé ti garwa-garwana anu dipikarep atanapi teu dipikarep sapatemon. Ayat ieu ogé nétélakeun yén Allah maparin widi ka Nabi pikeun rujuk deui sareng garwa-garwana nu tos dipirak upama aya garwana nu tos dipirak.
-
 ## 33:52
 
 Henteu halal pikeun hidep (Muhammad) nikah ka awéwé-awéwé (séjén) ti samet ayeuna jeung henteu meunang ngaganti istri-istri hidep ku awéwé (nu séjén) sanajan kageulisanana matak mincut haté hidep, kajaba abid-abid anu dipimilik. Apan Allah téh Maha Nalingakeun kana sagala perkara.
@@ -15802,8 +14349,6 @@ Henteu halal pikeun hidep (Muhammad) nikah ka awéwé-awéwé (séjén) ti samet
 ## 33:53
 
 Hé jalma-jalma anu iman, omat ulah asup ka imah-imahna Nabi kajaba upama aranjeun diidinan pikeun dahar, bari ulah ngadagoan waktu asakna (pasakan). [^726] Tapi upama aranjeun diondang, nya pék baé arasup! Tuluy upama aranjeun geus réngsé dahar, nya bral geura baralik jeung ulah tuluy betah ngawangkong. (Sabab) sabenerna éta téh ngaganggu Nabi, nepi ka anjeunna éra ku aranjeun (pikeun nitah balik). Allah mah moal isin (nerangkeun hal) anu bener. Upama aranjeun rék barang pénta (ku sabab aya keperluan) ka istri-istri Nabi, atuh pék lakukeun ti satukangeun pipinding. (Cara) kitu téh leuwih suci keur haté aranjeun jeung keur haté aranjeunna (istri-istri Rasul). Aranjeun henteu meunang nganyenyeri manah Rasul jeung teu meunang mihukum istri-istrina sanggeusna (wapatna) pikeun salilana. Sabenerna kalakuan kitu téh kacida gedé (dosana) mungguhing Allah mah.
-
-[^726]: Ieu ayat nyegah sahabat-sahabat Rasul asup ka imah anjeunna pikeun dahar bari ngahajakeun nungguan waktu dahar anjeunna.
 
 ## 33:54
 
@@ -15816,10 +14361,6 @@ Henteu matak dosa pikeun garwa-garwa Nabi (patepung tanpa pipinding) jeung bapa-
 ## 33:56
 
 Saleresna Allah sareng para malaikat-Na sami-sami salawat kanggo Nabi. [^727] Hé jalma-jalma anu iman, geura salawat ka Nabi jeung ucapkeun salam kalayan pinuh panghormatan (ka Nabi). [^728]
-
-[^727]: Solawat ti Allah hartina maparin rahmat, ti Malaikat pang mundutkeun pangampura, ti jalma-jalma mu’min hartina ngadoa sarupa jeung ngucapkeun Allāhumma ṣalli ‘alā Muḥammad.
-
-[^728]: Ku ngucapkeun ucapan Assalāmu‘alaika ayyuhan Nabī, hartina mugia kasalametan pikeun anjeun hé Nabi!
 
 ## 33:57
 
@@ -15901,8 +14442,6 @@ Mantenna Uninga kana naon nu asup ka jero bumi jeung naon anu kaluar ti dinya, s
 
 Jalma-jalma kapir ngomong, “Poé Kiamat téh moal datang ka urang saréréa mah.” Pék caritakeun ku hidep (Muhammad), “Demi Pangéran kuring anu uninga kana sakur nu gaib, Poé Kiamat téh pasti datangna ka aranjeun. Moal aya anu nyumput ti Mantenna sanajan sagedé żarrah, [^729] boh nu aya di langit boh nu aya di bumi, boh nu leuwih leutik ti éta boh nu leuwih gedé, anging sakabéh aya dina Kitab anu jéntré (Loh Mahpud).”
 
-[^729]: Aya ogé anu napsirkeun yén żarrah téh nyaéta sabangsaning sato nu leutik pisan kaasup sireum. Bangsa Arab sok ngalandi sabangsaning sato nu pohara leutikna ku éta kecap.
-
 ## 34:4
 
 Sangkan Mantenna ngawales ka jalma-jalma nu iman tur migawe amal soléh. Nya aranjeunna pisan anu bakal meunang pangampura jeung rejeki anu mulya.
@@ -15939,8 +14478,6 @@ Prak hidep (Dawud) geura nyieun baju-baju besi anu gedé, geura ukur anyamanana,
 
 Pikeun Sulaéman (Kami geus nundukkeun) angin anu (jarak tempuh) indit-inditanana dina mangsa isuk-isuk sarua jeung nyaba sabulan. [^730] Kitu deui (jarak tempuh) indit-inditanana dina mangsa pasosoré sarua jeung nyaba sabulan. Kami ogé ngocorkeun tambaga pikeun anjeunna. Sawaréh tina jin aya nu digawé di hareupeunana (dina kakawasaanana) kalayan widi Pangéranana. Saha baé ti antara maranéhna nu nyimpang tina paréntah Kami, tangtu manéhna ku Kami sina ngarasakeun siksa anu (apina) ngaléntab-léntab.
 
-[^730]: Lamun Nabi Sulaéman a.s. lalampahan ti isuk-isuk nepi ka tengah poé, mangka jarakna sarua jeung jarak nu dilakukeun maké onta salila sabulan. Nya kitu deui lamun lalampahan dimimitian ti tengah poé nepi ka soré, mangka waktuna sarua jeung iinditan sabulan.
-
 ## 34:13
 
 Maranéhna (bangsa jin téa) sok digawé pikeun Sulaéman kana sagala rupa nu ku anjeunna dipikahayang. Ti antarana (nyieun) gedong-gedong anu tohaga, arca-arca, piring-piring (anu gedéna) siga balong, jeung pariuk-pariuk nu tambleg (luhureun tungku). Prak geura digawé maranéh hé kulawarga Dawud pikeun muji (tur) sukuran ka Allah! Ngan saeutik pisan ti antara hamba-hamba Kami nu loba sukurna.
@@ -15957,10 +14494,6 @@ Tétéla pikeun urang Saba’ bener-bener aya hiji tanda (kakawasaan Pangéran) 
 
 Tapi maranéhna ngabalieur, nya Kami ngirimkeun banjir bandang anu kacida rongkahna [^731] ka maranéhna, jeung Kami ngaganti dua kebon maranéhna téh ku dua kebon anu bubuahanana pait, tangkal Aṡl, jeung saeutik tangkal Sidr. [^732]
 
-[^731]: Banjir bandang anu disababkeun runtuhna bendungan Ma’rib.
-
-[^732]: Tangkal ‘Asl nyaéta sarupaning tangkal camara, tangkal Sidr sarupaning tangkal bidara.
-
 ## 34:17
 
 Éta téh wawales Kami pikeun maranéhna akibat kakupuranana. Kami henteu males iwal ka jalma-jalma anu kacida kupurna.
@@ -15969,13 +14502,9 @@ Tapi maranéhna ngabalieur, nya Kami ngirimkeun banjir bandang anu kacida rongka
 
 Kami ngajadikeun antara maranéhna (pangeusi nagri Saba’) jeung nagri-nagri anu ku Kami diberkahan (Syam) sababaraha nagri anu dareukeut, sarta Kami netepkeun antara éta nagri-nagri (jarak) lalampahan. Pék lumampah maranéh di éta nagri dina wanci peuting atawa beurang kalayan aman. [^733]
 
-[^733]: Nagri nu aya di Syam, ku sabab kasuburanana, jeung nu dimaksud nagri-nagri nu deukuet nyaéta nagri nu aya di antara Yaman jeung Syam. Ku kaayaan kitu téh sakabéh jalma lalar liwat bari aman, boh ti beurang atawa ti peuting, maranéhna bisa eureun di padang pasir bari aman.
-
 ## 34:19
 
 Pok téh maranéhna nyarita, “Nun Gusti Pangéran abdi, mugi jauhkeun jarak lalampahan abdi sadaya.” [^734] Maranéhna geus dolim ka dirina sorangan. Kami ngajadikeun maranéhna piomongeun jalma-jalma jeung Kami ngancurkeun maranéhna saancur-ancurna. Saenyana dina hal éta téh nyata aya tanda-tanda (kakawasaan Allah) pikeun sakabéh jalma anu sabar tur sukuran.
-
-[^734]: Lamun nagri-nagri anu deukeut téh dileungitkeun, mangka maranéhna bisa ngalakukeun monopoli dagang, supaya meunang untungan nu leuwih gedé.
 
 ## 34:20
 
@@ -15992,8 +14521,6 @@ Pék caritakeun ku hidep (Muhammad), “Sok geura geroan maranéhna nu dianggap 
 ## 34:23
 
 Teu aya gunana sapa’at (pitulung) di mungguhing Allah, kajaba pikeun jalma-jalma anu meunang widi (narima éta sapa’at) ti Mantenna. Nepi ka upama kasieun geus dileungitkeun tina haté maranéhna (nu ménta sapaat jeung nu dipénta sapaat), maranéhna (nu dipénta sapaat) ngomong, “Naon anu geus didawuhkeun ku Pangéran anjeun téh?” Maranéhna (nu ménta sapaat) ngajawab, “Bebeneran.” Mantenna mah Mahaluhur (tur) Mahaagung. [^735]
-
-[^735]: Ieu ayat nerangkeun yén sapa’at (pitulung) téh ngan bisa dilakukeun ku widi Allah. Jalma-jalma nu rék dipaparin widi méré sapa’at jeung anu dipaparin widi meunang sapa’at ngarasa sieun jeung rémpan teu meunang widi ti Allah.
 
 ## 34:24
 
@@ -16043,8 +14570,6 @@ Teu pati-pati Kami ngutus hiji jalma pikeun nganaséhatan (ka pangeusi) hiji nag
 
 Maranéhna nyarita ogé, “Kuring saréréa leuwih beunghar ku harta banda jeung anak (tibatan anjeun), jeung kuring saréréa sama sakali moal bakal ditibanan siksaan.” [^736]
 
-[^736]: Ku kituna, jalma-jalma kapir meunang ni’mat nu pohara gedéna di dunya, mangka maranéhna ngarasa moal meunang siksaan di ahérat.
-
 ## 34:36
 
 Pék caritakeun ku hidep (Muhammad), “Saenyana Pangéran kuring ngajembarkeun jeung ngaheureutkeun rejeki ka saha baé anu dikersakeun ku Mantenna, tapi lolobana manusa téh henteu nyahoeun.”
@@ -16069,8 +14594,6 @@ Pék caritakeun ku hidep (Muhammad), “Saleresna Allah ngajembarkeun jeung ngah
 
 Para malaikat ngajawab, “Mahasuci Gusti. Gusti téh anu nangtayungan abdi sadaya, sanés maranéhna. Saleresna mah maranéhna téh salilana nyembah ka Jin [^737] (jeung) lolobana ti maranéhna téh iman ka Jin.”
 
-[^737]: Jin anu doraka téh nyaéta sétan.
-
 ## 34:42
 
 Dina ieu poé sawaréh ti antara maranéh henteu kawasa pikeun (ngadatangkeun) mangpa’at jeung (nolak) madarat ka nu sawaréhna deui. Kami ngadawuh ka jalma-jalma nu dolim, “Pék geura rasakeun ku maranéh siksaan naraka anu baheula ku maranéh sok dibohongkeun!”
@@ -16087,19 +14610,13 @@ Kami henteu kungsi méré kitab naon ogé ka maranéhna (kapir-kapir Mekah) anu 
 
 Jalma-jalma nu saméméh maranéhna (kapir-kapir Mekah) téh geus ngabohongkeun (ka para rasul). Padahal maranéhna téh tacan kungsi narima sapersapuluhna-sapersapuluhna acan tina naon-naon (ni’mat) [^738] anu dikurniakeun ku Kami ka jalma-jalma baheula, malah maranéhna téh ngabohongkeun ka para rasul Kami. Ku kituna, (tempo) pisakumahaeun teuing rongkahna akibat bebendon Kami.
 
-[^738]: Allah maparin kapinteran, kawijaksanaan, pangaweruh élmu nu luhung, yuswa nu panjang, kakuatan jasmani, kakayaan harta banda, jeung sajabana.
-
 ## 34:46
 
 Pék caritakeun ku hidep (Muhammad), “Kuring rék nganaséhatan aranjeun ku saperkara baé, (nyaéta) supaya geura madep karana Allah (kalayan ihlas) boh duaan-duaan boh saurang-saurang, [^739] tuluy pék geura mikiran (ngeunaan Muhammad). Éta batur aranjeun téh teu ngabogaan panyakit gélo saeutik ogé di. Anjeunna téh taya lian anging méré pépéling ka aranjeun yén di hareupeun aranjeun aya siksaan anu rongkah.”
 
-[^739]: ”Duaan-duaan atawa sorangan-sorangan” maksudna nyaéta waktu ngadeuheus ka Allah, tuluy neuleuman kaayaan Nabi Muhammad Saw. alusna dilakukeun keur kaayaan tenang, teu dilakukeun waktu kaayaan ramé.
-
 ## 34:47
 
 Pék caritakeun ku hidep (Muhammad), “Buruh nu ku kuring dipénta ti aranjeun (tina ieu ajakan) téh taya lian anging pikeun aranjeun sorangan. [^740] Buruh keur kuring mah taya lian anging ti Allah. Da Mantenna Maha Nyakseni kana sagala perkara.”
-
-[^740]: Rasulullah Saw. teu pisan-pisan ménta buruh ka maranéhna. Nanging anu dipénta ku anjeunna mah nyaéta maranéh iman ka Allah. Éta iman téh pikeun kaalusan maranéhna sorangan.
 
 ## 34:48
 
@@ -16108,8 +14625,6 @@ Pék caritakeun ku hidep (Muhammad), “Saleresna Pangéran kuring anu ngababét
 ## 34:49
 
 Pék caritakeun ku hidep, “Bebeneran geus datang. Anu batil moal bisa dimimitian jeung moal bisa dibalikkeun deui.” [^741]
-
-[^741]: Upama bebeneran geus datang, mangka kabatilan bakal ancur tur moal bisa ngalawan jeung ngaruntuhkeun bebeneran.
 
 ## 34:50
 
@@ -16123,8 +14638,6 @@ Pék caritakeun ku hidep, “Upama kuring sasar, nya saenyana taya lian sasarna 
 
 (Dina waktu éta) maranéhna nyarita, “Urang saréréa iman kana bebeneran.” Tapi, kumaha bisana (di ahérat) maranéhna ngahontal kaimanan (kalayan gampang) ti tempat anu jauh (dunya pana)? [^742]
 
-[^742]: Sanggeus maranéhna nénjo rongkahna siksaan dina Poé Kiamat, kakara maranéhna daék iman ka Allah jeung Rasul-Na, nya tempat kudu iman téh geus jauh nyaéta di alam dunya.
-
 ## 34:53
 
 Tétéla maranéhna geus kupur kana bebeneran ti tadina (waktu di dunya), sarta maranéhna ngabohongkeun kana perkara gaib ti tempat nu jauh (di dunya).
@@ -16132,8 +14645,6 @@ Tétéla maranéhna geus kupur kana bebeneran ti tadina (waktu di dunya), sarta 
 ## 34:54
 
 Geus dihalangan antara maranéhna jeung rupa-rupa perkara anu dipikahayang [^743] ku maranéhna, sakumaha kajadian ka jalma-jalma anu saperti maranéhna ti heula. Saenyana maranéhna téh ti baheula (di dunya) ogé aya dina kamangmangan anu pohara pisan.
-
-[^743]: u ku maranéhna dipikahayang téh nyaéta iman ka Allah atawa balik deui ka dunya pikeun ngalakukeun tobat.
 
 ## 35:1
 
@@ -16175,10 +14686,6 @@ Nya Allah anu ngirimkeun mangrupa-rupa angin, tuluy éta (angin) téh ngagerakke
 
 Saha baé anu miharep kamulyaan, mangka (kudu nyaho yén) kamulyaan téh sakabéhanana mung kaagungan Allah. Nya ka Mantenna naékna caritaan-caritaan nu hadé [^744] jeung amal soléh bakal diangkat ka Mantenna. [^745] Anapon jalma-jalma nu ngarencanakeun kajahatan tangtu bakal meunang siksaan nu kacida rongkahna jeung rencana jahatna téh bakal ancur.
 
-[^744]: Sawaréh ahli tapsir nétélakeun yén ucapan nu hadé téh nyaéta kalimah taohid (lā ilāha illallāh). Aya ogé anu nyebutkeun dikir ka Allah. Aya ogé nu nyebutkeun sakabéh omongan nu alus anu diucapkeun karana Allah.
-
-[^745]: Caritaan nu hadé téh ditaékkeun pikeun ditampi ku Mantenna jeung dibéré ganjaran.
-
 ## 35:11
 
 Allah nyiptakeun aranjeun tina taneuh, tuluy tina cimani, tuluy Mantenna ngajadikeun aranjeun sapasang-sapasang (lalaki jeung awéwé). Teu aya hiji awéwé ogé anu kakandungan jeung ngalahirkeun, iwal ti kauninga ku Mantenna. Moal dipanjangkeun umur hiji jalma jeung (ogé) moal dikurangan, kajaba geus ditetepkeun dina kitab (Loh Mahpud). Sabenerna perkara kitu téh mungguhing Allah mah babari pisan.
@@ -16211,8 +14718,6 @@ Upama ngersakeun, tangtu Mantenna ngabinasakeun aranjeun jeung ngadatangkeun mah
 
 Anu boga dosa moal nanggung dosa batur. Saupama nu beurat dosana nyambat (batur) pikeun nanggung dosana, mangka moal bisa nanggung sanajan saeutik ogé sanajan (nu disambatna téh) dulurna. Sabenerna anu bisa dinaséhatan ku hidep (Muhammad) ngan jalma-jalma nu sieun ku (siksa) Allah (sanajan) teu ningali Mantenna [^746] jeung nu sok ngadegkeun salat. Saha baé jalma nu daék susuci, sabenerna susuci téh pikeun kahadéan diri aranjeun sorangan. Mung ka Allah geusan pamulangan.
 
-[^746]: Sawaréh ahli tapsir napsirkeun arti bil-gaib dina ieu ayat téh nyaéta waktu jalma-jalma keur sorangan teu nempo batur.
-
 ## 35:19
 
 Teu sarua (ogé) jalma nu lolong jeung nu awas.
@@ -16229,8 +14734,6 @@ Teu sarua (ogé) nu iuh jeung nu panas mentrang.
 
 Teu sarua (ogé) jalma-jalma nu hirup jeung jalma-jalma nu maot. Tétéla Allah geus méré pangdéngé ka saha baé nu dikersakeun ku Mantenna, sedengkeun hidep (Muhammad) teu pisan-pisan sanggup ngajadikeun jalma-jalma nu di jero kubur bisa ngadéngé. [^747]
 
-[^747]: Nabi Muhammad Saw. teu bisa méré pituduh pikeun jalma-jalma musrik nu geus paéh haténa.
-
 ## 35:23
 
 Hidep mah (Muhammad) taya lian ngan saukur anu purah méré pépéling.
@@ -16239,13 +14742,9 @@ Hidep mah (Muhammad) taya lian ngan saukur anu purah méré pépéling.
 
 Sabenerna Kami geus ngutus hidep (Muhammad) kalayan mawa bebeneran, [^748] minangka nu mawa béja pikabungaheun jeung nu méré pépéling. Taya hiji umat ogé kajaba geus datang ka éta umat anu méré pépéling (rasul).
 
-[^748]: Agama taohid jeung hukum-hukumna.
-
 ## 35:25
 
 Upama maranéhna ngabohongkeun ka hidep (Muhammad), nya sabenerna jalma-jalma anu saméméh maranéhna ogé geus ngabohongkeun (kana bebeneran). Geus datang ka maranéhna téh rasul-rasulna bari mawa katerangan nu nyata (mujijat), zubur, jeung kitab nu ngandung katerangan nu sampurna. [^749]
-
-[^749]: Allah méré pituduh ka saha baé nu dipikersa jeung méré kasanggupan pikeun ngadéngékeun jeung narima katerangan-katerangan.
 
 ## 35:26
 
@@ -16267,8 +14766,6 @@ Sabenerna jalma-jalma nu sok maca Kitab Allah (Al-Qur’an), ngadegkeun salat, s
 
 (Kitu téh) sangkan Allah nyampurnakeun ganjaran aranjeunna sareng nambihan kurnia-Na ka aranjeunna. Saleresna Allah téh Maha Jembar-pangampura (tur) Maha Males-budi. [^750]
 
-[^750]: Jalma-jalma nu nyaho kana kaagungan jeung kakawasaan Allah.
-
 ## 35:31
 
 Naon baé nu ku Kami diwahyukeun ka hidep (Muhammad), nyaéta Kitab (Al-Qur’an), éta téh bener nu ngaenyakeun kana kitab-kitab nu saméméhna. Saleresna Allah Mahauninga (tur) Maha Ningali kana kaayaan hamba-hamba-Na
@@ -16276,8 +14773,6 @@ Naon baé nu ku Kami diwahyukeun ka hidep (Muhammad), nyaéta Kitab (Al-Qur’an
 ## 35:32
 
 Tuluy éta Kitab téh ku Kami diwariskeun ka jalma-jalma nu ku Kami dipilih ti antara hamba-hamba Kami. Tuluy ti antara maranéhna aya nu nganiaya kana dirina sorangan, aya nu siger tengah, jeung aya (ogé) nu (leuwih) ti heula dina milampah kahadéan [^751] kalayan widi Allah. Éta téh kurnia nu pohara gedéna.
-
-[^751]: Ngadolim ka diri sorangan téh nyaéta jalma nu leuwih loba kasalahanana tibatan kahadéanana. Nu dimaksud ku siger tengah téh nyaéta jalma-jalma nu kahadéan jeung kasalahanana saimbang, sedengkeun nu dimaksud jalma-jalma nu leuwih ti heula ngalakukeun kahadéan téh nyaéta nu ngalakukeun kahadéanana pohara lobana jeung langka ngalakukeun kagoréngan.
 
 ## 35:33
 
@@ -16323,8 +14818,6 @@ Maranéhna susumpahan ku (jenengan) Allah kalayan sumpah nu sabener-benerna yén
 
 lantaran kasombongan (maranéhna) di bumi jeung lantaran rencana jahatna. Akibat (goréng) tina rencana jahatna téh ngan nibanan ka nu bogana sorangan. Maranéhna ngan ngadago-dago katangtuan (nu karandapan ku) jalma-jalma nu ti heula. [^752] Ku kituna, hidep (Muhammad) moal pisan-pisan manggihan parobahan dina katangtuan Allah jeung moal manggih katangtuan Allah méngpar (tina tujuanana).
 
-[^752]: Anu dimaksud ku ”katangtuan jalma-jalma nu ti heula” nyaéta datangna siksa ka jalma-jalma nu ngabohongkeun para rasul.
-
 ## 35:44
 
 Naha maranéhna henteu ngalalana di ieu bumi, tuluy niténan kumaha balukarna jalma-jalma nu saméméh maranéhna, padahal maranéhna (jalma-jalma baheula nu ngabohongkeun ka rasul) leuwih kuat tibatan maranéhna? Moal aya hiji perkara ogé nu bakal ngalemahkeun Allah, boh di langit boh bumi. Saleresna Allah Mahauninga (tur) Mahakawasa.
@@ -16336,8 +14829,6 @@ Upama Allah nibankeun siksaan ka manusa alatan naon anu dipilampah ku maranéhna
 ## 36:1
 
 Yā Sīn. [^753]
-
-[^753]: Tingal catetan kaki surat al-Baqarah/2:1.
 
 ## 36:2
 
@@ -16379,8 +14870,6 @@ Sarua baé pikeun maranéhna mah, boh ku hidep (Muhammad) dibéré pépéling bo
 
 Sabenerna hidep mah ngan (bisa) méré pépéling ka jalma-jalma nu daékeun milu [^754] jeung nu sieun ku ka Allah Nu Mahawelas sanajan manéhna teu ningali ka Mantenna. Ku kituna, nya prak geura bubungah maranéhna ku pangampura jeung ganjaran nu mulya.
 
-[^754]: Pépéling anu didugikeun ku Nabi Muhammad Saw. ngan gedé gunana pikeun panganut-panganutna.
-
 ## 36:12
 
 Sabenerna nya Kami nu ngahirupkeun jalma-jalma nu maot jeung nu nyatetkeun naon baé nu geus dipilampah ku maranéhna tur tapak lacak nu (ditinggalkeun) ku maranéhna. Sagala rupa ogé ku Kami dikumpulkeun dina induk Kitab anu nyata (Loh Mahpud).
@@ -16417,8 +14906,6 @@ Aranjeunna nyarios, “Sialna aranjeun téh ku lantaran polah aranjeun sorangan.
 
 Jol baé datang ti tungtung dayeuh hiji lalaki [^755] kalayan rurusuhan. Manéhna nyarita. “Yeuh kaom kuring, geura nurut ka éta para utusan!
 
-[^755]: Numutkeun para ahli tapsir, éta lalaki téh ngaranna Habib an-Najjar.
-
 ## 36:21
 
 Geura nurut ka jalma anu henteu ménta buruh ka aranjeun, sedengkeun aranjeunna téh jalma-jalma nu meunang pituduh!
@@ -16442,8 +14929,6 @@ Sabenerna kuring geus iman ka Pangéran aranjeun. Ku kituna, pék geura kupingke
 ## 36:26
 
 Diucapkeun (ka manéhna), “Geura asup anjeun ka sawarga!” [^756] Manéhna (éta lalaki) nyarita, “Tada teuing alusna lamun kaom kuring nyahoeun,
-
-[^756]: Numutkeun hiji riwayat, éta lalaki téh ditelasan ku kaomna sanggeus cacariosan ngeunaan naséhat, saperti diunggel dina ayat 20-25. Waktu anjeunna rék maot, Malaikat lungsur masihan wartos yén kersaning Allah dosa-dosana dihapunten sareng anjeunna bakal lebet sawarga.
 
 ## 36:27
 
@@ -16537,8 +15022,6 @@ Maranéhna (jalma-jalma kapir) nyarita, “Iraha (tumibana) jangji (poé dihudan
 
 Maranéhna ngan ngadago-dago hiji sora sentakan [^757] anu kacida tarikna nu bakal ngabinasakeunana waktu maranéhna (sibuk) paséa (ngeunaan urusan dunya).
 
-[^757]: Sora tiupan sangkakala nu kahiji anu ngancurkeun ieu alam dunya.
-
 ## 36:50
 
 Ku sabab kitu, maranéhna henteu kaburu nyieun wasiat jeung teu bisa mulang ka kulawargana.
@@ -16546,8 +15029,6 @@ Ku sabab kitu, maranéhna henteu kaburu nyieun wasiat jeung teu bisa mulang ka k
 ## 36:51
 
 Sanggeus kitu), sangkakala ditiup, [^758] nya harita kénéh maranéhna gagancangan ti kuburanana ngadeuheus ka Pangéranana.
-
-[^758]: Tiupan sangkakala kedua ngahudangkeun jalma-jalma di jero kubur.
 
 ## 36:52
 
@@ -16616,8 +15097,6 @@ Upama ngersakeun, tangtu Kami ngarobah waruga maranéhna di tempat-tempatna mara
 ## 36:68
 
 Saha baé jalma anu ku Kami dipanjangkeun umurna, tangtu manéhna ku Kami dibalikkeun deui saperti asal kajadianana. [^759] Mangka, naha maranéhna téh teu ngagunakeun akal?
-
-[^759]: Balik deui ka asal, lemah jeung kurang akal, sarua jeung budak leutik.
 
 ## 36:69
 
@@ -16763,8 +15242,6 @@ Pok téh maranéhna nyarita kieu, “Duh cilaka urang, ieu geuning poé wawales 
 
 Nya ieu pisan poé kaputusan [^760] nu salila ieu ku maranéhna dianggap ngan saukur kabohongan.
 
-[^760]: Poé waktu Allah méré kaputusan jeung wawales ka hamba-hamba-Na.
-
 ## 37:22
 
 (Diparéntahkeun ka malaikat). “Kumpulkeun jalma anu dolim jeung babaturanana, sarta sesembahan-sesembahan nu baheula ku maranéhna sok disembah
@@ -16792,8 +15269,6 @@ Sabagian ti antara maranéhna nyanghareupan ka sabagian deui tuluy silih teumble
 ## 37:28
 
 (Panganut-panganutna) maranéhna nyarita (ka dedengkot-dedengkotna), “Sabenerna nya maranéh nu baheula sok ngadatangan kuring saréréa ti beulah katuhu.” [^761]
-
-[^761]: Pamingpin-pamingpin maranéhna ngadatangan panganut-panganutna bari mawa muslihat keur mincut haténa.
 
 ## 37:29
 
@@ -17015,13 +15490,9 @@ Tuluy Kami ngéremkeun jalma-jalma nu séjénna.
 
 Sabenerna Ibrahim téh kaasup golonganana (Nuh). [^762]
 
-[^762]: Nabi Ibrahim a.s. kaasup ti kalangan Nabi Nuh a.s. dina kaimanan ka Allah jeung pokok-pokok atikan agama.
-
 ## 37:84
 
 (Sing inget) nalika anjeunna (Ibrahim) ngadeuheus ka Pangéran kalayan haté nu suci beresih. [^763]
-
-[^763]: Ihlas pasrah sumerah ka Allah kalayan haté nu buleud.
 
 ## 37:85
 
@@ -17042,8 +15513,6 @@ Tuluy anjeunna (Ibrahim) sarérétan nempo kana béntang-béntang.
 ## 37:89
 
 Tuluy anjeunna (Ibrahim) nyarita, “Sabenerna kuring téh gering.” [^764]
-
-[^764]: Anjeunna mutuskeun yén dirina sieun sasar jeung sieun manggihan dirina dina kayakinan nu salah ngeunaan pangerén.
 
 ## 37:90
 
@@ -17109,8 +15578,6 @@ Kami nyauran ka anjeunna, “Hé Ibrahim,
 
 tétéla hidep geus ngabenerkeun kana éta impian.” [^765] Sabenerna nya kitu Kami males ka jalma-jalma nu milampah kahadéan.
 
-[^765]: Percaya yén éta impian téh bener-bener ti Allah jeung wajib dilaksanakeun.
-
 ## 37:106
 
 Sabenerna ieu téh  cocoba anu nyata.
@@ -17118,8 +15585,6 @@ Sabenerna ieu téh  cocoba anu nyata.
 ## 37:107
 
 Kami geus nebus anjeunna (Ismail) ku peupeuncitan anu gedé (domba nu lintuh). [^766]
-
-[^766]: Saenggeus ébréh kasabaran sarta kataatan Nabi Ibrahim a.s. jeung Nabi Ismail a.s., mangka Allah nyegah meuncit Nabi Ismail a.s. Ku kituna, pikeun nuluykeun korban, Allah ngagantina ku domba. Dumasar kana ieu kajadian, mangka disaréatkeun korban nu dilaksanakeun dina wanci Idul Adha.
 
 ## 37:108
 
@@ -17193,8 +15658,6 @@ Sabenerna Ilyas téh kaasup salah saurang ti para rasul.
 
 Naha pantes aranjeun nyembah Ba’lan [^767] jeung ninggalkeun nu panghadé-hadéna nyiptakeun,
 
-[^767]: Ba’lan téh ngaran salaha sahiji berhala di kalangan Phunicia.
-
 ## 37:126
 
 (nyaéta) Allah Pangéran aranjeun jeung Pangéran karuhun-karuhun aranjeun nu ti heula?”
@@ -17255,19 +15718,13 @@ Sabenerna Yunus téh kaasup salah saurang ti para rasul.
 
 (Sing inget) nalika anjeunna (Yunus) lumpat [^768]  ngajugjug parahu anu pinuh (ku muatan).
 
-[^768]: Indit ninggalkeun kawajiban.
-
 ## 37:141
 
 Tuluy anjeunna téh milu kabawa diundi [^769] jeung kaasup jalma-jalma anu éléh dina éta (undian).
 
-[^769]: Undian kapaksa diayakeun ku lantaran muatan parahu pinuh. Lamun teu dikurangan, tangtu éta parahu bakal kérem. Ku kituna, prak baé diayakeun undian. Saha baé jalma anu éléh dina undian rék dialungkeun ka laut. Nabi Yunus a.s. kaasup anu éléh dina undian, jeung kudu dialungkeun ka laut.
-
 ## 37:142
 
 Anjeunna (Yunus) dilegleg ku lauk gedé, bari dina kaayaan keur migawé laku lampah nu dicawad. [^770]
-
-[^770]: Dicawad ku lantaran anjeunna kabur ninggalkeun kaomna.
 
 ## 37:143
 
@@ -17296,8 +15753,6 @@ Mangka, maranéhna téh iman. Ku lantaran kitu, Kami méré kani’matan hurip p
 ## 37:149
 
 Pék tanyakeun ku hidep (Muhammad) ka maranéhna (jalma-jalma kapir Mekah), “Naha anak-anak awéwé pikeun Pangeran aranjeun, sedengkeun anak laki-laki pikeun aranjeun? [^771]
-
-[^771]: Jalma-jalma musyrik ngomong yén Allah boga anak-anak awéwé ti kalangan Malaikat, padahal maranéhna sorangan nganggap hina ka anak awéwé téh.
 
 ## 37:150
 
@@ -17342,8 +15797,6 @@ Mahasuci Allah tina sagala rupi nu ku maranéhna disipatkeun,
 ## 37:160
 
 iwal ti hamba-hamba Allah [^772] nu pinilih.
-
-[^772]: Kalangan jin anu iman.
 
 ## 37:161
 
@@ -17397,13 +15850,9 @@ Sabenerna geus tetep jangji Kami pikeun hamba-hamba Kami nu jadi rasul,
 
 jeung sabenerna nya wadyabalad Kami [^773] nu pasti unggul.
 
-[^773]: Rasul jeung panganut-panganutna.
-
 ## 37:174
 
 Mangka, sok hidep (Muhammad) ngabalieur ti maranéhna, nepi ka datangna waktu nu geus ditangtukeun, [^774]
-
-[^774]: Nepi ka kanjeng Rasul kagungan kakiatan.
 
 ## 37:175
 
@@ -17416,8 +15865,6 @@ Naha maranéhna téh ménta sangkan siksaan Kami digancangkeun?
 ## 37:177
 
 Nya upama éta siksaan téh turun di buruan maranéhna, mangka kacida goréngna wanci subuh pikeun jalma-jalma nu geus diélingan téh. [^775]
-
-[^775]: Lain waktu subuh atawa isuk-isuk, tapi iraha baé waktu jalma-jalma narajang nyerang saméméh subuh. Mangka, jalma-jalma anu éléh bakal éléh dina wanci isuk-isuk kénéh.
 
 ## 37:178
 
@@ -17443,8 +15890,6 @@ Sadaya puji kagungan Allah, Pangéran sakumna alam.
 
 Sāḍ, [^776] demi Al-Qur’an anu ngandung pépéling.
 
-[^776]: Tingal catetan kaki surat al-Baqarah/2:1.
-
 ## 38:2
 
 Tapi jalma-jalma kapir (dina kaayaaan) kasombongan jeung mumusuhan.
@@ -17465,13 +15910,9 @@ Naha manéhna téh ngajadikeun éta pangéran-pangéran (nu loba) téh (jadi) Pa
 
 Tuluy pamingpin-pamingpin maranéhna indit (bari ngomong), “Geura indit maranéh jeung tetep kudu (nyembah) sesembahan-sesembahan maranéh. Sabenerna éta téh perkara anu bener-bener dipiharep. [^777]
 
-[^777]: Ceuk jalma-jalma kapir, “Saenyana nyembah pangéran-pangéran téh anu sabenerna dipikahayang ku Allah.”
-
 ## 38:7
 
 Kuring saréréa teu kungsi ngadéngé perkara nu kieu dina agama nu pangahirna, [^778] anu nganggap (tunggalna Allah). Ieu téh taya lian ngan (bohong) anu dijeun-jieun.
-
-[^778]: Nu dimaskud ku kaom kapir Qurés ngeunaan agama nu ahir téh nyaéta agama Nasrani.
 
 ## 38:8
 
@@ -17489,8 +15930,6 @@ Atawa naha maranéhna boga karajaan langit jeung bumi tur sakabéh nu aya di ant
 
 Wadyabalad nu aya di dinya ti golongan anu sakongkol (pikeun ngéléhkeun Rasul) pasti bakal diéléhkeun. [^779]
 
-[^779]: Ayat ieu téh nyaritakeun Perang Hondak. Di dinya aya bala tantara anu diwangun ti sababaraha golongan, nyaéta golongan kaom musrikin, Yahudi, sarta sababaraha kabilah Arab anu narajang merangan kaom muslimin di Madinah. Ieu peperangan lekasan kalayan kaburna bala tentara maranéhna. Sawaréh ahli tapsir ngomong yén nu dimaksud perang di dieu nyaéta Perang Badar.
-
 ## 38:12
 
 Saméméh maranéhna, kaom Nuh, ‘Ad, jeung kaom Fir’aun anu boga wadyabalad nu kacida lobana (ogé) geus ngabohongkeun (ka para rasul).
@@ -17499,8 +15938,6 @@ Saméméh maranéhna, kaom Nuh, ‘Ad, jeung kaom Fir’aun anu boga wadyabalad 
 
 (Kitu deui) Samud, kaom Lut, tur pangeusi nagri ‘Aikah. [^780] Maranéhna golongan-golongan anu sakongkol (pikeun ngalawan ka para rasul).
 
-[^780]: Pangeusi Madyan nyaéta kaomna Nabi Syuéb a.s.
-
 ## 38:14
 
 Maranéhna kabéh taya lian ngan ngabohongkeun ka para rasul. Ku kituna, pantes maranéhna ngarasakeun siksaan Kami.
@@ -17508,8 +15945,6 @@ Maranéhna kabéh taya lian ngan ngabohongkeun ka para rasul. Ku kituna, pantes 
 ## 38:15
 
 Teu aya nu didago-dago ku maranéhna iwal ti hiji sentakan wungkul nu sama sakali taya penyelang. [^781]
-
-[^781]: Mangrupa ciri Poé Kiamat. Ieu sentakan atawa ieu gorowokan téh kacida tarikna jeung ngan sakolébat bakating ku téréh.
 
 ## 38:16
 
@@ -17583,8 +16018,6 @@ Mangka, anjeunna (Sulaéman) nyarita, “Sabenerna kuring téh kacida resepna ka
 
 (Ceuk anjeunna deui,) “Pulangkeun ka kuring éta kuda téh!” Tuluy anjeunna ngusapan suku-sukuna jeung punduk éta (kuda). [^782]
 
-[^782]: Sawaréhna ahli tapsir aya nu nerjemahkeun ayat 33 kieu, “Pék geura bawa balik deui ka kuring!” tuluy anjeunna nyabet sukuna jeung beuheungna (dipeuncit).
-
 ## 38:34
 
 Tétéla Kami bener-bener geus méré cocoba ka Sulaéman jeung ngajadikeun (anjeunna) nyangsaya dina korsina minangka waruga (anu leuleus ku lantaran gering), tuluy anjeunna tobat.
@@ -17625,8 +16058,6 @@ Sing inget ka hamba Kami, Ayyub, waktu unjukan ka Pangéranana, “Saleresna abd
 
 Kami geus ngurniakeun ogé ka anjeunna (Ayyub) kulawargana jeung (Kami tikelkeun) jumlahna minangka rahmat ti Kami jeung minangka atikan pikeun jalma-jalma anu boga pikiran séhat. [^783]
 
-[^783]: Nabi Ayyub a.s. ngagaduhan panyawat kulit kanggo sawatara waktos nu lami. Anjeunna nyuhunkeun bantosan ka Allah. Teras Allah ngaijabah doana, lajeng miwarang ka anjeunna supados nénjragkeun sampéanana kana taneuh. Anjeunna tumut kana timbalan Allah. Ku lantaran pituduh Allah, tina tilas tapak sampéanana bijil cai, teras anjeunna ibak sareng ngaleueut caina, dugi ka anjeunna damang tina panyawatna sarta tiasa ngumpul ngariung deui sareng kulawargina, anu jumlahna dua kali lipat tina jumlah sateuacana. Dina salah sahiji waktos, Nabi Ayyub émuteun kana sumpah, yén anjeunna badé neunggeul istrina ku sabab kungsi talobéh dina ngurus anjeunna waktos teu damang. Nanging timbul dina manahna rasa asih sareng nyaah ka istrina dugi ka anjeunna teu tiasa nyumponan sumpahna. Lajeng sumping hidayah Allah sakumaha diécéskeun dina ayat 44 surat ieu, supados anjeunna nyumponan kana sumpahna tapi henteu nganyenyeri istrina. Ku kituna, anjeunna neungeul istrina ku saiket jukut.
-
 ## 38:44
 
 Geura cokot ku leungeun hidep (Ayyub) sabeungkeut jukut, tuluy teunggeul (istri hidep) ku éta (jukut) jeung omat hidep ulah pisan-pisan ngarempak sumpah. Sabenerna Kami manggihan anjeunna (Ayyub) jalma nu sabar. Anjeunna téh sahadé-hadéna hamba. Sabenerna anjeunna téh ta’at pisan (ka Allah).
@@ -17662,8 +16093,6 @@ Aranjeunna téh nyarandé di jerona (luhureun dipan-dipan) bari ménta bubuahan 
 ## 38:52
 
 Di gigireunana (aya widadari-widadari) anu ngajaga paningalna (ngan pikeun pasanganana) [^784] jeung umurna sapantar.
-
-[^784]: Anu dimaksud ngajaga paningalna nyaéta teuteupan socana ngan ditujukeun ka nu dipikacintana di sawarga.
 
 ## 38:53
 
@@ -17789,8 +16218,6 @@ nepi ka poéan anu geus ditangtukeun (Poé Kiamat).”
 
 kajabi hamba-hamba Gusti anu pinilih ti antara maranéhna.” [^785]
 
-[^785]: Jalma-jalma anu pinilih téh nyaéta anu tumut kana sagala rupi pituduh Allah Swt.
-
 ## 38:84
 
 (Allah) ngadawuh, “Mangka, anu bener téh (nyaéta sumpah Kami) jeung ngan anu bener wungkul anu ku Kami diucapkeun.”
@@ -17810,8 +16237,6 @@ Pék caritakeun ku hidep (Muhammad), “Kuring teu ménta buruh ti aranjeun sana
 ## 38:88
 
 Aranjeun bener-bener bakal nyaho (benerna) béja (Al-Qur’an) sanggeus sababaraha waktu.” [^786]
-
-[^786]: Béja-béja tina Al-Qur’an téh aya nu kalaksanakeun jeung lumangsung di alam dunya, aya ogé anu lumangsungna téh di ahérat. Nu kalaksanakeun di alam dunya sarupaning benerna jangji Allah ka kaom mu’min jeung kayakinan yén kaom mu’min bakal meunang dina perang nyanghareupan kaom musrikin, sedengkeun kajadian anu lumangung di ahérat nyaéta sarupaning benerna jangji Allah ngeunaan wawales jeung balitungan Allah.
 
 ## 39:1
 
@@ -17837,15 +16262,9 @@ Mantenna nyiptakeun langit jeung bumi kalayan hak (anu bener). Mantenna nutupkeu
 
 Mantenna nyiptakeun maranéh tina hiji jiwa (Adam), tuluy tina éta (jiwa) Mantenna ngajadikeun pasanganana. Mantenna ogé nurunkeun dalapan pasang ingon-ingon pikeun maranéh. Mantenna nyiptakeun maranéh dina jero beuteung indung-indung maranéh jadi sababaraha kajadian dina tilu pepeteng. [^787] Anu (ngadamel) saperti kitu téh nyaéta Allah, Pangéran maranéh, Pangéran nu kagungan karajaan. Teu aya deui Pangéran (nu hak disembah) iwal ti Mantenna. Kunaon maranéh nepi ka bisa dibalieurkeun (tina bebeneran)?
 
-[^787]: Tilu pepeteng éta téh nyaéta pepeteng dina jero beuteung, pepeteng dina jero rahim, jeung pepeteng dina salaput anu nutup jabang bayi di jero rahim.
-
 ## 39:7
 
 Upama maranéh kupur, sabenerna Allah mah henteu butuh [^788] ku maranéh jeung henteu ridoeun kana kakupuran hamba-hamba-Na. (Tapi) lamun maranéh sukuran, tangtu Allah mikarido kana sukuran maranéh. Jiwa nu ngabogaan dosa moal bisa nanggung dosa nu lian. [^789] Ngan ka Pangéran maranéh tempat pangbalikan maranéh, tuluy Mantenna ngawawarkeun ka maranéh tina sagala rupa nu ku maranéh geus dipilampah (di alam dunya). Sabenerna Mantenna mah Mahauninga kana saeusining dada.
-
-[^788]: Jalma nu iman atawa henteu iman sama sakali teu ngarugikeun Allah masing saeutik ogé.
-
-[^789]: Masing-masing jalma nanggung dosa-dosana sorangan.
 
 ## 39:8
 
@@ -17879,8 +16298,6 @@ Pék caritakeun ku hidep (Muhammad), “Kami ngan nyembah ka Allah, kalayan pinu
 
 Mangka pék sarembah ku maranéh sakumaha kahayang maranéh (hé jalma-jalma musrik) [^790] salian ti Mantenna, pék caritakeun ku hidep (Muhammad), “Sabenerna jalma-jalma nu rugi téh nyaéta anu ngarugikeun dirina sorangan jeung kulawargana di Poé Kiamat.” Kudu inget yén nu sarupa kitu téh mangrupa karugian nu nyata.
 
-[^790]: Paréntah ieu téh lain arti nu sabenerna, tapi ngajelaskeun kamurkaan Allah ka kaom musrikin anu geus sababaraha kali diajak kana agama taohid, tapi maranéhna salilana ingkar.
-
 ## 39:16
 
 Pikeun maranéhna disadiakeun seuneu anu manglapis-lapis ti luhureun maranéhna jeung seuneu ti sahandapeunana anu manglapis-lapis ogé. Tah kitu pisan Allah ngancam hamba-hamba-Na ku éta siksaan. Hé hamba-hamba Kami, pék atuh maranéh téh kudu takwa ka Kami.
@@ -17889,13 +16306,9 @@ Pikeun maranéhna disadiakeun seuneu anu manglapis-lapis ti luhureun maranéhna 
 
 Ari jalma-jalma nu ngajauhan Ṭāgūt téh (nyaéta) maranéhna teu [^791] nyembah (ṭāgūt) jeung maranéhna balik (tumut) ka Allah, nya pikeun maranéhna téh béja pikabungaheun (ganjaran). Ku kituna, pék geura béré kabungah ku hidep keur hamba-hamba Kami.
 
-[^791]: Ṭāgūt téh nyaéta sétan jeung naon baé anu disembah salian ti Allah Swt.
-
 ## 39:18
 
 (nyaéta) jalma-jalma anu niténan dawuhan tuluy tumut kana panghadé-hadéna (dawuhan). [^792] Aranjeunna téh jalma-jalma anu dibéré pituduh ku Allah. Aranjeunna téh nyaéta jalma-jalma nu boga akal séhat.
-
-[^792]: Maranéhna nu ngadéngékeun atikan-atikan Al-Qur’an jeung atikan-atikan nu séjén, tapi manéhna ngan tumut kana atikan-atikan tina Al-Qur’an, ku sabab kitu manéhna téh jalma nu panghadé-hadéna.
 
 ## 39:19
 
@@ -17916,8 +16329,6 @@ Naha (ari) jalma-jalma anu dibukakeun haténa ku Allah pikeun (narima) agama Isl
 ## 39:23
 
 Allah geus nurunkeun pangsaé-saéna dawuhan (nyaéta) Al-Qur’an nu sarupa (ayat-ayatna) jeung diulang-ulang sababaraha kali, [^793] nu matak murinding bulu punduk alatan sieun ku Pangéranana, tuluy kulit leuleus jeung haténa léah waktu inget (dikir) ka Allah. Éta téh mangrupa pituduh Allah. Mantenna méré pituduh ku éta Kitab ka saha baé jalma anu dipikersa. Saha baé anu diantep sasar ku Allah, mangka keur manéhna moal aya saurang ogé anu méré pituduh.
-
-[^793]: Hukum-hukum, atikan-atikan tur kisah-kisah diulang-ulang dina Al-Qur’an sangkan leuwih kuat pangaruh jeung pangaweruhna asup kana haté. Sawaréh ahli tapsir nyebutkeun yén nu dimaksud diulang-ulang téh saperti maca muqaddimah al-Fātiḥah anu sok dibaca diulang-ulang.
 
 ## 39:24
 
@@ -17994,8 +16405,6 @@ Sabenerna Kami geus nurunkeun ka hidep Kitab (Al-Qur’an) pikeun manusa kalayan
 ## 39:42
 
 Allah nu nyekel (kalayan sampurna) nyawa (mahluk) waktu (datang) waktu maotna (nepi ka éta nyawa papisah jeung raga), jeung (nyekel) nyawa (mahluk) anu can maot waktu keur saré. Ku kituna, Mantenna nahan nyawa (mahluk) nu geus ditetepkeun papastén maotna. Mantenna ogé ngaleupaskeun deui nyawa mahluk nepi ka waktuna nu geus ditangtukeun. [^794] Sabenerna dina perkara nu kitu téh aya tanda-tanda (kakawasan Allah) keur kaom anu mikir.
-
-[^794]: Jalma-jalma nu maot téh nyawana ditahan ku Allah nepi ka teu bisa mulang deui kana jasadna. Jalma-jalma anu can maot tapi ngan saukur saré rohna dileupaskeun, tuluy balik deui kana jasad-jasadna.
 
 ## 39:43
 
@@ -18097,8 +16506,6 @@ Kusabab kitu, ngan Allah wungkul anu ku hidep kudu disembah, jeung hidep kudu ka
 
 Maranéhna teu pisan-pisan ngagungkeun Allah ku pangagung nu samistina, padahal bumi, sakabéhna, aya dina cepengan Mantenna dina Poé Kiamat, jeung langit digulungkeun ku Panangan Mantenna. [^795] Mahasuci Allah jeung Mahaluhur Allah tina sagala rupa nu ku maranéhna disarékatkeun.
 
-[^795]: Ieu ayat ngagambarkeun kaagungan sareng kakawasaan Allah. Mung Mantenna wungkul anu ngawasa dina Poé Kiamat téh.
-
 ## 39:68
 
 Ditiupkeun tarompét, nya paraéh sakabéh anu aya di langit jeung nu aya di bumi iwal ti saha baé nu dikersakeun ku Allah. Tuluy éta tarompét téh ditiup sakali deui, ujug-ujug deg baé maranéhna nangtung ngadagoan (putusanana masing-masing).
@@ -18134,8 +16541,6 @@ Hidep (Muhammad) bakal ningali para malaikat di sabudeureun Arasy maos tasbéh b
 ## 40:1
 
 Ḥā Mīm. [^796]
-
-[^796]: Tingal catetan kaki surat al-Baqarah/2:1.
 
 ## 40:2
 
@@ -18209,8 +16614,6 @@ Pék geura béré pépéling ngeunaan poé anu beuki deukeut (Poé Kiamat, nyaé
 
 Mantenna Mahauninga (sorot) panon nu hianat [^797] jeung naon baé nu disumputkeun dina haténa.
 
-[^797]: Titingalian nu dicegah saperti ningali orat awéwe anu lain mahramna.
-
 ## 40:20
 
 Allah bakal mutuskeun kalayan bener tur adil, sedengkeun sesembahan-sesembahan anu ku maranéhna disembah salian ti Allah mah moal bisa netepkeun hukuman ku naon baé ogé. Saleresna Allah nya Mantenna téh Nu Maha Ngadangu (tur) Maha Ningali.
@@ -18219,13 +16622,9 @@ Allah bakal mutuskeun kalayan bener tur adil, sedengkeun sesembahan-sesembahan a
 
 Naha maranéhna henteu nyanyabaan di bumi, tuluy niténan kumaha akibatna jalma-jalma anu hirup saméméh maranéhna? Maranéhna téh leuwih tohaga kakuatanana tinimbang maranéhna jeung (leuwih loba) tapak-lacakna di bumi. [^798] Allah nu nyiksa maranéhana lantaran ku dosa-dosana, jeung pikeun maranéhna moal aya saurang ogé nu bisa nangtayungan tina siksaan Allah.
 
-[^798]: Wangunan, pakakas, bénténg-bénténg, jeung istana-istana.
-
 ## 40:22
 
 Anu kitu téh, sabab geus datang ka maranéhna rasul-rasul kalayan mawa bukti-bukti anu nyata, [^799] tuluy maranéhna ingkar, mangka Allah nyiksa maranéhna. Saleresna Mantenna Mahakuat (tur) Maha Rongkah siksaana-Na.
-
-[^799]: Mujijat, hukum-hukum, jeung ajaran-ajaran anu dibawa ku éta rasul.
 
 ## 40:23
 
@@ -18267,8 +16666,6 @@ Jalma nu iman téh nyarita, “Hé kaom kuring, saenyana kuring téh mangpaurkeu
 
 Hé kaom kuring, sabenerna kuring mangpaurkeun ka aranjeun kana poé silih geroan [^800] ,
 
-[^800]: Poé Kiamat disebut poé silih geroan téh sabab dina éta poé jalma-jalma kumpul di padang mahsar. Sabagianana aya nu ngagero sabagian nu lain pikeun ménta tulung.
-
 ## 40:33
 
 (nyaéta) dina poé (nalika) aranjeun dipaléngoskeun ku cara balik deui ka tukang (néangan panyalindungan). Moal aya pikeun aranjeun saurang ogé nu bisa nyalametkeun tina (siksaan) Allah. Saha baé jalma anu disasarkeun ku Allah (ku lantaran pilihanana sorangan kana kasasaran), tangtu moal aya saurang ogé anu bisa méré pituduh ka manéhna.”
@@ -18280,8 +16677,6 @@ Tétéla Yusuf geus datang ka maranéh (baheula) kalayan mawa bukti-bukti anu ny
 ## 40:35
 
 (Nyaéta) jalma-jalma anu paloba-loba omong ngeunaan ayat-ayat Allah tanpa alesan anu datang ka maranéhna. [^801] Kacida gedéna bebendon (pikeun maranéhna) munggu Allah, (nya kitu deui) mungguh jalma-jalma anu iman. Nya kitu pisan Allah ngonci saban haté jalma anu sombong jeung sawenang-wenang.
-
-[^801]: Maranéhna nolak ayat-ayat Allah tanpa alesan anu geus datang ka maranéhna.
 
 ## 40:36
 
@@ -18315,8 +16710,6 @@ Aranjeun nitah kuring sangkan ingkar ka Allah jeung nyarékatkeun Mantenna ku na
 
 Geus pasti yén naon anu ditepikeun ku aranjeun ka kuring (sangkan nyembah) kana éta téh moal bisa ngabulkeun paménta naon baé ogé, boh di dunya boh di ahérat. [^802] Sabenerna pangbalikan urang saréréa téh ka Allah, jeung saenyana jalma-jalma anu ngaliwat wates téh nya maranéhna pisan pangeusi naraka.
 
-[^802]: Moal bisa nulungan, boh di dunya atawa di ahérat.
-
 ## 40:44
 
 Jaga aranjeun bakal inget kana sagala rupa nu dicaritakeun ku kuring ka aranjeun. Kuring masrahkeun sagala urusan ka Allah. Saleresna Allah téh Maha Ningali ka hamba-hamba-Na.
@@ -18328,8 +16721,6 @@ Mangka, Allah ngaraksa anjeunna (jalma nu iman) tina sagala rupa kajahatan tipu 
 ## 40:46
 
 (Seuneu) naraka ditémbongkeun ka maranéhna (di alam barjah) isuk-isuk, pasosoré, [^803] jeung dina Poé Kiamat. (Dicaritakeun ka para malaikat), “Pék geura asupkeun Fir’aun jeung kaomna kana siksaan nu pangrongkah-rongkahna!”
-
-[^803]: Ditingalikeun ka maranéhna naraka di waktu isuk jeung soré sa acan maranéhna dihudangkeun ti kubur ka alam mahsar.
 
 ## 40:47
 
@@ -18386,8 +16777,6 @@ Saenyana Poé Kiamat téh pasti bakal datang. Teu aya kamangmangan dina éta per
 ## 40:60
 
 Pangéran aranjeun ngadawuh, “Geura ngadoa ka Kaula, pasti Kaula ngaijabah (naon nu dipikahayang). Saenyana jalma-jalma anu nyombongkeun diri tina nyembah ka Kaula [^804] bakal asup ka naraka Jahanam dina kaayaan hina.
-
-[^804]: “Nyembah ka Kaula” dina ayat ieu téh nyaéta ngadoa ka Allah.
 
 ## 40:61
 
@@ -18469,8 +16858,6 @@ Allah nu ngajadikeun ingon-ingon pikeun aranjeun. Sabagianana keur tutumpakan ar
 
 (Aya deui) mangpa’at séjénna tina éta ingon-ingon téh pikeun aranjeun, [^805] sangkan aranjeun bisa nyumponan pangabutuh saluyu jeung kahayang aranjeun. Aranjeun bisa tumpak dina éta ingon-ingon jeung aranjeun ogé bisa tumpak dina parahu.
 
-[^805]: Maksud mangpa’at lian téh saperti kamangpa’atan tina susuna, kulitna, buluna, jeung salain ti éta.
-
 ## 40:81
 
 Mantenna ningalikeun ka aranjeun tanda-tanda (kakawasaan Mantenna), mangka tanda-tanda (kakawasaan) Allah nu mana deui nu ku aranjeun dipungkir téh?
@@ -18483,8 +16870,6 @@ Naha maranéhna téh tara nyaba di bumi bari niténan kumaha balukarna jalma-jal
 
 Nya waktu datang ka maranéhna para rasul (anu baheula diutus ka) maranéhna kalayan mawa katerangan-katerangan, maranéhna ngarasa bungah ku élmu nu geus nyampak di maranéhna. [^806] Maranéhna téh dikepung ku siksaan Allah anu sok diguguyonkeun ku maranéhna.
 
-[^806]: Nyaéta yén maranéhna téh geus ngarasa cukup ku élmu nu dipiboga, teu perlu deui élmu nu didatangkeun ku para rasul. Malahan maranéhna nganggap énténg jeung ngageuhgeuykeun katerangan nu datang ti para rasul téh.
-
 ## 40:84
 
 Mangka waktu nénjo siksaan Kami, maranéhna nyarita, “Abdi sadaya mung iman ka Allah wungkul, sareng abdi sadaya mungkir kana sesembahan nu ku abdi sadaya tos disarékatkeun ka Allah.”
@@ -18496,8 +16881,6 @@ Mangka, imanna maranéhna téh teu aya gunana deui waktu maranéhna geus nempo s
 ## 41:1
 
 Ḥā Mīm. [^807]
-
-[^807]: Tingal catetan kaki surat al-Baqarah/2:1.
 
 ## 41:2
 
@@ -18551,8 +16934,6 @@ Lamun maranéhna ngabalieur, mangka pék caritakeun, “Kuring geus méré pép�
 
 Waktu para rasul datang ka maranéhna ti hareupeun jeung ti tukangeunana [^808] (bari mépélingan), “Kadé aranjeun ulah rék nyembah anging ka Allah wungkul,” maranéhna ngajawab, “Upami Pangéran kuring saréréa ngersakeun, tangtu Mantenna bakal nurunkeun para malaikat. Saenyana kuring saréréa mungkir kana wahyu nu dibawa ku aranjeun.”
 
-[^808]: Ti sagala arah.
-
 ## 41:15
 
 Kaom ‘Ad nyombongkeun diri di bumi tanpa alesan nu bener. Maranéhna nyarita, “Saha nu leuwih gedé kakuatanana tibatan kuring saréréa?” Padahal maranéhna téh henteu nempo yén sabenerna Allah nu geus nyiptakeun maranéhna. Tinangtu Mantenna anu leuwih tohaga kakuatanana tibatan maranéhna. Maranéhna téh nolak kana tanda-tanda (kakuatan) Kami.
@@ -18585,8 +16966,6 @@ Maranéhna nyarita ka kulit-kulitna, “Naha maranéh méré kasaksian keur kuri
 
 Maranéh moal pisan-pisan bisa nyumputkeun tina panyaksén, pangdéngé, panénjo, jeung kulit maranéh ka maranéh. [^809] Maranéh nyangka yén sabenerna Allah henteu uningaeun kana sagala rupa anu ku maranéh dipigawé.
 
-[^809]: Maranéhna migawé dosa terang-terangan sabab maranéhna nyangka yén Allah teu uningaeun kana pagawéanana. Maranéhna teu ngeuh yén pangdéngé, panénjo, jeung kulitna bakal jadi saksi engké di ahérat kana pagawéan-pagawéanana baheula di dunya.
-
 ## 41:23
 
 Éta téh ngan sangkaan maranéh wungkul ka Pangéran. Éta (sangkaan) téh geus ngabinasakeun maranéh, nepi ka ahirna maranéh téh kagolong kana jalma-jalma anu rugi.
@@ -18598,8 +16977,6 @@ Sanajan maranéhna sabar (nandangan siksaan), nya naraka patempatan maranéhna t
 ## 41:25
 
 Kami geus ngajadikeun pikeun maranéhna sobat-sobat nu ngajadikeun maranéhna meunteun hadé kana naon baé nu aya di hareupeun jeung di satukangeunana. [^810] Geus tetep pikeun maranéhna putusan siksa ka umat-umat, boh jin boh manusa nu ti hareula. Saenyana maranéhna téh jalma-jalma anu rugi.
-
-[^810]: Nu dimaksud “nu aya di hareupeun” nyaéta napsu jeung kasenangan dunya nu keur dipiboga, sedengkeun maksud “di tukangeun” nyaéta kahayang-kahayang nu teu kahontal ku maranéhna.
 
 ## 41:26
 
@@ -18677,8 +17054,6 @@ Henteu aya nu dicaritakeun (ku jalma-jalma kapir) ka hidep (Muhammad) téh iwal 
 
 Lamun Kami ngajadikeun éta Al-Qur’an dina waktu salian ti basa Arab, pasti maranéhna ngomong, “Naha geuning ayat-ayatna henteu dijelaskeun?” Naha (pantes Al-Qur’an) maké waktu lain sedengkeun rasulna urang Arab? Pék caritakeun ku hidep, “Al-Qur’an téh pituduh jeung ubar pikeun jalma-jalma nu iman. Jalma-jalma nu teu iman mah dina ceulina téh aya panyocok. Al-Qur’an téh poék pikeun maranéhna mah. [^811] Maranéhna téh (saperti) jalma-jalma anu dicalukan ti tempat anu jauh.
 
-[^811]: Méré pituduh ka maranéhna.
-
 ## 41:45
 
 Sabenerna Kami geus maparinan Kitab Torét ka Musa tuluy dijadikeun papaséaan ku maranéhna. Lamun seug henteu aya putusan ti Pangéran hidep leuwih ti heula, mangka jalma-jalma kapir téh geus dibinasakeun. Saenyana maranéhna téh bener-bener aya dina kamangmangan anu matak bingung ngeunaan Al-Qur’an.
@@ -18723,13 +17098,9 @@ Sing inget yén sabenerna maranéhna téh aya dina kamangmangan ngeunaan patepun
 
 Ḥā Mīm. [^812]
 
-[^812]: Tingal catetan kaki surat al-Baqarah/2:1.
-
 ## 42:2
 
 Ain Sīn Qāf.  [^813]
-
-[^813]: Tingal catetan kaki surat al-Baqarah/2:1.
 
 ## 42:3
 
@@ -18815,8 +17186,6 @@ Hidep (Muhammad) bakal niténan (dina Poé Kiamat) jalma-jalma anu dolim téh ka
 
 Éta pisan (kurnia) anu didugikeun ku Allah pikeun ngabubungah hamba-hamba-Na anu iman sarta milampah kahadéan. Pék caritakeun ku hidep (Muhammad), “Kuring henteu ménta buruh ka aranjeun tina éta perkara (nepikeun risalah) salian ti mikanyaah dina kakulawargaaan.” Saha baé anu ngupayakeun kahadéan, pasti Kami bakal nambah éta (kahadéan) ka anjeunna. Saleresna Allah Mahajembar ku Pangampura (tur) Mahasukur. [^814]
 
-[^814]: Allah Mahasukur, maksudna Allah ngaganjar ka saha baé jalma anu sukuran ka Mantenna ku cara méré ganjaran kana amal soléh, ngahampura kasalahan, nambah ni’mat, jeung sajabana.
-
 ## 42:24
 
 Naha maranéhna (jalma-jalma musrik masih terus-terusan) ngomong kieu, “Manéh (Muhammad) geus ngayakeun kabohongan ngeunaan Allah?” Lamun seug ngersakeun, Allah pasti matri kana manah hidep (Muhammad). Allah bakal mupus kabatilan sarta bakal nguatkeun anu bener ku dawuhan-dawuhana-Na. Saleresna Mantenna Mahauninga kana sagala eusi haté
@@ -18852,8 +17221,6 @@ Maranéh moal bisa ngeuleupasken diri (tina siksa Allah) di bumi jeung maranéh 
 ## 42:32
 
 Sawaréh tina tanda-tanda (kaagungan) Mantenna téh nyaéta parahu-parahu anu lalayaran di laut saperti gunung-gunung. [^815]
-
-[^815]: Ngajalungkiring luhur anu mawa muatan beurat, tapi teu tilelep.
 
 ## 42:33
 
@@ -18931,8 +17298,6 @@ Mantenna ogé ngaanugerahkeun jinis lalaki jeung awéwé. Mantenna ngajantenkeun
 
 Henteu aya saurang ogé manusa anu Allah (langsung) ngadawuh ka anjeunna, anging kalayan perantaraan wahyu atawa ti tukangeun aling-aling [^816], atawa Mantenna ngutus hiji utusan (malaikat) tuluy ngawahyukeun naon anu dikersakeun ku Mantenna ka anjeunna kalayan widi-Na. Saleresna Mantenna téh Mahaluhung (tur) Mahawijaksana.
 
-[^816]: Manusa bisa mireungeu kalam Ilahi, tapi teu bisa nangenan Dat Pangéran (Allah), saperti kajadian anu kaalaman ku Nabi Musa a.s.
-
 ## 42:52
 
 Pon kitu deui Kami nurunkeun wahyu ka hidep (Muhammad) rūḥ (Al-Qur’an) ku paréntah Kami. Saméméhna hidep teu nyaho naon ari Kitab (Al-Qur’an) téh jeung naon ari iman téh. Tapi Kami ngajadikeun Al-Qur’an minangka cahaya. Kami maparin pituduh ku Al-Qur’an ka saha baé anu dikersakeun ti antara hamba-hamba Kami. Sabenerna hidep (Muhammad) bener-bener ngabingbing (manusa) kana jalan anu lempeng,
@@ -18944,8 +17309,6 @@ Pon kitu deui Kami nurunkeun wahyu ka hidep (Muhammad) rūḥ (Al-Qur’an) ku p
 ## 43:1
 
 Ḥā Mīm. [^817]
-
-[^817]: Tingal catetan kaki surat al-Baqarah/2:1.
 
 ## 43:2
 
@@ -19003,8 +17366,6 @@ Saleresna abdi sadaya bakal mulang ka Pangéran abdi sadaya.”
 
 Maranéhna (kaom musrikin) ngajadikeun ti sawaréh hamba-hamba-Na minangka bagian ti Mantenna. [^818] Saenyana manusa téh tukang ingkar kana (rahmat Allah) anu jelas.
 
-[^818]: Kaom musrikin Mekah ngomong yén malaikat téh budak awéwéna Allah. Padahal teu kitu, malaikat mah sawaréh ti mahluk jeung ciptaana-Na.
-
 ## 43:16
 
 Naha pantes Mantenna nyandak anak awéwé tina anu diciptakeun ku Mantenna sarta mikeun ka maranéhna anak lalaki?
@@ -19016,8 +17377,6 @@ Padahal, waktu salah saurang ti antara maranéhna dipaparinan béja pikabungaheu
 ## 43:18
 
 Naha pantes (awéwé) anu digedékeun bari maké papaés jeung anu dina papaduan mah teu (bisa méré alesan anu) jelas (wajar pikeun dijadikeun putri Allah)? [^819]
-
-[^819]: Ieu ayat ngagambarkeun kaayaan bangsa Arab waktu Al-Qur’an diturunkeun. Maranéhna henteu dibéré kasempetan dina atikan, ku kituna jadi barodo sarta ngan dijadikeun papaés wungkul. Maranéhna henteu mibanda sikep teges dina nepikeun kahayangna pikeun meunang kaunggulan.
 
 ## 43:19
 
@@ -19059,13 +17418,9 @@ kajaba upama (aranjeun nyembah) ka Allah anu nyiptakeun kuring, sabab sabenerna 
 
 (Ibrahim) ngajantenkeun éta (kalimah taohid) téh minangka kalimah anu langgeng di rundayanana sangkan maranéhna mulang (kana éta kalimah taohid). [^820]
 
-[^820]: Nabi Ibrahim a.s. ngajantenkeun kalimah taohid minangka cecekelan (ageman) pikeun rundayanana. Ku kituna, lamun seug aya ti antara maranéhna anu nyarékatkeun Allah, manéhna kudu geura mulang deui kana éta taohid.
-
 ## 43:29
 
 Malah Kami geus maparin kani’matan hirup pikeun maranéhna jeung ka para karuhunana nepi ka datang ka maranéhna bebeneran (Al-Qur’an) jeung hiji rasul anu maparin katerangan. [^821]
-
-[^821]: Ti antara katurunan Nabi Ibrahim a.s. téh aya anu mopohokeun kana taohid. Allah henteu maparin siksa ka maranéhna, tapi ngalimpahkeun ni’mat sarta kahirupan anu sakuduna disukuran ku maranéhna. Ngan maranéhna henteu baé sukuran, malahan kalah ngalajur napsu. Ku kituna, Allah nurunkeun Al-Qur’an tur ngutus saurang rasul pikeun ngabingbing maranéhna.
 
 ## 43:30
 
@@ -19119,8 +17474,6 @@ Ku kituna, upama Kami ngamaotkeun hidep (saméméh meunang kaunggulan), nya sabe
 
 atawa Kami bener-bener némbongkeun ka hidep (siksa) nu geus diancamkeun ku Kami ka maranéhna. [^822] Kami bener-bener ngawasa ka maranéhna.
 
-[^822]: Kaunggulan pikeun Nabi Muhammad Saw. sarta kaancuran pikeun kaom musrikin.
-
 ## 43:43
 
 Ku kituna, geura cekel sing pageuh ku hidep agama anu geus diwahyukeun ka hidep. Hidep bener-bener aya dina jalan anu lempeng.
@@ -19145,13 +17498,9 @@ Waktu (Musa) datang ka maranéhna bari mawa mujijat-mujijat Kami, ujug-ujug ger 
 
 Kami henteu némbongkeun ka maranéhna hiji mujijat ogé anging (éta mujijat) téh leuwih rongkah tinimbang mujijat-mujijat (anu saméméhna). Kami nibankeun siksa [^823] ka maranéhna sangkan maranéhna mulang (kana bebeneran).
 
-[^823]: Siksa di dieu nyaéta siksa dunya minangka cobaan ti Allah, saperti weritna kadaharan, tumuwuhna hama pepelakan, jeung réa-réa deui.
-
 ## 43:49
 
 Maranéhna ngamong, “Hé tukang sihir, [^824] pék geura ngadoa ka Pangéran anjeun pikeun (ngaleupaskeun) kuring saréréa luyu jeung anu geus dijangjikeuna-Na ka anjeun. Sabenerna kuring saréréa (upama doa anjeun diijabah) téh bener-bener rék jadi jalma anu ngalap pituduh.”
-
-[^824]: Anu dimaksud tukang sihir ku maranéhna téh nyaéta Nabi Musa a.s.
 
 ## 43:50
 
@@ -19189,8 +17538,6 @@ Waktu putra Maryam (Isa) dijadikeun paupamaan, ujug-ujug kaom hidep (kaom Qurés
 
 Maranéhna ngomong, “Mana anu leuwih alus, pangéran-pangéran kuring saréréa atawa manéhna (Isa)?” Maranéhna henteu nunjukkeun (éta paupamaan) ka hidep (Muhammad) kajaba kalayan maksud ngabantah wungkul. Sabenerna maranéhna téh kaom anu sok papaséaan. [^825]
 
-[^825]: Ayat 57 jeung 58 di luhur nyaritakeun deui kajadian waktu Rasulullah Saw. maoskeun surat al-Anbiyā’ ayat 21 di hareupeun kaom Qurés. Salah saurang ti kaom Qurés, ngaranna Abdullah ibn al-Jab’ari, nanya ka Rasulullah Saw. ngeunaan kaayaan Isa anu disembah ku kaom Nasrani (Kristen), “Naha Isa ogé jadi suluh naraka Jahanam saperti sesembahan (berhala-berhala) maranéhna?” Rasulullah ngahuleng sakedapan. Nya maranéhna nyeungseurikeun (Rasulullah). Terus maranéhna tumanya deui, “Mana anu leuwih alus antara sesembahan maranéhna jeung Nabi Isa a.s.” Pertanyaan-pertanyaan maranéhna kitu téh ngan saukur néngtéréwéléng, lain néangan bebeneran. Maranéhna pohara salahna. Nabi Isa a.s. henteu uningaeun yén anjeunna disembah tur teu réla (dirina) dijadikeun sesembahan.
-
 ## 43:59
 
 Anjeunna (Isa) taya lian anging hiji hamba anu ku Kami geus dipaparinan ni’mat (kanabian). Kami ngajadikeun anjeunna minangka conto (kakawasaan Allah) pikeun Bani Israél.
@@ -19210,8 +17557,6 @@ Omat maranéh ulah pisan-pisan beunang dipaléngoskeun ku sétan lantaran saenya
 ## 43:63
 
 Waktu Isa datang bari mawa katerangan, anjeunna nyarita, “Saleresna kuring datang ka aranjeun téh mawa hikmah [^826] jeung sangkan kuring ngajlaskeun ka aranjeun sawaréh tina perkara anu ku aranjeun dipacéngkadkeun. Ku kituna, kudu takwa ka Allah sarta kudu tumut ka kuring.
-
-[^826]: Kanabian, Injil, jeung hukum.
 
 ## 43:64
 
@@ -19277,8 +17622,6 @@ Tétéla Kami geus datang mawa bebeneran ka maranéh, tapi lolobana mah maranéh
 
 Malah maranéhna geus ngarencanakeun hiji tipu daya (jahat), mangka sabenerna Kami geus nyieun rencana (pikeun ngungkulan tipu dayana). [^827]
 
-[^827]: Kaom musrikin Mekah lain wungkul ngéwa kana bebeneran, malahan maranéhna geus ngarencanakeun rék nelasan Nabi Muhammad Saw. Ngan éta rencana kaburu gagal, margi Allah ogé ngagaduhan rencana pikeun nyalametkeun Nabi.
-
 ## 43:80
 
 Naha maranéhna nyangka yén sabenerna Kami henteu mireungeuh ka nu dirasiahkeun jeung anu ditembrakkeun ku maranéhna? Puguh baé (Kami ngareungeu), jeung utusan-utusan Kami (malaikat) ogé sok nyatet di gigireun maranéhna.
@@ -19323,8 +17666,6 @@ Ku kituna, geura ngabalieur hidep (Muhammad) ti maranéhna jeung pok caritakeun 
 
 Ḥā Mīm. [^828]
 
-[^828]: Tingal catetan kaki surat al-Baqarah/2:1.
-
 ## 44:2
 
 Demi Kitab (Al-Qur’an) anu pertéla.
@@ -19336,8 +17677,6 @@ Sabenerna Kami (ngamimitian) nurunkeun éta (Al-Qur’an) dina hiji peuting anu 
 ## 44:4
 
 Dina (éta peuting) dijelaskeun sagala urusan nu pinuh ku hikmah, [^829]
-
-[^829]: Naon baé anu nyambung jeung kahirupan mahluk saperti hirup, maot, rejeki, papastén hadé, papastén goréng, jeung sajabana.
 
 ## 44:5
 
@@ -19363,8 +17702,6 @@ api maranéhna (aya) dina kamangmangan. Maranéhna ngageuhgeuykeun.
 
 Nya tunggu waktu langit mawa halimun (haseup) anu jelas, [^830]
 
-[^830]: Musibah kalaparan anu tumiba ka kaom Qurés, ku lantaran maranéhna nolak (pangajak) Nabi Muhammad Saw.
-
 ## 44:11
 
 anu ngalimpudan manusa. Ieu téh siksa anu kacida peurihna.
@@ -19381,8 +17718,6 @@ Rék kumaha maranéhna narima pépéling, sedengkeun (saméméhna ogé) geus dat
 
 tuluy maranéhna ngabalieur ti éta (rasul) sarta ngomong kieu, “(Muhammad) téh narima atikan ti nu séjén. Manéhna téh jalma gélo.” [^831]
 
-[^831]: Nabi Muhammad Saw. dituduh nampi ajaran ti lain urang Arab ngaranna Addas nu ngagem agama Nasrani.
-
 ## 44:15
 
 Sabenerna (upama) Kami ngaleungitkeun éta siksa sanajan ngan saeutik, tangtu maranéh bakal balik deui (ingkar).
@@ -19390,8 +17725,6 @@ Sabenerna (upama) Kami ngaleungitkeun éta siksa sanajan ngan saeutik, tangtu ma
 ## 44:16
 
 (Sing inget) nalika Kami ngahantem maranéhna (ku siksa) anu kacida rongkahna. [^832] Sabenerna Kami pasti males.
-
-[^832]: Hanteman anu pohara gedéna téh waktu lumangsung Perang Badar. Kaom musrikin kadéséh jajaténa nepi ka éléh tur loba para panggedénna anu tiwas.
 
 ## 44:17
 
@@ -19461,8 +17794,6 @@ Sabenerna Kami geus milih maranéhna (Bani Israél) kalayan élmu (Kami) tibatan
 
 Kami ogé geus mikeun ka maranéhna sabagian tanda-tanda kakawasaan (Kami) anu di dinya aya ujian anu pertéla. [^833]
 
-[^833]: Saperti payung tina reueuk, turunna Manna jeung Salwa, mancurna cai tina jero batu, jeung beulahna Laut Mérah.
-
 ## 44:34
 
 Saenyana maranéhna (kaom musrikin) téh pasti bakal ngomong kieu,
@@ -19471,8 +17802,6 @@ Saenyana maranéhna (kaom musrikin) téh pasti bakal ngomong kieu,
 
 “Moal aya deui paéh salian ti paéh urang di dunya. Urang saréréa moal dihudangkeun deui. [^834]
 
-[^834]: Kaom musrik Mekah ngayakinkeun yén sanggeusna maot, manusa moal bakal dihirupkeun deui.
-
 ## 44:36
 
 Sok atuh geura balikkeun deui karuhun-karuhun kuring saréréa mun bener mah aranjeun jalma-jalma anu bener.”
@@ -19480,8 +17809,6 @@ Sok atuh geura balikkeun deui karuhun-karuhun kuring saréréa mun bener mah ara
 ## 44:37
 
 Naha maranéhna (kaom musrikin Mekah) téh anu leuwih alus atawa kaom Tubba’ [^835] jeung jalma-jalma (musrik) saméméh maranéhna anu geus dibinasakeun ku Kami lantaran sabenerna maranéhna téh jalma-jalma anu doraka.
-
-[^835]: Tubba’ nyaéta gelar anu diancokeun ku maranéhna pikeun para raja suku Himyar jeung Tubba’.
 
 ## 44:38
 
@@ -19555,8 +17882,6 @@ Tah kitu (ganjaran pikeun aranjeunna), tuluy Kami ngajadikeun aranjeunna papasan
 
 Di dinya aranjeunna tiasa mundut rupi-rupi bubuahan kalayan tengtrem (tur) ayem. [^836]
 
-[^836]: Taya karingrang bakal béakeun atawa inggis ku gering ku sabab ngadahar dahareun di éta tempat.
-
 ## 44:56
 
 Aranjeunna moal ngarandapan deui maot, salian ti maot anu mimiti (di dunya). Allah ngariksa aranjeunna tina siksa naraka (Jahanam).
@@ -19576,8 +17901,6 @@ Ku kituna, tungguan ku hidep (naon nu bakal karandapan ku maranéhna)! Sabenerna
 ## 45:1
 
 Ḥā Mīm. [^837]
-
-[^837]: Tingal catetan kaki surat al-Baqarah/2:1.
 
 ## 45:2
 
@@ -19631,8 +17954,6 @@ Mantenna geus nungkulkeun naon nu aya di langit jeung bumi. Kabéhanan pikeun ar
 
 Pok kedalkeun ku hidep (Muhammad) ka jalma-jalma anu iman sangkan aranjeunna ngahampura baé ka jalma-jalma anu teu sieun ku poé-poé Allah, [^838] lantaran Mantenna bakal ngawales ka hiji kaom tina naon anu kungsi dipilampah ku maranéhna.
 
-[^838]: Poé-poé waktu Allah nibankeun siksa ka maranéhna.
-
 ## 45:15
 
 Saha baé anu milampah amal soléh, nya (ganjaranana) pikeun dirina sorangan. Saha baé nu migawé kagoréngan, nya (wawalesna) ogé pikeun dirina sorangan, tuluy nya ka Pangéran wungkul maranéh bakal dipulangkeun.
@@ -19668,8 +17989,6 @@ Allah nu nyiptakeun langit jeung bumi kalayan tujuan anu bener, sangkan saban-sa
 ## 45:23
 
 Naha hidep (Muhammad) kungsi niténan jalma anu ngajadikeun hawa napsuna minangka Pangéranana jeung Allah ngantep manéhna (dina) kasasaran kalayan sakauninga-Na. [^839] Mantenna geus ngonci ceuli jeung haténa jeung meungpeunan panonna? Ku kituna, saha anu bisa méré pituduh ka manéhna sanggeus Mantenna (ngantep dina sasar)? Naha maranéh henteu ngalap atikan?
-
-[^839]: Allah ngantep éta jalma dina kasasaran alatan Mantenna parantos uninga yén manéhna teu narima pituduh anu geus didawuhkeun ka manéhna.
 
 ## 45:24
 
@@ -19731,8 +18050,6 @@ Mung kagungan Mantenna sagala kaagungan di langit jeung bumi. Mantenna Mahagagah
 
 Ḥā Mīm. [^840]
 
-[^840]: Tingal catetan kaki surat al-Baqarah/2:1.
-
 ## 46:2
 
 Ieu Kitab (Al-Qur’an) diturunkeun ti Allah Nu Mahagagah (tur) Mahawijaksana.
@@ -19769,13 +18086,9 @@ Pék ucapkeun ku hidep (Muhammad), “Kuring lain rasul anu munggaran ti antara 
 
 ék ucapkeun ku hidep (Muhammad), “Coba terangkeun ka kuring kumaha pamanggih aranjeun upama éta (Al-Qur’an) téh datangna ti mungguhing Allah, tuluy aranjeun ingkar, padahal geus aya saurang saksi ti Bani Israél anu ngaku (kana bebeneran) anu sarupa jeung (nu kasebut dina) Al-Qur’an tuluy anjeunna iman, [^841] sedengkeun ari aranjeun mah geuning ngan kalah ka nyombongkeun diri. Saleresna Allah henteu méré pituduh ka jalma-jalma anu dolim.”
 
-[^841]: Anu dimaksud “saurang ti Bani Israél” téh nyaéta Abdullah ibn Salam. Anjeunna ngedalkeun kaimanana ka Nabi Muhammad Saw. Sanggeus niténan yén ti antara eusi Al-Qur’an aya anu luyu jeung eusi Torét, saperti bagbagan ngeunaan taohid, jangji, ancaman, karasulan Muhammad Saw., ayana kahirupan ahérat, jeung sajabana.
-
 ## 46:11
 
 Jalma-jalma nu kupur ngomong ngeunaan jalma-jalma anu iman, “Saupama iman kana éta (Al-Qur’an) téh hadé, tangtu maranéhna (kaom muslimin) moal miheulaan kuring saréréa (iman) ka dinya.” [^842] (Ayeuna) ku lantaran maranéhna (jalma-jalma anu kupur) téh henteu meunang pituduh kana éta (Al-Qur’an), nya maranéhna kalah ka ngomong kieu, “Ieu mah kabohongan anu geus lawas.”
-
-[^842]: Kaom kapir ngahina ka kaom muslimin ku omongan kieu, “Lamun seug ieu Al-Qur’an téh bener, tangtu kuring saréréa leuwih ti heula iman tibatan maranéhna jalma-jalma anu katalangsara jeung lemah, saperti Bilal, ‘Ammar, Suhaib, Habbab, jeung anu lianna.”
 
 ## 46:12
 
@@ -19784,8 +18097,6 @@ Saméméh éta (Al-Qur’an) geus aya kitab Musa (Torét) anu jadi pituduh jeung
 ## 46:13
 
 Sabenerna jalma-jalma nu nyarita, “Pangéran kuring saréréa téh Allah,” tuluy panceg, [^843] nya moal aya karingrang di aranjeunna. Aranjeunna moal bakal nalangsa (deui).
-
-[^843]: Panceg pamadegan dina taohid sarta tetep milampah amal soléh.
 
 ## 46:14
 
@@ -19802,8 +18113,6 @@ Aranjeunna téh jalma-jama anu ku Kami ditarima kahadéan anu geus dipilampahna,
 ## 46:17
 
 Ari jalma anu nyarita ka indung-bapana, “Ah… [^844] Naha aranjeun (indung-bapana) téh maké mépélingan ka kuring yén kuring bakal dihudangkeun (tina kuburan), padahal umat-umat anu saméméh kuring ogé geus paraéh (tapi taya nu balik deui)?” Tuluy indung-bapana neda pitulung ka Allah bari nyebutkeun, “Cilaka manéh, cik atuh geura iman! Sabenerna jangji Allah téh bener!” Tuluy manéhna (anak nu doraka) nempas, “Ieu mah ngan saukur dongéng jalma-jalma baheula.”
-
-[^844]: “Uff (Ah)” nyaéta kecap-kecap, kalimah, atawa isarat anu ngandung maksud nentang (nolak).
 
 ## 46:18
 
@@ -20111,8 +18420,6 @@ jeung harta rampasan perang anu kacida lobana anu bisa dicokot ku aranjeunna. Al
 
 Allah geus ngajangjikeun ka aranjeun harta rampasan anu kacida lobana anu ku aranjeun tiasa dicandak. Mantenna ngaénggalkeun (harta rampasan perang ieu pikeun aranjeun). [^845] Mantenna nahan leungeun-leungeun manusa tina (tarékah ngabinasakeun) aranjeun, sangkan hal éta jadi bukti pikeun jalma-jalma mu'min jeung sangkan Mantenna maparin pituduh ka aranjeun kana jalan anu lempeng.
 
-[^845]: Allah ngajangjikeun harta rampasan perang anu kacida lobana pikeun kaom muslimin. Minangka bubuka, Allah maparinkeunana dina waktu Perang Khaibar.
-
 ## 48:21
 
 Ogé (kaunggulan-kaunggulan) lianna ti (nagri-nagri) anu ku aranjeun tacan ditalukkeun, tapi saleresna Allah geus nangtukeun hal éta. Allah Mahakawasa kana sagala urusan.
@@ -20137,13 +18444,9 @@ Maranéhna pisan jalma-jalma kapir jeung anu ngahalang-halang aranjeun (asup) ka
 
 (Nyaéta) waktu jalma-jalma kapir melakkeun kasombongan dina haténa, (nyaéta) kasombongan jahiliah, mangka Allah nurunkeun katengtreman ka Rasul-Na jeung ka jalma-jalma mu’min, sarta (Allah) netepkeun ka aranjeunna kalimah takwa, [^846] jeung aranjeunna leuwih hak kana éta (kalimah takwa) sarta pantes mibandana. Allah Mahauninga kana sagala urusan.
 
-[^846]: Kalimah takwa téh nyaéta kalimah taohid anu ngamurnikeun dina nyubadanan kata’atan ka Allah.
-
 ## 48:27
 
 Saleresna Allah bakal ngabuktikeun ka Rasul-Na ngeunaan benerna impénna, yén saenyana aranjeun pasti bakal asup ka Masjidil Haram, upama Allah ngersakeun dina kaayaan aman, kalayan sirahna dicukur nepi ka lénang jeung rada pondok, sedengkeun aranjeun teu ngarasa sieun. Allah Mahauninga kana naon anu ku aranjeun teu dipikanyaho. Salian ti éta Mantenna maparin kaunggulan anu deukeut. [^847]
-
-[^847]: Sababaraha waktu sateuacan dilaksanakeun Perjangjian Hudaibiah, Nabi Muhammad Saw. ngimpén yén anjeunna sareng para sahabatna lebet ka kota Mekah jeung Masjidil Haram dina kaayaan sawaréh ti aranjeunna sirahna dicukur (nepi ka lénang) jeung (sawaréhna deui) cukup digunting rada pondok. Nabi nyanggem yén éta impénan téh bakal lumangsung. Terus ieu béja nyebar di antara kaom muslimin, jalma-jalma munapék, Yahudi, katut Nasrani. Saréngséna “Perjangjian Hudaibiah” dilaksanakeun, kaom muslimin dina waktu harita teu bisa asup ka Mekah (pon nya kitu deui Masjidil Haram). Ku kituna, jalma-jalma munapék ngageuhgeuykeun Nabi tur ngomong yén impénan anu dipisanggem ku Rasul pasti lumangsung téh bohong wungkul. Tuluy turun ieu ayat anu ngabéwarakeun yén impénan Nabi pasti bakal lumangsung dina taun anu bakal datang. Upama dina taun lumangsungna Perjangjian Hudaibiah kaom muslimin asup ka kota Mekah, mangka hariwang kasalametan jalma-jalma anu nyumputkeun imanna (anu aya di kota Mekah waktu harita) bakal kaancem kasalametanana.
 
 ## 48:28
 
@@ -20156,8 +18459,6 @@ Muhammad téh utusan Allah, jeung jalma-jalma nu babarengan jeung anjeunna mibog
 ## 49:1
 
 Hé jalma-jalma anu iman, omat ulah rék miheulaan Allah jeung Rasul-Na [^848] jeung kudu takwa ka Allah. Saleresna Allah Maha Ngadangu (tur) MahaUninga.
-
-[^848]: Maksudna, jalma-jalma mu’min teu meunang netepkeun hiji hukum, saméméh aya katetepan ti Allah jeung Rasul-Na.
 
 ## 49:2
 
@@ -20230,8 +18531,6 @@ Saleresna Allah Mahauninga kana sagala rupa anu gaib di langit jeung bumi. Allah
 ## 50:1
 
 Qāf. [^849] Demi Al-Qur’an anu mulya.
-
-[^849]: Tingal catetan kaki surat al-Baqarah/2:1.
 
 ## 50:2
 
@@ -20437,13 +18736,9 @@ Sabenerna (poé) pangwalesan pasti kajadian.
 
 Demi langit anu ngabogaan jalan-jalan, [^850]
 
-[^850]: Gurat ider béntang, planet, sarta banda-banda jomantara lianna. Aya ogé anu ngartikeun “mibanda ciptaan anu hadé”, ”mibanda papaés béntang-béntang” atawa “mibanda wangunan anu pengkuh.”
-
 ## 51:8
 
 sabenerna maranéh téh bener-bener aya dina pabéntar paham. [^851]
-
-[^851]: Pabéntar-pahamna kaom musrikin ngeunaan Nabi Muhammad Saw. jeung Al-Qur’an.
 
 ## 51:9
 
@@ -20549,8 +18844,6 @@ pikeun ninggangkeun ka maranéhna batu-batu tina taneuh lempung,
 
 anu ditandaan ku Pangéran salira pikeun (ngabinasakeun) jalma-jalma anu ngaliwatan wates.”  [^852]
 
-[^852]: Êta batu-batu dibéré tanda ku dingaranan jalma anu bakal dibinasakeun.
-
 ## 51:35
 
 Kami ngaluarkeun jalma-jalma mu’min anu araya di dinya (nagri kaom Lut).
@@ -20562,8 +18855,6 @@ Kami henteu manggihan di jerona salian ti hiji imah (anu pangeusina) jalma-jalma
 ## 51:37
 
 Kami ninggalkeun hiji tanda (kakawasaan Allah) [^853] di éta (nagri) pikeun jalma-jalma anu sieun ku siksa anu kacida peurihna.
-
-[^853]: Tumpukan batu-batu anu digunakeun pikeun ngabinasakeun kaom Lut. Aya ogé anu nyebutkeun hiji talaga anu caina tutumplukan anu dipaké pikeun membinasakeun kaom Lut. Aya deui anu nyebutkeun hiji telaga anu caina hideung sarta bau biuk angseuna.
 
 ## 51:38
 
@@ -20672,8 +18963,6 @@ dina lembaran anu kabuka,
 ## 52:4
 
 demi Baitulma’mur, [^854]
-
-[^854]: Baitulma’mur dina riwayat al-Bukhari, Muslim, jeung Tafsir Ibn Kaṡīr nyaéta imah anu aya di langit katujuh anu dieuyeubkeun ku 70.000 malaikat tur salawasna tasbéh ka Mantenna.
 
 ## 52:5
 
@@ -20847,8 +19136,6 @@ Nya antepkeun baé maranéhna (dina kasasaran) nepi ka manggihan poé (anu dijan
 
 Saenyana pikeun jalma-jalma anu dolim aya siksa lian ti éta. Ngan kalolobaan ti maranéhna teu nyahoeun. [^855]
 
-[^855]: Ayana musim halodo, kalaparan, kacilakaan anu tumiba ka maranéhna, siksa kubur, jeung sajabana.
-
 ## 52:48
 
 Sing sabar hidep (Muhammad) dina ngadagoan kaputusan Pangéran hidep. Sabenerna hidep téh aya dina panalingaan Kami. Prak hidep geura ngamahasucikeun bari muji ka Pangéran waktu hidep hudang!
@@ -20912,8 +19199,6 @@ Saleresna anjeunna (Muhammad) kungsi ningali malaikat Jibril (dina rupana anu as
 ## 53:14
 
 (nyaéta waktu nuju) di Sidratulmuntaha. [^856]
-
-[^856]: Sidratulmuntaha nyaéta tempat anu pangluhurna di langit katujuh, anu parantos disumpingan ku Nabi Muhammad Saw. waktu mi‘raj.
 
 ## 53:15
 
@@ -21054,8 +19339,6 @@ yén saleresna Mantenna pisan anu maparinan kabeungharan sareng kacukupan,
 ## 53:49
 
 yén saleresna Mantenna téh Pangéran (anu kagungan) béntang Syi’ra  [^857]
-
-[^857]: Béntang anu jadi sesembahan urang Arab dina mangsa Jahiliah.
 
 ## 53:50
 
@@ -21409,8 +19692,6 @@ Mantenna ngantep dua lautan ngocor (ngaréndéng, anu hiji tawar jeung nu hijina
 
 Di antara duanana aya panghalang anu teu bisa diliwatan ku masing-masing. [^858]
 
-[^858]: Ti antara ahli tapsir aya anu ngabogaan pamadegan yén lā yabgiyān maksudna séwang-séwang henteu mikahayang. Ku kituna, anu dimaksud dina ayat ka-19 jeung 20, nyaéta aya dua laut anu dihalangan ku taneuh urut kenténg (talawéngkar), tapi éta taneuh téh (henteu diperlukeun deui), anu ahirna dipiceun jeung (dikali deui pikeun kaperluan lalu-lintas), nya antukna kadua laut patepung, aaperti Terusan Suez jeung Terusan Panama.
-
 ## 55:21
 
 Nya ni’mat Pangéran aranjeun duaan (manusa jeung jin) anu mana anu rék dibohongkeun ku aranjeun?
@@ -21446,8 +19727,6 @@ Nya ni’mat Pangéran aranjeun duaan (manusa jeung jin) anu mana anu rék diboh
 ## 55:29
 
 Naon anu di langit jeung di bumi sok ngadoa ka Mantenna. Saban dinten Mantenna nungkulan perkara. [^859]
-
-[^859]: Allah salawasna nyiptakeun, ngahirupkeun, ngamaotkeun, ngurus, maparin rejeki, jeung sajabana.
 
 ## 55:30
 
@@ -21489,8 +19768,6 @@ Nya ni’mat Pangéran aranjeun duaan (manusa jeung jin) anu mana anu rék diboh
 
 Mangka dina poé éta, manusa jeung jin moal ditanya ngeunaan dosana (tapi aya waktuna pikeun ditanyakeun ngeunaan amal pagawéanana). [^860]
 
-[^860]: Tapi dina waktuna bakal dipénta tanggung jawab tina sagala amal anu dipilampahna.
-
 ## 55:40
 
 Nya ni’mat Pangéran aranjeun duaan (manusa jeung jin) anu mana anu rék dibohongkeun ku aranjeun?
@@ -21518,8 +19795,6 @@ Nya ni’mat Pangéran aranjeun duaan (manusa jeung jin) anu mana anu rék diboh
 ## 55:46
 
 Pikeun saha baé anu ajrih ku kaagungan Pangéranana dicawiskeun dua sawarga. [^861]
-
-[^861]: Sawarga pikeun manusa jeung sawarga pikeun jin. Aya ogé ahli tapsir anu boga pamadegan, sawarga dunya jeung sawarga ahérat.
 
 ## 55:47
 
@@ -21584,8 +19859,6 @@ Nya ni’mat Pangéran aranjeun duaan (manusa jeung jin) anu mana anu rék diboh
 ## 55:62
 
 Salian ti éta dua sawarga téh aya deui dua sawarga anu séjénna. [^862]
-
-[^862]: Salian ti dua sawarga anu disebut saméméhna, aya deui dua sawarga pikeun jalma-jalma mu’min anu kurang darajatna ti jalma-jalma anu diasupkeun ka dua sawarga anu mimiti.
 
 ## 55:63
 
@@ -21683,13 +19956,9 @@ Maranéh jadi tilu golongan,
 
 nyaéta golongan katuhu, [^863] kacida mulyana éta golongan anu katuhu téh,
 
-[^863]: Jalma-jalma anu nampi buku catetan amal aranjeunna ngalangkungan panangan katuhu.
-
 ## 56:9
 
 jeung golongan kénca, [^864] kacida sangsarana éta golongan anu kénca téh.
-
-[^864]: Jalma-jalma anu narima buku catétan amalna maké leungeun kénca.
 
 ## 56:10
 
@@ -21706,8 +19975,6 @@ Aranjeunna téh jalma anu dicaketkeun (ka Allah).
 ## 56:13
 
 (Aranjeunna téh) sagolongan gedé ti jalma-jalma anu ti heula, [^865]
-
-[^865]: Sakabéh umat nabi-nabi saméméh Nabi Muhammad Saw., tur anu dimaksud jalma anu pandeuri nyaéta umat Nabi Muhammad Saw.
 
 ## 56:14
 
@@ -21797,8 +20064,6 @@ kasur-kasur anu kandel tur empuk.
 
 Sabenerna Kami nyiptakeun aranjeunna (widadari-widadari) kalayan langsung, [^866]
 
-[^866]: 6Aranjeunna diciptakeun henteu ngalangkungan proses babaran tur langsung janten wanoja.
-
 ## 56:36
 
 terus Kami ngajadikeun aranjeunna parawan-parawan,
@@ -21866,8 +20131,6 @@ Tuluy saenyana maranéh, hé jalma-jalma anu sasar tur purah ngabohongkeun,
 ## 56:52
 
 pasti bakal ngadahar tangkal Zaqqūm. [^867]
-
-[^867]: Rupa tangkal di naraka anu ngabalukarkeun kanyeri anu pohara pikeun anu ngadaharna.
 
 ## 56:53
 
@@ -22057,8 +20320,6 @@ Mung kagungan Mantenna karajaan langit jeung bumi. Mantenna anu ngahirupkeun jeu
 
 Mantenna Mahaawal, Mahaahir, Mahalahir, sarta Mahabatin. [^868] Mantenna Mahauninga kana sagala perkara.
 
-[^868]: “Nu Awal” nyaéta anu geus aya saméméh aya nu lian, “Nu Ahir” nyaéta anu tetep aya sanggeus sagalana musnah, “Nu Zahir” nyaéta Nu Maha Luhur, turta “Nu Batin” nyaéta teu aya naon baé anu bisa ngahalangana-Na, Mantenna langkung caket ka mahluk tibatan mahlukna sorangan kana dirina.
-
 ## 57:4
 
 Mantenna anu nyiptakeun langit jeung bumi dina genep mangsa. Lajeng Mantenna istiwā’ di Arsy. Mantenna uninga kana naon anu asup jeung kana naon anu kaluar ti bumi, sarta ka nu turun jeung ka nu naék ka langit. Mantenna nyarengan maranéh di mana baé maranéh aya. Mantenna Maha Ningali kana pagawéan anu dipilampah ku maranéh.
@@ -22155,8 +20416,6 @@ Tétéla Kami bener-bener geus ngutus Nuh jeung Ibrahim, sarta Kami maparin kana
 
 Tuluy Kami nyusulkeun utusan-utusan Kami pikeun nuturkeun tapak lacak aranjeunna. Kami nyusulkeun (ogé) ‘Isa putra Maryam. Kami maparinkeun Injil ka anjeunna. Kami ngajadikeun rasa ajrih jeung kaasih dina haté jalma-jalma anu nurut ka anjeunna. Maranéhna ngaya-nganyakeun Rabbāniyyah [^869] (kaleuleuwihi dina ibadah), padahal Kami henteu ngawajibkeun ka maranéhna, kajaba (maranéhna ngaya-ngayakeunana pikeun) nyuprih karidoan Allah, tuluy maranéhna henteu ngaraksa éta anu sabenerna. Ku kituna, ka jalma-jalma anu iman di antara aranjeunna Kami maparin ganjaran, ngan kalolobaanana ti antara maranéhna mah pasék.
 
-[^869]: Teu kagungan istri atanapi carogé sarta ngerem diri dina biara.
-
 ## 57:28
 
 Hé jalma-jalma anu iman, kudu takwa ka Allah sarta percaya ka Rasul-Na (Muhammad), pasti Allah bakal maparin rahmat-Na ka aranjeun dua bagian tina rahmat-Na jeung ngajadikeun cahaya pikeun aranjeun anu ku éta cahaya aranjeun bisa leumpang, sarta Mantenna maparin pangampura ka aranjeun. Allah téh Maha Maparin Panghampura (tur) Mahaasih.
@@ -22168,8 +20427,6 @@ Hé jalma-jalma anu iman, kudu takwa ka Allah sarta percaya ka Rasul-Na (Muhamma
 ## 58:1
 
 Saleresna Allah parantos ngadangu kekecapan awéwé anu ngajukeun gugatan ka hidep (Muhammad) ngeunaan salakina, tur ngajukeun éta (gugatan) ogé ka Allah. Allah ngareungeu guntreng catur aranjeun duaan. Saleresna Allah Maha Ngadangu (tur) Maha Ningali. [^870]
-
-[^870]: Sabab turunna ieu ayat téh patali jeung ngagugatna saurang awéwé, Khaulah binti Sa’labah anu geus di-ẓihār ku salakina, Aus ibn Samit, ku kecap, “Anjeun pikeun kuring geus saperti tonggong indung kuring,” kalayan maksud (Aus ibn Samit) ulah ngalap suka deui ka pamajikanana sakumaha manéhna ulah ngalap suka ka indungna. Nurutkeun kabiasaan Jahiliyah, kecap “ẓihār” saperti kitu sarua jeung geus ngaragragkeun talak ka pamajikan. Ku kituna, Khaulah ngagugat hal éta ka Rasulullah Saw. Anjeunna ngawaler yén dina hal ieu teu acan aya kaputusan (wahyu) ti Allah. Dina riwayat séjén Rasulullah ngadawuh, “Anjeun geus diharamkeun dialap suka deui ku salaki anjeun.” Tuluy Khaulah nyarita, “Pun lanceuk teu kantos nyebat kecap-kecap talak.” Saterusna Khaulah terus-terusan nyedek ka Rasulullah sangkan netepkeun hiji putusan dina éta hal, nepi ka turun éta ayat tur ayat-ayat saterusna.
 
 ## 58:2
 
@@ -22255,8 +20512,6 @@ Allah geus netepkeun, “Kami jeung rasul-rasul Kami pasti unggul.” Saleresna 
 
 Hidep (Muhammad) moal manggih hiji kaom anu iman ka Allah jeung ka Poé Ahir silih pikacinta jeung jalma-jalma anu ingkar ka Allah jeung ka rasul-Na, sanajan éta jalma-jalma téh bapana, anakna, dulurna, atawa kulawargana sorangan. Aranjeunna ku Allah dipelakan iman dina haté-haténa, sarta Mantenna mengkuhkeun aranjeunna ku pitulung [^871] anu lungsur ti Mantenna. Allah ngalebetkeun aranjeunna ka sawarga anu di handapeunana cur-cor walungan-walungan. Aranjeunna langgeng di dinya. Allah rido ka aranjeunna sarta aranjeunna ogé ngaraos sugema (ka limpahan rahmat-Na). Nya aranjeunna golongan Allah. Sing inget, saleresna golongan Allah éta pisan anu bagja.
 
-[^871]: Kahayang tur kakuatan batin, kaberesihan ati, kaunggulan ka musuh, jeung lianna.
-
 ## 59:1
 
 Naon anu aya di langit jeung bumi ngamaha-sucikeun (tasbéh) ka Allah. Mantenna Nu Mahagagah (tur) Mahawijaksana.
@@ -22264,8 +20519,6 @@ Naon anu aya di langit jeung bumi ngamaha-sucikeun (tasbéh) ka Allah. Mantenna 
 ## 59:2
 
 Mantenna anu ngusir jalma-jalma anu kupur ti antara Ahli Kitab ti kampung padumukanana dina waktu ngusir munggaran. [^872] Maranéhna henteu nyangka yén maranéhna bakal kaluar. Maranéhna ogé yakin yén bénténg-bénténgna bakal bisa ngahalangan ka maranéhna tina (siksa) Allah. Allah nibankeun (siksa) ka maranéhna (hukuman) ti palebah anu ku maranéhna teu disangka-sangka. Allah melakkeun rasa kasieun kana haté-haténa nepi ka ngamusnahkeun imah-imahna sorangan ku leungeun-leungeuna sorangan jeung ku leungeun jalma-jalma mu’min. Ku kituna, jadikeun éta (kajadian) pikeun jadi atikan, hé jalma-jalma anu boga paningal anu jero!
-
-[^872]: Kaom Yahudi Bani Nadir anu mimiti dikumpulkeun pikeun diusir ti kota Madinah.
 
 ## 59:3
 
@@ -22283,8 +20536,6 @@ Naon anu ku maranéh dituaran di antara tangkal korma (milik jalma-jalma kapir) 
 
 Harta jabelan (péy) [^873] ti maranéhna anu dipaparinkeun ku Allah ka rasul-Na, aranjeun teu butuh kuda atawa onta pikeun meunangkeunana, tapi Allah maparinkeun kakawasaan ka rasul-rasul-Na (pikeun) ka saha baé anu dikersakeun ku Mantenna. Allah Mahakawasa kana sagala urusan.
 
-[^873]: Harta rampasan anu ditampa ti musuh tanpa lumangsungna perang. Paméréan péyna béda jeung paméréan gonimah. Gonimah nyaéta harta rampasan anu ditampa ti musuh sanggeus lumangsung perang. Paméréan péy saperti kitu kasebut dina ayat ka-7. Sedengkeun paméréan gonimah kasebut dina ayat ka-41 Surah Al-Anfāl.
-
 ## 59:7
 
 Harta jabelan (péy) ti maranéhna anu dipaparinkeun Allah ka rasul-Na (anu asalna) ti urang sababaraha nagri, nyaéta pikeun Allah, Rasul-Na, kaom karabatna (Rasul), barudak yatim, jalma-jalma miskin, jeung pikeun anu nyanyabaan, sangkan éta harta henteu ngulibek di antara jalma-jalma anu beunghar wungkul di antara aranjeun. Naon anu dipaparinan Rasul ka aranjeun, tarima ku aranjeun. Naon anu dicegah ku anjeunna ka aranjeun, singkahan ku aranjeun! Aranjeun kudu takwa ka Allah. Saleresna Allah kacida rongkah hukumana-Na.
@@ -22292,8 +20543,6 @@ Harta jabelan (péy) ti maranéhna anu dipaparinkeun Allah ka rasul-Na (anu asal
 ## 59:8
 
 (Harta jabelan éta ogé) pikeun jalma-jalma pakir anu hijrah [^874] anu diusir ti padumukanana tur ninggalkeun hartana. Aranjeunna miharep kurnia ti Allah jeung karidoan-Na, sarta (demi) ngabéla (agama) Allah jeung Rasul-Na. Aranjeunna pisan jalma-jalma anu bener.
-
-[^874]: Dulur Nabi, barudak yatim, jalma-jalma miskin, jeung jalma anu nyanyabaan anu kabéhanana kaasup jalma pakir tur ngilu hijrah.
 
 ## 59:9
 
@@ -22375,8 +20624,6 @@ Dulur-dulur jeung barudak maranéh moal mangpa’at pikeun maranéh dina Poé Ki
 
 Tétéla geus aya picontoeun anu hadé pikeun maranéh dina (pribadi) Ibrahim jeung jalma-jalma anu nyarenganana, waktu aranjeunna nyarios ka kaomna, “Sabenerna kuring saréréa lulubaran (teu tanggung jawab) ti aranjeun jeung tina naon rupa anu disembah ku aranjeun salian ti Allah. Kuring saréréa lulubaran tina (kakupuran) aranjeun sarta geus pertéla antara pihak kuring saréréa jeung pihak aranjeun aya mumusuhan jeung kaceuceub pikeun salawasna, nepi ka aranjeun iman ka Allah wungkul,” kajaba caritaan Ibrahim ka ramana, [^875] “Saleresna abdi badé mangnedakeun Pangampura kanggo bapa, nanging abdi teu wasa ngahalangan (siksa) Allah ka bapa sakedik ogé.” (Ibrahim lajeng ngadoa), “Nun Gusti Pangéran abdi sadaya, mung ka Gusti abdi sadaya sumerah, sareng mung ka Gusti abdi sadaya tobat, tur mung ka Gusti abdi sadaya mulang.
 
-[^875]: Nabi Ibrahim kantos mangnedakeun pangapunten pikeun ramana anu musrik ka Allah. Ieu teu meunang diturutan, sabab Allah henteu ngijinan jalma mu’min mangméntakeun pangampura pikeun jalma-jalma kupur (pariksa Q.S. An-Nisā’/4: 48).
-
 ## 60:5
 
 Nun Gusti Pangéran abdi sadaya, mugi ulah ngajantenkeun abdi sadaya (paneumbleuhan) pitnah jalma-jalma anu kupur. Mugi Gusti maparin pangapunten ka abdi sadaya. Sayaktosna Gusti téh Mahagagah (tur) Mahawijaksana.”
@@ -22405,13 +20652,9 @@ Hé jalma-jalma anu iman, upama mu’minat datang hijrah ka aranjeun, pék geura
 
 Lamun seug aya hiji hal (ngeunaan mulangkeun maskawin) anu can dituntaskeun ku aranjeun ti pamajikan-pamajikan aranjeun anu kabur ka jalma-jalma kapir, tuluy aranjeun bisa ngéléhkeun éta (jalma-jalma), mangka bikeun ku aranjeun (tina harta rampasan perang) ka jalma-jalma anu pamajikanana kabur ka musuh saloba maskawin anu geus dibayarkeun ku maranéhna. [^876] Kudu takwa aranjeun ka Allah anu ka Mantenna aranjeun iman.
 
-[^876]: Saméméh gonimah dibagikeun ka lima golongan anu ngabogaan hak, leuwih ti heula bayar heula maskawin-maskawin ka salaki-salaki anu pamajikanana ngarilu ka daérah kaom kupur.
-
 ## 60:12
 
 Hé Nabi, upama mu’minat datang pikeun bé’at (sumpah satia) ka hidep (Muhammad), yén aranjeunna moal nyarékatkeun naon-naon ka Allah, moal maling, moal jinah, moal maéhan barudakna, moal milampah bohong anu dijieun-jieun ku leungeun-leungeun tur suku-sukuna, [^877] jeung moal doraka ka hidep tina urusan kahadéan, nya pék geura bé’at aranjeunna ku hidep, jeung geura pangméntakeun pangampura pikeun aranjeunna ka Allah. Sabenerna Allah Maha Jembar-pangampura (tur) Mahaasih.
-
-[^877]: Pagawéan anu ku maranéhna diaya-ayakeun antara leungeun jeung sukuna maksudna nyaéta ngayakeun sumpah-sumpah palsu ngeunaan hubungan antara lalaki jeung awéwé, saperti tuduhan jinah, tuduhan yén anak si Fulan lain anak salakina, jeung sajabana.
 
 ## 60:13
 
@@ -22525,8 +20768,6 @@ Waktu datang ka hidep (Muhammad), jalma-jalma munapék ngomong, “Kuring sadaya
 
 Maranéhna ngajadikeun sumpah-sumpahna minangka taméng [^878] tuluy ngahalangan (batur) tina jalan Allah. Sabenerna kacida goréngna sagala anu geus dipilampah ku maranéhna.
 
-[^878]: Maranéhna sumpah yén maranéhna geus iman ngan pikeun ngajaga harta sarta dirina supaya ulah dipaéhan, ditawan, atawa dirampas hartana.
-
 ## 63:3
 
 Anu kituna téh lantaran sabenerna maranéhna geus iman tuluy jadi kupur, mangka haténa dikonci nepi ka henteu bisa ngarti.
@@ -22534,8 +20775,6 @@ Anu kituna téh lantaran sabenerna maranéhna geus iman tuluy jadi kupur, mangka
 ## 63:4
 
 Upama hidep (Muhammad) niténan maranéhna, dedeganana matak pikayungyuneun. Lamun maranéhna ngomong, hidep (kataji) ngareungeukeun omonganana. Maranéhna lir kai-kai anu ditanggeuhkeun. [^879] Maranéhna nyangka yén saban omongan ditujukeun ka maranéhna. Maranéhna pisan musuh (anu sabenerna). Ku kituna, sing waspada ka maranéhna. Allah ngabinasakeun maranéhna. Kumaha pangna maranéhna bisa dipéngparkeun (tina bebeneran)?
-
-[^879]: Maranéhna diupamakeun saperti kai anu ditanggeuhkeun, maksudna nyaéta pikeun medar sipat maranéhna anu goréng sanajan dedegan maranéhna pikayungyuneun jeung pinter ngomong, sok sanajan anu sabenerna uteukna mah belegug teu ngarti kana bebeneran.
 
 ## 63:5
 
@@ -22620,8 +20859,6 @@ Aranjeun kudu taat ka Allah jeung ka rasul. Lamun aranjeun ngabalieur, sabenerna
 ## 64:14
 
 Hé jalma-jalma anu iman, sabenerna ti antara pamajikan-pamajikan jeung barudak aranjeun aya anu jadi musuh pikeun aranjeun. [^880] Ku kituna, kudu ati-ati aranjeun ka maranéhna. Lamun aranjeun ngahampura, ngama’lum, sarta ngalubarkeun (ka maranéhna), mangka saleresna Allah Maha Jembar-pangampura (tur) Mahaasih.
-
-[^880]: Sakapeung-kapeungeun pamajikan atawa anak bisa ngagebruskeun salaki atawa bapana pikeun milampah pagawéan anu henteu dibenerkeun ku agama.
 
 ## 64:15
 
@@ -22911,8 +21148,6 @@ anu ngahalang-ngahalang kana sagala kahadéan, anu ngaliwatan wates, anu loba do
 
 pédah manéhna téh loba harta jeung loba anak. [^881]
 
-[^881]: Jalma anu ngabogaan budak tur beunghar pastina babari meunang pangikut. Tapi lamun manéhna ngabogaan sipat-sipat saperti nu aya dina ayat 13, nya manéhna teu meunang diiluan.
-
 ## 68:15
 
 Upama ayat-ayat Kami dibacakeun ka manéhna, pokna téh, “(Ieu téh nyaéta) dongéng-dongéng jalma baheula.
@@ -22920,8 +21155,6 @@ Upama ayat-ayat Kami dibacakeun ka manéhna, pokna téh, “(Ieu téh nyaéta) d
 ## 68:16
 
 Engké manéhna bakal dibéré tanda ku Kami dina tulalén(na). [^882]
-
-[^882]: Anu dimaksud “tulalé” di dieu téh nyaéta irung. Dipakéna kecap “tulalé” téh pikeun ngahinakeun.
 
 ## 68:17
 
@@ -22938,8 +21171,6 @@ Terus éta kebon téh dirarud ku balai (nu datang) ti Pangéran waktu maranéhna
 ## 68:20
 
 Nya jadi wéh éta kebon téh saperti peuting anu poék pisan. [^883]
-
-[^883]: Nya kaduruk éta kebon téh ngan nyésakeun arengna nu hideung jiga poékna peuting.
 
 ## 68:21
 
@@ -22973,8 +21204,6 @@ Malah urang saréréa teu meunang nanaon.”
 
 Pok jalma anu pangbijakna ti antara maranéhna ngomong, “Naha lain kuring geus nyarita ka maranéh, ‘Pék geura tarasbéh (ka Pangéran maranéh)’.” [^884]
 
-[^884]: Sukuran ni’mat-Na jeung henteu nganiatkeun perkara anu teu saluyu jeung paréntah Mantenna, saperti niat moal méré ka pakir miskin.
-
 ## 68:29
 
 Pok maranéhna ngomong, “Mahasuci Pangéran abdi sadaya! Sabenerna abdi sadaya téh jalma-jalma anu dolim.”
@@ -22995,8 +21224,6 @@ Mugi-mugi baé Gusti maparin gentosna ka abdi sadaya (kebon) nu langkung saé ti
 
 Nya jiga kitu siksa (di dunnya) téh. Sabenerna siksa ahérat mah leuwih gedé lamun maranéhna nyahoeun mah. [^885]
 
-[^885]: Allah nguji ka nu nyicingan Mekah ku nugraha ni’mat anu loba pikeun ngayahokeun naha maranéhna sukuran atawa henteu, sakumaha Mantenna ogé parantos nguji ka nu ngabogaan kebon. Tungtungna anu ngabogaan éta kebon téh ngaleut asup Islam sanggeus penaklukan kota Mekah.
-
 ## 68:34
 
 Sabenerna pikeun jalma-jalma anu takwa (disadiakeun) sawarga nu pinuh ku kani’matan ti Pangéranana.
@@ -23004,8 +21231,6 @@ Sabenerna pikeun jalma-jalma anu takwa (disadiakeun) sawarga nu pinuh ku kani’
 ## 68:35
 
 Naha pantes Kami nganggap jalma-jalma Islam (anu tunduk ka Allah) jiga jalma-jalma anu doraka (jalma kapir)? [^886]
-
-[^886]: Maksudna, sarua ngeunaan wawales anu disadiakeun ku Allah pikeun maranéhna séwang-séwang.
 
 ## 68:36
 
@@ -23034,10 +21259,6 @@ Atawa, naha maranéhna miboga sarékat-sarékat? Nya upama kitu mah pék atuh ma
 ## 68:42
 
 (Sing inget) kana poéan (waktu) bitis disingsatkeun (nyaéta dina Poé Kiamat) [^887] tur maranéhna dititah supaya sujud, tapi maranéhna teu sanggup. [^888]
-
-[^887]: Maksudna, sarua ngeunaan wawales anu disadiakeun ku Allah pikeun maranéhna séwang-séwang.
-
-[^888]: Maranéhna dipénta sujud téh pikeun nguji kaimanana, sanajan maranéhna teu sanggupeun deui sabab tulang-tulangna geus lemah tur siksaan geus ningker maranéhna.
 
 ## 68:43
 
@@ -23075,8 +21296,6 @@ Tuluy Pangéran milih anjeunna jeung ngajadikeunana kaasup jalma anu soléh.
 
 Sabenerna jalma-jalma anu ingkar téh ampir-ampir ngogélastkeun hidep ku paningali mata manéhna waktu maranéhna ngadéngé Al-Qur’an jeung ngucap, “Sabenerna hidep (Muhammad) téh bener-bener jalma gélo. [^889]
 
-[^889]: Nurutkeun kabiasaan di Arab, aya jalma anu bisa ngabinasakeun sato atawa manusa kalayan nujukeun paningalina anu seukeut. Cara ieu rék dilakukeun ogé ka Nabi Muhammad Saw., tapi Allah ngajagi anjeunna. Anjeunna dijagi tina éta bahaya sakumaha anu dijangjikeun ku Mantenna dina surat al-Mā’idah ayat 67. Kakuatan paningali panon téh dina mangsa ayeuna mah disebut hipnotis.
-
 ## 68:52
 
 Padahal Al-Qur’an téh taya lian anging panggeuing pikeun sakumna alam.
@@ -23084,8 +21303,6 @@ Padahal Al-Qur’an téh taya lian anging panggeuing pikeun sakumna alam.
 ## 69:1
 
 Al-Ḥāqqah (Poé Kiamat anu pasti datangna). [^890]
-
-[^890]: Al-Ḥāqqah nurutkeun bahasa nyaéta “nu pasti lumangsungna”. Poé Kiamat dingaranan al-Ḥāqqah sabab pasti lumangsungna.
 
 ## 69:2
 
@@ -23099,13 +21316,9 @@ Naha anjeun nyaho naon ari Al-Ḥāqqah téh?
 
 Kaom Samud jeung Kaom ‘Ad geus ngabohongkeun kana Poé Kiamat. [^891]
 
-[^891]: Al-Qōri’ah nurutkeun bahasa nyaéta “anu ngaruntagkeun haté”. Poé Kiamat dingaranan al-Qōri’ah sabab matak ngaruntagkeun haté.
-
 ## 69:5
 
 Anapon kaom Samud, maranéhna geus dibinasakeun ku sora nu tarik pisan. [^892]
-
-[^892]: Kolényay nu kacida tarikna nu nyebabkeun sora nu ngaguntur nepi ka bisa ngaruksak.
 
 ## 69:6
 
@@ -23119,13 +21332,9 @@ Allah nibankeun angin ka maranéhna salila tujuh peuting dalapan poé terus-teru
 
 Naha anjeun nénjo sajalma baé nu nyésa ti antara maranéhna? [^893]
 
-[^893]: Maranéhna béak dibinasakeun nepi ka teu boga turunan.
-
 ## 69:9
 
 Kitu deui, Fir’aun jeung jalma-jalma anu saméméhna, sarta (pangeusi) nagri anu dijungkir-balikkeun datang kalayan mawa kasalahan nu pohara gedéna. [^894]
-
-[^894]: Kaom-kaom baheula nu ingkar ka nabi-nabi téh saperti kaom Soléh, kaom Syuéb, jeung séjénna, sarta nagri-nagri anu dijuralitkeun, nyaéta nagri-nagri kaom Lut. Kasalahan anu dilakonan ku maranéhna téh nyaéta ngabohongkeun para rasul.
 
 ## 69:10
 
@@ -23135,8 +21344,6 @@ Maranéhna wangkelang ka utusan Pangéranana, tuluy Mantenna nyiksa ka maranéhn
 
 Sabenerna waktu cai naék (nepi ka gunung), Kami mawa (karuhun) maranéh (Nuh) [^895] ka jero parahu
 
-[^895]: Anu dibawa kana parahu Nabi Nuh keur disalametkeun téh nyaéta kulawargana jeung jalma-jalma anu iman, tapi teu kaasup budakna anu doraka.
-
 ## 69:12
 
 sangkan Kami ngajadikeun (éta kajadian) téh minangka panggeuing pikeun maranéh jeung sangkan diregepkeun ku ceuli anu daék ngadéngé.
@@ -23144,8 +21351,6 @@ sangkan Kami ngajadikeun (éta kajadian) téh minangka panggeuing pikeun marané
 ## 69:13
 
 Upama sangkakala ditiup sakali tiupan [^896]
-
-[^896]: Tiupan kahiji dina éta mangsa nyebabkeun sakabéh alam jadi ancur.
 
 ## 69:14
 
@@ -23170,8 +21375,6 @@ Dina éta poé maranéh bakal dihadepkeun (ka Pangéran maranéh). Teu aya hiji 
 ## 69:19
 
 Anapon jalma anu catetan amalna [^897] dibikeun dina leungeun anu katuhuna, nya manéhna nyarita (ka jalma-jalma anu aya di sabudeureunana), “Pék carokot (jeung) baraca ieu catetan amal kuring.
-
-[^897]: Catetan amal pagawéan.
 
 ## 69:20
 
@@ -23277,8 +21480,6 @@ Upama anjeunna (Muhammad) ngaya-aya sawaréh baé tina éta pidawuh kalayan (asm
 
 tangtu Kami bakal nyiksa anjeunna ku siksaan anu kuat, [^898]
 
-[^898]: Kami méré tindakan satarik-tarikna.
-
 ## 69:46
 
 tuluy tangtu Kami megatkeun urat jantungna.
@@ -23322,8 +21523,6 @@ ka jalma-jalma kapir. Moal aya hiji jalma ogé anu bisa nolak
 ## 70:4
 
 Para malaikat jeung Jibril naék (ngadeuheus) ka Pangéran dina mangsa sapoé anu kadarna lima puluh rébu taun. [^899]
-
-[^899]: Para malaikat jeung Jibril lamun ngadeuheus ka Pangéran anu méakkeun mangsa sapoé, tapi lamun dilakonan ku manusa méakkeun mangsa lima puluh rébu taun.
 
 ## 70:5
 
@@ -23381,8 +21580,6 @@ anu cumeluk ka jalma anu nukangan jeung anu ngabalieur (tina agama)
 
 sarta jalma anu ngumpulkeun (harta banda) tuluy nimbun. [^900]
 
-[^900]: Jalma anu neundeun hartana jeung henteu daék ngaluarkeun jakat jeng henteu ogé ngainpakkeun dina jalan anu bener.
-
 ## 70:19
 
 Sabenerna manusa téh diciptakeun kalayan sipat resep rumahuh.
@@ -23431,8 +21628,6 @@ Sabenerna moal aya hiji jalma nu ngarasa aman (tina) siksa Pangéranana.
 
 kajaba ka pamajikanana atawa ka budak-beulianana anu dipimilik, [^901] nya aranjeunna henteu dicawad.
 
-[^901]: Budak-beulian anu dipimilik alatan peperangan jeung jalma kapir. Awéwé-awéwé anu diboyong téh biasana dibagi-bagikeun ka kaom muslimin anu ngiluan perang, tapi ieu kabiasaan téh lain perkara anu diwajibkeun.
-
 ## 70:31
 
 Ku kituna, saha baé anu néangan (kasenangan sahwat) di luar ieu (saperti jinah, homosek, jeung lesbian), nya maranéhna téh jalma-jalma anu ngaliwatan wates.
@@ -23461,8 +21656,6 @@ Naha jalma-jalma kapir téh bet datang rurusahan ka hidep (Muhammad)
 
 ti katuhu jeung ti kénca kalayan sagolongan-sagolongan. [^902]
 
-[^902]: Nurutkeun katerangan sawaréh ahli tapsir, ieu ayat aya hubunganana jeung kajadian waktu Rasulullah netepan tur maca Al-Qur’an deukeut Ka’bah, tuluy jalma-jalma musrik ngumpul di hareupeunana bari ngagogoréng jeung ngucap kieu, “Lamun jalma-jalma mu’min bener-bener bakal asup ka sawarga sakumaha caritaan Muhammad, nya urang saréréa nu bakal asup ti heula mah. Nya turun ieu ayat ka-38.
-
 ## 70:38
 
 Naha saban jalma ti maranéhna (jalma-jalma kapir) téh hayang diabuskeun ka sawarga nu pinuh ku kani’matan?
@@ -23470,8 +21663,6 @@ Naha saban jalma ti maranéhna (jalma-jalma kapir) téh hayang diabuskeun ka saw
 ## 70:39
 
 Teu mungkin! Sabenerna Kami nyiptakeun maranéhna téh tina naon anu dipikanyaho ku maranéhna (cai mani), [^903]
-
-[^903]: Jalma-jalma kapir dicipatkeun ku Allah tina cai mani supaya iman jeung takwa ka Mantenna, sakumaha anu ditepikeun ku Rasul. Jadi, lamun maranéhna teu iman, mangka taya hak pikeun asup sawarga.
 
 ## 70:40
 
@@ -23525,13 +21716,9 @@ Sayaktosna abdi tiap nguar-ngajak ka maranéhna (pikeun ariman) supados Gusti ng
 
 Sayaktosna abdi nguar-ngajak maranéhna satarikna kalayan cara anu perténgtang. [^904]
 
-[^904]: Ieu dijalankeun sanggeus da’wah kalayan cara susulumputan teu hasil.
-
 ## 71:9
 
 Salajengna abdi nguar-ngajak ka maranéhna kalayan terang-terangan sareng kalayan rerencepan. [^905]
-
-[^905]: Sanggeus ngalakukeun da’wah susulumputan tuluy terang-terangan ngan teu ogé hasil, nya Nabi Nuh a.s. ngajalankeun éta dua cara babarengan
 
 ## 71:10
 
@@ -23552,8 +21739,6 @@ Naha geuning maranéh teu sieun ku kaagungan Allah?
 ## 71:14
 
 Sabenerna Mantenna geus nyiptakeun maranéh dina sababaraha tingkatan (kajadian). [^906]
-
-[^906]: Tingali surah al-Mu’minun/23: 12,13, jeung 14.
 
 ## 71:15
 
@@ -23591,8 +21776,6 @@ Maranéhna ngalakukeun tipu daya anu kalintang ageungna.
 
 Maranéhna nyarita, ‘Ulah sakal-kali maranéh ninggalkeun (sesembahan) pangéran-pangéran maranéh sarta ulah sakal-kali ninggalkeun (nyembah) Wadd, Suwa, Yagus, Ya’uk jeung Nasr.’. [^907]
 
-[^907]: Wadd, Suwa, Yagus, Yauq, jeung Nasr téh nyaéta ngaran-ngaran berhala anu galedé pileun golongan-golongan kaom Nuh.
-
 ## 71:24
 
 Sayaktosna maranéhna parantos nyasarkeun jalma nu loba pisan. Pamugi Gusti henteu nambihan pikeun jalma anu dolim téh kajaba ti kasasaran.”
@@ -23629,8 +21812,6 @@ Sabenerna Mahaluhung kaagungan Pangéran kuring saréréa. Mantenna henteu ngabo
 
 abenerna jalma anu bodo ti kuring saréréa sok nyarita (caritaan) anu kaleuleuwihi ngeunaan Allah. [^908]
 
-[^908]: Ngucapkeun yén Allah ngabogaan istri jeug budak. Ceuk Ibn Kasir, ieu omongan diucapkeun saacan éta jin asup Islam.
-
 ## 72:5
 
 Sabenerna kuring saréréa nyangka yén manusa jeung jin téh moal nyarita perkara bohong ka Allah.
@@ -23638,8 +21819,6 @@ Sabenerna kuring saréréa nyangka yén manusa jeung jin téh moal nyarita perka
 ## 72:6
 
 Sabenerna aya sawatara jalma lalaki ti golongan manusa anu ménta panyalindungan [^909] ka sawatara lalaki ti golongan jin, tapi maranéhna (jin) ngjadikeun maranéhna (manusa) nambahan kasasaranana.
-
-[^909]: Aya ti antara jalma-jalma Arab lamun meuntas tempat anu jempling, maranéhna ménta panyalindungan ka jin anu dianggap kawasa di éta tempat.
 
 ## 72:7
 
@@ -23652,8 +21831,6 @@ Sabenerna kuring saréréa (jin) geus nyobaan nganyahokeun (rasiah) langit, tapi
 ## 72:9
 
 Sabenerna kuring saréréa (jin) baréto kungsi cicing di sababaraha tempat di ieu langit pikeun maok déngé (béja-béjana), tapi ayeuna mah [^910] saha baé anu (nyoba) maok déngé (saperti kitu), tangtu manggihan panah-panah seuneu nu ngintip (pikeun ngadurukna).
-
-[^910]: Mangsa sanggeusna Nabi Muhammad Saw. diutus jadi rasul.
 
 ## 72:10
 
@@ -23738,8 +21915,6 @@ Yeuh jalma anu disalimbut (Muhammad)!
 ## 73:2
 
 Geura hudang (pikeun salat) ti peuting, kajaba [^911] sabagian leutik
-
-[^911]: Salat peuting téh mimitina mah wajib saacan turun ayat ka-20 dina ieu surah. Sanggeusna turun, hukumna jadi sunnah.
 
 ## 73:3
 
@@ -23857,8 +22032,6 @@ nya éta téh poé anu hésé,
 
 Pasrahkeun baé ka Kaula (anu nindak) ka jalma anu diciptakeun ku Kaula dina kaayaan sorangan. [^912]
 
-[^912]: Ieu ayat jeung sababraha ayat nu saterusna diturunkeun ngeunaan saorang kapir Mekah, pupuhu Qurés nu ngaranna al-Walid bin Mugirah.
-
 ## 74:12
 
 Kaula méré ka dirina kabeungharan anu loba,
@@ -23927,8 +22100,6 @@ Naha hidep nyaho, naon ari (naraka) Saqor téh?
 
 Ieu (Saqor) téh teu nyésakeun (saeutik ogé bagian raga) jeung teu ngantep (luput tina siksa). [^913]
 
-[^913]: Ano anu dialungkeun ka jero naraka téh disiksana nepi ka binasa tuluy dibalikkeun saperti mimiti pikeun disiksa deui.
-
 ## 74:29
 
 Anu matak tutung géhéng kulit manusa.
@@ -23944,8 +22115,6 @@ Kami ngajadikeun panjaga dina naraka téh ngan ti malaikat. Kami nangtukeun wila
 ## 74:32
 
 Henteu! [^914] Demi bulan,
-
-[^914]: Henteu” nyaéta bantahan pikeun omongan-omongan jalma-jalma musrik anu ngabohongkeun hal-hal nu di luhur.
 
 ## 74:33
 
@@ -24099,8 +22268,6 @@ Dina éta poé dibéjakeun ka manusa sagala anu geus dipilampah ku manéhna jeun
 
 Malah manusa jadi saksi pikeun dirina sorangan, [^915]
 
-[^915]: Anggahota awak manusa jadi saksi pikeun pagawéan anu geus dilakonan ku maranéhna saperti anu dijelaskeun dina surah al-Nūr/24:24.
-
 ## 75:15
 
 sanajaan manéhna ngajukeun alesan-alesanna.
@@ -24161,8 +22328,6 @@ Manéhna yakin yén éta téh waktu papisah (jeung dunya)
 
 Nya patumpak bitis (katuhu) jeung bitis (kénca). [^916]
 
-[^916]: Sabab rongkahna kasangsaraan dina mangsa bakal maot jeung kasieunan bakal ninggalkeun dunya tur nyanghareupan ahérat.
-
 ## 75:30
 
 Ka Pangéran manéh dina éta poé manéh digiring.
@@ -24215,8 +22380,6 @@ Naha apan kungsi datang ka manusa hiji mangsa anu harita (manéhna) can mangrupa
 
 Sabenerna Kami geus nyiptakeun manusa tina sakeclak cai mani anu pacampur. [^917] Kami rék nguji ka manéhna (kalayan paréntah jeung cegahan) nepi ka Kami ngajadikeun manéhna bisa ngadéngé jeung nénjo.
 
-[^917]: Pacampur antara binih lalaki jeung awéwé.
-
 ## 76:3
 
 Sabenerna Kami geus nuduhkeun ka manéhna jalan (anu lempeng): Aya nu sukuran aya ogé anu kupur.
@@ -24229,8 +22392,6 @@ Sabenerna Kami geus nyawiskeun pikeun jalma-jalma kapir ranté, bangkol-bangkol,
 
 abenerna jalma-jalma anu migawé kahadéan bakal nginum (arak) tina gelas anu campuranana téh cai kapur, [^918]
 
-[^918]: Ngaran hiji cinyusu di sawarga anu caina bodas sarta ambeu jeung rasana énak pisan.
-
 ## 76:6
 
 (nyaéta) cinyusu (dina jero sawarga) anu diarinum ku hamba-hamba Allah jeung aranjeunna bisa mancerkeunana kalayan gampang.
@@ -24238,8 +22399,6 @@ abenerna jalma-jalma anu migawé kahadéan bakal nginum (arak) tina gelas anu ca
 ## 76:7
 
 Aranjeunna nyumponan nadarna [^919] jeung sieun ku hiji poé anu siksana rata di mana-mana
-
-[^919]: Nyaéta niat jeung jangji bakal ngalakonan perkara anu dikaitkeun jeung hiji perkara anu dipihareup, samisal lamun cageur tina gering atawa lolos ujian, si jalma bakal puasa tilu poé atawa sidekah.
 
 ## 76:8
 
@@ -24341,19 +22500,13 @@ Mantenna ngasupkeun saha baé anu dikersakeun ku Mantenna kana rahmat-Na (sawarg
 
 Demi (malaikat-malaikat) [^920] nu diutus pikeun mawa kahadéan
 
-[^920]: Sawaréh ahli tapsir ngartikeun “demi angin anu dikirim”.
-
 ## 77:2
 
 jeung (malaikat-malaikat) anu ngapung kalayan tarik. [^921]
 
-[^921]: Ngapung pikeun ngalakonan paréntah Allah.
-
 ## 77:3
 
 Demi (malaikat-malaikat) anu nyebarkeun (rahmat Allah) kalayan saluas-luasna, [^922]
-
-[^922]: Dina mangsa malaikat turun pikeun mawa wahyu, sawaréh ahli tapsir ngucap yén anu dimaksud kalayan al-nāsyirāt téh nyaéta angin anu ditiup dibarengan ku hujan.
 
 ## 77:4
 
@@ -24386,8 +22539,6 @@ waktu gunung-gunung diancurkeun jadi kebul;
 ## 77:11
 
 waktu rasul-rasul ditangtukeun waktuna, [^923]
-
-[^923]: Mangsa pikeun ngumpul bareng jeung umat maranéhna séwang-séwang.
 
 ## 77:12
 
@@ -24449,8 +22600,6 @@ Naha lain Kami geus ngajadikeun bumi (tempat) ngumpul
 
 pikeun nu masih hirup jeung nu geus maot  [^924]
 
-[^924]: Bumi ngagundukkeun jalma-jalma hirup dina luhureunana jeung jalma-jalma maot di jero beuteungna.
-
 ## 77:27
 
 jeung Kami ngajadikeun di dinya gunung-gunung anu luhur, sarta Kami maparin nginum ka maranéh ku cai hambar?
@@ -24466,8 +22615,6 @@ Cilaka dina éta poé téh maranéh anu ngabohongkeun (bebeneran).
 ## 77:30
 
 Jig arindit ngajugjug iuh-iuhan (haseup seuneu naraka) anu ngabogaan tilu cabang [^925]
-
-[^925]: Nyaéta anu ngabogaan tilu gejolak, nyaéta di katuhu, di kénca, jeung di luhur. Éta siksa ningker jalma-jalma kapir tina sagala juru.
 
 ## 77:31
 
@@ -24541,8 +22688,6 @@ Cilaka dina éta poé maranéhna anu ngabohongkeun (bebeneran).
 
 Upama diucapkeun ka maranéhna “prak raruku, “maranéhna teu daékeun ruku. [^926]
 
-[^926]: Sawaréh ahli tapsir ngucap yén anu dimaksud ruku di dieu téh nyaéta tungkul kana paréntah Allah. Sabagian anu lainna ngucap yén anu dimaksud téh nyaéta salat.
-
 ## 77:49
 
 Cilaka dina éta poé maranéhna anu ngabohongkeun (bebeneran).
@@ -24567,8 +22712,6 @@ Ngeunaan perkara anu gedé (Poé Kiamat),
 
 Ulah kitu! [^927] Engké ogé maranéhna bakal nyahoeun.
 
-[^927]: Sanggaha pikeun pamadeugan jalma-jalma kapir Mekah anu ingkar kana poé dihudangkeun tina kubur jeung Poé Kiamat.
-
 ## 78:5
 
 Sakali deui, ulah kitu! Engké ogé maranéhna bakal nyahoeun.
@@ -24592,8 +22735,6 @@ Kami ngajadikeun saré maranéh pikeun ngaso.
 ## 78:10
 
 Kami ngajadikeun peuting (lir ibarat) pakéan. [^928]
-
-[^928]: Peuting disebut pikeun “pakéan” sabab nutupan jagat sakumaha pakéan nutupan awak manusa.
 
 ## 78:11
 
@@ -24707,8 +22848,6 @@ Pangéran (nu ngurus) langit jeung bumi jeung sagala nu aya di antarana, Nu Maha
 
 Dina poéan waktu roh [^929] jeung para malaikat nangtung ngabaris. Aranjeunna teu nyarita salian jalmi anu dipaparinan widi ku Pangéran Nu Mahamurah, jeung anjeunna ngan ngucapkeun nu bener.
 
-[^929]: Para ahli tapsir ngabogaan pamadegan anu béda ngeunaan maksud “roh” dina ieu ayat. Aya nu ngucap “Jibril”, aya nu ngucap “wadyabalad Allah”, jeung aya ogé anu ngucap “roh manusa”.
-
 ## 78:39
 
 Éta téh poé anu bener kajadianana. Saha baé anu miharep (kasalametan), pasti milampah jalan pangmulangan ka Allah (kalayan migawé amal soléh).
@@ -24737,8 +22876,6 @@ Demi (malaikat-malaikat) nu turun ti langit kalayan gancang pisan,
 
 jeung (malaikat-malaikat) nu ngatur urusan (dunya). [^930]
 
-[^930]: Dina ayat 1-5 Allah sumpah kalayan malaikat-malaikat nu macem-macem sipatna jeung urusanana, yén manusa bakal dihudangkeun dina Poé Kiamat. Sawaréh ahli tapsir ngucap, yén dina ieu ayat-ayat, kajaba ayat 5, Allah sumpah kalayan béntang-béntang.
-
 ## 79:6
 
 (Sabenerna Kami bakal ngahudangkeun) dina poé nalika tiupan kahiji (sanggup) ngagenjlongkeun alam,
@@ -24758,8 +22895,6 @@ Panénjona tarungkul alum.
 ## 79:10
 
 (Jalma-jalma kapir) nyarita, “Naha urang bener-bener bakal dibalikkeun kana kahirupan anu asal? [^931]
-
-[^931]: Saeungges ngadéngé ayana poé dihudangkeun saeungges maot, jalma-jalma kapir ngarasa hemeng jeung moyok, sabab nurutkeun kayakinana poé dihudangkeun téh moal kajadian. Nya éta téh anu jadi sabab maranéhna nanya.
 
 ## 79:11
 
@@ -24981,13 +23116,9 @@ Tina naon Mantenna (Allah) nyiptakeun manéhna?
 
 Mantenna nyiptakeunana tina sakeclak cai mani, terus nangtukeun (takdir)na, [^932]
 
-[^932]: Nangtukeun tahapan-tahapan kajadianana, umurna, rijkina, jeung nasibna.
-
 ## 80:20
 
 terus Mantenna ngagampangkeun jalanna, [^933]
-
-[^933]: Ngagampangkeun lahiranana atawa méré kasadiaan ka manéhna pikeun ngalakonan jalan anu bener atawa jalan nu sasar.
 
 ## 80:21
 
@@ -25181,8 +23312,6 @@ Anjeunna (Muhammad) lain jalma nu kikir (embung) nerangkeun nu gaib.
 
 Nya dek ka mana maranéh bakal indit? [^934]
 
-[^934]: Sanggeus ditétélakeun yén Al-Qur’an téh bener-bener datang ti Allah jeung di jerona aya atikan tur pituduh nu mimpin manusa kana jalan anu lempeng, mangka ditanyakeun ka jalma-jalma kapir, “Jalan mana anu bakal ditempuh ku maranéh?”
-
 ## 81:27
 
 (Al-Qur’an) téh teu aya lian kajaba pangéling-ngéling keur sakumna pangeusi alam.
@@ -25299,8 +23428,6 @@ dina poé anu gedé (Kiamat),
 
 Sakali deui ulah kitu! Sabab sabenerna catetan jalma nu doraka téh diteundeun dina jero sijjīn. [^935]
 
-[^935]: Ngaran kitab anu nyatet sagala pagawéan jalma-jalma anu doraka.
-
 ## 83:8
 
 Naha anjeun nyaho naon ari sijjīn téh?
@@ -25333,8 +23460,6 @@ Sakali deui ulah kitu! Malah naon nu ku maranéhna dipigawé téh geus nutupan h
 
 Sakali deui ulah kitu! [^936] Sabenerna maranéhna dina éta poé téh bener-bener kahalangan tina (rahmat) Pangéranana.
 
-[^936]: Henteu jiga kitu naon nu ku maranéhna diucapkeun téh, yén maranéhna deukeut di mungguhing Pangéran.
-
 ## 83:16
 
 Sabenerna maranéhna téh bener-bener diasupkeun ka naraka.
@@ -25346,8 +23471,6 @@ Terus diucapkeun (ka maranéhna), “Tah ieu téh (siksa) anu baréto ku marané
 ## 83:18
 
 Sakali deui ulah kitu! Sabenerna catetan jalma-jalma nu hadé bener-bener diteundeun dina jero illiyīn [^937]
-
-[^937]: Ngaran kitab anu nyatet sagala pagawéan jalma-jalma anu ngabakti.
 
 ## 83:19
 
@@ -25445,8 +23568,6 @@ tur turut ka Pangéranana, jeung kitu kuduna.
 
 Hé manusa, sabenerna manéh geus gawé tohaga ngajugjug kana (papanggihna jeung) Pangéran manéh. Nya manéh pasti bakal papanggih jeung Mantenna. [^938]
 
-[^938]: Manusa di ieu dunya, boh sadar boh teu sadar, aya dina lalampahan ka Pangéranana. Pasti manéhna bakal manggihan Mantenna pikeun narima wawales pagaweénna anu goréng atawa anu hadé.
-
 ## 84:7
 
 Ku kituna, saha baé jalma anu dibéré kitab ti beulah katuhueunana,
@@ -25498,8 +23619,6 @@ demi peuting jeung naon anu dikumpulkeunana,
 ## 84:19
 
 Sabenerna manéh bakal ngaléngkah sahambalan-sahambalan (dina kahirupan). [^939]
-
-[^939]: Tina sakeclak mani nepi ka dilahirkeunana, terus ngaliwatan mangsa budak, pamuda, jeung nepi ka sawawa. Tina hirup jadi maot, terus dihudangkeun deui.
 
 ## 84:20
 
@@ -25656,8 +23775,6 @@ Nya manusa teu boga deui kakuatan jeung henteu (ogé) aya nu nulungan.
 ## 86:11
 
 Demi langit anu miboga cai hujan [^940]
-
-[^940]: Raj’i hartina malik maluter. Hujan diaranan raj’i dina ieu ayat sabab asalna tina saab anu naék ti bumi ka awang-awang, terus turun dui ka bumi, terus balik deui ka luhur, ti luhur turun deui ka bumi, jeung nya kitu saterusna.
 
 ## 86:12
 
@@ -25871,8 +23988,6 @@ Demi pajar.
 
 Demi peuting-peuting anu sapuluh. [^941]
 
-[^941]: Peuting sapuluh ahir dina Bulan Romadon. Aya ogé nu nyebutkeun sapuluh anu kahiji tina bulan Muharom ka asup poé Asyura. Aya ogé nu nyebutkeun sapuluh peuting kahiji dina bulan Julhijah.
-
 ## 89:3
 
 Demi nu genap jeung nu ganjil.
@@ -25900,8 +24015,6 @@ anu can kungsi diwangun (hiji kota ogé) saperti kitu di nagri-nagri séjénna,
 ## 89:9
 
 (pikeun kaom) Samud anu motongan batu-batu gédé dina léngkob, [^942]
-
-[^942]: Ieu léngkob aya di beulah kaler Jajirah Arab antara kota Madinah jeung Syam. Maranéhna motongan batu gunung pikeun ngawangun gedong-gedong tempat cicing maranéhna. Aya ogé anu ngabolongan gunung-gunung pikeun tempat cicing jeung tempat nyalindung maranéhna.
 
 ## 89:10
 
@@ -25931,13 +24044,9 @@ Nya aya manusa, lamun Pangéran méré cocoba terus méré kamulyaan jeung mér�
 
 (Tapi,) lamun seug Pangéran maparin cocoba terus ngurangan rejekina, nya manéhna nyarita kieu, “Pangéran kuring geus ngahinakeun kuring.” [^943]
 
-[^943]: Allah nyalahkeun ka jalma anu ngucapkeun yén kabeungharan téh mangrupakeun kamulyaan, sedengkeun kamalaratan téh nyaéta perkara hina, saperti anu kasebut dina ayat 15 jeung 16. Tapi sabenerna kabeungharan jeung kamalaratan téh mangrupakeun cocoba Allah pikeun hamba-hamba-Na.
-
 ## 89:17
 
 Lain kitu! Malah maranéh téh teu ngamulyakeun budak yatim. [^944]
-
-[^944]: Henteu méré hak-hak budak yatim jeung henteu migawé kahadéan ka budak yatim.
 
 ## 89:18
 
@@ -26227,13 +24336,9 @@ Demi peuting lamun geus sepi jempling.
 
 Pangéran hidep (Muhammad) teu ninggalkeun jeung teu (ogé) bendu ka hidep. [^945]
 
-[^945]: Sabot turunna wahyu ka Nabi Muhammad Saw. eureun pikeun samentara waktu, jalma-jalma musrik ngomong, “Pangéranana (Muhammad) geus ninggalkeun jeung ngéwa ka manéhna.” Nya tuluy turun ieu ayat pikeun ngabantah kana éta omongan jalma-jalma musrik.
-
 ## 93:4
 
 Sabenerna nu sapandeurian (ahérat) téh leuwih hadé pikeun hidep tibatan anu mimiti. [^946]
-
-[^946]: Tungtung perjuangan Nabi Muhammad Saw. téh bakal pinanggih jeung kaunggulan-kaunggulan, sedengkeun mimitina mah loba pisan kahéséan-kahéséan. Aya ogé sawaréh ahli tapsir anu ngartikeun āḥirah kalayan “kahirupan ahérat” jeung sagala kasenanganana, ūlā kalayan “kahirupan dunya”.
 
 ## 93:5
 
@@ -26246,8 +24351,6 @@ Naha lain Mantenna téh mendakan hidep minangka jalma yatim, terus Mantenna ngaj
 ## 93:7
 
 Mantenna mendakan hidep jalma nu teu nyaho (kana saréat), [^947] terus Mantenna maparin pituduh?
-
-[^947]: Teu aya bebeneran anu bisa dihontal ku akal. Terus Allah nurunkeun wahyu ka Nabi Muhammad Saw.
 
 ## 93:8
 
@@ -26273,8 +24376,6 @@ Naha lain Kami geus ngajembarkeun dada hidep (Muhammad)?
 
 Apan Kami geus nyinglarkeun beban (tugas-tugas kanabian) hidep [^948]
 
-[^948]: Kasusah-kasusah anu dipayunan ku Nabi Muahammad Saw. waktos ngadugikeun risalah.
-
 ## 94:3
 
 anu ngabeungbeuratan tonggong hidep?
@@ -26282,8 +24383,6 @@ anu ngabeungbeuratan tonggong hidep?
 ## 94:4
 
 Apan Kami ogé geus ngangkat sebutan (ngaran) hidep? [^949]
-
-[^949]: Ngaluhurkeun darajat jeung ngilukeun ngaranna babarengan jeung Asma Allah dina kalimat sahadat tur ngajadikeun taat ka Nabi ogé taat ka Allah.
 
 ## 94:5
 
@@ -26297,8 +24396,6 @@ Saenyana dina kasusah téh aya kagampangan.
 
 Ku sabab kitu, upama hidep geus bérés (dina hiji urusan), tetep kudu digawé getol (pikeun urusan nu séjén). [^950]
 
-[^950]: Sawaréh ahli tapsir napsirkeun lamun anjeun (Muhammad) ges bérés dakwah, nya prak ibadah ka Allah. Lamun seug anjeun geus bérés ngalaksanakeun urusan dunya, nya prak pigawé urusan ahérat. Aya ogé nu napsirkeun, “Lamun seug geus ngadegkeun salat, nya kudu ngadoa.”
-
 ## 94:8
 
 Ngan ka Pangéran hidep, hidep kudu miharep.
@@ -26307,13 +24404,9 @@ Ngan ka Pangéran hidep, hidep kudu miharep.
 
 Demi (buah) Tin jeung (buah) Jaitun. [^951]
 
-[^951]: Anu dimaksud “Tin” téh nyaéta tempat cicing Nabi Nuh a.s., nyaéta Damaskus anu loba tangkal Tin jeung Jaitun”, nyaéta Baétulmaqdis anu loba Jaitun.
-
 ## 95:2
 
 Demi gunung Sinai [^952]
-
-[^952]: Gunung Sina téh nyaéta tempat Nabi Musa narima wahyu.
 
 ## 95:3
 
@@ -26379,8 +24472,6 @@ Naha hidep nyaho jalma nu nyarék
 
 hiji hamba waktu manéhna ngadegkeun salat? [^953]
 
-[^953]: Anu nyegah téh nyaéta Abu Jahal, sedengkeun nu dicegah téh nyaéta Rasulullah. Tapi usahana teu hasil. Saparantos Rasulullah réngsé tina salat, éta béja téh didugikeun ka Rasulullah. Teras anjeunna ngucap, “Lamun Abu Jahal migawé kos kitu deui, tangtu manéhna bakal dibinaskeun ku malaikat.”
-
 ## 96:11
 
 Naha hidep nyaho lamun seug manéhna (anu dicarék salat) aya dina bebeneran (pituduh)
@@ -26421,8 +24512,6 @@ Sakali deui lain kitu! Hidep ulah nurut ka manéhna, sarta geura sujud jeung nga
 
 Sabenerna Kamis geus nurunkeun (Al-Qur’an) dina peuting kodar. [^954]
 
-[^954]: Peunting Kodar ngabogaan sababaraha harti, nyaéta peuting anu mulya sabab dina éta peutingan Al-Qur’an mimiti diturunkeun ti Lohil Mahpud ka Nabi Muhammad Saw.
-
 ## 97:2
 
 Naha hidep nyaho naon peuting kodar téh?
@@ -26451,8 +24540,6 @@ Jalma-jalma kapir ti golongan Ahli Kitab jeung jalma-jalma musrik moal ninggalke
 
 Di jerona aya (eusi) kitab-kitab nu lempeng (bener). [^955]
 
-[^955]: Eusi kitab-kitab anu diturunkeun ka nabi-nabi saperti Torét, Jabur, jeung Injil nu asli.
-
 ## 98:4
 
 Jalma-jalma nu dipaparin Kitab (Ahli Kitab) henteu pabalencar kajaba sanggeus datang ka maranéhna katerangan anu nyata.
@@ -26460,8 +24547,6 @@ Jalma-jalma nu dipaparin Kitab (Ahli Kitab) henteu pabalencar kajaba sanggeus da
 ## 98:5
 
 Padahal maranéhna ngan diparéntah supaya ibadah ka Allah kalayan ihlas taat ka Mantenna saukur karana (ngajalankeun) agama jeung ogé supaya ngadegkeun salat jeung ngaluarkeun jakat. Anu saperti kitu téh agama anu lempeng (bener). [^956]
-
-[^956]: Lempeng hartina jauh tina sirik jeung kasasaran.
 
 ## 98:6
 
@@ -26498,8 +24583,6 @@ yén sabenerna Pangéran hidep (Muhammad) geus maréntahkeun (nu saperti kitu) k
 ## 99:6
 
 Dina éta poé jalma-jalma kaluar tina kuburanana dina kaayaan rupa-rupa pikeun ditingalikeun ka maranéhna (walesan) sagala pagawéanana. [^957]
-
-[^957]: Aya nu untung jeung aya nu cilaka.
 
 ## 99:7
 
@@ -26601,8 +24684,6 @@ Nyaéta seuneu nu kacida panasna.
 
 Paméntéréng-méntéréng téh geus mohokeun maranéh, [^958]
 
-[^958]: Ajréng dina soal loba budak, harta, anu miluan, kamulian, jeung sajabana geus mopohokeun maranéh tina taat ka Allah.
-
 ## 102:2
 
 nepi ka maranéh abus ka jero kubur.
@@ -26651,8 +24732,6 @@ Cilaka pikeun tukang nyawad jeung ngahina,
 
 anu numpuk-numpuk harta jeung ngitungan-ngitungan. [^959]
 
-[^959]: Ngumpulkeun jeung ngitung-ngitung harta anu nyebabkeun maranéhna jadi pedit jeung embung ngainpakkeun dina jalan Allah.
-
 ## 104:3
 
 Manéhna (manusa) nyangka yén harta bandana téh bakal ngalanggengkeun manéhna.
@@ -26685,8 +24764,6 @@ Sabenerna éta seuneu téh ditutup rapet pikeun (diri) maranéhna.
 
 Naha hidep (Muhammad) henteu niténan, kumaha Pangéran hidep geus nindak ka pasukan gajah? [^960]
 
-[^960]: Pasukan anu dipimpin ku Abrahah, Gubernur Yaman anu rék ngancurkeun Ka’bah. Saacan asup ka kota Mekah, éta pasukan diserang ku manuk-manuk anu malédogan ku batu-batu leutik nepi ka maranéhna paraéh.
-
 ## 105:2
 
 Apan Mantenna geus ngajadikeun tipu daya maranéhna téh mubah?
@@ -26710,8 +24787,6 @@ Ku sabab kabiasaan urang Qurés,
 ## 106:2
 
 nyaéta kabiasaan maranéhna nyanyabaan dina usum ngijih jeung usum halodo. [^961]
-
-[^961]: Urang Qurés biasa ngayakeun nyanyabaan, utamana pikeun dagang ka nagri Syam dina usum halodo jeung ka nagri Yaman dina usum ngijih. Dina éta lalampahan maranéhna meunang jaminan kaamanan ti pupuhu nagari-nagri anu diliwatanana. Ieu téh mangrupakeun hiji ni’mat anu gedé pisan ti Allah ka maranéhna. Ku sabab éta, sawajarna maranéhna ibadah ka Allah anu geus maparin éta ni’mat.
 
 ## 106:3
 
@@ -26741,19 +24816,13 @@ Ku kituna, nara Wél pikeun jalma nu sok salat,
 
 (nyaéta) jalma-jalma nu talobéh dina salatna, [^962]
 
-[^962]: Jalma-jalma anu teu ngahargaan tur ngaharé-harékeun kana salat jeung waktuna.
-
 ## 107:6
 
 nu migawé riya, [^963]
 
-[^963]: Riya nyaéta milampah kahadéan lain pikeun néangan karidoan Allah, tapi pikeun néangan pangaleman atawa katénaran di masyarakat.
-
 ## 107:7
 
 sarta teu tulung-tinulung (méré) ku barang nu mangpaat. [^964]
-
-[^964]: Sawaréh ahli tapsir ngartikeun “embung mayar jakat”.
 
 ## 108:1
 
@@ -26806,8 +24875,6 @@ Prak (maca) tasbéh kalayan muji Pangéran hidep sarta ménta hampura ka Mantenn
 ## 111:1
 
 Cilaka dua leungeun Abu Lahab. Manéhna bener-bener cilaka. [^965]
-
-[^965]: Anu dimaksud “dua leungeun Abu Lahab” téh nyaéta Abu Lahab sorangan.
 
 ## 111:2
 
@@ -26884,3 +24951,1936 @@ anu sok ngaharéwoskeun (kajahatan) kana jero dada manusa,
 ## 114:6
 
 ti (golongan) jin jeung manusa.”
+
+[^1]: Yaumid-dīn (dinten wawales), poé nalika manusa narima wawales amalna, alus atawa goréng. Disebut ogé yaumul qiyāmah, yaumul ḥisāb, jeung sajabana.
+
+[^2]: Jalan anu lempeng nyaéta jalan hirup anu bener, anu ngadatangkeun kabagjaan di dunya tur di ahérat.
+
+[^3]: Jalma-jalma anu dibenduan (ku Gusti) nyaéta anu ngahaja nolak ajaran Islam. Jalma-jalma anu sasar nyaéta anu ngahaja nyokot jalan séjén salain ajaran Islam.
+
+[^4]: Sababaraha surat dina Al-Qur’an dibuka ku hurup abjad saperti Alif Lām Mīm, Alif Lām Rā, jeung sajabana. Makna éta hurup-hurup téh mung Allah anu uninga. Aya anu boga pamadegan yén éta hurup-hurup téh nyaéta ngaran surat; Aya ogé anu boga pamadegan yén éta hurup-hurup téh gunana keur narik perhatian, atawa keur ngaisaratkeun yén Al-Qur’an téh diturunkeun dina basa Arab anu disusun tina hurup-hurup abjad nu kasebut tadi.
+
+[^5]: Takwa nyaéta ngalaksanakeun sagala peréntah Allah jeung ngajauhan sagala larangana-Na.
+
+[^6]: Kaasup “ngainpakkeun harta di jalan Allah” nyaéta ngabalanjakeun harta pikeun kapentingan jihad, pangwangunan masjid, rumah sakit, upaya panaluntikan ilmiah, jeung sajabana.
+
+[^7]: Anu diturunkeun ka nabi-nabi seméméh Nabi Muhammad Saw. nyaéta Torét, Jabur, Injil, jeung Suhuf-suhuf (lembaran-lembaran) anu henteu saperti Kitab.
+
+[^8]: Kapir/nu kupur nyaéta jalma nu teu percaya ka Allah, rasul-rasul-Na, malaikat-malaikat-Na, kitab-kitab-Na, sarta Poé Kiamat.
+
+[^9]: Ku lantaran kitu, naséhat atawa pituduh moal bisa asup ka jero haté maranéhna.
+
+[^10]: Kasakit haté téh contona mangmang sarta teu yakin kana bebeneran, munapék, jeung teu boga iman.
+
+[^11]: Ngarémpang ajén-ajén anu ditetepkeun agama bakal ngakibatkeun ieu alam ruksak malah ancur.
+
+[^12]: Éta jalma téh kasasar ku lantaran ingkar sarta embung nurut kana pituduh-pituduh Allah. Dina ieu ayat dijelaskeun: Ku lantaran éta jalma ingkar kana naon sababna Allah ngajantenkeun rambetuk minangka paupamaan, mangka éta jalma téh barobah jadi kasasar.
+
+[^13]: Jalma pasék nyaéta anu ngarempak katangtuan-katangtuan agama, boh mangrupa omongan boh mangrupa pagawéan.
+
+[^14]: Kalipah téh ngandung arti pangganti, pamingpin, tur pangawasa.
+
+[^15]: Iblis téh kaasup kelompok jin sarta kaasup anu diperéntah pikeun sujud.
+
+[^16]: Ceuk Iblis, saha anu ngadahar buah éta tangkal bakal abadi salilana aya di jero sawarga.
+
+[^17]: Dolim hartina kaniaya. Jalma anu dolim nyaéta anu ngalakukeun paggawéan kaniaya, anu ngarugikeun ka dirina sorangan atawa batur.
+
+[^18]: Kecap “kalimah” nurutkeun sawaréh ahli tapsir nyaéta omongan pikeun ménta pangampura (tobat).
+
+[^19]: Nabi Adam a.s. sarta Hawa nuang buah tangkal anu dicegah téa, anu ngabalukarkeun aranjeunna diusir ku Allah ti sawarga sarta diturunkeun ka dunya.
+
+[^20]: Israél nyaéta sebutan pikeun Nabi Yaqub a.s. Bani Israél nyaéta turunan anjeunna. Ayeuna dipikawanoh ku ngaran bangsa Yahudi.
+
+[^21]: Ti antara jangji Bani Israél ka Allah nyaéta ngan nyembah ka Mantenna, henteu ngayakeun tandingan kanggo Mantenna, sarta iman ka Nabi Muhammad Saw. sakumaha anu kasebut di jero Torét.
+
+[^22]: Batil hartina kesalahan, kejahatan, kemungkaran, jeung sajabana.
+
+[^23]: Sapa’at téh nyaéta pitulung nu dibikeun ku rasul atawa jalma-jalma nu tinangtu pikeun ngahampangkeun siksa atawa tanggungan hiji jalma di ahérat, tangtuna kalayan widi Allah.
+
+[^24]: Fir’aun nyaéta gelar pikeun raja-raja Mesir di mangsa-mangsa nu geus kaliwat. Nurutkeun babad, Fir’aun di jaman Nabi Musa a.s. ngaranna Menephthan (1232-1224 SM) anakna Ramses.
+
+[^25]: Hiji témpo mangsa nu dijangjikeun ku Allah pikeun narima pitunjuk (Torét); tapi umat Nabi Musa a.s. teu sabar nungguanana. Ku kituna, maranéhna nyembah patung anak sapi nu dijieun ku Samiri.
+
+[^26]: Nu dimaksud Kitab téh nyaéta Torét, sedengkeun nu dimaksud Furqān téh nyaéta katerangan-katerangan séjén pikeun ngabédakeun nu bener ti nu salah.
+
+[^27]: ”Ngabunuh diri anjeun” aya nu ngartikeun jalma-jalma nu teu nyembah kana patung anak sapi maéhan jalma nu nyembah kana éta patung. Aya ogé nu ngartikeun yén jalma nu nyembah patung anak sapi silih paéhan. Aya ogé nu ngartikeun maranéhna dititah maéhan diri maranéhna séwang-séwang dina ngalaksanakeun tobat.
+
+[^28]: Mannā téh sarupa madu, sedengkeun Salwā sarupa jeung manuk puyuh.
+
+[^29]: Sakabéhna aya12 rombongan ti Bani Israél, sakumaha disebutkeun dina surat Al-A‘rāf/7:160.
+
+[^30]: Sabi\`in téh umat saméméh umat Nabi Muhammad Saw. anu nyahoeun ayana Pangéran Anu Mahatunggal, sarta percaya kana pangaruh béntang-béntang.
+
+[^31]: Poé Sabat nyaéta dinten Saptu, poé husus pikeun ngalaksanakan ibadah jeur urang Yahudi.
+
+[^32]: Monyét: Bener-bener barobah kaayaan jadi monyét minangka kutukan ti Allah. Sabagian ahli tapsir ngartikeun “ngabogaan sipat-sipat saperti monyét.”
+
+[^33]: Anu dimaksud nyaéta jalma-urang Yahudi di Madinah anu ngarobah-robah eusi Torét, utamana ngeunaan Nabi Muhammad Saw.
+
+[^34]: Di jero Torét dijelaskeun ngeunaan Nabi Muhammad Saw. anu badé sumping minangka nabi pamungkas, tapi éta katerangan téh disumputkeun ku urang Yahudi, sabab rémpan bakal jadi bumérang pikeun maranéhna.
+
+[^35]: Sakabéh jangji sarta sumpah anu diucapkeun ku Bani Israél sakumaha disebut dina ayat 83 jeung 84 di luhur dirempak. Ieu téh kanyataan sajarah antara dua suku Yahudi di Madinah, nyaéta Bani Quraézah sarta Bani Nadir sok perang. Tapi lamun aya urang Yahudi di antara kadua suku éta kaboyong ku suku séjén, contona ku suku Aus sakutuna Bani Quraézah, atawa suku Khazraj sakutuna Bani Nadir, maranéhna ngahiji pikeun nebusna.
+
+[^36]: Al-Qur’an ogé ngajarkeun taohid anu diajarkeun Torét.
+
+[^37]: Wahyu (kanabian) ka Nabi Muhammad Saw.
+
+[^38]: Bebendon kahiji ku sabab maranéhna mantangul ka Nabi Musa a.s. Bebendon kadua ku sabab maranéhna ingkar ka Nabi Muhammad Saw.
+
+[^39]: Musrik nyaéta jalma anu nyarékatkeun Allah jeung anu lian-Na.
+
+[^40]: Rāinā hartina “perhatoskeun abdi sadaya!” Tapi urang Yahudi waktu ngedalkeunana bari monyongkeun biwirna, nepi ka anu dipimaksud ku maranéhna nyaéta “ru‘ūnah” anu hartina “kalintang beletna”, minangka poyokan ka Rasulullah. Éta pisan sababna kunaon Allah miwarang para sahabat pikeun nukeur kecap “rāinā” ku kecap“unẓurnā” anu hartina sarua jeung “rāinā.”
+
+[^41]: Urang Yahudi ngomong yén maranéhana baé anu bakal asup sawarga téh. Urang Nasrani ogé ngomong yén maranéhna baé anu bakal asup sawarga téh.
+
+[^42]: Nyaéta tempat Nabi Ibrahim a.s. ngadeg waktu ngawangun Ka’bah.
+
+[^43]: Sibgah Allah maksudna agama Mantenna.
+
+[^44]: Nyaéta kasaksian Allah anu kasebut dina Torét sarta Injil, yén Nabi Ibrahim a.s. sarta anak incuna lain pangagem agama Yahudi atawa Nasrani, sarta yén Allah badé ngutus Nabi Muhammad Saw.
+
+[^45]: Umat anu adil anu teu beurat sabeulah, boh ka dunya atawa ka ahérat, tapi saimbang di antara duanana.
+
+[^46]: Nyahoeun kana kanabian Muhammad Saw. sarta sipat-sipatna sakumaha anu kasebut dina Torét jeung Injil.
+
+[^47]: Kami ngalimpahkeun rahmat jeung pangampura ka aranjeun.
+
+[^48]: Hirup dina alam séjén anu béda jeung alam urang ieu. Di dinya aranjeunna meunang kani’matan-kani’matan ti mungguhing Allah. Mung Allah anu uninga kumaha kaayaan kahirupan di éta alam.
+
+[^49]: Ieu kalimah dingaranan “kalimah istirjā'” (ujaran nandakeun balik ka Allah). Disunnahkeun ngucapkeunana dina wanci ditimpa musibah, boh gedé boh leutik.
+
+[^50]: Tempat-tempat ibadah ka Allah.
+
+[^51]: Leumpang jeung lulumpatan tujuh kali antara Sofa jeung Marwah waktu ngalaksanakeun ibadah haji atawa umroh. Allah ngungkabkeun kalayan dawuhan “teu aya dosa” sabab sabagian sahabat Nabi ngarasa beurat ngalaksanakeun sa‘i di dinya, sabab éta tempat téh urut tempatna berhala. Ogé dina mangsa Jahiliah éta tempat téh dipaké tempat sa‘i. Pikeun ngaleungitkeun éta rasa beurat, Allah ngalungsurkeun ieu ayat.
+
+[^52]: Allah nyukurkeun ka hamba-hamba-Na, maparin ganjaran kana amal alusna, ngahampura kana kasalahanana, nambahan kana ni’matna, jeung sajabana.
+
+[^53]: Hartina ngalakukeun pagawéan-pagawéan alus pikeun ngaleungitkeun akibat-akibat anu goréng lantaran kasalahan-kasalahan anu geus dipigawé, sarta ngajelaskeun bebeneran anu disumputkeun.
+
+[^54]: Jalma anu dolim dina ieu ayat maksudna anu nyembah salian ti Allah. Maksud ieu ayat: Nalika éta jalma anu dolim nempo sesembahanana henteu méré mangpaat saeutik ogé dina Poé Kiamat, maranéhna tangtu ngayakinan yén sakabéh kakuatan téh ngan wungkul kagungan Allah.
+
+[^55]: Barang anu didahar asalna tina meunang ngajual ayat-ayat anu diturunkeun ku Allah. Éta téh nyebabkeun maranéhna asup naraka.
+
+[^56]: Qisos téh nyaéta hukuman anu sapadan jeung kajahatan anu dipigawé.
+
+[^57]: Wasiat teu meunang ngaleuwihan sapertilu harta jalma anu méré wasiat. Ieu ayat, hususna pikeun ahli waris, di-nasakh (digantian hukumna) ku ayat ngeunaan waris (an-Nisā’/4:11).
+
+[^58]: Maksud ngarukunkeun di dieu nyaéta nitah jalma anu méré wasiat adil dina wasiatna luyu jeung katangtuan agama. Kaasup kana maksud ieu ayat nyaéta ngarobah eusi wasiat lamun ngarempak kana katangtuan.
+
+[^59]: Nyaéta jalma anu gering parna, jalma anu kolot pisan, tur jalma anu keur kakandungan atawa nyusuan budak.
+
+[^60]: Méré dahareun ka leuwih ti saurang jalma miskin keur sahiji poé.
+
+[^61]: Maksudna: Dihalalkeunana pasatemon dina peutingna bulan Romadon. Maksud “naon nu geus ditetepkeun ku Allah” nyaéta katurunan anu geus ditangtukeun ku Allah.
+
+[^62]: I\`tikap nyaéta aya di masjid kalayan niat ibadah sarta ngadeukeutkeun diri ka Allah.
+
+[^63]: Dina mangsa jahiliah, jalma anu keur ihrom dina waktu haji asup ka imahna tina luhurna, lain tina pantona. Kabiasaan ieu ditaroskeun ku para sahabat ka Rasulullah Saw. Ku kituna, mangka turun ieu ayat.
+
+[^64]: Pitnah (ngabalukarkeun bancang pakéwuh) saperti ngusir dulur ti lemburna, ngajabel harta, sarta nganyenyeri atawa ngaganggu kabébasan hiji jalma dina ngajalankeun agamana.
+
+[^65]: Lamun umat Islam diserang dina bulan haram, anu sabenerna di éta bulan téh teu meunang perang, mangka meunang males éta serangan dina éta bulan ogé.
+
+[^66]: Maksud antara lain nyaéta bulan haram (Julkaidah, Julhijah, Muharam, sarta Rajab), tanah haram (Mekah), jeung ihrom.
+
+[^67]: Hadyu nyaéta sato anu dipeuncit minangka gantina (dam) pagawéan wajib haji anu ditinggalkan; atawa minangka denda sabab ngarempak perkara-perkara anu dicegah migawéna di jero ngalaksanakeun ibadah haji.
+
+[^68]: Nyaéta bulan Syawal, Julkaidah, jeung Julhijah.
+
+[^69]: Jorok (rafaṡ) hartina ngaluarkan omongan anu nimbulkeun birahi, ngalakukan pagawéan anu teu pantes, atawa ngalakukeun hubungan séksual.
+
+[^70]: Kabiasaan jalma-jalma Arab Jahiliah sanggeusna ngalaksanakeun haji téh nyaéta ngagungkeun karuhun-karuhunna. Sanggeus ieu ayat diturunkeun, kabiasaan nu tadi diganti ku dikir ka Allah.
+
+[^71]: Maksud dikir di dieu nyaéta maca takbir, tasbih, tahmid, sarta sajabana. “Sababaraha poé anu ditantukeun jumlahna” nyaéta tilu poé sanggeusna lebaran haji, nyaéta ping 11,12 sarta 13 bulan Julhijah, dingaranan ogé poé tasrék.
+
+[^72]: Pitnah di dieu hartina pagawéan aniaya sarta sagala rupa pagawéan anu dimaksudkeun pikeun nindes Islam sarta kaom muslimin.
+
+[^73]: Segala inuman anu ngamabokkeun.
+
+[^74]: Teu meunang pasatemon/campur jeung istri dina waktu héd.
+
+[^75]: Anu dimaksud suci di dieu téh nyaéta sanggeusna mandi wajib sarengséna héd. Aya deui anu napsirkeun sanggeusna getih héd eureun kaluarna.
+
+[^76]: Teu meunang sumpah kalayan ngagunakeun Asma Allah keur tujuan nahan migawé anu hadé, saperti “Demi Allah, abdi moal ngabantuan anak yatim.” Tapi, lamun éta sumpah geus tanggung kaucapkeun, mangka kudu dirempak ku cara mayar kiparat.
+
+[^77]: Anu dimaksud “Santun” téh nyaéta henteu gura-giru nyiksa jalma anu migawé kasalahan.
+
+[^78]: Nga-ila istri maksudna sumpah moal nyampur jeung istri. Ku sumpah ieu, istri katalangsara sabab teu dicampur, henteu ogé diserahkeun. Ku turunna ieu ayat, mangka salaki sanggeusna opat bolan tina ngedalkeun sumpah kudu milih antara pasatemon deui jeung pamajikanana kalayan mayar kiparat sumpah, atawa nyerahkeun pamajikanana.
+
+[^79]: Qurū' jama tina kecap qar' anu hartina suci atawa héd.
+
+[^80]: Sabab salaki, di antarana, ngabogaan tanggung jawab kana kasalametan sarta karaharjaan rumah tangga (an-Nisā’/4:34).
+
+[^81]: Ieu ayat jadi dasar hukum ngeunaan khulu' sarta panarimaan ‘iwaḍ (tebusan). Khulu' téh hak pamajikan pikeun pisah ti salakina kalayan mayar ‘iwaḍ ngaliwatan pangadilan.
+
+[^82]: Idah téh mangsa nungguan (teu meunang kawin deui) pikeun awéwé ku sabab pepegatan atawa ditinggal maot salakina.
+
+[^83]: Kawin deui jeung urut salakina atawa jeung lalaki anu séjén.
+
+[^84]: Saperti ngahias diri, indit-inditan, atawa narima lamaran.
+
+[^85]: Awéwé anu meunang dilamar ku cara sindiran nyaéta awéwé anu aya dina jero idah ku sabab ditinggal maot salakina, atawa ku sabab talak bā’in, sedengkeun awéwé anu aya dina jero idah talak raj‘i teu meunang dilamar sanaja ku cara sindiran.
+
+[^86]: Ucapan sindiran anu hadé.
+
+[^87]: Nyaéta paméré salaki ka pamajikan anu dipasrahkeun minangka panglilipur haté. Éta téh di luar napakah anu luyu jeung kamampuhanana.
+
+[^88]: Salaki atawa wali. Lamun walina anu ngabébaskeun, mangka salaki dibébaskeun tina kawajiban mayar separoh maskawin. Tapi lamun salakina anu ngabébaskeun, mangka manéhna kudu mayar sakabéh jumlah maskawin anu geus ditangtukeun.
+
+[^89]: Salat wusto nurutkeun hadis anu sohih mah nyaéta salat Asar.
+
+[^90]: Nyaéta Bani Israél anu kaluar ti nagarana ku lantaran katibanan paceklik.
+
+[^91]: Maksud méré injeuman ka Allah téh nyaéta ngainpakkeun harta di jalan Mantenna.
+
+[^92]: Maksudna, maranéhna diusir bari anak-incuna diboyong.
+
+[^93]: Tabut nyaéta hiji peti tempat nyimpen Torét.
+
+[^94]: Mungguhing sabagian ahli tapsir, anu dimaksud Rohulkudus téh nyaéta Malaikat Jibril.
+
+[^95]: Ku sabagian ahli tapsir, kursi dihartikeun élmu Allah. Aya deui anu ngartikeun kakawasaana-Na, sarta aya ogé anu ngartikeun séjén. Tingal ogé catetan kaki surat al-A\`raf/7:54.
+
+[^96]: Tāgūt nyaéta sétan sarta naon baé anu disembah salian ti Allah Swt.
+
+[^97]: Nurutkeun hiji riwayat, nu dimaksud téh nyaéta Namrud, raja Babilonia.
+
+[^98]: Nu dimaksud “ngahirupkeun” ku manéhna nyaéta ngantep hirup, jeung anu dimaksudkeun “ngamaotan” téh nyaéta maéhan. Caritaan kitu téh ditujukeun ku éta jalma kapir pikeun ngahina Nabi Ibrahim a.s.
+
+[^99]: Omongan anu hadé téh maksudna nampik ku cara anu hadé, sedengkeun méré hampura maksudna téh ngahampura kana paripolah anu kurang sopan ti jalma anu ménta-ménta.
+
+[^100]: Ieu téh paupamaan jalma anu ngainpakkeun hartana bari jeung riya, ngabangga-banggakeun pangbéréna ka batur, sarta nganyenyeri haté jalma anu dibéré.
+
+[^101]: “Hikmah” di dieu maksudna téh pangabisa pikeun mahaman rasiah-rasiah saréat agama.
+
+[^102]: Jangji ngalakukeun hiji kahadéan ka Allah Swt. geusan ngaraketkeun diri ka Mantenna, boh kalayan sarat atawa henteu.
+
+[^103]: Némbongkeun sidekah kalayan tujuan supaya diconto batur, lain pikeun riya.
+
+[^104]: Jalma anu nyokot riba henteu aman jiwana saperti jalma kaasupan sétan.
+
+[^105]: Riba anu geus dicokot saméméh turun ieu ayat meunang teu dibalikkeun deui.
+
+[^106]: Ngamusnahkeun riba hartina ngamusnahkeun éta harta atawa ngeuweuhkeun berkahna. Nyuburkeun sidekah hartina ngembangkeun harta anu geus dikaluarkeun sidekahna atawa ngalipat-lipat berkahna.
+
+[^107]: Jalma-jalma anu ngahalalkeun riba sarta angger ngalakonana.
+
+[^108]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^109]: Allah ngatur langit jeung bumi sarta eusina.
+
+[^110]: Al-Furqān (Al-Qur’an) nyaéta Kitab anu ngabédakeun antara anu bener jeung nu salah.
+
+[^111]: Ayat-ayat anu jelas sarta teges maksudna, bisa dipahaman kalayan gampang.
+
+[^112]: Ayat-ayat anu ngandung sababaraha maksud, susah dipahaman, atawa mung Allah nyalira anu uninga.
+
+[^113]: Silih adu hareupan antara ѐta dua golongan tѐh nyaѐta antara kaom muslimin jeung kaom musrikin, lumangsung dina Perang Badar. Badar nyaѐta ngaran hiji tempat anu aya beulah kiduleun Madinah.
+
+[^114]: Sato-sato mangrupa unta, sapi, embѐ, sarta domba.
+
+[^115]: Nyaѐta kitab-kitab anu diturunkeun samѐmѐh Al-Qur’an.
+
+[^116]: Ummi hartina jalmi anu teu nyaho kana maca-nulis. Nurutkeun sabagian ahli tapsir, anu dimaksud ummi tѐh nyaѐta jalma musrik Arab anu henteu nyaho kana maca-nulis. Nurutkeun sabagian anu sѐjѐnna nyaѐta jalma-jalma anu teu dibѐrѐ Kitab Suci.
+
+[^117]: Sabagian ahli tapsir méré conto nalika ngaguar ieu ayat, nyaéta ngaluarkan anak hayam tina endog, sarta endog tina hayam.
+
+[^118]: Waly hartina pamingpin, batur dalit, anu nulungan, atawa anu nangtayungan.
+
+[^119]: Ku diangkatna para nabi ti turunan aranjeunna.
+
+[^120]: Mihrob téh kamar husus keur ibadah.
+
+[^121]: Ngaenyakeun kadatangan saurang nabi anu diciptakeun kalayan dawuhan “kun” (geura jadi!) tanpa bapa, nyaéta Nabi Isa a.s.
+
+[^122]: Aya sabagian ahli tapsir anu ngartikeun “jamparing.” Hartina, undian éta dipigawé ku cara ngabalangkeun jamparing.
+
+[^123]: Kitab di dieu aya anu napsirkeun “pangajaran nulis.” Aya deui anu napsirkeun “kitab-kitab anu dilungsurkeun ku Allah samѐmѐhna Nabi Isa salain Torét jeung Injil”.
+
+[^124]: Mubāhalah tѐh masing-masing pihak ti antara jalma-jalma anu bѐda pamadegan ngadoa ka Allah kalayan soson-soson sangkan Mantenna nibankeun la’nat ka pihak anu ngabohong. Nabi ngajak utusan Nasrani Najran mubāhalah, tapi maranѐhna teu wanieun. Ku kituna, ieu tѐh jadi bukti bebeneran Nabi Muhammad Saw.
+
+[^125]: Boh Yahudi boh Nasrani ngaku yѐn Nabi Ibrahim a.s. tѐh ti golongan maranѐhna. Lajeng Allah ngabantah maranѐhna kalayan alesan yѐn anjeunna datang samѐmѐh maranѐhna.
+
+[^126]: Nyaѐta ngeunaan Nabi Musa a.s., Nabi Isa a.s., sarta Nabi Muhammad Saw.
+
+[^127]: Nyaѐta ngeunaan Nabi Ibrahim a.s.
+
+[^128]: Lempeng hartina jauh tina sirik (nyarékatkeun Allah) sarta jauh tina kasasaran.
+
+[^129]: Ayat-ayat Allah anu diturunkeun ka Nabi Muhammad Saw.
+
+[^130]: Nutupan dawuh-dawuh Allah anu aya dina Torét sarta Injil kalayan ucapan-ucapan anu dijieun-jieun ku maranѐhna (Ahli Kitab) sorangan.
+
+[^131]: Bebeneran ngeunaan kanabian Muhammad Saw. anu kasebut dina Torét sarta Injil.
+
+[^132]: Maksudna percaya ka jalma anu saagama jeung manéhna (nyaéta Yahudi/Nasrani) sangkan maranѐhna teu jadi asup Islam, atawa percaya ka jalma Islam anu asalna ti agama manéhna sangkan oyag imanna sarta balik deui kana kekapiran.
+
+[^133]: Para nabi jangji ka Allah Swt. yén saupama sumping rasul anu namina Muhammad, aranjeunna badé iman sarta nulungan ka anjeunna. Jangji-pasini nabi-nabi ieu ngabeungkeut ogé para umatna.
+
+[^134]: Sanggeus Torét diturunkeun, aya sababaraha inuman anu diharamkeun ka Bani Israél minangka hukuman. Ngaran-ngaran ѐta inuman disebut di jerona. Tingal an-Nisā'/4: 160 sarta al-An\`ām/6:46.
+
+[^135]: Nyaéta daging sapi.
+
+[^136]: Bohong ka Allah tѐh kalayan ngomong yѐn samѐmѐh Torét diturunkeun, Allah tos ngaharamkeun sababaraha inuman ka Bani Israél.
+
+[^137]: Ahli Kitab ngomong yѐn imah geusan tempat ibadah anu kahiji diadegkeun tѐh aya di Baitulmaqdis, ku sabab ѐta Allah ngabantah kana ѐta omongan.
+
+[^138]: Tingal al-Baqarah/2:125.
+
+[^139]: Nyaѐta jalma anu boga bebekelan sarta pakakas-pakakas angkutan tur sѐhat jasmani. Di jalanna ogѐ aman sarta kulawarga anu ditinggalkeun dijamin kahirupanana.
+
+[^140]: Nyaksian, maksudna nyaho yѐn agama anu diridoi ku Allah tѐh wungkul Islam.
+
+[^141]: Ma’rup tѐh sagala pagawѐan anu matak ngaraketkeun diri ka Allah, sedengkeun mungkar tѐh sagala pagawѐan anu ngajauhkeun diri ti Allah.
+
+[^142]: Golongan Ahli Kitab anu geus nganut agama Islam.
+
+[^143]: Kajadian ieu lumangsung dina Perang Uhud anu nurutkeun ahli sajarah lumangsung dina tahun ka-3 H.
+
+[^144]: Nyaѐta Bani Salamah ti suku Khazraj sarta Bani Harisah ti suku Aus. Duanana ti jajaran kaom muslimin.
+
+[^145]: Kaayaan kaom muslimin lemah ku sabab aranjeunna saeutik sarta perlengkapanana kurang.
+
+[^146]: Nyaѐta dipaѐhanana tujuh puluh pamingpin maranѐhna sarta diboyongna tujuh puluh jalma lianna.
+
+[^147]: Nurutkeun riwayat Bukhari (ngeunaan turunna ieu ayat) nyaѐta margi Nabi Muhammad Saw. Ngadoa ka Allah supados nyalametkeun sabagian pamingpin musrikin sarta ngabinasakan sabagian lianna.
+
+[^148]: Anu dimaksud riba di dieu nyaéta riba nasi'ah. Nurutkeun kalolobaan ulama, riba nasi’ah tѐh salilana haram sanajan teu ngalipet-lipet.
+
+[^149]: Anu dimaksud kalakuan anu goréng (fāhisyah) nyaéta kasalahan gedé anu balukarna henteu ukur tumiba ka diri sorangan, tapi ogé ka batur, saperti jinah jeung riba. Dolim ka diri sorangan nyaéta ngalakukeun kasalahan anu balukarna ngan tumiba ka dirina sorangan, boh gedé boh leutik.
+
+[^150]: Anu dimaksud “sunnah Allah” di dieu téh nyaѐta katangtuan-katangtuan Allah mangrupa kacilakaan jeung musibah anu ditimpakeun ka jalma-jalma anu ngabohongkeun ka rasul.
+
+[^151]: Jihad ngandung harti: a). Perang pikeun ngadegkeun Islam sarta nangtayungan jalma Islam; b). Merangan hawa napsu; c). Ngainpakkeun harta banda pikeun kaalusan Islam sarta umat Islam; d). Numpes kajahatan sarta ngadegkeun bebeneran.
+
+[^152]: Nabi Muhammad Saw. tѐh jalmi anu diangkat ku Allah janten rasul. Rasul-rasul sateuacana atos wapat margi ditelasan atawa udur/teu damang. Nabi Muhammad ogѐ pasti wapat saperti rasul-rasul anu ti heula. Dina waktu Perang Uhud lumangsung, nyebar bѐja yѐn Nabi Muhammad wapat ditelasan. Ieu béja nyebakeun kaom muslimin tagiwur, nepi ka aya ti antara kaom muslimin anu boga maksud mѐnta panangtayungan ka Abu Sufyan (pamingpin kaom Qurés). Samentara ѐta, aya jalma munapѐk ngomong yѐn lamun Muhammad bener saurang nabi, tinangtu moal maot bisa ditelasan. Mangka, Allah nurunkeun ieu ayat pikeun nengtremkeun hatѐ kaom muslimin sarta ngabantah kana omongan-omongan jalma munapѐk tѐa (Saḥīḥ al-Bukhārī bab “Jihad”). Abu Bakar r.a. maca ieu ayat dina poѐan wapatna Nabi Muhammad pikeun nengtremkeun Umar Ibnul Khattab r.a. katut sahabat-sahabat sѐjѐnna anu teu percaya kana wapatna Nabi. (Saḥīḥ al-Bukhārī bab “Katakwaan Sahabat”).
+
+[^153]: Maksudna: Ngaleuleuwihi hukum anu geus ditetepkeun ku Allah Swt.
+
+[^154]: Ganjaran dunya bisa mangrupa kaunggulanh perang, meunang harta rampasan, dipuji-dipuji, sarta anu sѐjѐnna.
+
+[^155]: Nyaѐta urusan ngajalankeun parѐntah Nabi Muhammad Saw. supaya pasukan panah tetep panceg di tempat anu geus ditunjukkeun, dina kaayaan kumaha ogѐ.
+
+[^156]: Yakni kaunggulan perang jeung harta rampasan.
+
+[^157]: Kaom muslimin henteu junun ngéléhkeun kaom musrikin.
+
+[^158]: Kasedih kaom muslimin jalaran henteu taat kana paréntah Rasul anu ngabalukarkeun éléh perang.
+
+[^159]: Jalma-jalma Islam anu kuat kayakinana.
+
+[^160]: Jalma-jalma Islam anu mangmang kѐnѐh.
+
+[^161]: Nyaѐta sangkaan yѐn lamun Nabi Muhammad Saw. bener-bener saurang nabi tur rasul Allah, tangtu moal bisa diѐlѐhkeun dina peperangan.
+
+[^162]: Nyaѐta pasukan kaom muslimin jeung pasukan kaom musrikin dina Perang Uhud.
+
+[^163]: Maot dina jalan Allah lain karana perang.
+
+[^164]: Urusan peperangan sarta urusan-urusan dunya lianna saperti urusan pulitik, ekonomi, kamasarakatan, jeung lian-lianna.
+
+[^165]: Ieu ucapan ditujukeun ka Nabi tur sahabat-sahabatna minangka poyokan, sabab maranéhna nganggap Nabi henteu terang strategi perang margi ngalaksanakeun perang sabot jumlah kaom muslimin saeutik. Ieu omongan dipaké ogé ku jalma-jalma munapék pikeun nolak cawadan anu ditujukeun ka maranéhna.
+
+[^166]: Hirup di alam anu séjén lain alam urang ieu. Aranjeunna meunang sagala rupa ni’mat di mungguhing Allah. Mung Allah nyalira anu uninga kumaha kaayaan hirup di alam anu séjén téh.
+
+[^167]: Batur-baturna anu hirup kénéh sarta terus-terusan jihad dina jalan Allah.
+
+[^168]: Jalma-jalma kapir Mekah atawa jalma-jalma munapѐk anu sok ngaganggu agama Islam.
+
+[^169]: Ku manjangkeun umur maranѐhana sarta ngantep migawѐ kasalahan sesuka hatѐna.
+
+[^170]: Kaayaan kaom muslimin nyampur jeung kaom munapikin.
+
+[^171]: Ti antara rasul-rasul, Nabi Muhammad Saw. dipilih ku Allah kalayan masihkeun kaistimѐwaan mangrupa kauninga maca eusi hatѐ jalma. Ku sabab kitu, anjeunna uninga saha ti antara sahabat-sahabatna anu bener-bener iman tur saha deui anu munapѐk atawa kapir.
+
+[^172]: Jabur nyaѐta lambaran-lambaran anu eusina wahyu anu dibikeun ka nabi-nabi sateuacan Nabi Muhammad Saw. anu eusina ngandung hikmah-hikmah.
+
+[^173]: Kitab-kitab anu diturunkeun ka nabi-nabi anu eusina hukum sarѐ’at saperti Torét, Injil, sarta Jabur.
+
+[^174]: Ti antara katerangan anu disumputkeun téh nyaéta ngeunaan kasumpingan Nabi Muhammad Saw.
+
+[^175]: Maksudna: Lalaki asalna ti lalaki-lalaki jeung awéwé, kitu deui awéwé asalna ti lalaki-lalaki jeung awéwé. Dua-duana sarua jalmana, teu aya leuwih anu hiji tinu séjénna ngeunaan pameunteun iman tur amalna.
+
+[^176]: Nurutkeun kabiasaan urang Arab, lamun nanyakeun hiji hal atawa ménta ka batur, maranéhna ngedalkeun jenengan Allah saperti as'aluka billāh, hartina kuring nanya atawa ménta ka anjeun kalayan jenengan Allah.
+
+[^177]: Adil di dieu maksudna adil dina nyumponan kaperluan istri saperti baju, tempat, giliran, sarta anu lianna anu sipatna lahiriah jeung batiniah.
+
+[^178]: Islam ngameunangkeun ngawayuh kalayan sarat-sarat nu geus ditangtukeun. Saméméh turun ieu ayat, tradisi ngawayuh geus aya tur kungsi dijalankeun ku para nabi sateuacan Nabi Muhammad Saw. Ieu ayat ngabatesan ngawayuh nung dugi ka opat jalmi baé.
+
+[^179]: Hamba sahaya tur perbudakan dina harti ieu, dina wanci ayeuna mah tos teu aya.
+
+[^180]: Paméréan anu dimaksud nyaéta maskawin anu gedé leutikna ditetepkeun kalayan kasaluyuan kadua pihak, sabab éta paméré téh kudu dipasrahkeun kalayan ihlas.
+
+[^181]: Jalma anu can sampurna akalna nyaéta budak yatim anu can balég (sawawa) atawa jalma sawawa anu teu bisaeun ngatur harta bendana.
+
+[^182]: Ngayakeun panaluntikan ka maranéhna ngeunaan kaagamaan, lampah, sarta lian-lianna nepi ka dipikanyaho yén éta budak téh bisa dipercaya.
+
+[^183]: Kulawarga anu teu boga hak waris tina harta pusaka/waris.
+
+[^184]: Paméréan anu teu meunang ngaleuwihan tina sapertilu harta pusaka/waris.
+
+[^185]: Bagian salaki dua kali bagian awéwé, sabab kawajiban salaki leuwih beurat tinimbang awéwé, saperti kawajiban mayar maskawin sarta méré napakah (tingal al-Nisā'/4:34).
+
+[^186]: Nyusahkeun ka ahli waris maksudna ku tindakan-tindakan saperti : (a). ngawasiatkeun ngaleuwihan tina sapertilu harta warisan. (b). ngawasiat kalayan maksud ngurangan harta warisan. Sanajan kurang tina sapertilu, lamun aya niat ngurangan hak waris mah tetep teu meunang.
+
+[^187]: Nurutkeun kalolobaan ahli tapsir, anu dimaksud téh nyaéta jinah, sedengkeun nurutkeun pamadegan anu sѐjѐnna nyaѐta sakur pagawѐan mesum saperti jinah, homosѐks, sarta anu sarupana. Nurutkeun pamadegan Muslim jeung Mujahid nyaѐta musaḥāqah (lѐsbian).
+
+[^188]: Nurutkeun kalolobaan ahli tapsir, jalan anu sѐjѐn téh maksudnya ku turunna al-Nūr/24:2 ngeunaan hukum dera.
+
+[^189]: Ieu ayat teu ngandung harti yѐn ngawariskeun awѐwѐ henteu kalayan jalan paksa dimeunangkun. Nurutkeun sabagian adat Arab Jahiliah, lamun hiji jalma maot, mangka anakna anu pangkolotna atawa anggota kulawargana anu sѐjѐn ngawaris ѐta rangda. Ѐta rangda meunang dikawin ku anakna atawa dikawinkeun ka batur anu maskawinna dicokot ku nu ngawaris, atawa dicegah kawin deui.
+
+[^190]: Maksud indung dina mimiti ieu ayat nyaéta indung, nini, tur saterusna ka luhur; Anu dimaksud anak-anak awѐwѐ nyaѐta anak awѐwѐ, incu awѐwѐ, tur saterusna ka handap, kitu ogѐ anu lian-lianna; Anu dimaksud “anak-anak pamajikan anjeun anu aya dina pangasuhan aranjeun” nurutkeun kalolobaan ulama kaasup ogѐ budak kawalon anu henteu aya dina pangasuhan aranjeun.
+
+[^191]: Awéwé-awéwé tawanan perang anu dipibanda bari salakina teu bareng jadi tawanan perang. Penjelasan saterusna tingali dina Q.S. al-Nisā’/4:3.
+
+[^192]: Salian ti awéwé anu dijelaskeun dina al-Nisā'/4:23.
+
+[^193]: Upamana nambah jumlah maskawin, atawa ngurangan jumlahna, atawa teu dibayar sama sakali.
+
+[^194]: Dina sabagian syrati’at Islam, lalaki muslim meunang ngawin awéwé abid/amat upama geus dicumponan sarat-saratna.
+
+[^195]: Allah geus ngawajibkeun ka salaki pikeun merenahkeun pamajikanana kalayan hadé.
+
+[^196]: Nusyuz nyaéta pamajikan ninggalkeun kawajiban salaku pamajikan, saperti ninggalkeun imah tanpa idin salakina.
+
+[^197]: Aya ahli tapsir anu ngama’naan “deukeut jeung jauh” di dieu ku tempat jeung hubungan kakulawargaan. Aya ogé anu ngama’naan antara jalma muslim jeung jalma lian ti muslim.
+
+[^198]: Ibnu Sabil nyaéta jalma anu keur lalampahan anu lain pikeun ma’siat tur kabéakeun bekel. Kaasup kana golongan Ibn Sabil ogé nyaéta budak anu teu kanyahoan indung-bapana.
+
+[^199]: Żarrah nyaéta banda anu pangleutikna jeung panghampangna.
+
+[^200]: Sabagian ulama ngajelaskeun ma’na “paantel kulit” di dieu ku ma’na harpiah, tapi sabagian anu lianna ngama’naan “pasatemon/campur”.
+
+[^201]: Lisan maranéhna ngarucap, “kupingkeun!”, tapi haténa ngagerentes, “Mudah-mudahan anjeun henteu bisa ngadéngékeun (bongé).”
+
+[^202]: Pakait jeung harti rā’inā, sabagian ahli tapsir ngama’naan ku kecap unẓurnā anu hartina “perhatikeun kuring saréréa!” Satuluyna tingalan ogé surat al-Baqarah/2:104.
+
+[^203]: Aya anu ngama’naan “ipisna kadar kaimanan maranéhna”, tapi aya ogé anu ngama’naan “jumlah anu saeutik”.
+
+[^204]: Numutkeun kalolobaan ahli tapsir, maksudna nyaéta “ngarobah beungeut maranéhna, terus diputerkeun ka tukang” pikeun maksud ngahinakeun.
+
+[^205]: Jibt jeung Tāgūt téh ngandung ma’na anu ampir sarua, nyaéta nuduhken ka sétan jeung naon baé anu disembah salian ti Allah Swt.
+
+[^206]: Maranéhna téh jalma-jalma anu ngamusuhan ka Nabi Muhammad Saw. jeung ka kaom muslimin. Aya ogé anu napsirkeun yén ayat ieu téh ngeunaan Abu Barjah, nyaéta salah sahiji tukang teluh (tenung) dina jaman Nabi. Aya ogé anu napsirkeun yén ieu ayat téh ngeunaan Ka’ab bin Asyraf (jalma munapék).
+
+[^207]: Rasul henteu tanggel waler kana kalakuan anu dipilampah ku maranéhna sarta teu ngajamin maranéhna henteu milampah kasalahan.
+
+[^208]: Para inohong ti kalangan sohabat kanjeng Nabi Saw.
+
+[^209]: Numutkeun ahli tapsir anu séjén, yén maksud ieu ayat téh nyaéta lamun aya hawar (obrolan) ngeunaan kaamanan jeung kasieun téh kudu ditepikeun ka Rasul jeung Ulil Amri, tangtuna aranjeunna anu ahlina dina netepkeun kasimpulan (istinbāṭ) tina éta obrolan.
+
+[^210]: Paréntah ngeunaan éta perang kudu dilaksanakeun ku Nabi Muhammad Saw. Sabab anu diparéntah ku éta ayat téh nyaéta anjeunna nyalira. Ieu ayat patali jeung panolakan sabagian urang Madinah pikeun ngilu perang nyarengan Nabi Saw. ka Badar. Ku kituna, ieu ayat turun pikeun maréntahkan supaya Nabi Saw. angkat perang sanajan mung saurang ogé.
+
+[^211]: Nyaéta golongan kaom mu’min anu ngabéla jalma munapék sarta golongan jalma anu ngamusuhan jalma munapék.
+
+[^212]: Ayat ieu jadi dasar pikeun hukum suaka (ménta panyalindungan).
+
+[^213]: Henteu mihak ka mana baé, sarta geus ngayakeun perjangjian kerja sama jeung kaom muslimin.
+
+[^214]: Anu dimaksud nyaéta jalma anu geus ngaikrarkeun kalimah lā ilāha illā-llāh.
+
+[^215]: Nyaéta waktu éta jalma can nembrakkeun kaislamanana di hareupeun balaréa. Baheula ogé aranjeun téh apan kungsi ngalaman kaayaan saperti kitu.
+
+[^216]: Sabagian kaom muslimin Mekah henteu daék milu hijrah sareng Nabi Saw., padahal maranéhna kawasa pikeun ngalakukeunana. Terus maranéhna dianiyaya jeung dipaksa ku jalma-jalma kapir pikeun ngilu kana Perang Badar. Akhirna ti antara maranéhna aya anu perlaya (kakeunaan panah) dina éta perang.
+
+[^217]: Nurutkeun pendapat jumhur (umum), ari ma’na qasr di dieu mah nyaéta ngadegkeun salat anu opat rakaat jadi dua rokaat.
+
+[^218]: Nurutkeun kalolobaan ahli tapsir, lamun geus réngsé sarokaat, maka kudu méréskeun sarokaat deui séwang-séwangan (munfarid), sedengkeun Nabi Saw. nungguan golongan kadua (anu acan salat khauf berjamaah)
+
+[^219]: Raka’at kahiji, sedengkeun rakaat kadua dibérékseun ku maranéhna sorangan-sorangan, tapi maranéhna nutup (ngarengsékeun) salat mah babarengan sareng kangjeng Nabi Saw.
+
+[^220]: Cara salat khauf saperti dijelaskeun dina ayat 102 bisa dilaksanakeun dina kaayaan anu masih mungkin pikeun ngalaksanakeunana. Lamun henteu mungkin pikeun ngalaksanakeunana, maka salat dilakukeun sabisana baé, sanajan ngan saukur ngucapkeun takbir atawa tasbéh wungkul.
+
+[^221]: Ieu ayat tur sababaraha ayat anu saterusna patula-patali jeung kasus “maok” anu dilakukeun ku Tu’mah. Hasil maokna ku manéhna ditunda di hiji imah urang Yahudi. Tu’mah nolak ngaku kana lalampahanana, malahan nyieun pitnah yén anu maokna téh nyaéta urang Yahudi. Hal ieu didugikeun ka Nabi Saw. ku kulawargi Tu’mah. Maranéhna meredih ka kangjeng Nabi supaya ngabéla Tu’mah sarta supaya ngahukum urang Yahudi, sanajan maranéhna sebenerna mah apaleun yén anu nyolongna téh nyaéta Tu’mah. Ampir-ampiran Nabi Saw. ngabéla Tu’mah tur rék nibankeun hukuman ka urang Yahudi. Ku kituna, ayat ieu turun pikeun jadi pituduh pikeun anjeunna jeung umat Islam supaya ngahukuman hiji perkara kalayan adil.
+
+[^222]: Asal ma’na ināṡā nyaéta awéwé-awéwé. Patung-patung berhala anu disembah ku bangsa Arab saméméh datangna Islam biasana dibéré ngaran saperti Latta, Ujja, Manat, jeung sajabana. Makna anu kuweng ku kecap ināṡā ogé kaasup jalma-jalma nu geus maot, banda-banda anu teu aya jinisna, jeung banda-banda anu laip.
+
+[^223]: Saban jalma boga poténsi pikeun milampah kahadéan jeung pikeun ngalakukeun kajahatan. Sétan bakal ngagunakeun sakabéh poténsi pikeun ngalakukeun kajahatan supaya bisa nyilakakeun manusa.
+
+[^224]: Nurutkeun kayakinan urang Arab, saméméh datangna Islam, sasatoan anu dipaké sesembahan ka berhala-berhala téh kudu diteukteuk ceulina heula, jeung sasatoan anu saperti kitu henteu meunang dijadikeun sato tutumpakan sarta henteu meunang digawékeun deui, sarta kudu dileupaskeun deui (ka alam bébas).
+
+[^225]: “Ngarobah ciptaan Allah” di dieu bisa dima’naan “ngarobah anu geus diciptakeun ku Allah saperti ngabiri ingon-ingon”.
+
+[^226]: Aya ahli tapsir anu méré ma’na “aranjeun” di dieu nyaéta kaom muslimin, tapi aya ogé anu ngama’naan kaom musrikin. Maksudna, ganjaran di ahérat mah moal nurut kana lamunan-lamunan atawa pangharepan manusa, tapi luyu jeung katangtuan agama.
+
+[^227]: Bandingkeun jeung surat al-Nisā/4:2 jeung 3.
+
+[^228]: Nurutkeun kabiasaan bangsa Arab saméméh datangna Islam, wali (bapana atawa dununganana) ngabogaan kakawasaan ngurus jeung ngatur anak awéwé yatim jeung hartana. Lamun éta anak awéwé yatim téh geulis, lalaki Arab sok ngawin éta wanoja jeung ngapimilik hartana. Tapi, lamun éta awéwé teu kaasup geulis mah, walina sok ngahalang-halang lalaki séjén pikeun ngawin éta wanoja, supaya tetep bisa mibanda hartana. Ieu ayat nyegah éta kabiasaan.
+
+[^229]: Makna kecap nusyūz téh pikeun pihak awéwé mah geus dijelaskeun dina catetan kaki surat al-Nisā/4:34. Ari nusyūz-na ti pihak lalaki mah nyaéta sikep anu heuras (barangasan) ka pamajikanana, teu méré napkah batin tur teu méré hak pamajikan jeung kulawarga.
+
+[^230]: Saperti pamajikanana satuju lamun sababaraha hakna dikurangan, asal salakina daék balik deui.
+
+[^231]: Tabéat manusa mah sok embung mikeun sabagian hakna ka batur kalayan dibarengan haté anu ihlas, sanajan kitu lamun pamajikanana rido mikeun sabagian hakna, mangka salakina meunang pikeun narimana.
+
+[^232]: Tingal catetan kaki surat Āli \`Imrān/3:28.
+
+[^233]: Ku jalan muka rasiah-rasiah kaom mu’minin sarta nepikeun perkara aranjeunna ka jalma kapir. Atawa, lamun ngilu icikibung peperangan di pihak kaom mu’minin, jalma-jalma munapék ngiluna ogé kalayan satengah haté.
+
+[^234]: Maranéhna ngalaksanakeun salat ngan saukur kakapeungan, nyaéta lamun maranéhna aya di hareupeun batur.
+
+[^235]: Tingal catetan kaki surat Āli \`Imrān/3:28.
+
+[^236]: “Ngoméan diri sorangan” di dieu bisa dima’naan “gawé anu hadé pikeun ngaleungitkeun perkara anu diakibatkeun kagoréngan jeung kasalahan anu geus dipilampah.
+
+[^237]: Jalma anu kaaniaya meunang nembrakkeun atawa ngabéjakeun perkara kagoréngan jalma séjénna ka hakim atawa ka pihak anu ngabogaan kakawasaan (pamaréntah) ku jalan anu hadé.
+
+[^238]: Maranéhna iman ka Allah, tapi henteu daék iman ka rasul-rasul-Na.
+
+[^239]: Patung anak sapi dijieun ku maranéhna tina emas, terus dijadikeun sesembahan.
+
+[^240]: Poé Sabt nyaéta poé Sabtu, husus poéan ibadahna jalma-jalma ti kalangan Yahudi.
+
+[^241]: Maranéhna dibéntar gelap, disapa jadi monyet, jeung sajabana.
+
+[^242]: Caritaan maranéhna yén “Isa putrana Maryam téh Rasul Allah” ngan saukur pikeun moyok, sabab maranéhna sorangan henteu percaya kana karasulan Nabi Isa a.s.
+
+[^243]: Ieu ayat mangrupakeun bantahan kana anggapan urang Yahudi yén maranéhna geus nelasan Nabi Isa a.s.
+
+[^244]: Méméh maotna, saban urang Yahudi jeung Nasroni bakal iman kana karasulan Nabi Isa a.s. sarta ngaku yén Nabi Isa téh Rasul Allah, lain anak Allah. Tapi, pangakuan kaimanan saméméh maot saperti kitu mah geus teu aya gunana.
+
+[^245]: Allah ngadawuh langsung ka Nabi Musa a.s. téh mangrupakeun hiji kaistiméwaan anjeunna. Ku kituna, anjeunna dipasihan gelar kalīmullāh, sedengkeun rasul-rasul séjénna kenging wahyu ti Allah ku perantaraan Malaikat Jibril. Hal anu sarupa kaalaman ku Nabi Muhammad Saw. anu parantos sasauran langsung sareng Allah Swt. dina waktu Mi’raj di Sidratul Muntaha.
+
+[^246]: Kadé ulah rék ngucap yén Nabi Isa a.s. téh pangéran sakumaha anu diucapkeun ku kaom Nasroni.
+
+[^247]: Maksud “kalimah” di dieu téh nyaéta kalimah kun, kalayan éta ucapan Nabi Isa a.s. diciptakeun ku Allah, bari anjeunna henteu ngagaduhan bapa.
+
+[^248]: Disebut tiupan ti Allah ku sabab sumber éta tiupan téh ti paréntah Allah.
+
+[^249]: Malaikat anu deuheus (deukeut) ka Allah téh ayana di caket ‘Arsy, saperti Jibril, Mikail, jeung Isrofil.
+
+[^250]: Kalālah téh nyaéta jalma anu maot tapi teu ngabogaan anak atawa bapa.
+
+[^251]: Jangji di dieu nyaéta jangji satia hamba ka Allah, kaasup jangji anu dijieun antara manusa jeung manusa dina hirup kumbuh.
+
+[^252]: Syi’ar-syi’ar kasucian agama Allah téh bisa dima’naan sakabéh amalan anu dilaksanakeun dina raraga ibadah haji saperti tata cara ngalakukan tawaf jeung sa’i, sarta tempat-tempat ngalaksanakeunana saperti Ka’bah, Sofa, jeung Marwa.
+
+[^253]: Bulan Haram téh nyaéta bulan Julka’dah, Muharam, jeung Rajab. Dina tilu bulan éta, saha baé dicegah pikeun ngalakukeun peperangan.
+
+[^254]: Hady nyaéta sato anu dipeuncit pikeun “pangganti” (dam) pagawéan wajib haji anu ditinggalkeun, atawa jadi denda ku sabab ngarempak hal-hal anu dicegah dilakukeunana waktu ibadah haji.
+
+[^255]: Qalāid nyaéta sato hady anu geus dibéré ciri mangrupa kalung, supaya dipikanyaho ku saha baé yén éta sato téh geus ditetepkeun pikeun dikurbankeun jeung dibawa ka Ka’bah.
+
+[^256]: Anu dimaksud “kalayan karunia” di dieu téh nyaéta kauntungan anu geus dipasihkeun ku Allah dina ngalaksanakeun ibadah haji, sedengkeun karidoan Allah di dieu mah nyaéta mangrupa ganjaran amalan haji.
+
+[^257]: Maksudna marus, nyaéta getih anu kaluar tina sato sakumaha dijelaskeun dina surat al-An’ām/ 6:145.
+
+[^258]: Sasatoan anu paéhna dicekék, diteunggeul, tibeubeut, digadil ku sato anu tandukan, atawa dikerekeb sato galak, éta kabéh halal pikeun didahar lamun kaburu dipeuncit.
+
+[^259]: Azlām nyaéta anak panah anu can dibuluan. Urang Arab saméméh datangna Islam ngagunakeun éta anak panah pikeun nangtukeun hal anu kudu dilakukeun atawa ulah dilakukan, naha kaasup hadé dilakukeun atawa goréng dilakukeun. Carana nyaéta: Maranéhna nyokot tilu anak panah anu can dipasangan bulu. Saenggeus siap, saban-saban anak panah ditulisan ku tulisan anu ditangtukeun. Anu kahiji ditulisan “pék lakukeun”, anu kadua ditulisan “ulah dilakukeun”, sedengkeun anu katilu henteu ditulisan naon-naon. Tuluy anak panah ditunda dina hiji wadah jeung disimpen di jero Ka’bah. Lamun maranéhna rék ngalakukeun hiji pagawéan, mangka maranéhna ménta ka kuncén Ka’bah pikeun nyokot salah sahiji anak panah téa. Maranéhna bakal nurut kana tulisan anu aya dina anak panah téa. Lamun, kuncén kabeneran nyokot anak panah anu henteu aya tulisanana, mangka undian diulang sakali deui.
+
+[^260]: Anu dimaksud “ieu poé” nyaéta poé dina waktu haji papisahan (wada’), haji terahir anu dilakukeun ku Nabi Muhammad Saw.
+
+[^261]: Dimeunangkeun pikeun ngadahar kadaharan anu diharamkeun ku ayat ieu nalika dina kaayaan kapaksa (darurat).
+
+[^262]: Sato paninggaran atawa sato paburon nyaéta sato anu dilatih pikeun moro sato séjénna. Sato anu ditéwak ku sato paninggaran (paburon) henteu didahar saeutik ogé ku éta sato paninggaran.
+
+[^263]: Sabagian ahli tapsir nyebutkeun yén wanoja anu ngajaga kahormatan téh nyaéta wanoja merdika.
+
+[^264]: Gering anu henteu meunang kabaseuhan ku cai.
+
+[^265]: Paantel di dieu, nurutkeun jumhur ulama, nyaéta “paantel antara kulit lalaki jeung awéwé anu lain muhrimna”. Aya ogé sabagian ahli tapsir anu ngama’naan paantel di dieu ku ma’na “pasatemon antara salaki jeung pamajikanana”.
+
+[^266]: Perjangjian ngeunaan ba’iah nyaéta sumpah para sahabat Nabi Saw. rék nguping jeung ta’at ka anjeunna dina sagala kaayaan.
+
+[^267]: Ngainpakkeun (méré mawéh) harta kalayan haté anu ihlas pikeun ngalaksanakeun kawajiban anu patula-patali jeung harta sarta jiwa.
+
+[^268]: Ngarobah ma’na tina lapad jeung tempatna atawa nambah jeung ngurangan.
+
+[^269]: Cahaya anu dimaksud di dieu nyaéta Nabi Muhammad Saw., sedengkeun anu dimaksud Kitab Suci di dieu nyaéta Al-Qur’an.
+
+[^270]: Tanah Paléstina téh dicawiskeun ku Allah pikeun Kaom Yahudi salila maranéhna iman jeung ta’at ka Mantenna.
+
+[^271]: Nyaéta maéhan batur lain ku sabab perang (qitāl) atawa lain ku sabab qisos.
+
+[^272]: Ieu hukum lain ngan saukur pikeun Bani Israél, tapi ogé pikeun sakabéh manusa. Allah nganggap yén maéhan hiji jalma téh sarua jeung maéhan sakabéh manusa, kitu ogé sabalikna.
+
+[^273]: Neukteuk leungeun anu katuhu jeung suku anu kénca. Lamun ngalakukeun kajahatan sakali deui, mangka anu diteukteukna téh leungeun anu kénca jeung suku anu katuhu.
+
+[^274]: Sawaréh kaom Yahudi resep pisan ngadéngékeun kabohongan ti para panditana, atawa resep pisan ngadéngékeun ucapan-ucapan Nabi Saw. tapi tuluy ditepikeun deui ka kaom Yahudi séjénna atawa ka para panditana kalayan ditambahan ku bohong (ditambahan atawa dikurangan) pikeun ngaheureuykeun Nabi Muhammad jeung umat Islam.
+
+[^275]: Maranéhna resep pisan ngadéngékeun omongan-omongan bohong ti para pamingpinna anu can kungsi datang atawa papanggih jeung Nabi Muhammad Saw. ku sabab ceuceub pisan ka anjeunna. Sawaréhna ti kalangan kaom Yahudi ogé resep ngadéngékeun ucapan-ucapan ti Nabi Muhammad Saw. tapi pikeun disebarkeun deui ka kaom Yahudi lianna ku jalan henteu jujur (bohong).
+
+[^276]: Sarupaning kadaharan anu diharamkeun atawa meunang ku jalan haram (maling, suap, jeung réa-réa deui).
+
+[^277]: Para panganut Injil (nyaéta Nasrani) diwajibkeun pikeun mutuskeun perkara ku hukum anu luyu jeung pituduh anu geus diturunkeun ku Allah dina Injil nepi ka wanci diturunkeunana Al-Qur’an.
+
+[^278]: Jalma anu henteu mutuskeun perkara nurutkeun kana hukum Allah téh aya tilu golongan: a) Ku sabab ceuceub jeung ingkar kana hukum Allah. Jalma anu kieu kaasup kana golongan kapir (surat al-Mā’idah/5:44); b) Ku sabab nurutkeun kana hawa napsuna bari ngarugikeun batur. Jalma anu kieu kaasup kana golongan dolim (surat al-Mā’idah/5:4; jeung c) ku sabab pasik sakumaha dijelaskeun dina surat al-Mā’idah/5:47.
+
+[^279]: Umat Nabi Muhammad Saw. jeung umat-umat saméméhna.
+
+[^280]: Urang-urang Yahudi anu ngarempak kasucian jeung kaagungan poé Sabat (tingal deui surat al-Baqarah/2:65).
+
+[^281]: “Panangan Allah” di dieu henteu sarua jeung leungeunna manusa (mahluk).
+
+[^282]: Allah bakal masihan welas-asih-Na ti luhur langit mangrupi hujan, nu muwuhkeun tutuwuhan anu buah-buahna kacida lobana.
+
+[^283]: Moal aya saurang ogé anu tiasa nelasan kangjeng Nabi Muhammad Saw.
+
+[^284]: Sabi\`in téh umat saméméh umat Nabi Muhammad Saw. anu nyahoeun ayana Pangéran Anu Mahatunggal, sarta percaya kana pangaruh béntang-béntang.
+
+[^285]: Perjangjian dimaksud nyaéta maranéhna bakal iman ka Allah jeung rasul-rasul-Na
+
+[^286]: Nabi Isa a.s. sareng ibuna (Maryam) téh jalmi biasa anu meryogikeun naon anu diperlukeun ku jalma dina umumna, saperti tuangeun, eueuteun, jeung sajabana.
+
+[^287]: Sato boroan, boh anu meunang didahar boh henteu meunang, iwal ti manuk gagak, manuk heulang, kalajengking (langir), reungit, jeung anjing galak. Dina hiji riwayat, kaasup kana golongan ieu téh nyaéta oray.
+
+[^288]: Anu dibawa nepi ka wewengkon tanah haram pikeun dipeuncit di dinya, jeung dagingna dibagikeun ka pakir miskin.
+
+[^289]: Sabanding jeung harga sato ingon-ingon, minangka gaganti atawa dengdaan tina sato anu dipaéhan.
+
+[^290]: Ngalaksanakeun puasa anu jumlah poéna sabanding jeung mud anu dibikeun ka pakir miskin, saharga jeung sato anu dipaéhan, kalayan katangtuan saurang pakir miskin meunang sa-mud (kurang leuwih 6,5 ons).
+
+[^291]: Maéhan sato saméméhna turun ieu ayat anu ngaharamkeunana.
+
+[^292]: Sato boroan laut anu diala ku jalan upaya saperti nguseup, ngecrik, jeung réa-réa deui. Kaasup dina ma’na laut di dieu nyaéta walungan, situ, balong, jeung sajabana.
+
+[^293]: Lauk atawa sato laut anu diala kalayan gampang, sabab geus paéh ngambang atawa kabawa ombak ka sisi basisir, jeung sajabana.
+
+[^294]: Ka’bah jeung sabudeureunana jadi tempat anu aman pikeun manusa migawé perkara-perkara anu pakuat-pakait jeung dunya-ahérat, sarta jadi puseur ibadah haji.
+
+[^295]: Bahīrah: Onta bikang anu geus anakan lima kali jeung anakna anu kalima téh jalu. Tuluy éta onta bikang téh dibeulah ceulina, dileupaskeun, jeung ulah dijadikeun tutumpakan deui, sarta cai susuna teu meunang dijual.
+
+[^296]: Sā’ibah: Onta bikang anu diantepkeun pikeun indit ka mana baé ku sabab hiji nadar, saperti lamun urang Arab saméméh datangna Islam érék milampah hiji lalampahan (nyaba) anu beurat, mangka biasana manéhna nadar rék nagajadikeun ontana jadi sā’ibah lamun maksud jeung perjalanana hasil tur salamet.
+
+[^297]: Wā’ilah: Nyaéta hiji domba bikang anu anakan kembar dua, hiji jalu jeung hiji deui bikang. Anu jaluna disebut wā’ilah, hartina domba anu teu meunang dipeuncit, tapi kudu dipasrahkeun ka berhala.
+
+[^298]: Ḥām: Onta jalu anu teu meunang diganggu-ganggu deui, ku sabab geus bisa ngareuneuhan onta bikang sapuluh kali. Kabiasaan ayana bahīrah, sāibah, wā’ilah, jeung ḥām téh mangrupakeun kapercayaan Arab saméméh datangna Islam.
+
+[^299]: Ngalakukeun kacurangan dina panyaksénana anu kanyahoan sanggeus maranéhna ngucapkeun sumpah.
+
+[^300]: Sumpah anu dibalikkeun, nyaéta sumpah ti para saksi anu béda agama ditolak ku sabab aya sumpah ti saksi-saksi anu asalna ti dulur deuheus, atawa bisa dima’naan yén jalma-jalma anu ngucapkeun sumpah téh bakal meunang wawales di dunya jeung ahérat ku sabab ngucapkeun sumpah palsu.
+
+[^301]: “Ayat” di dieu ma’nana nyaéta mujijat atawa ayat Al-Qur’an atawa kajadian-kajadian anu lumangsung di alam dunya sarta jadi tanda kakawasaan Allah.
+
+[^302]: Pikeun ngajelaskeun yén Nabi Muhammad Saw. téh salah sawios Nabi Allah.
+
+[^303]: Lamun malaikat diturunkeun ku Allah ka maranéhna, sedengkeun maranéhna henteu iman ka Allah jeung katangtosana-Na, tangtuna maranéhna bakal disiksa ku Allah nepi ka binasa sakabéhna.
+
+[^304]: Lamun Allah ngutus malaikat jadi rasul, tangtuna Allah bakal ngutus éta malaikat dina wujud manusa, ku sabab manusa mah moal bisa ningali wujud (asli) malaikat jeung tangtuna jalma-jalma kapir jeung munapék bakal nyarita, “Ieu mah lain malaikat, ngan manusa bisa saperti urang saréréa ogé”. Jadi, maranéhna bakal tetep mangmang.
+
+[^305]: Allah geus jangji minangka kadeudeuh Mantenna ka manusa, nyaéta bakal ngagolontorkeun welas asih ka sadaya mahluk-Na.
+
+[^306]: Sawatara ahli tapsir ngama’naan “Kitab” di dieu ku Loh Mahpud.
+
+[^307]: Nalika Rasulullah Saw. nuju calik sareng sababaraha jalma mu’min anu dianggap laip jeung miskin ku kaom Qurés, tuluy datang sababaraha gegedén Qurés cumarita jeung anjeunna. Tapi ku sabab aya mu’min anu miskin (jeung dianggap hina), para gegedén Qurés ngarasa sanggeuk diuk jeung kaom mu’min téa. Kaom Qurés terus ngusulkeun supaya kaom mu’minin anu aya di éta tempat disingkahkeun (diusir), supaya maranéhna bisa cumarita jeung anjeunna. Ku sabab ieu, nya turun ieu ayat.
+
+[^308]: Tangtuna Allah bakal nurunkeun siksa anu kacida peurihna nepi ka maranéhna binasa.
+
+[^309]: Siksaan anu datang ti luhur saperti hujan batu, samberan petir, jeung sajabana, sedengkeun siksaan anu datangna ti handap mah saperti lini, banjir, jeung sajabana.
+
+[^310]: Allah Swt. ngajelaskeun tanda kakawasaana-Na dina sagala rupa. Aya ogé sabagian ahli tapsir anu ngartikeun ieu ayat pakuat-pakait jeung ayat-ayat pépéling, carita-carita, hukum, jeung réa-réa deui.
+
+[^311]: Sawatara ahli tapsir nyebutkeun yén anu dianggap bohong téh nyaéta Al-Qur’an.
+
+[^312]: Maksudna mah “nyandingkeun Allah jeung anu lianna (musrik)”.
+
+[^313]: Ti antara ahli tapsir aya anu ngama’naan abīhi ku “mamangna” (lain ramana).
+
+[^314]: Saatos Allah ningalikeun ka Nabi Ibrahim a.s. tanda kakawasaana-Na, nya anjeunna langkung kiat imanna ka Allah (ayat 75), sareng anjeunna teras ngabingbing kaomna kana taohid.
+
+[^315]: Minangka sindiran pikeun maranéhna, nyaéta dianggap budak leutik anu can balég.
+
+[^316]: Sawatara ahli tapsir aya anu ngama’naan “tempat pamatuhan” di dieu ku “tulang sulbi lalaki”, sedengkeun “tempat panundaan” di dieu téh nyaéta “rahim wanoja”. Aya ogé anu masihan pandangan yén tempat pamatuhan téh nyaéta “jagat tempat manusa hirup kumbuh”, sedengkeun “tempat panundaan” téh nyaéta alam kubur waktu manusa geus maot.
+
+[^317]: Maranéhna ngomong yén Allah téh ngagaduhan putra, saperti Kaom Yahudi nyarita yén Ujér téh putra pamegetna Allah, sedengkeun jalma-jalma musrik nyebutkeun yén malaikat téh putra-putra istrina Allah. Maranéhna ngabogaan anggapan saperti kitu téh ku sabab kabodoanana jeung teu dumasar kana élmu pangaweruh anu bener.
+
+[^318]: Saha baé anu nyaho kana bebeneran jeung migawé kahadéan, sarta meunang pituduh, tangtuna manéhna aya dina puncak kabagjaan.
+
+[^319]: Jalma-jalma musrik geus ngucapkeun sumpah yén lamun datang mujijat ti Allah pikeun maranéhna, maranéhna bakal iman. Ku sabab kitu, jalma-jalma mu’min mah miharep ka Nabi Muhammad supados nyuhunkeun ka Allah supados ngalungsurkeun mujijat saperti anu dipikahayang ku jalma-jalma musrik téa. Nanging Allah nampik kana éta paménta ngaliwatan ieu ayat.
+
+[^320]: Nurutkeun sabagian ahli tapsir, kecap akābir mujrimīhā ngandung harti para penjahat anu jadi gegedug.
+
+[^321]: Maksudna: Sétan téh geus hasil merdaya ka manusa, nepi ka manéhna nurut kana naon nu geus diparéntahkeun ku sétan tur ngarasakeun kani’matan dunya.
+
+[^322]: Diriwayatkeun yén hasil pepelakan jeung ingon-ingon anu ku maranéhna ditujukeun pikeun Allah téh dipasrahkeun ka pakir miskin jeung dijadikeun amal kahadéan, malahan dibikeun ogé ka berhala. Sedengkeun bagian anu ditujukeun pikeun berhala maranéhna sok dibikeun ka jalma-jalma nu ngajaga berhala-berhala, lain dibikeun ka pakir miskin atawa dijadikeun amal kahadéan. Kabiasaan kitu téh pastina dila’nat ku Allah.
+
+[^323]: Sabagian urang Arab téh aya anu ngagem saréat kanjeng Nabi Ibrahim a.s. Anjeunna kungsi diparéntah ku Allah pikeun ngorbankeun Ismail (putrana), tapi terus diganti ku domba (gibas). Tapi satuluyna, para gegedén agama Ibrahim téh nyalénggorkeun ieu ajaran ku ngajarkeun yén “ngorbakeun budak-budak leutik (lalaki atawa awéwé)” téh kaasup kana pagawéan anu hadé, kalaya maké alesan pikeun ngadeukeutkeun diri maranéhna ka Allah, padahal alesan anu benerna mah ku sabab maranéhna sieun miskin.
+
+[^324]: Anu dimaksud ku “sato anu kukuan” di dieu nyaéta sasatoan anu kuku-kukuna teu papisah antara hiji kuku jeung anu séjénna, saperti onta, éntog, jeung sajabana.
+
+[^325]: Anu dibenerkeun ku saréat (agama Islam) saperti qitāl (peperangan), maéhan jalma anu kaluar tina bebeneran (murtad), maéhan jalma nu geus maéhan batur (qisos), rajam, jeung sajabana.
+
+[^326]: Nyaéta paréntah anu kuat tur anu geus jadi katetapan.
+
+[^327]: Nyaéta tanda-tanda Poé Kiamat
+
+[^328]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^329]: Tingal catetan kaki surat Ali\`Imran/3:28.
+
+[^330]: Maksudna jaga dina Poé Kiamat Allah bakal ngabéjakeun ka hamba-hamba-Na naon baé anu diucapkeun jeung dilakukeun ku maranéhna, boh nu leutik boh nu gedé, boh nu sepélé boh nu penting, sabab Allah mah Mahauninga kana sagala perkara.
+
+[^331]: Maksudna pakéan batin téh saperti sikep handap asor jeung sieun ka Gusti Allah, sabab bersihna haté mah lewih alus tinimbang papaés anu sipatna lahir.
+
+[^332]: Tingal catetan kaki surat Āli \`Imrān/3:28.
+
+[^333]: Saperti “nyarékatkeun Allah jeung sesembahan séjénna”, ngalakukeun towaf bari bubulucunan di sabudeureun Ka’bah, jeung sajabana.
+
+[^334]: Papaés (perhiasan) ti Allah jeung kadaharan anu alus téh bisa didahar (kalayan ni’mat) di ieu dunya ku jalma-jalma anu iman jeung ku jalma anu teu iman, sedengkeun di ahérat mah (jaga) papaés jeung kadaharan anu alus tur ni’mat téh mung dicawiskeun pikeun jalma-jalma anu iman.
+
+[^335]: Jalma-jalma anu ngaréka-réka kabohongan ka Allah téh waktu ditanyaan ku malaikat ngeunaan berhala-berhala anu sok disembahna, mangka éta berhala téh euweuh di hareupeunana. Ku kituna, maranéhna teu ngaharapkeun kahadéan jeung mangpaatna.
+
+[^336]: Hartina: Doa jeung amal maranéhna moal ditampi ku Allah.
+
+[^337]: Hartina: Maranéhna moal mungkin asup ka sawarga sakumaha henteu mungkinna onta asup kana jero liang jarum.
+
+[^338]: Jalma-jalma anu aya dina éta tempat téh nyaéta anu kahadéan jeung kagorénganana sarua. Maranéhna cicing dina éta tempat sakumaha kersana Gusti, lantaran amal kahadéanana teu bisa ngasupkeun maranéhna ka sawarga. Kitu deui amal kagorénganana teu nepi ngasupkeun kana naraka. Dina sabagian riwayat dicaritekun yén éta golongan téh nyaéta ti antarana anu maot perang di jalan Allah tapi heunte diwidian ku ibu ramana, atawa jalma anu maotna dipikarido ku ramana, tapi teu dipikarido ku ibuna, atawa jalma anu dilahirkeun hasil jinah, tapi manéhna jadi jalma soléh.
+
+[^339]: “Istiwā’ (linggih)na Allah di luhureun Arasy” téh kaasup kana sipat Mantenna anu wajib diimanan. Maknana luyu sareng kaagungan tur kasuciana-Na.
+
+[^340]: Maranéhna langsung sujud ka Allah sabab yakin kana bebeneran panggero Nabi Musa a.s. jeung lain sihir saperti anu ku maranéhna disangka pas mimiti.
+
+[^341]: Nyaéta Nagri Sam, Nagri Mesir, jeung nagri-nagri nu aya di sabudereun éta dua nagri nu kungsi dipingpin ku Fir’aun baheulana. Sanggeus karajaanana runtag, éta nagri-nagri diwaris ku Bani Israél.
+
+[^342]: Nu dimaksud Allah ngancurkeun sagala rupa nu geus diwangun téh nyaéta wangunan-wangunan nu dijieun ku alatan kaniaya ka Bani Israél saperti kota Ramsés, munara nu diwangun ngaliwatan paréntah raja Hamman, jeung sajabana.
+
+[^343]: Ti antara ahli tapsir aya nu béda-béda dina napsiran “némbongkeunana Allah ka gunung”. Aya nu napsiran yén nu katingali téh kaagungan sareng kakawasaan Allah. Aya ogé nu napsiran yén nu katingali téh ngan saukur cahaya Allah. Allah teu sami sareng mahluk. “Ningalikeunana Allah ka mahluk” kudu dipageran ku béntenna antawis Allah sareng mahluk.
+
+[^344]: Lawḥ téh nu ditulis dina batu-batu atawa kai-kai ipis nu dicandak ku Nabi Musa nu eusina téh nyaéta Kitab Torét téa nu ditampi ku anjeunna saatos munggah ka Gunung Sina tur munajat di dinya.
+
+[^345]: Kudu ngaheulakeun pagawéan anu wajib tinimbang pagawéan anu sunnah.
+
+[^346]: Allah Swt. bakal ningalikeun kampung jalma-jalma pasék saperti Fir’aun, ‘Ad, Samud, jeung sabangsana tur pangeusina alancur alatan kajahatan jeung kapasékan maranéhna.
+
+[^347]: Maranéhna nyieun arca anak sapi tina emas. Ahli tapsir kabagi dua bagian dina ngama’naan arca sapi nu aya soraan. Aya anu tetep dina kayakinan yén éta arca sapi téh tetep wé arca sapi nu teu aya soraan tur teu aya nyawaan. Anapon sora nu kaluar tina éta arca sapi nya ngan saukur sora angin nu dijieun-jieun ku si Samiri ku kamotékaranana. Aya deui anu ngayakinan yén mémang éta arca sapi téh jadi boga nyawa tur ngaluarkeun sora.
+
+[^348]: Ku naon aranjeun teu sabar nungguan kadatangan kuring deui saba’da munajat ka Allah, malah aranjeun nyieun patung keur sesembahan salian ti Allah?
+
+[^349]: Sesemplékan tina batu atawa kayu tempat tulisan Kitab Torét
+
+[^350]: Pagawéanana nyieun patung anak sapi tuluy disembah téh mangrupakeun hiji cobaan ti Allah keur nguji maranéhna saha nu kuat imanna jeung saha nu nu masih aya dina kamangmangan. Jalma-jalma nu lemah imanna mah tuturut munding ngilu ka Samiri nyembah anak sapi, tapi nu karuat imanna mah tetep dina kaimanana teu tuturut nyembah anak sapi.
+
+[^351]: Saréat nu dicandak ku Nabi Muhammad Saw. mah teu saperti nu disaréatkeun ka Bani Israél, éstuning saréat nu hampang. Waktu di jaman Nabi Musa mah saréat nu dibebankeun ka Bani Israél beurat pisan saperti nebus dosa ku cara nelasan diri sorangan, hukum qisos maragatkeun nyawa batur rék dihaja atawa teu dihaja, neukteuk anggahota badan nu milampah kasalahan, neukteuk baju atawa kaén nu kakeunaan najis, jeung saréat lainna nu bareurat.
+
+[^352]: Aranjeunna masihan pituduh tur nungtun manusa kalayan nyekel pageuh kana pituduh jeung tungtunan ti Allah Swt. Dina masalah ngahukuman perkara-perkara, aranjeunna nyuprih kaadilan ku tetegenan kana pituduh jeng tungtunan Allah Swt.
+
+[^353]: Tingal catetan kaki surat Al-Baqarah/2:57.
+
+[^354]: Maranéhna diparéntah ngucapkeun hiṭṭatun (mugia Gusti ngaleupaskeun tina dosa), dirobah jadi hinṭatun fī sya’īrah (siki gandum).
+
+[^355]: Nyaéta kota Éllah nu ayana téh dekeut lautan tempat dikéremna Fir’aun (laut Merah). Watesna antara kota Madyan jeung gunung Thur.
+
+[^356]: Nurutkeun aturan, poé Sabtu téh poé anu teu meunang dipaké gawé, tapi husus keur ibadah wungkul.
+
+[^357]: Alesanana téh nyaéta yén maranéhna geus ngalaksanakeun paréntah Allah méré pangéling-éling ka batur.
+
+[^358]: Sangkan jalma-jalma musrik teu kudu ngomong yén karuhunna baheula ogé sarua nyarékatkeun Allah, padahal maranéhna teu nyaho nanaon yén nyarékatkeun Allah téh pagawéan salah. Nyarékatkeun Allah nu dilakukeun ku jalma-jalma musrik diteumbleuhkeun ka kolot maranéhna baheula, sangkan maranéhna teu disiksa ku Allah, yén maranéhna ngan saukur nuturkeun naon-naon nu geus dipigawé ku kolot-kolotna.
+
+[^359]: Ulah dipaliré jalma-jalma anu nyembah Allah kalayan nyebut jenengan-jenengan anu teu payus jeung sipat-sipat tur kaagungan Mantenna, atawa jalma-jalma anu nyebut jenengan-jenengan Mantenna, tapi tujuanana keur ngaruksak jenengana-Na. Hal nu séjénna nu teu kudu dipaliré téh nyaéta jalma-jalma anu nyebut jenengan-jenengan Allah tapi lain pikeun nyebut Allah.
+
+[^360]: Allah bakal males tipu daya jalma kapir kalayan leuwih hadé.
+
+[^361]: Éta jalma téh sasar ku sabab kaingkaranana jeung teu daék nurut kana pituduh-pituduh Allah.
+
+[^362]: Ieu kajadian téh lain ngeunaan Nabi Adam, tapi ngeunaan sabagian katurunana.
+
+[^363]: Jalma-jalma musrik téh ngajadikeun sarékat ka Allah dina nyiptakeun anak. Maranéhna nganggap yén anak nu dilahirkeun téh nyaéta hamba-hamba berhala ogé. Ku sabab kitu, maranéhna méré ngaran budak nu dilahirkeun saperti ngaran Abdul Uzza, Abdu Mannat, Abdu Latta, Abdu Syam, jeung sabangsana.
+
+[^364]: Kecap yabṭisyūn di dieu bisa diartikeun ku sababaraha harti, ti antarana nampiling, ngaruksak, neunggeul, ngajenggut kalayan kasar, jeung sajabana.
+
+[^365]: Ngucapkeun kalimah a’ūżubillāhi minasyaiṭānirrajīm.
+
+[^366]: Upama dibacakeun ayat-ayat Al-Qur’an, urang kudu ngadangukeun kalayan sikep awak cicing, boh dina salat boh di luar salat, anging bacaan Al-Qur’an nu dibacakeun waktu salat barjama’ah, ma’mum meunang maca surat al-Fātiḥah waktu imam maca ayat-ayat Al-Qur’an ba’da maca surat al-Fātiḥah.
+
+[^367]: Ieu ayat kaasup salah sahiji ayat sajdah, nyaéta ayat anu lamun urang ngadangukeun kana éta ayat atawa maca kana éta ayat, mangka disunnahkeun sujud, boh waktu salat atawa di luar salat. Ieu sujud dingaranan sujud tilawah ku para ulama.
+
+[^368]: Kaasup ogé kana maksud ieu ayat nyaéta jalma-jalma anu nyebut sipat-sipat nu eusina ngaagungkeun sareng ngamulyakeun Allah.
+
+[^369]: Sawaréh sahabat Nabi ngarasa beurat ku katangtuan pambagian harta boyongan perang, sakumaha maranéhna ngarasa beurat ogé kana paréntah Allah pikeun ngalakonan Perang Badar.
+
+[^370]: Rombongan Abu Sofyan anu mawa dagangan ti Syiria. Anapon rombongan anu dilengkepan ku pakarang perang nyaéta rombongan anu datang ti Mekah ni dipingpin ku Uthbah bin Rabi’ah jeung Abu Jahal.
+
+[^371]: Nu dimaksud tungtung ramo di dieu nyaéta leungeun jeung suku.
+
+[^372]: Ieu kajadian téh ngeunaan Perang Badar sakumaha diriwayatkeun ku Ibn Abbas. Anjeunna nyaritakeun yén waktu Perang Badar, Nabi Muhammad nyarios ka Ali, “Cing pang nyokotkeun sakeupeul keusik!” Ali langsung nyandak teras dipasihkeun ka anjeunna. Saterasna anjeunna ngawurkeun éta keusik kana beungeutna musuh nepi ka euweuh saorang ogé nu matana lolos ti anjeunna. Ku sabab éta, ancur tah maranéhna téh.” (H.R. al-Tabrani).
+
+[^373]: Ieu teu ngandung harti yén Allah téh teu uninga. Allah pastina Mahauninga yén dina diri maranéhna téh euweuh kahadéan.
+
+[^374]: Allah anu ngawasa kana haté manusa.
+
+[^375]: Ti antara ahli tapsir aya nu ngahartikeun ku tobat. Aya ogé nu ngahartikeun yén ti antara jalma-jalma kapir téh aya nyelap jalma-jalma mu’min anu ménta pangampura ka Allah.
+
+[^376]: Nu dimaksud rampasan perang (ganīmah) nyaéta harta anu dirampas ti jalma-jalma kapir ku alatan perang ku kaom muslimin, sedengkeun harta anu dirampas teu ngaliwatan peperangan dingaranan harta fai’. Pangbagian anu aya dina ieu ayat ngan ngeunaan harta rampasan (ganīmah).
+
+[^377]: Saperlima ti harta rampasan téh dibagi ka: (1) Allah sareng Rasul-Na, (2) Kaluarga Rasul (Bani Hasyim jeung Bani Muthalib), (3) Anak Yatim, (4) Jalma-jalma anup miskin, (5) Ibnu sabil. Opat perlimana dibagikeun ka anu miluan perang.
+
+[^378]: Furqān nyaéta pamisah antara anu ḥaq jeung anu bāṭil. Anu dimaksud poé al-Furqān nyaéta poé kaunggulan kaom muslimin jeung éléhna kaom kapir.
+
+[^379]: Nyaéta poé papanggihna dua pasukan dina peperangan Badar dina poé Jum’at ping 17 Ramadhan taun ka-2 Hijriyyah. Sabagian ahli tapsir nyebutkeun yén ieu ayat ngisaratkeun kana poé ngawitan turunna Al-Qur’an, nyaéta dina peuting ping 17 Ramadhan.
+
+[^380]: Kaom muslimin dina éta waktu aya dina hiji palataran handapeun gunung deukeut Madinah, sedengkeun jalma-jalma kapir jauh ti Madinah. Rombongan Abu Sofyan aya kira-kira 5 Mil ti wewengkon Badar.
+
+[^381]: Allah moal rék nyabut kani’matan anu tos dipasihkeun ka hiji kaom salami éta kaom téh tetep taat tur sukur ka Allah.
+
+[^382]: Maranéhna teu ngartieun yén perang téh kudu diniatkeun pikeun nanjeurkeun agama Allah. Kanyataanana, maranéhna ilu-biung perang téh ngan saukur mertahankeun adat-kabiasaanana di jaman Jahiliah nu mémang biasa perang. Kajaba ti éta, peperangan nu dilakukeun ku maranéhna téh dimaksudkeun pikeun kapentingan dunyawiah.
+
+[^383]: Nyaéta katangtuan yén Allah moal nibankeun siksaan lamun taya aturan-aturan-Na nu dirempak.
+
+[^384]: Seméméh ieu ayat turun, aya perjangjian daméi antara Nabi Muhammad Saw. jeung jalma-jalma musrik. Ti antara perjangjian téh eusina: Teu meunang aya peperangan antara anjeunna jeung jalma-jalma musrik. Eusi perjangjian nu séjénna: Kaom muslimin dimeunangkeun pikeun ngalaksanakeun ibadah haji tur towaf di sabudeureun Ka’bah. Saterusna, saba’da ieu ayat turun, Allah ngabatalkeun éta perjangjian, ngawidian deui kaom muslimin pikeun merangan kaom musrikin anu ngamusuhan kaom muslimin. Kaom musrikin dibéré tempo opat bulan pikeun nyiapkeun kakuatan lamun maranéhna bener-bener hayang ngamusuhan jeung merangan kaom muslimin.
+
+[^385]: Poéan wukuf di Arofah.
+
+[^386]: Nu dimaksad opat bulan nu dimulyakeun téh nyaéta dina nitih mangsana ngawitan ti kawit turun ieu ayat (10 Julhijah) dugi ka 10 Robi’ul Ahir.
+
+[^387]: Nu dimaksud deukeut Masjidil Harom téh nyaéta di wewengkon Hudaibiyah, hiji wewengkon anu deukeut jeung Mekah, jalur jalan ka Madinah. Di éta tempat, Nabi Muhammad Saw. ngayakeun perjangjian ngeureunkeun perang salila10 taun.
+
+[^388]: Ayat ieu diturunkeun pikeun ngabantah yén masihan leueut ka nu ibadah haji jeung ngurus Masjidil Harom téh éta langkung utama tinimbang iman nu sabenerna ka Allah jeung hijrah di jalan Allah.
+
+[^389]: Teu dibenerkeun maranéhna ngalaksanakeun ibadah haji jeung umroh. Aya ogé ahli tapsir nu nyebutkeun yén ayat ieu sipatna umum; kaom musrikin teu meunang asup ka sabudeureun Masjidil Harom, boh rék keur ngalaksanakeun haji-umroh atawa rék migawé kaperluan salian haji jeung umroh.
+
+[^390]: Maksudna saba’da taun 9 Hijriyyah.
+
+[^391]: Ku sabab teu dimeunangkeunana kaom musrikin ngalaksanakeun ibadah haji tur umroh, sabab pakasaban kaom muslimin bisa kaconténg.
+
+[^392]: Jijyah téh maksudna pajeg anu dipénta ku pamaréntah Islam nu dipungut ti jalma-jalma nonmuslim, mangrupa jaminan kaamanan pikeun maranéhna.
+
+[^393]: Maranéhna manut kana ajaran jalma-jalma pinter jeung rahib-rahib maranéhna tanpa élmu (tuturut munding), sok sanajan éta jalma-jalma pinter jeung rahib-rahib téh nitah migawé kana pagawéan doraka.
+
+[^394]: Maksudna opat bulan téh nyaéta Muharom, Rojab, Julko’dah, jeung Julhijah. Éta opat bulan anu dimulyakeun ku Allah. Dina éta bulan teu meunang aya peperangan. Tapi ieu paréntah dilanggar ku maranéhna ku ngayakeun peperangan di bulan Muharom tur ngaganti bulan Muharram ku bulan Sapar. Ku sabab maranéhna ngarempak kana parétah, kagiatan pakasaban utamana dagang loba kaganggu.
+
+[^395]: Jalma-jalma kapir geus mupakat rék nelasan Nabi Muhammad Saw. Nanging, Allah masihan uninga ka Nabi ngeunaan maksud jahat maranéhna. Nalika lungsur ti bumina angkat ti Mekah ngajugjug ka Madinah, Nabi diréncangan ku Abu Bakar. Di tengahing lalampahan, anjeunna nyumput di hiji gunung nu ngaranna Tsur.
+
+[^396]: Maranéhna bakal musnah jeung ancur akibat sumpah bohongna.
+
+[^397]: Aya sababaraha jalma munapék nu teu daék ilu-biung perang ka wewengkon Tabuk (nu aya di handapeun kakawasaan bangsa Romawi). Alesanana, maranéhna sieun kagoda ku mojang-mojang geulis urang Romawi. Mangka, ieu ayat turun pikeun ngabongkar rasiah haté maranéhna nu sabenerna, yén teu daékna ilu-biung perang ka wewengkon Tabuk téh dasarna mah lemah imanna. Tah paripolah maranéhna nu modél kieu téh bisa disebut pitnah.
+
+[^398]: Nu boga hak pikeun narima jakat téh nyaéta: (1) jalma-jalma pakir, nyaéta jalma-jalma anu sangsara dina hirupna, teu ngabogaan harta atawa tanaga pikeun minuhan kabutuhan hirupna, (2) jalma-jalma miskin, nyaéta jalma-jalma nu teu matak cukup dina minuhan kabutuhna, aya dina kakurangan, (3) Amil (nu nguruskeun) jakat, nyaéta jalma-jalma nu dibéré tugas pikeun ngumpulkeun, ngurus, jeung ngabagikeun jakat ka anu hakna, (4) Mualap, nyaéta jalma-jalma nu asalna kapir asup Islam tapi kaimanana masih lemah tur butuh dibébérah ku jakat supaya kuat kaimanana ku dicukupan kabutuhanana, (5) Budak-budak nu dimerdikakeun, nyaéta budak-budak nu aya dina tawanan musuh tuluy dileupaskeun tur dimerdikakeun ku éta harta jakat, (6) jalma-jalma nu kabeulit hutang, nyaéta jalma-jalma nu kabeulit hutangna téh lain ku alatan ludes sabab migawé ma’siat tur teu sanggup pikeun mayar éta hutang, (7) fī sabīlillāh (di jalan Allah), nyaéta lumampah pikeun kaperluan nanjeurkeun agama. Mimitina mah asnāf nu ieu sok dikaitkeun kana lumampah ngajugjug kana peperangan pikeun mertahankeun agama. Aya ogé ahli tapsir anu ngama’naan “pikeun ngawangun sakola agama (madrasah), pasantrén, jeung sabangsana”, (8) Ibn sabīl, nyaéta jalma anu keur aya di pangumbaraan (lumampah kaluar ti imah), tapi lain keur migawé ma’siat.
+
+[^399]: ‘Ad téh kaom Nabi Nuh a.s. Ṡamud téh kaom Nabi Soléh a.s. Ari pangeusi nagri Madyan nyaéta kaom nabi Su’eb a.s. Sementara kaom nu diancurkeun dina ayat ieu maksudna kaom nabi Lut a.s.
+
+[^400]: Maranéhna hayang pisan ngarogahala Nabi Muhammad Saw. anu éta kahayang téh pastina moal bisa kahontal ku maranéhna.
+
+[^401]: Saréngséna perang Tabuk, Nabi Muhammad Saw. teras mulih deui ka Madinah. Di Madinah anjeunna pendak jeung jalma-jalma munapék nu teu milu perang Tabuk. Maranéhna ménta ijin ka anjeunna rék ngilu perang dina peperangan engkéna mah. Lajeng anjeunna nolak kana éta paménta sabab maranéhna di awalna ogé teu hayangeun ilu-biung perang.
+
+[^402]: Jalma-jalma nu teu ngilu perang sasarengan Nabi Muhammad Saw.
+
+[^403]: Jalma-jalma nu henteu milu perang téh nyaéta istri-istrina para sahabat, jalma-jalma anu teu damang, jalma-jalma anu héngkér, jeung sabangsana.
+
+[^404]: Aranjeunna sedih ku lantaran teu aya nu tiasa dibalanjakeun, boh harta boh kandaraan, pikeun ngabiayaan perang.
+
+[^405]: Supaya aranjeun teu nyawad maranéhna.
+
+[^406]: Nyaéta urang Arab nu netepna di padang pasir nu kaayaan kahirupanana salilana pipindahan, samisal kabilah Kaom Asad, kaom Bani Tamim, jeung Gatfan.
+
+[^407]: Ceuk sabagian ahli tapsir, hal éta téh disebabkeun sipat gumedé jeung teu ngabogaan tatakrama. Maranéhna jauh ti para ulama tur jauh tina pangarti Al-Qur’an jeung Hadis.
+
+[^408]: Saperti kabilah Juhainah jeung kabilah Mujainah.
+
+[^409]: Anu nyaksian Perang Badar.
+
+[^410]: Nyaéta sakabéh sahabat, tabi’in, jeung umat anu nuturkeunana kalayan ihlas.
+
+[^411]: Urang Arab padusunan nu netep di sakuriling Madinah.
+
+[^412]: Ceuk sabagian ahli tapsir, ma’na “marratain” téh negeskeun kana harti nu loba. Upama dihartikeun “dua kali”, mangka maksudna téh nyaéta siksaan di dunya mangrupa dicap jalma munapék jeung siksaan di alam kubur.
+
+[^413]: Jakat téh ngabersihan manéhna tina panyakit medit jeung panyakit mikacinta nu kaleuleuwihi kana harta banda.
+
+[^414]: Jakat téh nyuburkeun sipat-sipat kahadéan dina haté sarta mekarkeun harta banda.
+
+[^415]: Jalma nu geus nantang ka Allah jeung Rasul-Na ti barétona nyaéta hiji pandita Nasrani nu ngaranna Abu ‘Amir, anu didago-dago kadatanganana ku kaom muslimin. Tapi Abu ‘Amir teu jadi datang, kaburu maot di Syria. Éta masjid anu diadegkeun ku kaom munapék téh diruksak kalayan piwarangan ti Rasulullah Saw. lantaran wahyu nu ditampi sanggeusna anjeunna mulih tina Perang Tabuk.
+
+[^416]: Nyaéta dina mangsa geus leungit rasa. Aya ogé nu napsirkeun: Di mana maranéhna teu bisa tobat deui.
+
+[^417]: Ieu ayat diturunkeun patalian jeung kasieunan kaom muslim anu geus mangméntakeun panghampura pikeun karabat-karabatna anu musrik.
+
+[^418]: Sababna Nabi geus ngawidian kaom munapék teu miluan perang.
+
+[^419]: Nyaéta Ka’ab bin Malik, Hilal bin Umayyah, jeung Murarah bin Rabi’. Maranéhna disalahkeun lantaran nolak miluan perang.
+
+[^420]: Aranjeunna leumpang mapai léngkob ti inditkeun nepi ka balikkeun pikeun jihad di jalan Allah.
+
+[^421]: Maksudna pikeun ngahinakeun.
+
+[^422]: Maksudna panyakit batiniah.
+
+[^423]: Nu dimaksud cocoba téh nyaéta musibah-musibah nu tumiba ka maranéhna, saperti kabuka tipu muslihatna jeung sipatna nu sok jalir kana jangji.
+
+[^424]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^425]: Tingal catetan kaki surat al-A\`raf/7:44
+
+[^426]: Allah ngajadikeun sakabéh nu disebutkeun téh teu percumah, tapi kalayan pinuh hikmah.
+
+[^427]: Puja jeung puji aranjeunna téh wungkul disanggakeun ka Allah.
+
+[^428]: Salamet tina sagala bahaya.
+
+[^429]: Kecap “niténan” nu dinisbatkeun ka Allah téh mangrupakeun majāz.
+
+[^430]: Coba geura datangkeun Kitab nu anyar pikeun dibaca ku urang saréréa nu eusina teu aya nyabit-nyabit dihudangkeun tina jero kubur.
+
+[^431]: Pék geura ganti ayat-ayat nu nerangkeun siksaan téh ku ayat-ayat nu nerangkeun rahmat, jeung nu nyempad sesembahan kuring saréréa diganti ku nu muji-muji sesembahan kuring saréréa.
+
+[^432]: Nyaéta katangtuan yén pasalia paham manusa di dunya téh bakal diputuskeun di ahérat.
+
+[^433]: Bumi nu éndah dihiasan ku gunung-gunung. Léngkob-léngkobna héjo ngéplok ku pepelakan.
+
+[^434]: Sabab éta sesembahan téh mangrupakeun banda paéh nu euweuh rohan. Maranéhna teu bisa nempo, ngadéngé, tur mikir.
+
+[^435]: Jalma-jalma nu geus ditetepkeun ku Allah takdirna di Loh Mahpud, yén maranéhna bakal paéh dina kakapiran jeung salawasna ogé moal rék iman.
+
+[^436]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^437]: Dibagi kana sababaraha rupa: Aya nu eusina ngeunaan kataohidan, hukum, kisah, ahlak, élmu-panemu, jangji, pépéling, jeung sajabana.
+
+[^438]: Para ulama ahli tapsir kabagi kana dua kelompok. Aya nu nyarita yén “tempat cicing” di dieu dihartikeun alam dunya, sedengkeun “tempat pamatuhan” téh dihartikeun ahérat. Aya ogé anu nyarita yén “tempat cicing” téh maksudna tulang sulbi, sedengkeun “tempat pamatuhan” dihartikeun jero rahim.
+
+[^439]: Allah nyiptakeun langit jeung bumi keur tempat padumukan jalma, tempat Allah nguji saha nu panghadé-hadé amalna.
+
+[^440]: Naon baé nu geus dipigawé ku maranéhna moal aya ganjaranana engké di ahérat.
+
+[^441]: Aya ulama tapsir anu ngahartikeun “saksi” dina ayat ieu ku malaikat Jibril a.s. Aya ogé anu nyebutkeun yén “saksi” di dieu maksudna Al-Qur’an, sabab Al-Qur’an téh Kitab anu teu bisa dibantah atawa dibatalkeun.
+
+[^442]: Maksud “saksi” dina ieu ayat téh nyaéta para malaikat, para nabi, tur anggahota awak-awakna sorangan.
+
+[^443]: Kalimah anu diucapkeun ku Nabi Nuh a.s. sawaktu anjeunna didesek ku kaom kapir pikeun ngusir jalma-jama iman nu héngkér tur miskin.
+
+[^444]: Nu dimaksud “tanur” dina ieu ayat nyaéta bagian beungeut bumi nu mancerkeun atawa ngaluarkeun cai nu ngalantarankeun datangna angin topan.
+
+[^445]: Ngaranna nyaéta Qan’an. Putra-putrana Nabi Nuh nu iman anu asup kana parahu téh nyaéta Sam, Ham, jeung Japis.
+
+[^446]: Allah parantos nedunan jangji-Na ka Nabi Nuh a.s. pikeun ngibinasakeun kaomna anu teu iman (kapir), tur nyalametkeun anu ariman
+
+[^447]: Gunung Judiy aya di wewengkon Arménia di beulah kulon, adek jeung nagri Mesopotamia.
+
+[^448]: Sabagian ahli tapsir nyebutkeun yén nu dimaksad “milampah nu teu hadé” téh nyaéta panggero Nabi Nuh ka Allah supaya anakna dibébaskeun tina marabahaya.
+
+[^449]: Maksudna: Manusa diciptakeun ku Allah pikeun ngama’murkeun alam dunya.
+
+[^450]: Pagawéan maranéhna ngarogahala onta éta ngarempak cegahan ti Nabi Soléh. Ku sabab kitu, Allah nibankeun ka maranéhna hukuman jeung ngabates hirup maranéhna ngan tilu poé deui. Ieu téh mangrupakeun guguyon jeung hinaan ti Allah pikeun maranéhna. Maranéhna dititah suka-bungah dina mangsa tilu poé.
+
+[^451]: Nya jiga kitu téréhna maranéhna dibinasakeun ku éta sora nu ngageleger, nepi ka maranéhna ancur lebur taya tapakan. Saolah-olah maranéhna can kungsi cicing di dinya.
+
+[^452]: Nabi Lut ngaraos guligah ku kadatangan éta dua utusan Allah, sabab duanana téh pamuda anu kasép, sedengkeun kaomna hayangeun ka éta dua pamuda, pikeun diajak ngalakukeun homo-seksual. Lut ngaraos teu sanggup nangtayungan éta dua pamuda lamun aya gangguan ti kaomna.
+
+[^453]: Ngalakukeun pagawéan ngadubur (homo-seksual).
+
+[^454]: Maranéhna teu boga napsu ka awéwé.
+
+[^455]: Aya dua tapsir ngeunaan “teu jauh ti jalma-jalma dolim” dina ayat ieu. Tapsiran ka hiji, yén pasti sabab kadoliman nu dipilampah, maranéhna sakeudeung deui bakal meunang siksaan. Tapsiran nu kadua, yén teu jauh ti jalma-jalma dolim téh nyaéta teu jauh ti Mekah tempat ngancikna jalma-jalma nu dolim.
+
+[^456]: Nu dimaksud “sésa kauntungan ti Allah” téh nyaéta kauntungan anu halal tina hasil dagang sanggeus maranéhna nyampurnakeun timbangan jeung takeran.
+
+[^457]: Ieu caritaan téh pikeun ngahina jeung ngageuhgeuykeun Nabi Su’éb.
+
+[^458]: “Salila masih aya langit jeung bumi” téh mangrupa kalimat kiasan pikeun ngajelaskeun yén maranéhna langgeng di éta tempat. Urang Arab geus biasa negeskeun hiji perkara nu langgeng ku nyebut “sapanjang aya langit jeung bumi.”
+
+[^459]: Tong mangmang yén nyembah barhala téh pagawéan anu sasar tur goréng akibatna.
+
+[^460]: Ieu ayat téh mangrupakeun panghibur Allah ka Nabi Muhammad dina raraga nyanghareupan tangtangan jalma-jalma kapir Mekah kana Al-Qur’an. Teu kudu anéh, baheula ogé Nabi Musa kitu. Waktu Kitab Torét turun, loba jalma anu aya dina pacéngkadan nyikepan éta Kitab.
+
+[^461]: Lamun seug taya katetepan yén siksaan pikeun maranéhna téh ditunda engké dina Poé Kiamat, pinasti manaranéhna disiksa harita kénéh ogé.
+
+[^462]: “Condong ka jalma-jalma dolim” maksudna ngahiji jeung maranéhna tur rido kana naon nu dipigawé ku maranéhna. Tapi lamun nyampur ngahiji jeung maranéhna teu dibarengan ku ngaridoan mah tur aya harepan supaya maranéhna balik kana bebeneran, éta mah teu dicegah.
+
+[^463]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^464]: Maksudna nyarios ka Nabi Yaqub, murangkalih Ishaq, murangkalih Ibrahim.
+
+[^465]: Nu dimaksud aki dina ayat ieu téh nyaéta aki sareng uyut (bapana aki).
+
+[^466]: “Jadi jalma-jalma anu soléh” maksudna “maranéhna sanggeus “nelasan” Yusuf a.s. kudu tobat ka Allah tur migawé amal soléh!”
+
+[^467]: Jadi jalma-jalma nu éléhan, nu hirupna taya gunana.
+
+[^468]: Dina perkara ieu mah Yaqub milih kasabaran nu hadé sanggeus anjeunna ngadangu béja nu pikasediheun.
+
+[^469]: Haténa teu katarik (teu suka) téh maksudna: Ku sabab maranéhna manggihan Yusuf di jalan, sieun engké-engkéna aya nu nyusul ti kulawargana. Ku sabab kitu, maranéhna buru-buru ngajual anjeunna sanajan kalayan pangaji anu murah.
+
+[^470]: Urang Mesir nu meuli Yusuf téh nyaéta hiji raja anu ngaranna Kitpir, sedengkeun istrina ngaranna Juléha.
+
+[^471]: Nabi Yusuf tos dugi kana yuswa antara 30-40 taun.
+
+[^472]: Maksud ieu ayat, Yusuf ogé boga kahayang sarua jeung Juléha pikeun milampah pagawéan “goréng”. Godaan Julaéha téh kacida rongkahna, lamun seug Yusuf teu dikuatkeun imanna ka Allah mah, pinasti anjeunna bakal anclub kana éta kama’siatan.
+
+[^473]: Maksudna: Anjeun kudu ngarasiahkeun ieu urusan!
+
+[^474]: Al-\`Azīz téh sebutan atawa gelar pikeun raja di Mesir.
+
+[^475]: Sanggeus ningali yén Yusuf téh bener, maranéhna tuluy menjarakeun anjeunna supaya aya anggapan yén nu salah téh anjeunna jeung supaya ulah aya deui omongan-omongan ngeunaan éta kajadian.
+
+[^476]: Numutkeun riwayat, dua pamuda téh nyaéta bujang-bujangna raja. Nu saurang tukang ngurus inuman raja. Saurang deui mah tukang nyieun roti.
+
+[^477]: Nu dimaksud “kaayaan aranjeun” dina ayat ieu nyaéta yén raja ménta pandangan ngeunaan Yusuf, naha anjeunna téh kapangaruhan waktu digoda atawa henteu.
+
+[^478]: Numutkeun sejarah jeung katerangan tina surat Yūsuf/12:48, nagri Mesir waktu harita, tur nagri-nagri di sabudeureunana, katarajang usum nguyang salila tujuh tahun. Tah ku lantaran nagri Mesir mah geus siap-siap ti tujuh tahun saméméhna ku alpukahna Nabi Yusuf, atuh waktu tumiba usum nguyang téh nagri Mesir mah henteu ieuh kalaparan, nepi ka nagri Mesir téh ka kajojo nagri-nagri sabudeureunana. Atuh loba pisan jalma-jalma ti luar Mesir anu datang, nu maksudna rék nukeurkeun pakayana kana dahareun, ti antarana nyaéta dulur-dulurna Nabi Yusuf a.s.
+
+[^479]: Numutkeun kalolobaan ahli tapsir, pakaya anu jadi panukeuran ti dulur-dulurna Nabi Yusuf a.s. téh nyaéta mangrupa kulit ingon-ingon jeung tarompah.
+
+[^480]: Peta saperti kitu téh dipilampah ku Nabi Yusuf minangka pangolo-ngolo sangkan dulur-dulurna deudeuieun hayang datang deui ka Mesir bari mawa Bunyamin.
+
+[^481]: Éta cawan téh dijieun tina emas, siga piala, bisa dipaké nginum ogé dipaké naker.
+
+[^482]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^483]: Tingal catetan kaki surat al-A\`raf/7:44
+
+[^484]: Pikeun saban manusa aya sababaraha malaikat nu tetep ngajaga manéhna kalayan giliran. Aya ogé sababaraha malaikat nu nyatet amal-amalna, nyaéta Roqib jeung ‘Atid. Nu dimaksud ku éta ayat téh nyaéta malaikat nu ngajaga kalawan bagilir téa nu disebut Malaikat Ḥafaẓah.
+
+[^485]: Allah moal rék ngarobah nasib hiji kaom saméméh éta kaom ngarobah dirina sorangan tina kamunduran-kamunduranana.
+
+[^486]: Jalma nu ngadoa ka salian ti Allah diupamakeun lir ibarat jalma nu namprakkeun dampal leungeunna kana cai supaya éta cai nepi kana sungutna. Tangtu hal éta moal kajadian salawasna ogé sabab dina dampal leungeunna nu namprak mah moal aya cai anu bisa nyalangkrung
+
+[^487]: Nyaéta silaturahim jeung tatali wargi.
+
+[^488]: Nyaéta urang Yahudi nu geus asup Islam saperti Abdullah bin Salam jeung urang Nasrani nu geus asup Islam.
+
+[^489]: Kautamaan basa Arab téh ti antarana:
+    a. Ti baheula nepi ka ayeuna basa Arab tetep hirup, dina harti terus dipaké ku loba manusa.
+    b. Basa Arab cocok tur beunghar ku kecap-kecap anu bisa ngajelaskeun rupa-rupa perkara ngeunaan Pangeran jeung ahérat.
+    c. Hiji kecap dina basa Arab bisa diobah jadi sababaraha kecap nepi ka 3000 kecap. Nu saperti kitu téh teu aya dina basa séjén mah.
+
+[^490]: Tujuan ieu ayat téh keur ngabantah anu sok ngahina ka Nabi Muhammad Saw. Ti antarana nyaéta pikeun ngabantah pamadegan maranéhna yén rasul téh bisa ngadatangkeun mujijat sakahayangna. Padahal mujijat mah mung dipasihkeun ku Allah ka rasul-Na dina waktu diperlukeun wungkul, lain keur kaulinan. Pikeun unggal-unggal rasul aya kitabna séwang-séwangan nu luyu jeung kaayaan waktu harita.
+
+[^491]: Maksudna para ulama Ahli Kitab nu geus ngagem agama Islam.
+
+[^492]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^493]: Mémang Al-Qur'an téh diturunkeun dina basa Arab, tapi sok sanajan kitu Al-Qur'an téh lain keur urang Arab wungkul, tapi diturunkeun keur sakabéh umat manusa.
+
+[^494]: Kajadian-kajadian nu geus tumiba ka kaom-kaom di jaman baheula boh nu mangrupa ni’mat atawa siksaan anu kungsi karandapan ku maranéhna.
+
+[^495]: Maksudna dina Poé Kiamat mah dosa téh moal bisa ditebus, sobat moal bisa nulungan. Tingali ogé guaran surat al-Baqarah/2:254.
+
+[^496]: Jalma-jalma kapir téh teu bosen-bosen nyieun rupa-rupa rencana pikeun ngancurkeun Islam jeung nanjeurkeun kabatilan. Maranéhna teu sadar yén rencana nu siga kumaha baé ogé sama sakali moal bisa ngéléhkeun rencana anu dirancang ku Allah.
+
+[^497]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^498]: Kecap kitu téh mangrupa pangjejeléh ti jalma-jalma kapir Mekah ka Nabi Muhammad Saw.
+
+[^499]: Ieu Ayat téh hiji jaminan pikeun kasucian jeung kamurnian Al-Qur’an salalawasna.
+
+[^500]: Sunatullah dina ieu ayat téh nyaéta Allah ngamusnahkeun jalma-jalma nu ngabohongkeun ka rasul-rasul.
+
+[^501]: Nu dimaksud sujud di dieu lain sujud nyembah, tapi minangka panghormatan ka Adam.
+
+[^502]: Tingali ayat 81 surat Hūd.
+
+[^503]: Riwayat Nabi Lut dina ieu surat al-Ḥijr teu dicaritakeun kalayan lengkep kawas dina surat Hūd.
+
+[^504]: Maranéhna rék ngagadabah tamu Nabi Lut (ku cara ngadubur), jeung maranéhna mémang geus kungsi ngancam Nabi Lut sangkan ulah wani-wani ngahalangan laku lampah maranéhna anu siga kitu.
+
+[^505]: Geus jadi adat urang Arab sumpah ku umur baturna, tah dina ieu ayat Allah ogé geus sumpah ku umur Nabi Muhammad Saw. Ari maksudna saur sawaréh ahli tapsir nyaéta pikeun nunjukkeun yén Nabi Muhammad téh kalintang mulyana mungguhing Allah Swt.
+
+[^506]: Nu dimaksud nyaéta Nagri Sodom nu lokasina deukeut basisir Laut Tengah.
+
+[^507]: Aikah téh nagri di daerah Madyan anu dicicingan ku kaom Nabi Syu’éb. Di sabudeureunana aya leuweung geledegan.
+
+[^508]: Nyaéta Nagri Sodom jeung Aikah.
+
+[^509]: Urang Al-Hijr téh nyaéta kaom Samud. Al-Hijr téh tempat anu pernahna di léngkob Qura antara Madinah jeung Syiria.
+
+[^510]: Nu di maksud rasul-rasul dina ayat ieu téh nyaéta Nabi Soléh. Ari alesan Nabi Soléh disebut rasul-rasul padahal ngan saurang, sabab ngabohongkeun saurang rasul sarua baé jeung ngabohongkeun sakabéh rasul.
+
+[^511]: Kajadian éta téh dina poé kaopat saba\`da datang ka maranéhna panggeuing ti Allah.
+
+[^512]: Nu dimaksud tujuh ayat nu di baca bulak-balik téh nyaéta surat al-Fātiḥah. Aya ogé ahli tapsir anu boga pamadegan yén nu dimaksud nyaéta tujuh surat anu paranjang nyaéta surat al-Baqarah, Ali Imrān, al-Mā’idah, al-Nisā’, al-An’ām, jeung al-Anfāl atawa Al-Tawbah.
+
+[^513]: Nyaéta jalma-jalma nu narima kana sawaréh eusi kitab, tapi nolak anu sawaréhna deui, nyaéta urang Yahudi jeung Nasrani nu ngabagi-bagi Al-Qur’an.
+
+[^514]: Nyaéta urang Yahudi jeung Nasrani anu geus ngabagi-bagi Al-Qur’an. Sawaréh ayat-ayatna dipercaya ku maranéhna, anu sawaréhna deui ditarolak. Maksud ieu ayat 89, 90, 91 nyaéta Allah maréntahkeun ka Nabi Muhammad Saw. sangkan méré pépéling ka urang Yahudi jeung Nasrani, yén Mantenna rék nurunkeun siksa ka maranéhna, sakumaha nu geus ditibankeun ka kaom Samud.
+
+[^515]: Maksud ieu paupamaan téh nyaéta pikeun ngabantah pamadegan jalma-jalma musrik anu sok nyarua-nyaruakeun Allah Anu Maha Masihan-rejeki jeung patung-patung anu teu bisaeun nanaon.
+
+[^516]: Nabi Muhammad Saw. moal tiasa masihan topék jeung hidayah ka saha baé ogé anging kalayan widi Allah. Tugas anjeunna mah ngan ukur nepikeun risalah.
+
+[^517]: Kalaparan jeung kasieun téh ngawengku maranéhna saperti pakéan nutupan awak.
+
+[^518]: Tingali surat al-An\`ām ayat 146.
+
+[^519]: Ḥanīf téh hartina jalma nu salalawasna nyepeng pageuh kana bebeneran.
+
+[^520]: Urang Yahudi diwajibkeun ku Allah ngamumulé poé Saptu ku cara ngalobakeun ibadah jeung amal-amalan nu soléh sarta ninggalkeun pagawéan sapopoé.
+
+[^521]: Hikmah téh nyaéta caritaan nu jéntré tur bener nu bisa ngabédakeun anu haq jeung anu batil.
+
+[^522]: Maksudna ulah kaleuleuwihi.
+
+[^523]: Masjidil Aqsa jeung wewengkon sabudeureunana téh sajaba taneuhna subur ogé remen dikintunan nabi ku Allah Swt.
+
+[^524]: Ka ibu rama mah sok sanajan ngan ukur ngucapkeun “his” kacida pisan dipahingna ku Al-Qur’an, sabab éta téh matak nganyerikeun kana haté, sok komo deui lamun ngedalkeun kecap-kecap anu leuwih kasar tibatan éta, atawa hampang leungeun ka aranjeunna duaan. Éta kabéhanana téh kaasup lampah doraka anu kacida badag dosana.
+
+[^525]: Maksudna lamun anjeun can bisa nedunan hakna dulur anjeun anu deuheus, pakir miskin, jeung musapir, mangka ucapkeun baé kecap-kecap anu pantes, anu matak pikabungaheun jeung teu matak nyeri haté, anu dibarengan ku upaya satékah polah néangan rejeki anu halal sangkan hiji mangsa bisa nedunan hak-hak maranéhna.
+
+[^526]: Tingali catetan di surat al-An\`ām/6:151.
+
+[^527]: Nu dimaksud kakawasaan di dieu nyaéta wali jalma anu dipaéhan atawa pamaréntah nu dibéré wewenang pikeun nuntut qisos atawa ménta diyat. Tingali ogé surat al-Baqarah/2:178 jeung surat an-Nisā'/4:92.
+
+[^528]: Maksudna sakabéh pagawéan anu dicegah dina ayat 22, 23, 26, 29, 31, 32, 33, 34, 36, jeung 37 (dina ieu surat).
+
+[^529]: Nu ku maranéhna sok disebut pangéran téh nyaéta berhala, malaikat, jin, jeung sajabana.
+
+[^530]: Bisa baé Allah nyumpingkeun mujijat sakumaha paménta kaom Qurés keur ngabuktikeun benerna Nabi Muhammad Saw. Éta perkara téh gampil kanggo Allah mah. Ngan pan mujijat nu modél kitu téh geus dibohongkeun ku kaom-kaom anu baheula ogé, terus maranéhna dibinasakeun ku Allah. Ku sabab kitu, Mantenna moal rék nyumpingkeun mujijat anu sarupa kitu deui, sabab pasti bakal dibohongkeun ogé ku kaom Qurés, padahal Mantenna téh henteu ngersakeun badé ngabinasakeun kaom Qurés.
+
+[^531]: Nu dimaksud impian di dieu nyaéta impian Rasulullah Saw. ngeunaan Perang Badar, saméméh prung éta perang. Loba ogé ahli tapsir nu nyebutkeun yén anu dimaksud téh nyaéta rupa-rupa pangalaman anu katingal ku anjeunna waktu Isra’ jeung Mi’raj.
+
+[^532]: Nyaéta tangkal Zaqqūm nu disebutkeun dina ayat 62 dugi ka ayat 65 surah al-Ṣaffāt.
+
+[^533]: Allah méré témpo ka Iblis pikeun nyasarkeun manusa ku sagala cara anu bisa dilakukeun ku manéhna, tapi sagala tipu dayana moal mempan ka jalma-jalma anu bener-bener iman tur ihlas mah.
+
+[^534]: Allah nyiapkeun pikeun anak turunan Adam rupa-rupa tutumpakan di daratan jeung di lautan, supaya maranéhna bisa motékar néangan rupa-rupa rejeki ti Allah.
+
+[^535]: Upama Nabi Muhammad bener-bener diusir ku pangeusi kota Mekah, tangtu maranéhna moal lila hirup di dunya. Allah bakal nibankeunan siksaan ka maranéhna. Ku sabab kitu, hijrahna Nabi ka Madinah téh lain ku sabab diusir ku kaom Qurés, tapi ku sabab diparéntah ku Allah Swt.
+
+[^536]: Unggal-unggal kaom anu ngusir rosulna pasti bakal dibinasakeun. Éta téh geus jadi katangtuan ti Allah Swt.
+
+[^537]: Ieu ayat téh nerangkeun waktu-waktu salat, nyaéta lingsir panonpoé tanda geus datang waktu salat Lohor jeung Asar, poékna peuting tanda geus datang waktu salat Magrib jeung Isa, jeung meletékna pajar tanda datangna waktu salat subuh.
+
+[^538]: Neda ka Allah supaya urang bisa ngamimitian ogé mungkas ibadah kalayan niat anu hadé, tur pinuh ku kaihlasan sarta bersih tina riya jeung sagala perkara nu matak ngaruksak ganjaran. Ieu ayat ogé méré isarat ka Nabi Muhammad Saw. sangkan hijrah ti Mekah ka Madinah. Aya ogé nu napsirkeun ayat ieu mangrupa doa sangkan urang asup ka kubur dina kaayaan hadé tur kaluar ti dinya ogé (dina poéan hisab) kalayan hadé.
+
+[^539]: Waktu maranéhna maot ogé waktu maranéhna dihudangkeun deui tina maot.
+
+[^540]: Mujijat nu salapan téh nyaéta iteuk, panangan, simeut, kutu, bangkong, getih, topan, laut, jeung (Gunung) Tur Sina’.
+
+[^541]: Maksudna ulah bedas teuing nalika maca ayat Al-Qura’an keur waktu salat, atawa ulah lalaunan teuing, tapi cukup sakadar kadangu ku ma’mum.
+
+[^542]: Teu aya dina jero Al-Qur'an mah ma’na anu patojaiah ogé anu méngkol tina bebeneran.
+
+[^543]: Ceuk sawatara ahli tapsir al-Raqīm téh ngaran anjingna Ashabul Kahfi, sedengkeun ceuk sawaréhna deui mah batu anu aya tutulisanana.
+
+[^544]: Nu dimaksud dua golongan téh nyaéta Ashabul Kahfi (pamuda-pamuda pangeusi guha) anu pada-pada béda pamadegan ngeunaan sabaraha lilana maranéhna cicing dina jero guha.
+
+[^545]: Nu dimaksud dua golongan téh nyaéta Ashabul Kahfi (pamuda-pamuda pangeusi guha) anu pada-pada béda pamadegan ngeunaan sabaraha lilana maranéhna cicing dina jero guha.
+
+[^546]: Nangtung hareupeun Raja Dikyanus anu dolim tur adigung adiguna.
+
+[^547]: Ngadolim kana diri sorangana nyaéta ku cara adigung jeung kupur.
+
+[^548]: Numutkeun ahli tapsir, jalmi anu dipilarian ku Nabi Musa téh nyaéta Nabi Khidir. Anjeunna kénging rahmat ti Gusti mangrupa wahyu sareng kanabian. Anjeunna ogé kénging nugraha élmu ngeunaan perkara-perkara anu gaib sakumaha anu dijelaskeun dina ayat-ayat saterusna.
+
+[^549]: Hiji basisir laut di beulah kulon, tempat Zulkarnaén ningali panonpoé surup.
+
+[^550]: Saur sabagian ahli tapsir éta kaom téh kaom anu miskin.
+
+[^551]: Ya’juj jeung Ma’juj téh dua kaom anu sok ngaruksak di bumi.
+
+[^552]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^553]: Pék geura talungtik, geura amalkeun, jeung geura ajarkeun eusina éta Kitab ka balaréa.
+
+[^554]: Pangarti anu kacida luhungna ngeunaan kitab Torét.
+
+[^555]: Ceuk sabagian ahli tapsir, nu dimaksud kulawarga di dieu téh nyaéta umatna.
+
+[^556]: Maksudna: Allah bakal nyandak sakabéh harta tur anak nu kungsi kapibanda ku manéhna, nya manéhna téh mulang ka Allah sosoranganan teu dibaturan ku sasaha baé ogé.
+
+[^557]: Maksudna nyieun jangji pasini sareng Allah téh nyaéta ngalaksanakeun sadaya paréntah-Na kalayan iman jeung takwa.
+
+[^558]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^559]: Tingal catetan kaki surat al-A\`raf/7:44
+
+[^560]: Allah nyegah Nabi Muhammad rurusuhan nuturkeun bacan Jibril a.s. sakalimat-sakalimat. Ieu ayat maréntahkeun anjeunna sangkan ngaregepkeun heula bacaan Jibril dugi ka rengsé, kakara ngapalkeun jeung ngaregepkeun eusina.
+
+[^561]: Maksud Adam ma\`siat: Nyaéta ngarempak kana panyaram Allah Swt. ku sabab poho, lain ngahajakeun. Ari maksudna Adam sasar nyaéta nurut kana pangajak sétan. Tah ieu kasalahan téh kaasup doraka gedé keur pangkat nabi samodél Nabi Adam mah.
+
+[^562]: Allah milih Adam a.s. pikeun jadi jalma anu deukut ka Mantenna.
+
+[^563]: Nu dimaksud ku maranéhna sihir di dieu téh nyaéta ayat-ayat Al-Qur'an.
+
+[^564]: Ti mungguh Kami” nyaéta nu luyu jeung sipat-sipat Allah.
+
+[^565]: Panyangka yén Allah téh ngagaduhan istri sareng putra.
+
+[^566]: Éta cariosan digerenteskeun ku Nabi Ibrahim a.s. dina manahna. Maksudna mah, Nabi Ibrahim a.s. bakal milampah tipu dayana pikeun ngabinasakeun berhala-berhala maranéhna, sanggeus maranéhna nyingkah ninggalkeun éta tempat berhala.
+
+[^567]: Nagri Syam téh ngawengku ogé Palestina. Allah maparin kabarokahan ka éta nagri. Maksudna, kalolobaan nabi téh asalna ti ieu nagri anu lahanna subur.
+
+[^568]: Homoseksual jeung ngabégal, sarta maranéhna milampah éta pagawéan kalayan nembrak.
+
+[^569]: Dina riwayat Ibnu Abbas, aya sababaraha embé nu ngacak-ngacak kebon peuting-peuting. Nu boga kebon nepikeun éta perkara ka Nabi Dawud a.s. Anjeunna netepkeun yén éta embé téh kudu dipasrahkeun ka nu boga kebon pikeun ngagantian tutuwuhan nu raruksak. Ngan Nabi Sulaéman a.s. mah netepkeun pamadegan yén éta embé téh saheulaanan dipasrahkeun ka nu boga kebon pikeun diala hasilna. Tuluy nu boga kebon kudu ngaganti éta tutuwuhan ku tutuwuhan nu anyar. Lamun tutuwuhan nu anyar éta geus diala hasilna, nya karék éta nu boga embé bisa nyokot deui embéna. Tah lebah dieu mah kaputusan Nabi Sulaéman téh éta nu leuwih bener.
+
+[^570]: Dina jero beuteung lauk, di jero laut, sarta dina waktu peuting.
+
+[^571]: Mun seug mah Allah teu ngaijabah doana, nyaéta ku maparin katurunan, Zakariya mah bakal masrahkeun dirina baé ka Allah, sabab Allah téh panghadé-hadéna nu ngawaris.
+
+[^572]: Sakabéh kitab nu dilungsurkeun ku Allah ka nabi-nabi-Na. Sawaréh ahli tapsir nyebutkeun yén “Jabur” téh nyaéta Kitab nu diturunkeun ka Nabi Dawud a.s., sedengkeun Aż-Żikr mah nyaéta kitab Torét.
+
+[^573]: Henteu didadasaran ku kayakinan nu buleud.
+
+[^574]: Balik deui kana kakapiran.
+
+[^575]: Kecap sama' di dieu dihartikeun lalangit (bagian tina suhunan imah). Mun sama' dihartikeun langit (dina harti nu biasa), nya tarjamahna jadi "mun seug musuhna Muhammad Saw. ambek lantaran anjeunna kénging pitulung ti langit, nya keun baé manéhna sina ngantengkeun tali ka langit, jeung tuh tingali naha maranéhna bisa megatkeun éta pitulung ku cara kitu? Hartina, kacida bodona maranéhna mun seug nyangka bisa megatkeun pitulung ti Allah ku éta cara nu heureut.
+
+[^576]: Lebaran haji jeung Tasyrīq téh nyaéta kaping 10, 11, 12, jeung 13 Julhijah.
+
+[^577]: Nu dimaksud “ngaberesihan kokotor-kokotor” di dieu téh nyaéta nyukur rambut, neukteuk kuku, jeung sajabana.
+
+[^578]: Nu dipihormat (ḥurumāt) dina ieu ayat téh hartina nyaéta bulan haram (Muharam, Julkaidah, Julhijah, Rajab), daérah haram, jeung makom Ibrahim.
+
+[^579]: Si’ar Allah téh nyaéta sadaya amalan nu dipigawé dina raraga ibadah haji jeung tempat-tempat pikeun migawéna.
+
+[^580]: Tingali Al-Baqarah/2:196.
+
+[^581]: Nu dimaksud ingon-ingon hadyu téh bisa ku aranjeun diala mangpaatna, saperti keur tutumpakan, diala susunan, jeung sajabana nepi ka poé naḥar.
+
+[^582]: Biasana onta dipeucit dina kaayaan bari nangtung.
+
+[^583]: Sawaréh ahli tapsir ngahartikeun kecap tamannā ku “maca” jeung umniyyatihi ku “bacaanana.” Nyaéta waktu Nabi Saw. maos hiji ayat nu eusina méré naséhat ka jalma-jalma kapir, aranjeunna gancang nuturkeun bacaan Nabi Saw. bari ditambahan ku kecap-kecap nu nguatan kayakinana.
+
+[^584]: Budak beulian (abid) hasil tina pangperangan ngalawan jalma kapir, lain nu dihasilkeun di luar perang agama. Ayeuna mah budak beulian téh geus teu aya.
+
+[^585]: Sawaréh manusa maot jeung sawaréh deui mah dilahirkeun.
+
+[^586]: Tah éta ku sakitu goréngna panganggeusan maranéhna téh, tug nepikeun maranéhna teu walakaya saeutik ogé, teu béda lir runtah nu kabawa caah, sanajan maranéhna téh dedeg pangadegna sakitu jangkung badagna.
+
+[^587]: Mujijat Nabi Musa a.s. nu salapan rupa.
+
+[^588]: Kamadorotan mangrupa kalaparan. Kaom musrikin kungsi ngalaman kalaparan, sabab dahareun ti Yaman teu asup ka Mekah, sedengkeun Mekah jeung sabudeureunana aya dina kaayaan paceklik, nepi ka dina mangsa harita maranéhna téh kacida malaratna.
+
+[^589]: Di antarana maranéhna éléh dina waktu Perang Badar, nu harita dina éta perang gegedén-gegedénna téh loba nu paéh atawa ditawan, bari maranéhna téh ditibanan usum halodo tarik. Ahirna maranéhna téh kasiksa ku kalaparan.
+
+[^590]: Nyaéta naséhat ku poé dihudangkeun deui.
+
+[^591]: Barjah téh nyaéta hiji tempat atawa kaayaan jalma sanggeus maot nepi ka manéhna dihudangkeun deui dina Poé Kiamat.
+
+[^592]: Jalma mu’min teu pantes kawin jeung tukang jinah, nya kitu ogé sabalikna.
+
+[^593]: Nu dimaksad ku ayat 6-7 téh nyaéta jalma anu nuduh jinah bari teu bisa ngadatangkeun opat urang saksi, nya manéhna kudu daék sumpah nyebat jenengan Allah opat kali, yén tuduhanana téh bener. Tuluy manéhna kudu daék sumpah sakali deui yén manéhna bakal keuna ku la’nat Allah lamun seug manéhna bohong. Perkara ieu dina fiqih mah disebutna téh bab li’ān.
+
+[^594]: Béja bohong ieu ngeunaan garwana Rasulullah Saw., nyaéta ‘Aisyah r.a., Ummul Mu’minin, sanggeusna perang ngalawan Bani Mustaliq dina sasih Sya’ban 5 H. Dina éta pangperangan téh, kaom munapék ngarilu, sareng ‘Aisyah r.a. ogé ngiring sareng Nabi Saw. dumasar kana undian nu diayakeun di antara garwa-garwana. Waktu badé mulih ti pangperangan, aranjeunna lirén heula di hiji tempat. ‘Aisyah r.a. kaluar tina sakeduqna ku margi aya kaperyogian, lajeng anjeunna mulih deui. Ngan ujug-ujug anjeunna rumaos kaleungitan kongkorong, teras anjeunna kaluar deui milari éta kongkorong. Sedeng, rombonganna arangkat pédah sangkaanana yén ‘Aisyah aya kénéh dina lebet sakeduqna. Saparantosna ‘Aisyah terang yén sakeduqna tos angkat, anjeunna teras calik di dinya sareng miharep yén éta sakeduq téh bakal mulang deui mapagkeun anjeunna. Kaleresan ngalangkung ka tempat éta saurang sahabat Nabi, Sofwan ibnu Mu’atal, nu mendakan hiji jalmi nu nuju kulem nyalira sareng anjeunna reuwas kacida bari ngucapkeun, “Innā lillāhi wa innā ilaihi rāji’ūn, geuning garwana Rasul!” Aisyah teras gugah. Lajeng anjeunna disuhunkeun naék kana ontana ku Sofwan. Sofwan nungtun éta onta dugi duanana sumping di Madinah. Jalma-jalma nu ningali anjeunna duaan teras ngadurényomkeunana nurutkeun kamandangna masing-masing. Ti dinya mimiti bijilna béja bohong téh. Tuluy kaom munapék ngagedékeunna, nya pitnah ka ‘Aisyah teras beuki ngalegaan, dugi ka nimbulkeun kaharénghéng di antara kaom muslimin.
+
+[^595]: Nu dimaksad ku istri-istri nu polos téh nyaéta istri-istri anu tacan kantos niat pikeun milampah padamelan kotor sakali ogé.
+
+[^596]: Ieu ayat nuduhkeun kasucian ‘Aisyah r.a. jeung Sofwan tina sagala tuduhan nu dituduhkeun ka aranjeunna. Rasulullah téh jalmi anu pangsaéna, nya tangtu nu janten garwana téh istri anu saé ogé.
+
+[^597]: Liang nu teu tembus” (misykāt) nyaéta hiji liang dina lebah témbok imah nu teu tembus nepi ka sabeulahna deui, biasana dipaké pikeun tempat nunda lampu atawa barang-barang séjénna.
+
+[^598]: Tangkal Jaitun téh tumuwuhna dina puncak pasir. Éta tangkal téh kasorot ku cahya panonpoé dina waktu meleték panonpoé atawa dina waktu surup panonpoé , nepi ka tangkalna téh subur jeung buahanana ngahasilkeun minyak nu hadé.
+
+[^599]: Nu ngagungkeun téh nyaéta jalma nu disebut dina ayat 37.
+
+[^600]: alma-jalma kapir, ku sabab amal-amalna teu didadasaran ku iman, moal meunang wawales ti Allah di ahérat, sanajan di dunyana nyangka bakal meunang wawales amalna.
+
+[^601]: Di antara sasama kaom muslimin, jeung antara kaom muslimin jeung nu lain muslimin.
+
+[^602]: Tilu rupa waktu nu biasana dina waktu-waktu éta awak sering témbong. Ku sabab kitu, Allah nyegah ka budak beulian jeung barudak nu can sawawa ulah nepi ka asup ka kamar saré nu geus sawawa tanpa idin.
+
+[^603]: Barudak ti jalma merdéka anu lain mahrom nu geus balég, kudu ménta idin heula mun rék asup ka kamar saré kolotna, siga jalma-jalma nu kasebut dina ayat 27 jeung 28 dina ieu surat.
+
+[^604]: Pakéan luar anu moal némbongkeun orat upama dibuka.
+
+[^605]: Imah nu dipasrahkeun ka anjeun pikeun ngurusna.
+
+[^606]: Maranéhna miharep kacilakaan sangkan bisa leupas tina siksaan nu pohara gedéna, nyaéta sisa naraka nu kacida panasna bari diborogod di tempat nu heurin pisan, sakumaha nu didadarkeun dina éta ayat.
+
+[^607]: Sanggeus maranéhna diriungkeun babarengan jeung saniskara nu disembah ku maranéhna, nyaéta malaikat, Ujair, Nabi Isa a.s., katut berhala-berhalana, sarta saparantos Allah nalék ka nu disarembahna, “Naha maranéh anu nyasarkeun éta jalma-jalma téh atawa éta jalma-jalma anu nyasarkeun dirina sorangan?” Nya nu disarembah téh ngajawab yén teu pantes pikeun maranéhna ibadah ka salian ti Allah, komo ieu mah nitah ka nu séjénna pikeun ibadah ka salian ti Mantenna.
+
+[^608]: Amal-amal hadé nu dipilampah ku maranéhna di dunya. Éta amal téh mubah sabab maranéhna téh teu iman.
+
+[^609]: “Karajaan nu hak” téh nyaéta kakawasaan nu pasti.
+
+[^610]: Sétan atawa jalma nu geus nyasarkeunana di dunya.
+
+[^611]: Éta Al-Qur'an téh henteu diturunkeun sakaligus, tapi ditungtut sabagian-sabagian sangkan manah Nabi Muhammad Saw. jadi weweg tur panceg.
+
+[^612]: Saréntétan-saréntétan, lalaunan, jeung bener.
+
+[^613]: Rass téh nyaéta talaga nu geus garing taya caian deui. Tuluy dijieun ngaran hiji kaom, nyaéta Rass. Maranéhna nyembah ka berhala, nya lajeng Allah ngutus Nabi Syuéb a.s. ka maranéhna.
+
+[^614]: Éta kalangkang téh ku Kami dileungitkeun lalaunan nuturkeun surupna panonpoé saeutik-saeutik.
+
+[^615]: Muṣāharah téh hartina hiji iketan duduluran nu asalna tina iketan pernikahan, saperti minantu, adi beuteung, dahuan, mitoha, jeung sajabana.
+
+[^616]: Tingal catetan kaki surat al-A\`raf/7:44
+
+[^617]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^618]: Supaya Harun ogé diangkat jadi rasul pikeun mantuan anjeunna.
+
+[^619]: Musa a.s. nyanggem yén anjeunna téh ngaraos doraka ka urang Mesir. Éta téh ngan ukur anggapan urang Mesir wungkul, sabab sabenerna Musa téh henteu doraka. Anjeunna maéhan urang Mesir téh kalayan henteu dihaja. Satuluyna tingali Al-Qaṣaṣ/28:15.
+
+[^620]: Musa cicing babarengan jeung Fir’aun ti orok kénéh, leuwih kurang 18 taun.
+
+[^621]: Tali jeung iteuk nu dialungkeunku tukang sihir téh nu kabayang siga oray ku maranéhna, sakabéhna dileglegan ku iteuk Nabi Musa a.s. anu jadi oray enyaan.
+
+[^622]: Fir’aun jeung kaomna waktu ngudag Nabi Musa a.s. jeung Bani Israél, nya harita maranéhna téh geus kaluar ti nagrina kalayan ninggalkeun karajaan, kaagungan, kaméwahan, jeung sajabana.
+
+[^623]: Allah bakal maparin ka Bani Israél hiji karajaan nu weweg, karasulan, jeung sajabana.
+
+[^624]: Nu dimaksad “golongan séjénna” téh nyaéta Fir’aun jeung kaomna. Nu dimaksud dina ieu ayat nyaéta di lebah beulahan laut téa, teras Allah ngadeukeutkeun Fir’aun jeung kaomna ka Nabi Musa a.s. jeung Bani Israél.
+
+[^625]: Pangeusi nagri Madyan téh nyaéta kaom Nabi Syuéb a.s.
+
+[^626]: Nu dimaksad ku ieu ayat téh nyaéta yén sabagian panya’ir mah osok ngulinkeun kecap, henteu ngabogaan tujuan nu hadé, jeung henteu ngagaduhan pamadegan nu panceg.
+
+[^627]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^628]: Ngasupkeun leungeunna tina kerah baju kana dada.
+
+[^629]: Nabi Sulaéman a.s. ngaganti kanabian jeung karajaan Nabi Dawud a.s. sarta ngawarisan élmu pangaweruh jeung Kitab Jabur nu dilungsurkeun ka anjeunna.
+
+[^630]: Hud-hud téh kaasup manuk caladi.
+
+[^631]: Saba' téh nyaéta ngaran karajaan jaman baheula, puseur dayeuhna téh Ma’rib, ayana deukeut kota San’a, puseur dayeuh Yaman ayeuna.
+
+[^632]: Ratu Balqis nu ngawasa Karajaan Saba’ dina jaman Nabi Sulaéman a.s.
+
+[^633]: Saperti nurunkeun hujan ti langit, numuwuhken pepelakan, ngaluarkeun logam ti bumi, jeung sajabana.
+
+[^634]: Kitab di dieu maksudna téh nyaéta kitab nu dilungsurkeun saméméh Nabi Sulaéman a.s. nyaéta Torét jeung Jabur.
+
+[^635]: Balqis tos terang kana kanabian Sulaéman a.s. saméméh tahtana dipindahkeun ti nagri Saba’ ka Palestina kalayan sakedét nétra.
+
+[^636]: Numutkeun para ahli tapsir, nu dimaksad kota di dieu téh nyaéta kota kaom Samud, nyaéta kota Al-Hijr.
+
+[^637]: Nabi Soléh a.s. sareng anu nuturkeunana.
+
+[^638]: Maksud fāḥisyah di dieu nyaéta seks nu nyimpang, kaasup homoseksual.
+
+[^639]: Dua laut di dieu nyaéta laut nu asin jeung walungan badag nu muharana nepi ka laut. Walungan nu hambar waktu nepi ka muhara teu langsung jadi asin.
+
+[^640]: Jalma-jalma musrik Arab téh ngabohongkeun kana ayat-ayat Allah bari teu dipikir heula.
+
+[^641]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^642]: Fir’aun ngarasa hariwang karajaanana bakal dibinasakeun ku Bani Israél. Ku kituna, manéhna maéhan orok lalaki nu kakara borojol ti urang Bani Israél. Ieu ayat nerangkeun yén naon un dipikahariwang ku manéhna téh bakal kajadian.
+
+[^643]: Saenggeus indungna Musa malidkeun Musa di walungan Nil, nya anjeunna ngaraos hanjakal sareng mangmang dina haténa lantaran ngahariwangkeun kana kasalametan Musa, dugikeun anjeunna ampir-ampiran ngagorowok nyuhunkeun tulung ka jalma séjén pikeun nyandak deui putrana, nu bisa ngabalukarkeun kabukana rasiah yén Musa téh putrana nyalira.
+
+[^644]: Musa ngaraos hanjakal yén éta jalma téh maot ku lantaran diteunggeul ku anjeunna, padahal anjeunna taya maksud pikeun maéhanana, tapi ngan ukur mélaan kaomna wungkul.
+
+[^645]: Sanggeusna Musa a.s. nohonan jangji ka mitohana, Séh Madyan, nya anjeunna jeung kulawargana téh terus babarengan angkat bari nyandak sababaraha embé nu dipaparin ti mitohana, nya dina hiji peuting nu poék jeung tiris, Musa dugi ka hiji tempat, tapi unggal anjeunna rék ngahurungkeun seuneu, korékna teu daék hurung. Musa ngarasa héran ku éta perkara, nya anjeunna teras nyarios ka garwana sakumaha nu disebutkeun dina ayat 29.
+
+[^646]: Di éta tempat jeung harita pisan, Nabi Musa a.s. ngawitan diangkat jadi rasul.
+
+[^647]: Nabi Musa a.s. di sagigireun ngarasa sieun ku Fir’aun, ogé rumaos kirang lancar dina nyarios mayunan Fir’aun. Nya anjeunna nyuhunkeun ka Allah pikeun ogé ngutus Nabi Harun a.s. anu langkung lancar nyariosna keur maturan anjeunna.
+
+[^648]: Sanggeus maranéhna dibinasakeun, nya éta tempat téh jadi kosong jeung teu dima’murkeun deui, nepi ka mulang deui ka nu ngamilikna, nyaéta Allah.
+
+[^649]: Jalma anu dipaparin ni’mat hirup dunya, ngan teu dipaké pikeun néangan kabagjaan hirup di ahérat. Ku lantaran kitu, manéhna di ahérat bakal digusur kana jero naraka.
+
+[^650]: Saksi di dieu nyaéta rasul nu geus diutus ka maranéhna waktu di dunya.
+
+[^651]: Karun téh nyaéta salah sahiji murangkalih paman Nabi Musa a.s.
+
+[^652]: Kota Mekah. Tah ieu téh hiji jangji ti Pangéran yén Nabi Muhammad Saw. bakal mulang deui ka Mekah jadi jalma nu unggul. Ieu perkara téh geus kajadian dina taun ka dalapan Hijri, waktu harita Nabi naklukkeun Mekah. Ieu téh jadi hiji mujijat anjeunna.
+
+[^653]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^654]: Éta jalma téh sieun didoliman ku manusa, saperti kasieunana kana siksaan Allah, ku lantaran kitu manéhna tuluy ninggalkeun kaimanana.
+
+[^655]: Maranéhna nyarita yén éta berhala-berhala téh bisa maparin syapaat ka maranéhna di mungguhing Allah, padahal ieu téh mangrupa kabohongan.
+
+[^656]: Allah ngahudangkeun deui manusa sanggeusna maot jaga di ahérat.
+
+[^657]: Ku dipaparinana anak incu nu hadé, kanabian anu teu lirén-lirén, jeung puji-pujian nu hadé.
+
+[^658]: Sawaréh ahli tapsir ngahartikeun “milampah pagawéan jahat ka jalma-jalma di tengah lalampahan,” lantaran lolobana maranéhna milampah éta pagawéan homoseksual téh jeung sémah-sémah nu daratang ka lembur maranéhna. Mung aya deui nu ngahartikeun éta kecap téh ku “ngaruksak jalan turunan,” lantaran maranéhna milampah homoseksual.
+
+[^659]: Béja yén Nabi Ibrahim a.s. bakal ngagaduhan putra.
+
+[^660]: Nabi Lut a.s. ngaraos hariwang ku sumpingna éta utusan-utusan Allah ku margi aranjeunna téh pamuda nu kararasép pisan, sedengkeun kaom Lut resepeun pisan ka pamuda nu kararasép pikeun ngalakukeun pagawéan homoseksual. Sareng anjeunna ngaraos teu sanggem nulungan aranjeunna téh waktu diganggu ku kaomna.
+
+[^661]: Ruruntuk kota Sodom, nagri kaom Lut.
+
+[^662]: Jalma-jalma nu geus dibéré katerangan jeung wawaran nu jelas ku cara nu panghadé-hadéna, tapi maranéhna tetep nengtéréwéléng jeung ngabahula (ngabangkang). Maranéhna téh tétéla ngomong rék tetep ngamusuhan.
+
+[^663]: Ayat-ayat Al-Qur’an téh dipulasara dina dada ku cara diapalkeun ku lolobana kaom Muslim kalayan turun-tumurun jeung dipahamkeun, dilenyepan bari diteuleuman dina jero haté, nepi ka euweuh sanajan hiji ogé anu bisa ngarobahna.
+
+[^664]: Geus ditetepkeun siksaan dina poé pangwalesan di ahérat.
+
+[^665]: Kalayan ngamurnikeun kataatan mung ka Allah wungkul.
+
+[^666]: Ngabohongkeun risalah kanabian Nabi Muhammad Saw.
+
+[^667]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^668]: Romawi anu pusatna di Konstantinopel.
+
+[^669]: Nu pangdeukeutna jeung nagri Arab téh nyaéta Suriah jeung Palestina, waktu éta jadi jajahan karajaan Romawi.
+
+[^670]: Bangsa Romawi téh (waktu ayat ieu turun), nyaéta bangsa Nasrani nu miboga Kitab Suci, sedengkeun bangsa Persia ngagem agama Majusi, maranéhna nyembah seuneu jeung patung (musyrik). Éta dua bangsa téh perang. Waktu béja éléhna bangsa Romawi ku bangsa Persia nepi ka kaom Musrik Mekah, maranéhna kacida bungaheunana, ku lantaran maranéhna mah mihak ka bangsa Persia. Sedengkeun kaom muslimin sabalikna, ngarasa kuciwa jeung sedih. Tuluy turun ayat ieu jeung ayat saterusna nu ngajelaskeun yén sanggeus tumiba éléh perang, bangsa Romawi bakal unggul dina sawatara taun kahareup. Kajadian ieu téh éstuning bener-bener jadi nyata. Sawatara taun hareupn bangsa Romawi ngéléhkeun bangsa Persia. kajadian ieuméré bukti yén Nabi Muhammad Saw. bener-bener mangrupakeun nabi jeung rasul, jeung Al-Qur’an téh bener-bener mangrupakeun dawuhan Allah Swt.
+
+[^671]: Antara tilu nepi ka salapan taun. Wanci éléhna bangsa Romawi téh taun 614 H-615 H., waktu unggul perang taun 622 M., kira-kira selang tujuh taun.
+
+[^672]: Numutkeun sawaréhna ahli tapsir, ayat ieu téh diartikeun, “... malahan maranéhna téh jadi kapir, ku sabab berhala-berhala éta.”
+
+[^673]: Maksud muji dina ayat 17 téh nyaéta salat. Ayat 17 jeung 18 ngajelaskeun wanci salat lima waktu.
+
+[^674]: Eta misil téh ngécéskeun yén teu pantes miboga hak ti antara golongan anu teu satata, saperti antara budak jeung majikan (maula). Komo deui antara mahluk jeung Allah, tangtu leuwih teu pantes.
+
+[^675]: Fitrah Allah maksudna ciptaan Allah. Manusa diciptakeun ku Allah ngabogaan fitrah ngagem agama taohid. Lamun aya manusa teu miboga agama, tinangtu teu luyu jeung fitrahna.
+
+[^676]: Ninggalkeun agama taohid jeung ngagem mangpirang-pirang kayakinan nurutkeun kahayang maranéhna.
+
+[^677]: Nu dimaksud “rahmat” nyaéta leupas tina bahaya.
+
+[^678]: Nyaéta sawaréh ti maranéhna aya di jero sawarga, jeung sawaréh deui aya di jero naraka.
+
+[^679]: Anu mawa béja pikabungaheun maksudna méga anu pohara kandelna ditiup ku angin tuluy nurunkeun hujan. Ku sabab éta hujan jadi rahmat Allah, lantaran tumuwuhna sisikian anu geus dipelak jeung héjo ngémploh, bari barijil baruahan.
+
+[^680]: Ku sabab datang para rasul mawa risalah keur kaomna, mangka sawaréh ti maranéhna aya nu percaya, jeung sawaréhna deui ngabohongkeun, malah aya ogé anu nyilakakeun rasul. Mangka, keur jalma-jalma anu doraka jiga kitu, Allah nyiksa maranéhna.
+
+[^681]: Jalma kapir disaruakeun ku Allah jeung jalma nu geus maot, anu moal bisa ngadéngé atikan-atikan. Manéhna jalma-jalma kapir disaruakeun ogé jeung jalma torék anu teu bisa ngadéngé panggerona, ku lantaran maranéhna nukang nonggong.
+
+[^682]: Saperti manéhna geus ngabohong dina tiap omonganana, saperti kitu ogé manéhna ngabohong di dunya.
+
+[^683]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^684]: Pikeun jalma-jalma anu nyarita omong kosong keur nyasarkeun manusa.
+
+[^685]: Salambat-lambatna nyapih budak téh nyaéta nepi ka umur dua taun.
+
+[^686]: Allah Maha Lemah-lembut” nyaéta élmu Allah téh ngalimpudan sagala rupa nepi ka nu pangleutikna.
+
+[^687]: Waktu leumpang, nya ulah gancang teuing atawa laon pisan, kudu nengah atawa siger tengah, teu gancang teuing ogé teu laon pisan.
+
+[^688]: Èlmu pangaweruh-Na tur kawijaksanaana-Na (hikmah-Na), nyaéta sakabéh nu aya moal cukup lamun dipaké keur nuliskeun kaagungan dawuhan-dawuhan Allah
+
+[^689]: alan nu lempeng téh nyaéta ngaku yén Allah Swt. téh tunggal.
+
+[^690]: Manusa téh teu bisa mikanyaho kalayan pasti naon anu rék dilakukeunana isuk atawa naon nu rék tumiba, tapi manusa tetep diwajibkeun usaha.
+
+[^691]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^692]: Calik di luhur ‘Arasy téh nyaéta sipat Allah anu wajib ku urang diimanan, nya sarua jeung sipat kaagungan Allah jeung kasuciana-Na.
+
+[^693]: Sapa’at nyaéta pitulung anu dibikeun ku rasul atawa jalma-jalma anu geus ditangtukeun pikeun ngurangan siksaan atawa tanggungan salah sahiji jalma di ahérat.
+
+[^694]: Béja nu dibawa ku malaikat. Ayat ieu mangrupa misil pikeun ngébréhkeun kagungan Mantenna.
+
+[^695]: Sakabéh manusa dihirupkeun deui pikeun narima wawales ti Allah dina Poé Kiamat.
+
+[^696]: Aranjeunna nyuuh sujud tur tumut ka Allah bari pinuh ku kahusuan. Disunahkeun ngalakukeun sujud tilawah upama ngadéngé ayat-ayat sajdah nu sarupa kieu.
+
+[^697]: Aranjeunna teu saré waktu nu séjén keur sararé, pikeun munajat ka Pangéran ngalakonan salat peuting.
+
+[^698]: Torét téh dipaparinkeun ka Nabi Musa a.s. dina mangsa harita dijadikeun pituduh pikeun Bani Israél. Nya kitu pisan, Al-Qur’an dipaparinkeun ka Nabi Muhammad Saw. pikeun dijadikeun pituduh pikeun umat Islam.
+
+[^699]: Sabar téh nyaéta sabar dina ngadegkeun bebeneran.
+
+[^700]: Poé kaunggulan nyaéta Poé Kiamat.
+
+[^701]: Nabi Muhammad Saw. jeung jalma-jalma nu iman dititah nungguan poé kaunggulan, pikeun ngébréhkeun kaunggulan umat Islam ti jalma-jalma kapir dina poéan ancurna maranéhna.
+
+[^702]: Ẓihגr nyaéta omongan salaki ka pamajikanana, “Tonggong manéh haram pikeun kaula sarua jeung tonggong indung kaula” atawa omongan séjén nu sarua maksudna. Geus jadi adat kabiasaan urang Arab Jahiliyah, upama ngomong jiga kitu ka pamajikanana téh, mangka pamajikanana téh haram salilana pikeun manéhna. Tapi sanggeus Islam datang, mangka “haram salilana” éta di-nasakh (dipupus) jeung pamajikan-pamajikanna bisa halal deui pikeun manéhna ku mayar kiparat (denda).
+
+[^703]: Maula-maula nyaéta abid nu geus dimerdékakeun atawa salah sahiji abdi anu geus diangkat jadi anak, saperti Salim anak angkat Huzaifah, katelah Maula Huzaifah.
+
+[^704]: Jalma-jalma mu’min leuwih mikacinta ka nabina tibatan mikacinta ka dirina sorangan dina sagala perkara.
+
+[^705]: Ngalakukeun kahadéan di dieu téh nyaéta méré harta banda wasiat teu leuwih ti sapertilu harta.
+
+[^706]: Kasanggupan nepikeun pépéling agama ka tiap umatna.
+
+[^707]: Dina Poé Kiamat Allah bakal nanya ka para rasul nepi ka mana usaha aranjeunna nepikeun pépéling ka umatna jeung nepi ka mana umatna ngalaksanakeun pépéling éta.
+
+[^708]: Ayat ieu ngajelaskeun kisah Aḥzāb, nyaéta golongan-golongan anu diancurkeun dina perang Khandaq ku lantaran mungpang paréntah Allah jeung Rasul-Na. Nu dimaksud wadyabalad nu teu bisa ditempo ku maranéh nyaéta para malaikat nu ngahaja didatangkeun ku Allah pikeun ngancurkeun musuh-musuh Allah.
+
+[^709]: Ngajéntrékeun kumaha rongkahna rasa sieun nu kacida jeung rasa watir nu kacida dina wanci éta.
+
+[^710]: Nu dijangjikeun Allah sinareng Rasul-Na nyaéta meunang pangalaman anu hésé.
+
+[^711]: Ngadagoan naon baé nu ku Pangéran dijangjikeun ka anjeunna.
+
+[^712]: Dina poé perang Khandaq, jalma-jalma mu’min teu perang, ku sabab Allah ngagebah maranéhna ku ngintun angin jeung malaikat.
+
+[^713]: Sanggeus golongan-golongan nu sakongkol kalabur, Allah miwarang Nabi Muhammad Saw. ngancurkeun Bani Quraizah (Ahli Kitab) jeung ngusir maranéhna ti bénténg-bénténgna, tuluy sakabéh lalaki anu milu perang jeung maranéhna dipaéhan, sedengkeun awéwé-awéwé jeung barudak ditahan.
+
+[^714]: Wewengkon-wewengkon anu rék diasupan bala tentara Islam.
+
+[^715]: Wewengkon-wewengkon anu rék diasupan bala tentara Islam.
+
+[^716]: yarita bari ngalakukeun laku lampah nu nimbulkeun batur ngalakukeun polah nu teu merenah ka aranjeun.
+
+[^717]: Jalma nu ngabogaan niat rék milampah sérong jeung awéwé séjén saperti ‘ngalakukeun jinah.
+
+[^718]: Garwa-garwa Rasul kudu tetap calik di bumi. Kaluar imah upama aya kaperluan anu dibenerkeun ku sara’.
+
+[^719]: “Jahiliah baheula” nyaéta jahiliah kapir saméméh jaman Nabi Muhammad Saw. Nu dimaksud “jahiliah jaman ayeuna” nyaéta jahiliah ku lantaran milampah kama’siatan sanggeus datangna Islam.
+
+[^720]: Ahlulbait nyaéta kulawarga Rasulullah Saw.
+
+[^721]: Nabi Muhammad Saw. lain bapa ti salah sahiji sobatna, ku kituna patilasan Zaéd nyaéta Zaénab bisa ditikah ku Rasulullah.
+
+[^722]: Para rasul anu nepikeun saréat-saréat Allah ka manusa.
+
+[^723]: Nabi Muhammad Saw. lain bapa ti salah sahiji sobatna, ku kituna patilasan Zaéd nyaéta Zaénab bisa ditikah ku Rasulullah.
+
+[^724]: Aman tina sagala rupa musibah.
+
+[^725]: Numutkun riwayat, dina hiji mangsa waktu garwa-garwa Nabi Muhammad Saw. aya nu timburuan jeung aya nu ménta tambahan balanja, mangka Nabi mutuskeun kakaitan sareng aranjeunna nepi ka sabulan lilana. Ku kituna, lantaran sieun dipirak, mangka aranjeunna nyumpingan Nabi pikeun nétélakeun yén aranjeunna rido moal rengat manah kana naon baé anu badé diputuskeun ku Nabi ka aranjeunna. Turunna ieu ayat nétélakeun yén Allah maparin widi ka Nabi pikeun pasatemon sareng saha baé ti garwa-garwana anu dipikarep atanapi teu dipikarep sapatemon. Ayat ieu ogé nétélakeun yén Allah maparin widi ka Nabi pikeun rujuk deui sareng garwa-garwana nu tos dipirak upama aya garwana nu tos dipirak.
+
+[^726]: Ieu ayat nyegah sahabat-sahabat Rasul asup ka imah anjeunna pikeun dahar bari ngahajakeun nungguan waktu dahar anjeunna.
+
+[^727]: Solawat ti Allah hartina maparin rahmat, ti Malaikat pang mundutkeun pangampura, ti jalma-jalma mu’min hartina ngadoa sarupa jeung ngucapkeun Allāhumma ṣalli ‘alā Muḥammad.
+
+[^728]: Ku ngucapkeun ucapan Assalāmu‘alaika ayyuhan Nabī, hartina mugia kasalametan pikeun anjeun hé Nabi!
+
+[^729]: Aya ogé anu napsirkeun yén żarrah téh nyaéta sabangsaning sato nu leutik pisan kaasup sireum. Bangsa Arab sok ngalandi sabangsaning sato nu pohara leutikna ku éta kecap.
+
+[^730]: Lamun Nabi Sulaéman a.s. lalampahan ti isuk-isuk nepi ka tengah poé, mangka jarakna sarua jeung jarak nu dilakukeun maké onta salila sabulan. Nya kitu deui lamun lalampahan dimimitian ti tengah poé nepi ka soré, mangka waktuna sarua jeung iinditan sabulan.
+
+[^731]: Banjir bandang anu disababkeun runtuhna bendungan Ma’rib.
+
+[^732]: Tangkal ‘Asl nyaéta sarupaning tangkal camara, tangkal Sidr sarupaning tangkal bidara.
+
+[^733]: Nagri nu aya di Syam, ku sabab kasuburanana, jeung nu dimaksud nagri-nagri nu deukuet nyaéta nagri nu aya di antara Yaman jeung Syam. Ku kaayaan kitu téh sakabéh jalma lalar liwat bari aman, boh ti beurang atawa ti peuting, maranéhna bisa eureun di padang pasir bari aman.
+
+[^734]: Lamun nagri-nagri anu deukeut téh dileungitkeun, mangka maranéhna bisa ngalakukeun monopoli dagang, supaya meunang untungan nu leuwih gedé.
+
+[^735]: Ieu ayat nerangkeun yén sapa’at (pitulung) téh ngan bisa dilakukeun ku widi Allah. Jalma-jalma nu rék dipaparin widi méré sapa’at jeung anu dipaparin widi meunang sapa’at ngarasa sieun jeung rémpan teu meunang widi ti Allah.
+
+[^736]: Ku kituna, jalma-jalma kapir meunang ni’mat nu pohara gedéna di dunya, mangka maranéhna ngarasa moal meunang siksaan di ahérat.
+
+[^737]: Jin anu doraka téh nyaéta sétan.
+
+[^738]: Allah maparin kapinteran, kawijaksanaan, pangaweruh élmu nu luhung, yuswa nu panjang, kakuatan jasmani, kakayaan harta banda, jeung sajabana.
+
+[^739]: ”Duaan-duaan atawa sorangan-sorangan” maksudna nyaéta waktu ngadeuheus ka Allah, tuluy neuleuman kaayaan Nabi Muhammad Saw. alusna dilakukeun keur kaayaan tenang, teu dilakukeun waktu kaayaan ramé.
+
+[^740]: Rasulullah Saw. teu pisan-pisan ménta buruh ka maranéhna. Nanging anu dipénta ku anjeunna mah nyaéta maranéh iman ka Allah. Éta iman téh pikeun kaalusan maranéhna sorangan.
+
+[^741]: Upama bebeneran geus datang, mangka kabatilan bakal ancur tur moal bisa ngalawan jeung ngaruntuhkeun bebeneran.
+
+[^742]: Sanggeus maranéhna nénjo rongkahna siksaan dina Poé Kiamat, kakara maranéhna daék iman ka Allah jeung Rasul-Na, nya tempat kudu iman téh geus jauh nyaéta di alam dunya.
+
+[^743]: u ku maranéhna dipikahayang téh nyaéta iman ka Allah atawa balik deui ka dunya pikeun ngalakukeun tobat.
+
+[^744]: Sawaréh ahli tapsir nétélakeun yén ucapan nu hadé téh nyaéta kalimah taohid (lā ilāha illallāh). Aya ogé anu nyebutkeun dikir ka Allah. Aya ogé nu nyebutkeun sakabéh omongan nu alus anu diucapkeun karana Allah.
+
+[^745]: Caritaan nu hadé téh ditaékkeun pikeun ditampi ku Mantenna jeung dibéré ganjaran.
+
+[^746]: Sawaréh ahli tapsir napsirkeun arti bil-gaib dina ieu ayat téh nyaéta waktu jalma-jalma keur sorangan teu nempo batur.
+
+[^747]: Nabi Muhammad Saw. teu bisa méré pituduh pikeun jalma-jalma musrik nu geus paéh haténa.
+
+[^748]: Agama taohid jeung hukum-hukumna.
+
+[^749]: Allah méré pituduh ka saha baé nu dipikersa jeung méré kasanggupan pikeun ngadéngékeun jeung narima katerangan-katerangan.
+
+[^750]: Jalma-jalma nu nyaho kana kaagungan jeung kakawasaan Allah.
+
+[^751]: Ngadolim ka diri sorangan téh nyaéta jalma nu leuwih loba kasalahanana tibatan kahadéanana. Nu dimaksud ku siger tengah téh nyaéta jalma-jalma nu kahadéan jeung kasalahanana saimbang, sedengkeun nu dimaksud jalma-jalma nu leuwih ti heula ngalakukeun kahadéan téh nyaéta nu ngalakukeun kahadéanana pohara lobana jeung langka ngalakukeun kagoréngan.
+
+[^752]: Anu dimaksud ku ”katangtuan jalma-jalma nu ti heula” nyaéta datangna siksa ka jalma-jalma nu ngabohongkeun para rasul.
+
+[^753]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^754]: Pépéling anu didugikeun ku Nabi Muhammad Saw. ngan gedé gunana pikeun panganut-panganutna.
+
+[^755]: Numutkeun para ahli tapsir, éta lalaki téh ngaranna Habib an-Najjar.
+
+[^756]: Numutkeun hiji riwayat, éta lalaki téh ditelasan ku kaomna sanggeus cacariosan ngeunaan naséhat, saperti diunggel dina ayat 20-25. Waktu anjeunna rék maot, Malaikat lungsur masihan wartos yén kersaning Allah dosa-dosana dihapunten sareng anjeunna bakal lebet sawarga.
+
+[^757]: Sora tiupan sangkakala nu kahiji anu ngancurkeun ieu alam dunya.
+
+[^758]: Tiupan sangkakala kedua ngahudangkeun jalma-jalma di jero kubur.
+
+[^759]: Balik deui ka asal, lemah jeung kurang akal, sarua jeung budak leutik.
+
+[^760]: Poé waktu Allah méré kaputusan jeung wawales ka hamba-hamba-Na.
+
+[^761]: Pamingpin-pamingpin maranéhna ngadatangan panganut-panganutna bari mawa muslihat keur mincut haténa.
+
+[^762]: Nabi Ibrahim a.s. kaasup ti kalangan Nabi Nuh a.s. dina kaimanan ka Allah jeung pokok-pokok atikan agama.
+
+[^763]: Ihlas pasrah sumerah ka Allah kalayan haté nu buleud.
+
+[^764]: Anjeunna mutuskeun yén dirina sieun sasar jeung sieun manggihan dirina dina kayakinan nu salah ngeunaan pangerén.
+
+[^765]: Percaya yén éta impian téh bener-bener ti Allah jeung wajib dilaksanakeun.
+
+[^766]: Saenggeus ébréh kasabaran sarta kataatan Nabi Ibrahim a.s. jeung Nabi Ismail a.s., mangka Allah nyegah meuncit Nabi Ismail a.s. Ku kituna, pikeun nuluykeun korban, Allah ngagantina ku domba. Dumasar kana ieu kajadian, mangka disaréatkeun korban nu dilaksanakeun dina wanci Idul Adha.
+
+[^767]: Ba’lan téh ngaran salaha sahiji berhala di kalangan Phunicia.
+
+[^768]: Indit ninggalkeun kawajiban.
+
+[^769]: Undian kapaksa diayakeun ku lantaran muatan parahu pinuh. Lamun teu dikurangan, tangtu éta parahu bakal kérem. Ku kituna, prak baé diayakeun undian. Saha baé jalma anu éléh dina undian rék dialungkeun ka laut. Nabi Yunus a.s. kaasup anu éléh dina undian, jeung kudu dialungkeun ka laut.
+
+[^770]: Dicawad ku lantaran anjeunna kabur ninggalkeun kaomna.
+
+[^771]: Jalma-jalma musyrik ngomong yén Allah boga anak-anak awéwé ti kalangan Malaikat, padahal maranéhna sorangan nganggap hina ka anak awéwé téh.
+
+[^772]: Kalangan jin anu iman.
+
+[^773]: Rasul jeung panganut-panganutna.
+
+[^774]: Nepi ka kanjeng Rasul kagungan kakiatan.
+
+[^775]: Lain waktu subuh atawa isuk-isuk, tapi iraha baé waktu jalma-jalma narajang nyerang saméméh subuh. Mangka, jalma-jalma anu éléh bakal éléh dina wanci isuk-isuk kénéh.
+
+[^776]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^777]: Ceuk jalma-jalma kapir, “Saenyana nyembah pangéran-pangéran téh anu sabenerna dipikahayang ku Allah.”
+
+[^778]: Nu dimaskud ku kaom kapir Qurés ngeunaan agama nu ahir téh nyaéta agama Nasrani.
+
+[^779]: Ayat ieu téh nyaritakeun Perang Hondak. Di dinya aya bala tantara anu diwangun ti sababaraha golongan, nyaéta golongan kaom musrikin, Yahudi, sarta sababaraha kabilah Arab anu narajang merangan kaom muslimin di Madinah. Ieu peperangan lekasan kalayan kaburna bala tentara maranéhna. Sawaréh ahli tapsir ngomong yén nu dimaksud perang di dieu nyaéta Perang Badar.
+
+[^780]: Pangeusi Madyan nyaéta kaomna Nabi Syuéb a.s.
+
+[^781]: Mangrupa ciri Poé Kiamat. Ieu sentakan atawa ieu gorowokan téh kacida tarikna jeung ngan sakolébat bakating ku téréh.
+
+[^782]: Sawaréhna ahli tapsir aya nu nerjemahkeun ayat 33 kieu, “Pék geura bawa balik deui ka kuring!” tuluy anjeunna nyabet sukuna jeung beuheungna (dipeuncit).
+
+[^783]: Nabi Ayyub a.s. ngagaduhan panyawat kulit kanggo sawatara waktos nu lami. Anjeunna nyuhunkeun bantosan ka Allah. Teras Allah ngaijabah doana, lajeng miwarang ka anjeunna supados nénjragkeun sampéanana kana taneuh. Anjeunna tumut kana timbalan Allah. Ku lantaran pituduh Allah, tina tilas tapak sampéanana bijil cai, teras anjeunna ibak sareng ngaleueut caina, dugi ka anjeunna damang tina panyawatna sarta tiasa ngumpul ngariung deui sareng kulawargina, anu jumlahna dua kali lipat tina jumlah sateuacana. Dina salah sahiji waktos, Nabi Ayyub émuteun kana sumpah, yén anjeunna badé neunggeul istrina ku sabab kungsi talobéh dina ngurus anjeunna waktos teu damang. Nanging timbul dina manahna rasa asih sareng nyaah ka istrina dugi ka anjeunna teu tiasa nyumponan sumpahna. Lajeng sumping hidayah Allah sakumaha diécéskeun dina ayat 44 surat ieu, supados anjeunna nyumponan kana sumpahna tapi henteu nganyenyeri istrina. Ku kituna, anjeunna neungeul istrina ku saiket jukut.
+
+[^784]: Anu dimaksud ngajaga paningalna nyaéta teuteupan socana ngan ditujukeun ka nu dipikacintana di sawarga.
+
+[^785]: Jalma-jalma anu pinilih téh nyaéta anu tumut kana sagala rupi pituduh Allah Swt.
+
+[^786]: Béja-béja tina Al-Qur’an téh aya nu kalaksanakeun jeung lumangsung di alam dunya, aya ogé anu lumangsungna téh di ahérat. Nu kalaksanakeun di alam dunya sarupaning benerna jangji Allah ka kaom mu’min jeung kayakinan yén kaom mu’min bakal meunang dina perang nyanghareupan kaom musrikin, sedengkeun kajadian anu lumangung di ahérat nyaéta sarupaning benerna jangji Allah ngeunaan wawales jeung balitungan Allah.
+
+[^787]: Tilu pepeteng éta téh nyaéta pepeteng dina jero beuteung, pepeteng dina jero rahim, jeung pepeteng dina salaput anu nutup jabang bayi di jero rahim.
+
+[^788]: Jalma nu iman atawa henteu iman sama sakali teu ngarugikeun Allah masing saeutik ogé.
+
+[^789]: Masing-masing jalma nanggung dosa-dosana sorangan.
+
+[^790]: Paréntah ieu téh lain arti nu sabenerna, tapi ngajelaskeun kamurkaan Allah ka kaom musrikin anu geus sababaraha kali diajak kana agama taohid, tapi maranéhna salilana ingkar.
+
+[^791]: Ṭāgūt téh nyaéta sétan jeung naon baé anu disembah salian ti Allah Swt.
+
+[^792]: Maranéhna nu ngadéngékeun atikan-atikan Al-Qur’an jeung atikan-atikan nu séjén, tapi manéhna ngan tumut kana atikan-atikan tina Al-Qur’an, ku sabab kitu manéhna téh jalma nu panghadé-hadéna.
+
+[^793]: Hukum-hukum, atikan-atikan tur kisah-kisah diulang-ulang dina Al-Qur’an sangkan leuwih kuat pangaruh jeung pangaweruhna asup kana haté. Sawaréh ahli tapsir nyebutkeun yén nu dimaksud diulang-ulang téh saperti maca muqaddimah al-Fātiḥah anu sok dibaca diulang-ulang.
+
+[^794]: Jalma-jalma nu maot téh nyawana ditahan ku Allah nepi ka teu bisa mulang deui kana jasadna. Jalma-jalma anu can maot tapi ngan saukur saré rohna dileupaskeun, tuluy balik deui kana jasad-jasadna.
+
+[^795]: Ieu ayat ngagambarkeun kaagungan sareng kakawasaan Allah. Mung Mantenna wungkul anu ngawasa dina Poé Kiamat téh.
+
+[^796]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^797]: Titingalian nu dicegah saperti ningali orat awéwe anu lain mahramna.
+
+[^798]: Wangunan, pakakas, bénténg-bénténg, jeung istana-istana.
+
+[^799]: Mujijat, hukum-hukum, jeung ajaran-ajaran anu dibawa ku éta rasul.
+
+[^800]: Poé Kiamat disebut poé silih geroan téh sabab dina éta poé jalma-jalma kumpul di padang mahsar. Sabagianana aya nu ngagero sabagian nu lain pikeun ménta tulung.
+
+[^801]: Maranéhna nolak ayat-ayat Allah tanpa alesan anu geus datang ka maranéhna.
+
+[^802]: Moal bisa nulungan, boh di dunya atawa di ahérat.
+
+[^803]: Ditingalikeun ka maranéhna naraka di waktu isuk jeung soré sa acan maranéhna dihudangkeun ti kubur ka alam mahsar.
+
+[^804]: “Nyembah ka Kaula” dina ayat ieu téh nyaéta ngadoa ka Allah.
+
+[^805]: Maksud mangpa’at lian téh saperti kamangpa’atan tina susuna, kulitna, buluna, jeung salain ti éta.
+
+[^806]: Nyaéta yén maranéhna téh geus ngarasa cukup ku élmu nu dipiboga, teu perlu deui élmu nu didatangkeun ku para rasul. Malahan maranéhna nganggap énténg jeung ngageuhgeuykeun katerangan nu datang ti para rasul téh.
+
+[^807]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^808]: Ti sagala arah.
+
+[^809]: Maranéhna migawé dosa terang-terangan sabab maranéhna nyangka yén Allah teu uningaeun kana pagawéanana. Maranéhna teu ngeuh yén pangdéngé, panénjo, jeung kulitna bakal jadi saksi engké di ahérat kana pagawéan-pagawéanana baheula di dunya.
+
+[^810]: Nu dimaksud “nu aya di hareupeun” nyaéta napsu jeung kasenangan dunya nu keur dipiboga, sedengkeun maksud “di tukangeun” nyaéta kahayang-kahayang nu teu kahontal ku maranéhna.
+
+[^811]: Méré pituduh ka maranéhna.
+
+[^812]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^813]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^814]: Allah Mahasukur, maksudna Allah ngaganjar ka saha baé jalma anu sukuran ka Mantenna ku cara méré ganjaran kana amal soléh, ngahampura kasalahan, nambah ni’mat, jeung sajabana.
+
+[^815]: Ngajalungkiring luhur anu mawa muatan beurat, tapi teu tilelep.
+
+[^816]: Manusa bisa mireungeu kalam Ilahi, tapi teu bisa nangenan Dat Pangéran (Allah), saperti kajadian anu kaalaman ku Nabi Musa a.s.
+
+[^817]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^818]: Kaom musrikin Mekah ngomong yén malaikat téh budak awéwéna Allah. Padahal teu kitu, malaikat mah sawaréh ti mahluk jeung ciptaana-Na.
+
+[^819]: Ieu ayat ngagambarkeun kaayaan bangsa Arab waktu Al-Qur’an diturunkeun. Maranéhna henteu dibéré kasempetan dina atikan, ku kituna jadi barodo sarta ngan dijadikeun papaés wungkul. Maranéhna henteu mibanda sikep teges dina nepikeun kahayangna pikeun meunang kaunggulan.
+
+[^820]: Nabi Ibrahim a.s. ngajantenkeun kalimah taohid minangka cecekelan (ageman) pikeun rundayanana. Ku kituna, lamun seug aya ti antara maranéhna anu nyarékatkeun Allah, manéhna kudu geura mulang deui kana éta taohid.
+
+[^821]: Ti antara katurunan Nabi Ibrahim a.s. téh aya anu mopohokeun kana taohid. Allah henteu maparin siksa ka maranéhna, tapi ngalimpahkeun ni’mat sarta kahirupan anu sakuduna disukuran ku maranéhna. Ngan maranéhna henteu baé sukuran, malahan kalah ngalajur napsu. Ku kituna, Allah nurunkeun Al-Qur’an tur ngutus saurang rasul pikeun ngabingbing maranéhna.
+
+[^822]: Kaunggulan pikeun Nabi Muhammad Saw. sarta kaancuran pikeun kaom musrikin.
+
+[^823]: Siksa di dieu nyaéta siksa dunya minangka cobaan ti Allah, saperti weritna kadaharan, tumuwuhna hama pepelakan, jeung réa-réa deui.
+
+[^824]: Anu dimaksud tukang sihir ku maranéhna téh nyaéta Nabi Musa a.s.
+
+[^825]: Ayat 57 jeung 58 di luhur nyaritakeun deui kajadian waktu Rasulullah Saw. maoskeun surat al-Anbiyā’ ayat 21 di hareupeun kaom Qurés. Salah saurang ti kaom Qurés, ngaranna Abdullah ibn al-Jab’ari, nanya ka Rasulullah Saw. ngeunaan kaayaan Isa anu disembah ku kaom Nasrani (Kristen), “Naha Isa ogé jadi suluh naraka Jahanam saperti sesembahan (berhala-berhala) maranéhna?” Rasulullah ngahuleng sakedapan. Nya maranéhna nyeungseurikeun (Rasulullah). Terus maranéhna tumanya deui, “Mana anu leuwih alus antara sesembahan maranéhna jeung Nabi Isa a.s.” Pertanyaan-pertanyaan maranéhna kitu téh ngan saukur néngtéréwéléng, lain néangan bebeneran. Maranéhna pohara salahna. Nabi Isa a.s. henteu uningaeun yén anjeunna disembah tur teu réla (dirina) dijadikeun sesembahan.
+
+[^826]: Kanabian, Injil, jeung hukum.
+
+[^827]: Kaom musrikin Mekah lain wungkul ngéwa kana bebeneran, malahan maranéhna geus ngarencanakeun rék nelasan Nabi Muhammad Saw. Ngan éta rencana kaburu gagal, margi Allah ogé ngagaduhan rencana pikeun nyalametkeun Nabi.
+
+[^828]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^829]: Naon baé anu nyambung jeung kahirupan mahluk saperti hirup, maot, rejeki, papastén hadé, papastén goréng, jeung sajabana.
+
+[^830]: Musibah kalaparan anu tumiba ka kaom Qurés, ku lantaran maranéhna nolak (pangajak) Nabi Muhammad Saw.
+
+[^831]: Nabi Muhammad Saw. dituduh nampi ajaran ti lain urang Arab ngaranna Addas nu ngagem agama Nasrani.
+
+[^832]: Hanteman anu pohara gedéna téh waktu lumangsung Perang Badar. Kaom musrikin kadéséh jajaténa nepi ka éléh tur loba para panggedénna anu tiwas.
+
+[^833]: Saperti payung tina reueuk, turunna Manna jeung Salwa, mancurna cai tina jero batu, jeung beulahna Laut Mérah.
+
+[^834]: Kaom musrik Mekah ngayakinkeun yén sanggeusna maot, manusa moal bakal dihirupkeun deui.
+
+[^835]: Tubba’ nyaéta gelar anu diancokeun ku maranéhna pikeun para raja suku Himyar jeung Tubba’.
+
+[^836]: Taya karingrang bakal béakeun atawa inggis ku gering ku sabab ngadahar dahareun di éta tempat.
+
+[^837]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^838]: Poé-poé waktu Allah nibankeun siksa ka maranéhna.
+
+[^839]: Allah ngantep éta jalma dina kasasaran alatan Mantenna parantos uninga yén manéhna teu narima pituduh anu geus didawuhkeun ka manéhna.
+
+[^840]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^841]: Anu dimaksud “saurang ti Bani Israél” téh nyaéta Abdullah ibn Salam. Anjeunna ngedalkeun kaimanana ka Nabi Muhammad Saw. Sanggeus niténan yén ti antara eusi Al-Qur’an aya anu luyu jeung eusi Torét, saperti bagbagan ngeunaan taohid, jangji, ancaman, karasulan Muhammad Saw., ayana kahirupan ahérat, jeung sajabana.
+
+[^842]: Kaom kapir ngahina ka kaom muslimin ku omongan kieu, “Lamun seug ieu Al-Qur’an téh bener, tangtu kuring saréréa leuwih ti heula iman tibatan maranéhna jalma-jalma anu katalangsara jeung lemah, saperti Bilal, ‘Ammar, Suhaib, Habbab, jeung anu lianna.”
+
+[^843]: Panceg pamadegan dina taohid sarta tetep milampah amal soléh.
+
+[^844]: “Uff (Ah)” nyaéta kecap-kecap, kalimah, atawa isarat anu ngandung maksud nentang (nolak).
+
+[^845]: Allah ngajangjikeun harta rampasan perang anu kacida lobana pikeun kaom muslimin. Minangka bubuka, Allah maparinkeunana dina waktu Perang Khaibar.
+
+[^846]: Kalimah takwa téh nyaéta kalimah taohid anu ngamurnikeun dina nyubadanan kata’atan ka Allah.
+
+[^847]: Sababaraha waktu sateuacan dilaksanakeun Perjangjian Hudaibiah, Nabi Muhammad Saw. ngimpén yén anjeunna sareng para sahabatna lebet ka kota Mekah jeung Masjidil Haram dina kaayaan sawaréh ti aranjeunna sirahna dicukur (nepi ka lénang) jeung (sawaréhna deui) cukup digunting rada pondok. Nabi nyanggem yén éta impénan téh bakal lumangsung. Terus ieu béja nyebar di antara kaom muslimin, jalma-jalma munapék, Yahudi, katut Nasrani. Saréngséna “Perjangjian Hudaibiah” dilaksanakeun, kaom muslimin dina waktu harita teu bisa asup ka Mekah (pon nya kitu deui Masjidil Haram). Ku kituna, jalma-jalma munapék ngageuhgeuykeun Nabi tur ngomong yén impénan anu dipisanggem ku Rasul pasti lumangsung téh bohong wungkul. Tuluy turun ieu ayat anu ngabéwarakeun yén impénan Nabi pasti bakal lumangsung dina taun anu bakal datang. Upama dina taun lumangsungna Perjangjian Hudaibiah kaom muslimin asup ka kota Mekah, mangka hariwang kasalametan jalma-jalma anu nyumputkeun imanna (anu aya di kota Mekah waktu harita) bakal kaancem kasalametanana.
+
+[^848]: Maksudna, jalma-jalma mu’min teu meunang netepkeun hiji hukum, saméméh aya katetepan ti Allah jeung Rasul-Na.
+
+[^849]: Tingal catetan kaki surat al-Baqarah/2:1.
+
+[^850]: Gurat ider béntang, planet, sarta banda-banda jomantara lianna. Aya ogé anu ngartikeun “mibanda ciptaan anu hadé”, ”mibanda papaés béntang-béntang” atawa “mibanda wangunan anu pengkuh.”
+
+[^851]: Pabéntar-pahamna kaom musrikin ngeunaan Nabi Muhammad Saw. jeung Al-Qur’an.
+
+[^852]: Êta batu-batu dibéré tanda ku dingaranan jalma anu bakal dibinasakeun.
+
+[^853]: Tumpukan batu-batu anu digunakeun pikeun ngabinasakeun kaom Lut. Aya ogé anu nyebutkeun hiji talaga anu caina tutumplukan anu dipaké pikeun membinasakeun kaom Lut. Aya deui anu nyebutkeun hiji telaga anu caina hideung sarta bau biuk angseuna.
+
+[^854]: Baitulma’mur dina riwayat al-Bukhari, Muslim, jeung Tafsir Ibn Kaṡīr nyaéta imah anu aya di langit katujuh anu dieuyeubkeun ku 70.000 malaikat tur salawasna tasbéh ka Mantenna.
+
+[^855]: Ayana musim halodo, kalaparan, kacilakaan anu tumiba ka maranéhna, siksa kubur, jeung sajabana.
+
+[^856]: Sidratulmuntaha nyaéta tempat anu pangluhurna di langit katujuh, anu parantos disumpingan ku Nabi Muhammad Saw. waktu mi‘raj.
+
+[^857]: Béntang anu jadi sesembahan urang Arab dina mangsa Jahiliah.
+
+[^858]: Ti antara ahli tapsir aya anu ngabogaan pamadegan yén lā yabgiyān maksudna séwang-séwang henteu mikahayang. Ku kituna, anu dimaksud dina ayat ka-19 jeung 20, nyaéta aya dua laut anu dihalangan ku taneuh urut kenténg (talawéngkar), tapi éta taneuh téh (henteu diperlukeun deui), anu ahirna dipiceun jeung (dikali deui pikeun kaperluan lalu-lintas), nya antukna kadua laut patepung, aaperti Terusan Suez jeung Terusan Panama.
+
+[^859]: Allah salawasna nyiptakeun, ngahirupkeun, ngamaotkeun, ngurus, maparin rejeki, jeung sajabana.
+
+[^860]: Tapi dina waktuna bakal dipénta tanggung jawab tina sagala amal anu dipilampahna.
+
+[^861]: Sawarga pikeun manusa jeung sawarga pikeun jin. Aya ogé ahli tapsir anu boga pamadegan, sawarga dunya jeung sawarga ahérat.
+
+[^862]: Salian ti dua sawarga anu disebut saméméhna, aya deui dua sawarga pikeun jalma-jalma mu’min anu kurang darajatna ti jalma-jalma anu diasupkeun ka dua sawarga anu mimiti.
+
+[^863]: Jalma-jalma anu nampi buku catetan amal aranjeunna ngalangkungan panangan katuhu.
+
+[^864]: Jalma-jalma anu narima buku catétan amalna maké leungeun kénca.
+
+[^865]: Sakabéh umat nabi-nabi saméméh Nabi Muhammad Saw., tur anu dimaksud jalma anu pandeuri nyaéta umat Nabi Muhammad Saw.
+
+[^866]: 6Aranjeunna diciptakeun henteu ngalangkungan proses babaran tur langsung janten wanoja.
+
+[^867]: Rupa tangkal di naraka anu ngabalukarkeun kanyeri anu pohara pikeun anu ngadaharna.
+
+[^868]: “Nu Awal” nyaéta anu geus aya saméméh aya nu lian, “Nu Ahir” nyaéta anu tetep aya sanggeus sagalana musnah, “Nu Zahir” nyaéta Nu Maha Luhur, turta “Nu Batin” nyaéta teu aya naon baé anu bisa ngahalangana-Na, Mantenna langkung caket ka mahluk tibatan mahlukna sorangan kana dirina.
+
+[^869]: Teu kagungan istri atanapi carogé sarta ngerem diri dina biara.
+
+[^870]: Sabab turunna ieu ayat téh patali jeung ngagugatna saurang awéwé, Khaulah binti Sa’labah anu geus di-ẓihār ku salakina, Aus ibn Samit, ku kecap, “Anjeun pikeun kuring geus saperti tonggong indung kuring,” kalayan maksud (Aus ibn Samit) ulah ngalap suka deui ka pamajikanana sakumaha manéhna ulah ngalap suka ka indungna. Nurutkeun kabiasaan Jahiliyah, kecap “ẓihār” saperti kitu sarua jeung geus ngaragragkeun talak ka pamajikan. Ku kituna, Khaulah ngagugat hal éta ka Rasulullah Saw. Anjeunna ngawaler yén dina hal ieu teu acan aya kaputusan (wahyu) ti Allah. Dina riwayat séjén Rasulullah ngadawuh, “Anjeun geus diharamkeun dialap suka deui ku salaki anjeun.” Tuluy Khaulah nyarita, “Pun lanceuk teu kantos nyebat kecap-kecap talak.” Saterusna Khaulah terus-terusan nyedek ka Rasulullah sangkan netepkeun hiji putusan dina éta hal, nepi ka turun éta ayat tur ayat-ayat saterusna.
+
+[^871]: Kahayang tur kakuatan batin, kaberesihan ati, kaunggulan ka musuh, jeung lianna.
+
+[^872]: Kaom Yahudi Bani Nadir anu mimiti dikumpulkeun pikeun diusir ti kota Madinah.
+
+[^873]: Harta rampasan anu ditampa ti musuh tanpa lumangsungna perang. Paméréan péyna béda jeung paméréan gonimah. Gonimah nyaéta harta rampasan anu ditampa ti musuh sanggeus lumangsung perang. Paméréan péy saperti kitu kasebut dina ayat ka-7. Sedengkeun paméréan gonimah kasebut dina ayat ka-41 Surah Al-Anfāl.
+
+[^874]: Dulur Nabi, barudak yatim, jalma-jalma miskin, jeung jalma anu nyanyabaan anu kabéhanana kaasup jalma pakir tur ngilu hijrah.
+
+[^875]: Nabi Ibrahim kantos mangnedakeun pangapunten pikeun ramana anu musrik ka Allah. Ieu teu meunang diturutan, sabab Allah henteu ngijinan jalma mu’min mangméntakeun pangampura pikeun jalma-jalma kupur (pariksa Q.S. An-Nisā’/4: 48).
+
+[^876]: Saméméh gonimah dibagikeun ka lima golongan anu ngabogaan hak, leuwih ti heula bayar heula maskawin-maskawin ka salaki-salaki anu pamajikanana ngarilu ka daérah kaom kupur.
+
+[^877]: Pagawéan anu ku maranéhna diaya-ayakeun antara leungeun jeung sukuna maksudna nyaéta ngayakeun sumpah-sumpah palsu ngeunaan hubungan antara lalaki jeung awéwé, saperti tuduhan jinah, tuduhan yén anak si Fulan lain anak salakina, jeung sajabana.
+
+[^878]: Maranéhna sumpah yén maranéhna geus iman ngan pikeun ngajaga harta sarta dirina supaya ulah dipaéhan, ditawan, atawa dirampas hartana.
+
+[^879]: Maranéhna diupamakeun saperti kai anu ditanggeuhkeun, maksudna nyaéta pikeun medar sipat maranéhna anu goréng sanajan dedegan maranéhna pikayungyuneun jeung pinter ngomong, sok sanajan anu sabenerna uteukna mah belegug teu ngarti kana bebeneran.
+
+[^880]: Sakapeung-kapeungeun pamajikan atawa anak bisa ngagebruskeun salaki atawa bapana pikeun milampah pagawéan anu henteu dibenerkeun ku agama.
+
+[^881]: Jalma anu ngabogaan budak tur beunghar pastina babari meunang pangikut. Tapi lamun manéhna ngabogaan sipat-sipat saperti nu aya dina ayat 13, nya manéhna teu meunang diiluan.
+
+[^882]: Anu dimaksud “tulalé” di dieu téh nyaéta irung. Dipakéna kecap “tulalé” téh pikeun ngahinakeun.
+
+[^883]: Nya kaduruk éta kebon téh ngan nyésakeun arengna nu hideung jiga poékna peuting.
+
+[^884]: Sukuran ni’mat-Na jeung henteu nganiatkeun perkara anu teu saluyu jeung paréntah Mantenna, saperti niat moal méré ka pakir miskin.
+
+[^885]: Allah nguji ka nu nyicingan Mekah ku nugraha ni’mat anu loba pikeun ngayahokeun naha maranéhna sukuran atawa henteu, sakumaha Mantenna ogé parantos nguji ka nu ngabogaan kebon. Tungtungna anu ngabogaan éta kebon téh ngaleut asup Islam sanggeus penaklukan kota Mekah.
+
+[^886]: Maksudna, sarua ngeunaan wawales anu disadiakeun ku Allah pikeun maranéhna séwang-séwang.
+
+[^887]: Maksudna, sarua ngeunaan wawales anu disadiakeun ku Allah pikeun maranéhna séwang-séwang.
+
+[^888]: Maranéhna dipénta sujud téh pikeun nguji kaimanana, sanajan maranéhna teu sanggupeun deui sabab tulang-tulangna geus lemah tur siksaan geus ningker maranéhna.
+
+[^889]: Nurutkeun kabiasaan di Arab, aya jalma anu bisa ngabinasakeun sato atawa manusa kalayan nujukeun paningalina anu seukeut. Cara ieu rék dilakukeun ogé ka Nabi Muhammad Saw., tapi Allah ngajagi anjeunna. Anjeunna dijagi tina éta bahaya sakumaha anu dijangjikeun ku Mantenna dina surat al-Mā’idah ayat 67. Kakuatan paningali panon téh dina mangsa ayeuna mah disebut hipnotis.
+
+[^890]: Al-Ḥāqqah nurutkeun bahasa nyaéta “nu pasti lumangsungna”. Poé Kiamat dingaranan al-Ḥāqqah sabab pasti lumangsungna.
+
+[^891]: Al-Qōri’ah nurutkeun bahasa nyaéta “anu ngaruntagkeun haté”. Poé Kiamat dingaranan al-Qōri’ah sabab matak ngaruntagkeun haté.
+
+[^892]: Kolényay nu kacida tarikna nu nyebabkeun sora nu ngaguntur nepi ka bisa ngaruksak.
+
+[^893]: Maranéhna béak dibinasakeun nepi ka teu boga turunan.
+
+[^894]: Kaom-kaom baheula nu ingkar ka nabi-nabi téh saperti kaom Soléh, kaom Syuéb, jeung séjénna, sarta nagri-nagri anu dijuralitkeun, nyaéta nagri-nagri kaom Lut. Kasalahan anu dilakonan ku maranéhna téh nyaéta ngabohongkeun para rasul.
+
+[^895]: Anu dibawa kana parahu Nabi Nuh keur disalametkeun téh nyaéta kulawargana jeung jalma-jalma anu iman, tapi teu kaasup budakna anu doraka.
+
+[^896]: Tiupan kahiji dina éta mangsa nyebabkeun sakabéh alam jadi ancur.
+
+[^897]: Catetan amal pagawéan.
+
+[^898]: Kami méré tindakan satarik-tarikna.
+
+[^899]: Para malaikat jeung Jibril lamun ngadeuheus ka Pangéran anu méakkeun mangsa sapoé, tapi lamun dilakonan ku manusa méakkeun mangsa lima puluh rébu taun.
+
+[^900]: Jalma anu neundeun hartana jeung henteu daék ngaluarkeun jakat jeng henteu ogé ngainpakkeun dina jalan anu bener.
+
+[^901]: Budak-beulian anu dipimilik alatan peperangan jeung jalma kapir. Awéwé-awéwé anu diboyong téh biasana dibagi-bagikeun ka kaom muslimin anu ngiluan perang, tapi ieu kabiasaan téh lain perkara anu diwajibkeun.
+
+[^902]: Nurutkeun katerangan sawaréh ahli tapsir, ieu ayat aya hubunganana jeung kajadian waktu Rasulullah netepan tur maca Al-Qur’an deukeut Ka’bah, tuluy jalma-jalma musrik ngumpul di hareupeunana bari ngagogoréng jeung ngucap kieu, “Lamun jalma-jalma mu’min bener-bener bakal asup ka sawarga sakumaha caritaan Muhammad, nya urang saréréa nu bakal asup ti heula mah. Nya turun ieu ayat ka-38.
+
+[^903]: Jalma-jalma kapir dicipatkeun ku Allah tina cai mani supaya iman jeung takwa ka Mantenna, sakumaha anu ditepikeun ku Rasul. Jadi, lamun maranéhna teu iman, mangka taya hak pikeun asup sawarga.
+
+[^904]: Ieu dijalankeun sanggeus da’wah kalayan cara susulumputan teu hasil.
+
+[^905]: Sanggeus ngalakukeun da’wah susulumputan tuluy terang-terangan ngan teu ogé hasil, nya Nabi Nuh a.s. ngajalankeun éta dua cara babarengan
+
+[^906]: Tingali surah al-Mu’minun/23: 12,13, jeung 14.
+
+[^907]: Wadd, Suwa, Yagus, Yauq, jeung Nasr téh nyaéta ngaran-ngaran berhala anu galedé pileun golongan-golongan kaom Nuh.
+
+[^908]: Ngucapkeun yén Allah ngabogaan istri jeug budak. Ceuk Ibn Kasir, ieu omongan diucapkeun saacan éta jin asup Islam.
+
+[^909]: Aya ti antara jalma-jalma Arab lamun meuntas tempat anu jempling, maranéhna ménta panyalindungan ka jin anu dianggap kawasa di éta tempat.
+
+[^910]: Mangsa sanggeusna Nabi Muhammad Saw. diutus jadi rasul.
+
+[^911]: Salat peuting téh mimitina mah wajib saacan turun ayat ka-20 dina ieu surah. Sanggeusna turun, hukumna jadi sunnah.
+
+[^912]: Ieu ayat jeung sababraha ayat nu saterusna diturunkeun ngeunaan saorang kapir Mekah, pupuhu Qurés nu ngaranna al-Walid bin Mugirah.
+
+[^913]: Ano anu dialungkeun ka jero naraka téh disiksana nepi ka binasa tuluy dibalikkeun saperti mimiti pikeun disiksa deui.
+
+[^914]: Henteu” nyaéta bantahan pikeun omongan-omongan jalma-jalma musrik anu ngabohongkeun hal-hal nu di luhur.
+
+[^915]: Anggahota awak manusa jadi saksi pikeun pagawéan anu geus dilakonan ku maranéhna saperti anu dijelaskeun dina surah al-Nūr/24:24.
+
+[^916]: Sabab rongkahna kasangsaraan dina mangsa bakal maot jeung kasieunan bakal ninggalkeun dunya tur nyanghareupan ahérat.
+
+[^917]: Pacampur antara binih lalaki jeung awéwé.
+
+[^918]: Ngaran hiji cinyusu di sawarga anu caina bodas sarta ambeu jeung rasana énak pisan.
+
+[^919]: Nyaéta niat jeung jangji bakal ngalakonan perkara anu dikaitkeun jeung hiji perkara anu dipihareup, samisal lamun cageur tina gering atawa lolos ujian, si jalma bakal puasa tilu poé atawa sidekah.
+
+[^920]: Sawaréh ahli tapsir ngartikeun “demi angin anu dikirim”.
+
+[^921]: Ngapung pikeun ngalakonan paréntah Allah.
+
+[^922]: Dina mangsa malaikat turun pikeun mawa wahyu, sawaréh ahli tapsir ngucap yén anu dimaksud kalayan al-nāsyirāt téh nyaéta angin anu ditiup dibarengan ku hujan.
+
+[^923]: Mangsa pikeun ngumpul bareng jeung umat maranéhna séwang-séwang.
+
+[^924]: Bumi ngagundukkeun jalma-jalma hirup dina luhureunana jeung jalma-jalma maot di jero beuteungna.
+
+[^925]: Nyaéta anu ngabogaan tilu gejolak, nyaéta di katuhu, di kénca, jeung di luhur. Éta siksa ningker jalma-jalma kapir tina sagala juru.
+
+[^926]: Sawaréh ahli tapsir ngucap yén anu dimaksud ruku di dieu téh nyaéta tungkul kana paréntah Allah. Sabagian anu lainna ngucap yén anu dimaksud téh nyaéta salat.
+
+[^927]: Sanggaha pikeun pamadeugan jalma-jalma kapir Mekah anu ingkar kana poé dihudangkeun tina kubur jeung Poé Kiamat.
+
+[^928]: Peuting disebut pikeun “pakéan” sabab nutupan jagat sakumaha pakéan nutupan awak manusa.
+
+[^929]: Para ahli tapsir ngabogaan pamadegan anu béda ngeunaan maksud “roh” dina ieu ayat. Aya nu ngucap “Jibril”, aya nu ngucap “wadyabalad Allah”, jeung aya ogé anu ngucap “roh manusa”.
+
+[^930]: Dina ayat 1-5 Allah sumpah kalayan malaikat-malaikat nu macem-macem sipatna jeung urusanana, yén manusa bakal dihudangkeun dina Poé Kiamat. Sawaréh ahli tapsir ngucap, yén dina ieu ayat-ayat, kajaba ayat 5, Allah sumpah kalayan béntang-béntang.
+
+[^931]: Saeungges ngadéngé ayana poé dihudangkeun saeungges maot, jalma-jalma kapir ngarasa hemeng jeung moyok, sabab nurutkeun kayakinana poé dihudangkeun téh moal kajadian. Nya éta téh anu jadi sabab maranéhna nanya.
+
+[^932]: Nangtukeun tahapan-tahapan kajadianana, umurna, rijkina, jeung nasibna.
+
+[^933]: Ngagampangkeun lahiranana atawa méré kasadiaan ka manéhna pikeun ngalakonan jalan anu bener atawa jalan nu sasar.
+
+[^934]: Sanggeus ditétélakeun yén Al-Qur’an téh bener-bener datang ti Allah jeung di jerona aya atikan tur pituduh nu mimpin manusa kana jalan anu lempeng, mangka ditanyakeun ka jalma-jalma kapir, “Jalan mana anu bakal ditempuh ku maranéh?”
+
+[^935]: Ngaran kitab anu nyatet sagala pagawéan jalma-jalma anu doraka.
+
+[^936]: Henteu jiga kitu naon nu ku maranéhna diucapkeun téh, yén maranéhna deukeut di mungguhing Pangéran.
+
+[^937]: Ngaran kitab anu nyatet sagala pagawéan jalma-jalma anu ngabakti.
+
+[^938]: Manusa di ieu dunya, boh sadar boh teu sadar, aya dina lalampahan ka Pangéranana. Pasti manéhna bakal manggihan Mantenna pikeun narima wawales pagaweénna anu goréng atawa anu hadé.
+
+[^939]: Tina sakeclak mani nepi ka dilahirkeunana, terus ngaliwatan mangsa budak, pamuda, jeung nepi ka sawawa. Tina hirup jadi maot, terus dihudangkeun deui.
+
+[^940]: Raj’i hartina malik maluter. Hujan diaranan raj’i dina ieu ayat sabab asalna tina saab anu naék ti bumi ka awang-awang, terus turun dui ka bumi, terus balik deui ka luhur, ti luhur turun deui ka bumi, jeung nya kitu saterusna.
+
+[^941]: Peuting sapuluh ahir dina Bulan Romadon. Aya ogé nu nyebutkeun sapuluh anu kahiji tina bulan Muharom ka asup poé Asyura. Aya ogé nu nyebutkeun sapuluh peuting kahiji dina bulan Julhijah.
+
+[^942]: Ieu léngkob aya di beulah kaler Jajirah Arab antara kota Madinah jeung Syam. Maranéhna motongan batu gunung pikeun ngawangun gedong-gedong tempat cicing maranéhna. Aya ogé anu ngabolongan gunung-gunung pikeun tempat cicing jeung tempat nyalindung maranéhna.
+
+[^943]: Allah nyalahkeun ka jalma anu ngucapkeun yén kabeungharan téh mangrupakeun kamulyaan, sedengkeun kamalaratan téh nyaéta perkara hina, saperti anu kasebut dina ayat 15 jeung 16. Tapi sabenerna kabeungharan jeung kamalaratan téh mangrupakeun cocoba Allah pikeun hamba-hamba-Na.
+
+[^944]: Henteu méré hak-hak budak yatim jeung henteu migawé kahadéan ka budak yatim.
+
+[^945]: Sabot turunna wahyu ka Nabi Muhammad Saw. eureun pikeun samentara waktu, jalma-jalma musrik ngomong, “Pangéranana (Muhammad) geus ninggalkeun jeung ngéwa ka manéhna.” Nya tuluy turun ieu ayat pikeun ngabantah kana éta omongan jalma-jalma musrik.
+
+[^946]: Tungtung perjuangan Nabi Muhammad Saw. téh bakal pinanggih jeung kaunggulan-kaunggulan, sedengkeun mimitina mah loba pisan kahéséan-kahéséan. Aya ogé sawaréh ahli tapsir anu ngartikeun āḥirah kalayan “kahirupan ahérat” jeung sagala kasenanganana, ūlā kalayan “kahirupan dunya”.
+
+[^947]: Teu aya bebeneran anu bisa dihontal ku akal. Terus Allah nurunkeun wahyu ka Nabi Muhammad Saw.
+
+[^948]: Kasusah-kasusah anu dipayunan ku Nabi Muahammad Saw. waktos ngadugikeun risalah.
+
+[^949]: Ngaluhurkeun darajat jeung ngilukeun ngaranna babarengan jeung Asma Allah dina kalimat sahadat tur ngajadikeun taat ka Nabi ogé taat ka Allah.
+
+[^950]: Sawaréh ahli tapsir napsirkeun lamun anjeun (Muhammad) ges bérés dakwah, nya prak ibadah ka Allah. Lamun seug anjeun geus bérés ngalaksanakeun urusan dunya, nya prak pigawé urusan ahérat. Aya ogé nu napsirkeun, “Lamun seug geus ngadegkeun salat, nya kudu ngadoa.”
+
+[^951]: Anu dimaksud “Tin” téh nyaéta tempat cicing Nabi Nuh a.s., nyaéta Damaskus anu loba tangkal Tin jeung Jaitun”, nyaéta Baétulmaqdis anu loba Jaitun.
+
+[^952]: Gunung Sina téh nyaéta tempat Nabi Musa narima wahyu.
+
+[^953]: Anu nyegah téh nyaéta Abu Jahal, sedengkeun nu dicegah téh nyaéta Rasulullah. Tapi usahana teu hasil. Saparantos Rasulullah réngsé tina salat, éta béja téh didugikeun ka Rasulullah. Teras anjeunna ngucap, “Lamun Abu Jahal migawé kos kitu deui, tangtu manéhna bakal dibinaskeun ku malaikat.”
+
+[^954]: Peunting Kodar ngabogaan sababaraha harti, nyaéta peuting anu mulya sabab dina éta peutingan Al-Qur’an mimiti diturunkeun ti Lohil Mahpud ka Nabi Muhammad Saw.
+
+[^955]: Eusi kitab-kitab anu diturunkeun ka nabi-nabi saperti Torét, Jabur, jeung Injil nu asli.
+
+[^956]: Lempeng hartina jauh tina sirik jeung kasasaran.
+
+[^957]: Aya nu untung jeung aya nu cilaka.
+
+[^958]: Ajréng dina soal loba budak, harta, anu miluan, kamulian, jeung sajabana geus mopohokeun maranéh tina taat ka Allah.
+
+[^959]: Ngumpulkeun jeung ngitung-ngitung harta anu nyebabkeun maranéhna jadi pedit jeung embung ngainpakkeun dina jalan Allah.
+
+[^960]: Pasukan anu dipimpin ku Abrahah, Gubernur Yaman anu rék ngancurkeun Ka’bah. Saacan asup ka kota Mekah, éta pasukan diserang ku manuk-manuk anu malédogan ku batu-batu leutik nepi ka maranéhna paraéh.
+
+[^961]: Urang Qurés biasa ngayakeun nyanyabaan, utamana pikeun dagang ka nagri Syam dina usum halodo jeung ka nagri Yaman dina usum ngijih. Dina éta lalampahan maranéhna meunang jaminan kaamanan ti pupuhu nagari-nagri anu diliwatanana. Ieu téh mangrupakeun hiji ni’mat anu gedé pisan ti Allah ka maranéhna. Ku sabab éta, sawajarna maranéhna ibadah ka Allah anu geus maparin éta ni’mat.
+
+[^962]: Jalma-jalma anu teu ngahargaan tur ngaharé-harékeun kana salat jeung waktuna.
+
+[^963]: Riya nyaéta milampah kahadéan lain pikeun néangan karidoan Allah, tapi pikeun néangan pangaleman atawa katénaran di masyarakat.
+
+[^964]: Sawaréh ahli tapsir ngartikeun “embung mayar jakat”.
+
+[^965]: Anu dimaksud “dua leungeun Abu Lahab” téh nyaéta Abu Lahab sorangan.
