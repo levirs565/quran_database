@@ -1,4 +1,4 @@
-import { expandGlob, ensureDir, copy } from "@std/fs";
+import { expandGlob, ensureDir, copy, exists } from "@std/fs";
 import { join, dirname, basename, parse } from "@std/path";
 import { AuthorMetadata, CompiledDocumentSummary } from "./types.ts";
 import * as yaml from "@std/yaml";
@@ -10,7 +10,7 @@ import { createFontPreviewEngine, fontsDir } from "./font-engine.ts";
 const dataDir = join(import.meta.dirname!, "data")
 const distDir = join(import.meta.dirname!, "dist")
 
-await Deno.remove(distDir, { recursive: true });
+if (await exists(distDir)) await Deno.remove(distDir, { recursive: true });
 await ensureDir(distDir);
 await copy(fontsDir, join(distDir, "fonts"));
 
