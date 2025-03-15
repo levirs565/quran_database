@@ -8,4 +8,4 @@ rm ~/miniconda3/miniconda.sh
 source ~/miniconda3/bin/activate
 
 conda init --all
-conda install gcc=12.1.0
+conda install conda-forge::gcc=12.1.0
