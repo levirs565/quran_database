@@ -18,6 +18,6 @@
     "unist-builder": "https://esm.sh/unist-builder@4.0.0"
   },
   "tasks": {
-    "deploy": "deno --allow-read --allow-write --allow-ffi --allow-env --unstable deploy.ts"
+    "deploy": "deno --allow-read --allow-write --allow-ffi --allow-env --allow-net --unstable deploy.ts"
   }
 }
