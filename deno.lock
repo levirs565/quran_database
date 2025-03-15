@@ -2,6 +2,7 @@
   "version": "3",
   "packages": {
     "specifiers": {
+      "jsr:@denosaurs/plug@1": "jsr:@denosaurs/plug@1.0.5",
       "jsr:@denosaurs/plug@1.0.5": "jsr:@denosaurs/plug@1.0.5",
       "jsr:@gfx/canvas@^0.5.8": "jsr:@gfx/canvas@0.5.8",
       "jsr:@std/assert@^0.214.0": "jsr:@std/assert@0.214.0",
@@ -34,6 +35,7 @@
       "@gfx/canvas@0.5.8": {
         "integrity": "a61c80292528e7433d428556b494a0ea496dd8e6abd4a338b8b25fc04e46ea3e",
         "dependencies": [
+          "jsr:@denosaurs/plug@1",
           "jsr:@denosaurs/plug@1.0.5",
           "jsr:@std/encoding@0.217.0",
           "jsr:@std/fs@0.217.0",
@@ -270,6 +272,8 @@
     "https://esm.sh/hast-util-phrasing@3.0.1?target=denonext": "2b41a39ae7a72e24576981915374f0a07b889d9306c3331dc861bd1652fdbf48",
     "https://esm.sh/hast-util-to-html@9.0.5/denonext/hast-util-to-html.mjs": "93cf23673919dcf7f53a6bcbe795bfd05cafb40597c9241606bff5146197d13d",
     "https://esm.sh/hast-util-to-html@9.0.5?target=denonext": "3df1845ce76aba4a248048ec3a8d8a2b31e30ec10f9a77547017d466f0a5ea7d",
+    "https://esm.sh/hast-util-to-mdast@10.1.1/denonext/lib/handlers/li.mjs": "9659843333f43ecdfd7212cac51e603eacc0c711e1784ba5ec74a36a93eb05ef",
+    "https://esm.sh/hast-util-to-mdast@10.1.1/lib/handlers/li.js": "e83b1b3d58b7f8338bdd3cf083f077b52ea034ac9512f403832a64dfdea63d26",
     "https://esm.sh/hast-util-to-mdast@10.1.2/denonext/hast-util-to-mdast.mjs": "3e8c7fc06875942fe514bc71b18b9864bf5a3be5f762cb3dd8470ee63256ae6c",
     "https://esm.sh/hast-util-to-mdast@10.1.2?target=denonext": "5728c766e65d10b6d7a2949fb4add521b488f492560999fd957eeec13e836a6a",
     "https://esm.sh/hast-util-to-text@4.0.2/denonext/hast-util-to-text.mjs": "849b595e8127395c1abaeeafd28b164f2bd43f42353b4154feffc8075473fbb8",
