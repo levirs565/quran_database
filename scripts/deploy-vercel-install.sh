@@ -5,5 +5,7 @@ curl https://repo.anaconda.com/miniconda/Miniconda3-latest-Linux-x86_64.sh -o ~/
 bash ~/miniconda3/miniconda.sh -b -u -p ~/miniconda3
 rm ~/miniconda3/miniconda.sh
 
-PATH=~/miniconda3/:$PATH
+source ~/miniconda3/bin/activate
+
+conda init --all
 conda install gcc=12.1.0
