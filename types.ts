@@ -1,4 +1,4 @@
-import { Root } from "https://esm.sh/@types/mdast@4.0.4";
+import { Root } from "mdast";
 
 export interface BaseMetadata {
     title: string;
@@ -41,7 +41,31 @@ export interface Verse {
 }
 
 export interface Document {
-    metadata: Metadata;
     verseList: Verse[],
     footnoteList: VerseFootnote[]
+    metadata: Metadata;
 }
+
+export interface AuthorMetadata {
+    author: string;
+}
+
+export interface CompiledVerseFootnote {
+    index: number;
+    text: string;
+}
+
+export interface CompiledVerse {
+    sura: number;
+    verse: number;
+    text: string;
+}
+
+export type CompiledDocumentSummary = Metadata & AuthorMetadata & {
+    id: string;
+}
+
+export type CompiledDocument = CompiledDocumentSummary & {
+    verseList: CompiledVerse[];
+    footnoteList: CompiledVerseFootnote[]
+};

@@ -1,19 +1,56 @@
 import { Document, Metadata, Verse, VerseFootnote } from "./types.ts"
 import * as yaml from "@std/yaml";
-import { FootnoteDefinition, Heading, Root, RootContent, Yaml } from "https://esm.sh/@types/mdast@4.0.4";
-import remarkParse from 'https://esm.sh/remark-parse@11'
-import rehypeParse from 'https://esm.sh/rehype-parse@9';
-import rehypeRemark from 'https://esm.sh/rehype-remark@10';
-import remarkFrontmatter from 'https://esm.sh/remark-frontmatter@5'
-import remarkGfm from 'https://esm.sh/remark-gfm@4'
-import remarkStringify from 'https://esm.sh/remark-stringify@11'
-import { toString } from 'https://esm.sh/mdast-util-to-string@4'
-import { unified } from 'https://esm.sh/unified@11'
-import { u } from 'https://esm.sh/unist-builder@4'
+import { FootnoteDefinition, Heading, Root, RootContent, Yaml } from "mdast";
+import { Element, Text } from "https://esm.sh/@types/hast@3.0.4/index.d.ts";
+import remarkParse from "remark-parse";
+import remarkRehype from "remark-rehype";
+import rehypeParse from "rehype-parse";
+import rehypeRemark from "rehype-remark";
+import rehypeStringify from "rehype-stringify";
+import remarkFrontmatter from "remark-frontmatter";
+import remarkGfm from "remark-gfm";
+import remarkStringify from "remark-stringify";
+import { toString } from "mdast-util-to-string"
+import { unified } from "unified"
+import { u } from "unist-builder";
+import { FootnoteReference } from "mdast";
 
-const htmlToMdastProcessor = unified().use(rehypeParse).use(rehypeRemark);
-const mdastParseProcessor = unified().use(remarkParse).use(remarkFrontmatter, ["yaml"]).use(remarkGfm);
-const mdastStringifyProcessor = unified().use(remarkFrontmatter, ["yaml"]).use(remarkGfm).use(remarkStringify);
+const htmlToMdastProcessor = unified()
+    .use(rehypeParse)
+    .use(rehypeRemark);
+const mdastToHtmlSimpleProcessor = unified()
+    .use(remarkRehype, {
+        handlers: {
+            footnoteReference(state, node: FootnoteReference, parent) {
+                return u(
+                    "element",
+                    {
+                        tagName: "footnote-ref",
+                        properties: {
+                            to: node.identifier
+                        },
+                    },
+                    [
+                        u(
+                            "text",
+                            {
+                                value: node.label,
+                            }
+                        ) as Text
+                    ]
+                ) as Element;
+            }
+        }
+    })
+    .use(rehypeStringify);
+const mdastParseProcessor = unified()
+    .use(remarkParse)
+    .use(remarkFrontmatter, ["yaml"])
+    .use(remarkGfm);
+const mdastStringifyProcessor = unified()
+    .use(remarkFrontmatter, ["yaml"])
+    .use(remarkGfm)
+    .use(remarkStringify);
 
 export function htmlToMdast(text: string) {
     const ast = htmlToMdastProcessor.parse(text);
@@ -113,4 +150,18 @@ export function mdastToDocument(root: Root): Document {
         verseList,
         footnoteList
     }
+}
+
+export async function mdastToHtmlSimple(root: Root) {
+    const hast = await mdastToHtmlSimpleProcessor.run(root);
+    if (hast.children.length == 1 && 
+        hast.children[0].type == "element" && 
+        hast.children[0].tagName == "p") {
+        return mdastToHtmlSimpleProcessor.stringify({
+            type: "root",
+            children: hast.children[0].children
+        })
+    }
+
+    return mdastToHtmlSimpleProcessor.stringify(hast);
 }

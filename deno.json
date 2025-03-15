@@ -1,7 +1,20 @@
 {
   "imports": {
+    "@gfx/canvas": "jsr:@gfx/canvas@^0.5.8",
     "@std/fs": "jsr:@std/fs@^1.0.13",
     "@std/path": "jsr:@std/path@^1.0.8",
-    "@std/yaml": "jsr:@std/yaml@^1.0.5"
+    "@std/yaml": "jsr:@std/yaml@^1.0.5",
+    "unified": "https://esm.sh/unified@11.0.5",
+    "mdast": "https://esm.sh/@types/mdast@4.0.4/index.d.ts",
+    "remark-parse": "https://esm.sh/remark-parse@11.0.0",
+    "remark-rehype": "https://esm.sh/remark-rehype@11.1.1",
+    "rehype-parse": "https://esm.sh/rehype-parse@9.0.1",
+    "rehype-remark": "https://esm.sh/rehype-remark@10.0.0",
+    "rehype-stringify": "https://esm.sh/rehype-stringify@10.0.1",
+    "remark-frontmatter": "https://esm.sh/remark-frontmatter@5.0.0",
+    "remark-gfm": "https://esm.sh/remark-gfm@4.0.1",
+    "remark-stringify": "https://esm.sh/remark-stringify@11.0.0",
+    "mdast-util-to-string": "https://esm.sh/mdast-util-to-string@4.0.0",
+    "unist-builder": "https://esm.sh/unist-builder@4.0.0"
   }
 }
