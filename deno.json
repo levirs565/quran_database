@@ -16,5 +16,8 @@
     "remark-stringify": "https://esm.sh/remark-stringify@11.0.0",
     "mdast-util-to-string": "https://esm.sh/mdast-util-to-string@4.0.0",
     "unist-builder": "https://esm.sh/unist-builder@4.0.0"
+  },
+  "tasks": {
+    "deploy": "deno --allow-read --allow-write --allow-ffi --allow-env --unstable deploy.ts"
   }
 }
