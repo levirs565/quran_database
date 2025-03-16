@@ -63,6 +63,9 @@ for await (const entry of expandGlob("*/*.md", {
             fontSize
         );
     }
+    if (compiledSummary.type == "latin") {
+        compiledSummary.previewText = await mdastToHtmlSimple(document.verseList[0].text)
+    }
 
     const compiledDocument: CompiledDocument = {
         ...compiledSummary,

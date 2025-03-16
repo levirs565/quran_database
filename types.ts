@@ -16,6 +16,7 @@ export interface IsyaratMetadata extends BaseMetadata {
 
 export interface LatinMetadata extends BaseMetadata {
     type: "latin";
+    previewText?: string;
 }
 
 export interface TranslationMetadata extends BaseMetadata {
