@@ -2,7 +2,7 @@ import { createCanvas, Fonts } from "@gfx/canvas";
 import { join } from "@std/path";
 import { expandGlob } from "@std/fs/expand-glob";
 
-export const fontsDir = join(import.meta.dirname!, "fonts");
+export const fontsDir = join(import.meta.dirname!, "font");
 
 for await (const entry of expandGlob("*.ttf", {
     root: fontsDir

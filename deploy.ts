@@ -9,10 +9,12 @@ import { createFontPreviewEngine, fontsDir } from "./font-engine.ts";
 
 const dataDir = join(import.meta.dirname!, "data")
 const distDir = join(import.meta.dirname!, "dist")
+const dataDistDir = join(distDir, "data")
 
 if (await exists(distDir)) await Deno.remove(distDir, { recursive: true });
 await ensureDir(distDir);
-await copy(fontsDir, join(distDir, "fonts"));
+await ensureDir(dataDistDir);
+await copy(fontsDir, join(distDir, "font"));
 
 const authors: Record<string, AuthorMetadata> = {};
 
@@ -55,7 +57,7 @@ for await (const entry of expandGlob("*/*.md", {
         const previewName = `${id}.preview.png`;
         compiledSummary.previewImage = previewName;
         fontPreviewEngine.add(
-            join(distDir, previewName),
+            join(dataDistDir, previewName),
             await mdastToHtmlSimple(document.verseList[0].text),
             compiledSummary.font,
             fontSize
@@ -76,10 +78,10 @@ for await (const entry of expandGlob("*/*.md", {
 
     compiledList.push(compiledSummary);
 
-    await Deno.writeTextFile(join(distDir, `${id}.json`), JSON.stringify(compiledDocument));
+    await Deno.writeTextFile(join(dataDistDir, `${id}.json`), JSON.stringify(compiledDocument));
 }
 
-await Deno.writeTextFile(join(distDir, "index.json"), JSON.stringify(compiledList));
+await Deno.writeTextFile(join(dataDistDir, "index.json"), JSON.stringify(compiledList));
 
 console.log("Generating preview images ...")
 fontPreviewEngine.build()
